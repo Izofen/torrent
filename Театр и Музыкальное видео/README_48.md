@@ -454,3 +454,36 @@ Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - L
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504043   (260518) от 02.06.2012
+
+Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт01. Mean Bone (Slash's Snakepit song)
+02. Dirty Little Thing (Velvet Revolver song)
+03. Nightrain (Guns N' Roses song)
+04. One Last Thrill
+05. Back From Cali
+06. Ghost
+07. Standing in the Sun
+08. Rocket Queen (Guns N' Roses song)
+09. Doctor Alibi
+10. Speed Parade (Slash's Snakepit song)(   Читать дальше...   )Жанр: Hard Rock, Хэви-металПеревод: ОтсутствуетПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

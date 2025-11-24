@@ -470,6 +470,63 @@ magnet:?xt=urn:btih:B2B5B4F90BB979648AB50A9202F273E65724FEB0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504145   (260354) от 01.06.2012
+
+VA - Хит-Парад Наше Радио (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 06:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFDE3C69CB6081F040ADB613BCD4FDB16F82BF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504751   (260384) от 02.06.2012
+
+VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Omar - Zumba
+002. DJane Housekat feat. Rameez - My party (Groove Coverage remix)
+003. Lmfao Feat. Lauren Bennett & Goon Rock - Party Rock Anthem
+004. T-Moor Rodriguez - Welcome to the night
+005. Nicki Minaj - Starships (Gordon & Doyle Summer Bootleg Edit)
+006. Lasgo - Sky High (Radio Edit)
+007. Leventina - Freak It Out (Original Mix)
+008. Tanzamomo ft. El 3Mendo - Rum & Coca (Radio Edit)
+009. David Guetta feat. Jennifer Hudson - Night of your life
+010. DJ Drama feat. Drake & Future - We In This Bitch (Remix)(   Читать дальше...   )2012Жанр: Dance, PopПродолжительность: 06:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5538C6B4F84B1F0277E477EFE9230E234B5D7C46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504765   (260414) от 02.06.2012
 
 VA - Metal Compilation - Best III (2012) [MP3|128-320 кб/с]<Symphonic, Black, Gothic, Power, Folk, Doom Metal>
@@ -498,6 +555,39 @@ VA - Metal Compilation - Best III (2012) [MP3|128-320 кб/с]<Symphonic, Black,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F58A87B47E2FD7E615DC7C8673079ACB998BA18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504530   (260523) от 02.06.2012
+
+VA - Сборник медленных хитов Vol.7 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie C - Burn
+02. Mark Knopfler - Nobody's Got The Gun
+03. Lionel Richie - Forever
+04. Eros Ramazzotti - Stella Gemella
+05. Jason Derulo - Dumb
+06. Morten Harket - Tell Me What You See
+07. Lara Fabian - I Guess I Loved You
+08. Bryan Adams - Home Again
+09. Westlife - That's Where You Find Love
+10. Jessica Mauboy - No One Like You(   Читать дальше...   )2012Жанр: Pop | Rock | BluesПродолжительность: 06:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC2646EFA51DB5B0204BEB5053AD9C357AF856F
 ```
 
 
