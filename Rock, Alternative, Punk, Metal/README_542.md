@@ -145,6 +145,61 @@ magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504454   (260327) от 01.06.2012
+
+Мумий Тролль - Vladivostok (2012) [MP3|320 кб/с]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE4F42A50B132756C894DEE7E7CD8796CAE39A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502869   (260388) от 02.06.2012
+
+Forest Stream - 2 albums (2003-2009) [APE/FLAC|Lossless] <Death / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Feral Magic ) (02:19)
+02. The Crown Of Winter (11:44)
+03. Mired (09:27)
+04. Bless You To Die (07:38)
+05. Autumn Dancers (08:40)
+06. The Seventh Symphony Of... (09:05)
+07. The Beautiful Nature (09:24)
+08. Outro (My Awakening Dreamland) (01:38)Жанр: Death / Doom MetalПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502862   (260392) от 02.06.2012
 
 The Fall Of Every Season - From Below (2007) [FLAC|Lossless] <Death Metal, Doom Metal>
@@ -200,6 +255,105 @@ Officium Triste - 6 albums (1997-2009) [FLAC|Lossless] <Doom / Death Metal>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502070   (260483) от 02.06.2012
+
+Vanessa Peters & Ice Cream On Mondays - 3 альбома [FLAC|Lossless]<Rock, Folk Rock, Country Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good News  (04:20)
+02. The War  (03:22)
+03. The Next Big Band  (03:34)
+04. Austin, I Made A Mess  (04:13)
+05. Drowning In Amsterdam  (03:56)
+06. Medals  (05:23)
+07. Keey Your Chin Up  (04:57)
+08. The Grammar Of A Sinking Ship  (02:49)
+09. First Lesson  (03:58)
+10. Coming To Meet Me  (05:25)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country Rock, Indie RockФормат: CD, Album, DigipakПродолжительность: 03:09:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504835   (260496) от 02.06.2012
+
+Kreator - Phantom Antichrist (2012) [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars Mantra (1:18)
+02. Phantom Antichrist (4:30)
+03. Death To The World (4:53)
+04. From Flood Into Fire (5:25)
+05. Civilisation Collapse (4:13)
+06. United In Hate (4:30)
+07. The Few, The Proud, The Broken (4:37)
+08. Your Heaven, My Hell (5:53)
+09. Victory Will Come (4:14)
+10. Until Our Paths Cross Again (5:48)Жанр: Thrash MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504664   (260515) от 02.06.2012
+
+Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260515.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: RockПродолжительность: 01:19:15
+ 01. Twice In A Lifetime [0:03:02.28]
+ 02. Famous Groupies [0:03:35.40]
+ 03. Wild Life [0:06:41.60]
+ 04. Heaven on a Sunday [0:04:28.67]
+ 05. Hi, Hi, Hi [0:03:08.28]
+ 06. It's Not True [0:05:53.00]
+ 07. Must Do Something About It [0:03:43.48]
+ 08. Press [0:04:42.65]
+ 09. Pretty Little Head [0:05:13.52](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
 ```
 
 
