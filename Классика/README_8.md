@@ -188,6 +188,33 @@ magnet:?xt=urn:btih:FE21B17A41F4ACD356F9C618DB38B85BA01A5F86
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589387   (190264) от 09.11.2022
+
+Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Night (Fireside Version)
+02. White Christmas
+03. Angels We Have Heard On High
+04. Santa Claus Is Coming To Town(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFEBCB504CDD78BBB26946712B41C5BC23B7932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588856   (191020) от 06.11.2022
 
 VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -538,6 +565,87 @@ magnet:?xt=urn:btih:55D53CDC0BDB6F79927A6E269644FD831258565B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425881   (218057) от 22.11.2020
+
+Andrea Bocelli - Believe (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_218057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You’ll Never Walk Alone
+02. Fratello Sole Sorella Luna (Dolce è Sentire)
+03. Hallelujah
+04. APianissimo (ft. Cecilia Bartoli)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572312E41F17FDE1BBD773D223C9594CF2030F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966082   (218169) от 18.12.2015
+
+Grieg - Cello Concerto, Songs for Cello and Orchestra (Vernon Handley & London Philharmonic Orchestra) (2005) [FLAC|Lossless] <Classical, Concerto, Romantic Period, Symphonic, Sonata, Suite, ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_218169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata for cello & piano in A minor, Op. 36
+01. Allegro agitato (10:25)
+02. Andante molto tranquillo (06:37)
+03. Introduzione - allegro (12:54)(   Читать дальше...   )Жанр: Classical, Concerto, Romantic Period, Symphonic, Sonata, Suite, Song, Character Piece, Prelude, ElegyПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652677B415D3CB2C99D4F027466E76EDCE164DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966096   (218259) от 18.12.2015
+
+J.S. Bach, F. Stiedry - The Art Of Fugue (orchestral version) - Hans Zender (2002) [FLAC|image + cue] <Classical, Baroque Period, Orchestro, Fugue>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_218259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Allegro Moderato (02:42)
+02. II Allegro con moto (02:45)
+03. Canon I Allegro assai (03:37)
+04. III Allegro moderato (02:44)(   Читать дальше...   )Жанр: Classical, Baroque Period, Orchestro, FugueПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D192D9B8CE5D32B4C7E1FBA4FECB7FCDC2C4CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966089   (218423) от 18.12.2015
 
 Rimsky-Korsakov, Mussorgsky - Works for Piano Trio (The Bekova Sisters) (1999) [FLAC|image+cue] <Classical, Romantic Period, Chamber Music, Recitals, Suite, Trio>
@@ -587,114 +695,6 @@ VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5817A4480692CCE94B900D674BE98D9A6CBB9273
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966202   (220600) от 17.12.2015
-
-Ezietto – Memories (2015) [MP3|320 кб/с] <Instrumental, Neo-Classical, Electronic, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_220600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars & Warriors (original mix)
-02. Celtic Flavour (original mix)
-03. Trinity (original mix)
-04. Faraway Land (original mix)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, Electronic, New AgeПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5149B47338D697FD28915193187DCDA184A2F600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651723   (221060) от 07.08.2023
-
-Ezio Bosso - The 12th Room (2017) [FLAC|Lossless|tracks + .cue] <Classical, Neoclassical, Piano Solo>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_221060.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The 12th Room:
-01. Ezio Bosso – Following, a Bird (Unconditioned) (Out of the Room) 6:52
-02. Frédéric Chopin – Prelude Op. 28 No. 6 (The Burned Room) 3:06
-03. Johann Sebastian Bach – A. Siloti: Prelude BWV 855a (The Children's Room) 2:54(   Читать дальше...   )Жанр: Classical, Neoclassical, Piano SoloПродолжительность: 01:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CD4D0EF7304B80DFF6EA9696EC2D71F665BBA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342836   (221100) от 04.12.2019
-
-VA - Classical Piano - Peaceful music to fall asleep (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_221100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Florian Christl - Vivaldi Variation (Arr. for Piano from Concerto for Strings in G Minor, RV 156) (1:54)
-2.Michael Forster & Anna Stevens - Forces of Attraction (1:58)
-3.Olga Scheps - Avril 14th (1:42)
-4.See Siang Wong - Comptine d'un autre été, l'après-midi (From "Amélie") (2:25)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18F4D03BC19248CBAD13235FE31D446EEF30603
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 151445   (221825) от 30.11.2021
-
-Edvard Grieg - Peer Gynt Suite, Jean Sibelius - Valse Triste (1982-1984) [MP3|320 kb/s]<Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_221825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grieg Peer Gynt Suite no. 1 op. 46
-01 (1) Morning Mood (Allegretto pastorale)
-02 (2) Aase's Death (Andante doloroso)
-03 (3) Anitra's Dance (Tempo di Mazurka)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CD52076BDB6FF01346277D8709ABC18B2CC282
 ```
 
 

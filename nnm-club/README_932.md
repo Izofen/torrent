@@ -1,3 +1,54 @@
+###  Публикация: 1785295   (24567) от 15.03.2025
+
+Shazam v15.13.0-250306 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shazam (шазам) распознает любую песню за секунды. Открывайте для себя новых артистов, видео, слова песен, плейлисты — и все бесплатно. Приложение уже загрузили более миллиарда раз, и это число продолжает расти.Тип издания: Mod ExtraРелиз состоялся: 14.03.2025Разработчик: Apple, Inc.Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7B55D2E71B2559826393F185CE38EF36711F0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785196   (24568) от 15.03.2025
+
+VA - Musical kaleidoscope part 33 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ai Banny Club - Radiant Poise
+02. Sergey Chekalin - Forest Roads
+03. Aleksey Boychenko - Atman
+04. Modern Talking, Johnny Valdivia - Do You Wanna (Cover Mandolin)(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listening, Pop, Dance, OtherПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12098228321B8F59F94424BFAF70FB7FC9FE306
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785235   (24569) от 15.03.2025
 
 Шрифты - Pepper Type - MyFonts - Opinion Pro [OTF]
@@ -586,57 +637,6 @@ magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:764928355BF2D30C647CFEDE20B917F21635F1D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785267   (24593) от 15.03.2025
-
-Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Modular (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_24593.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь строить модульные города на основе сетки, используя автоматическое размещение дорог, рандомизацию сборных конструкций и логику зонирования по высоте для создания реалистичной городской среды.Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 06:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62933FC3FC081A58270459292DB702EB90C1CB3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785358   (24594) от 15.03.2025
-
-Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_24594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ti Sembra Facile
-  02.  Pensiero Mio
-  03.  Un Amore Grande
-  04.  Non E Un Addio - Goodbye is Not Forever (Duet With Robin Beck)(   Читать дальше...   )Жанр: Pop, ItaloDiscoПродолжительность: 06:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED03C007F26F2744A56FE22BF303E0EEC9A40F87
 ```
 
 

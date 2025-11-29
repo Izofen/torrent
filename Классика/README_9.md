@@ -1,3 +1,111 @@
+###  Публикация: 966202   (220600) от 17.12.2015
+
+Ezietto – Memories (2015) [MP3|320 кб/с] <Instrumental, Neo-Classical, Electronic, New Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars & Warriors (original mix)
+02. Celtic Flavour (original mix)
+03. Trinity (original mix)
+04. Faraway Land (original mix)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, Electronic, New AgeПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5149B47338D697FD28915193187DCDA184A2F600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651723   (221060) от 07.08.2023
+
+Ezio Bosso - The 12th Room (2017) [FLAC|Lossless|tracks + .cue] <Classical, Neoclassical, Piano Solo>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221060.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The 12th Room:
+01. Ezio Bosso – Following, a Bird (Unconditioned) (Out of the Room) 6:52
+02. Frédéric Chopin – Prelude Op. 28 No. 6 (The Burned Room) 3:06
+03. Johann Sebastian Bach – A. Siloti: Prelude BWV 855a (The Children's Room) 2:54(   Читать дальше...   )Жанр: Classical, Neoclassical, Piano SoloПродолжительность: 01:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52CD4D0EF7304B80DFF6EA9696EC2D71F665BBA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342836   (221100) от 04.12.2019
+
+VA - Classical Piano - Peaceful music to fall asleep (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221100.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Florian Christl - Vivaldi Variation (Arr. for Piano from Concerto for Strings in G Minor, RV 156) (1:54)
+2.Michael Forster & Anna Stevens - Forces of Attraction (1:58)
+3.Olga Scheps - Avril 14th (1:42)
+4.See Siang Wong - Comptine d'un autre été, l'après-midi (From "Amélie") (2:25)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18F4D03BC19248CBAD13235FE31D446EEF30603
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 151445   (221825) от 30.11.2021
+
+Edvard Grieg - Peer Gynt Suite, Jean Sibelius - Valse Triste (1982-1984) [MP3|320 kb/s]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grieg Peer Gynt Suite no. 1 op. 46
+01 (1) Morning Mood (Allegretto pastorale)
+02 (2) Aase's Death (Andante doloroso)
+03 (3) Anitra's Dance (Tempo di Mazurka)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CD52076BDB6FF01346277D8709ABC18B2CC282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425149   (222251) от 20.11.2020
 
 Ильин - Еще ложь (2020) [MP3|320]
@@ -589,114 +697,6 @@ VA - Relaxing Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96C1301106ABB443A5393E08F49B87A917A2AD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635186   (242141) от 24.05.2023
-
-Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_242141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto in Istrian Style - Overture (7:49)
-02. Concerto in Istrian Style - Intermezzo (10:07)
-03. Concerto in Istrian Style - Cadenza ad libitum (9:18)
-04. Concerto in Istrian Style - Canone e Rondo (7:22)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B042E7734A5644BB56A6F182AB321176A48E42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622729   (242682) от 03.04.2023
-
-Steven Ang, Tatiana Konovalova, Francesca Lee - Highlights from Verdi's Macbeth (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_242682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macbeth: Overture (Excerpt) (Live) [00:00:48]
-02. Macbeth, Act I: "Vieni, t'affretta" (Lady Macbeth) (Live) [00:07:05]
-03. Macbeth, Act I: "Sappia la sposa mia... Mi sì affaccia un pugnal" (Dagger Aria, Macbeth) (Live) [00:03:35]
-04. Macbeth, Act I: "Tutto è finito... Fatal mia donna un murmure" (Duet) (Live) [00:06:29](   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10055FF186D479A5EBBA443B04755F8C4D53FBBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623903   (242727) от 05.04.2023
-
-Autumn Tears - Guardian Of The Pale (2023) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Darkwave>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_242727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Tree [00:02:24]
-02. Of Wind, Water and Sand [00:04:59]
-03. A Requiem For Each New Day [00:04:34]
-04. Daydreaming In Ash Fields [00:05:17](   Читать дальше...   )Жанр: Neoclassical DarkwaveПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F43F0E3A5504EFAFD0296CCD21AC652DB27937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623214   (242777) от 03.04.2023
-
-VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_242777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-03. Katya Kramer-Lapin - Emily (3:00)
-04. Misha Fomin - Suite Bergamasque, L. 75 Clair de Lune (5:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427F42B2A12035E8A71306C9E36BD9578C0FACE8
 ```
 
 

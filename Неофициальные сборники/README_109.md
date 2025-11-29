@@ -1,3 +1,30 @@
+###  Публикация: 1632997   (198419) от 16.05.2023
+
+VA - A State Of Trance 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Mixed) [3:59]
+02. BetweenUs - Escape (Mixed) [3:18]
+03. KASIA (ofc) - Universal Nation (Mixed) [3:45]
+04. Sonicvibe & Tachyean - Deep Dive (Mixed) [3:12](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047F62A98CCBC4ED36577614F327EC481CD7E464
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633508   (198427) от 16.05.2023
 
 VA - Rock & Blues part 20 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
@@ -322,6 +349,168 @@ magnet:?xt=urn:btih:410F365820A21785CB21DFB3D671B0B981C9B504
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630916   (198899) от 03.05.2023
+
+VA - Techno Bunker 3 (2023) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_198899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Schumacher - I Am Machine (6:17)
+02. Thomas Lizzara - El Medano (8:29)
+03. T78 - Humans Love Me (6:15)
+04. Mha Iri - Never Go Back To Sleep (4:00)(   Читать дальше...   )Жанр: TechnoПродолжительность: 07:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B278160AAC0782EE5E4BB6374110103FDD01ACD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630949   (198934) от 03.05.2023
+
+VA - Music News vol.260 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_198934.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. XYLO - Super Sex Mona Lisa (03:09)
+ 002. 4ETVERGOV - Детство (02:12)
+ 003. Addiction.sad - Останься Со Мной (03:06)
+ 004. A'DI - Фотки Шмотки (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712C78BF897A72967860FD77E7B3C786BA1F902E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631159   (198971) от 04.05.2023
+
+VA - Music News vol.261 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_198971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Estiva feat. Jess Ball - Carnal Emotion (04:43)
+ 002. AIHAN - Тонкая Нить (03:25)
+ 003. Akera - Звёзды (02:31)
+ 004. Akha - Аиша (02:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5243DE3C3191AA68C1CA0E9AA7A58FEAFB0D528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630697   (199009) от 03.05.2023
+
+VA - Музыка царства. Сюита к ранним хроникам Lineage II (2023) [OGG|118 Kbps] <folk, fantasy, neoclassic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_199009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bill Brown - Autumn Festival (Lineage II)
+002 Bill Brown - Dance At The Festival (Dwarven Village) (Lineage II)
+003 Bill Brown - Exotic Marketplace (Lineage II)
+004 Bill Brown - Festival at Sundown (Lineage II)(   Читать дальше...   )Жанр: folk, fantasy, neoclassicПродолжительность: 09:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6F875C43AFE6645C554BD17E6AC9D21B258751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630520   (199010) от 01.05.2023
+
+VA - Deep Night Deep House 5 (2023) [MP3|320 Kbps] <Deep House, House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_199010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rendow - Burn (2:42)
+02. OSLM - More Than One Night (2:36)
+03. Malserc - Next Life (2:47)
+04. Leav3l8ke - Umbrella (2:50)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 04:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3204F1C55D3A52F0E9E1712F5BE680C51103E756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630438   (199052) от 30.04.2023
+
+VA - В машине с музыкой Vol.332 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_199052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Орбакайте - Алла Будет Петь (03:41)
+02. Jake Isaac Feat. & Jack Savoretti - When It Hurts (03:01)
+03. Laska - Не Отпускай Меня (03:14)
+04. Diplo Feat. & Sturgill Simpson & Dove Cameron - Use Me  (03:22)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEC633ADF4E55EA251ABF821466BA802E1351FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630359   (199125) от 30.04.2023
 
 VA - ЕвроХит Топ 40 Europa Plus 28.04.2023 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -506,195 +695,6 @@ VA - From The Depths (2023) [MP3|320 Kbps] <Electronic, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEEDB5F5976678E0B653D998AD71A8811C057249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628225   (199495) от 22.04.2023
-
-VA - В машине с музыкой Vol.331 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эллаи  - Я Приеду (03:06)
-02. Ани Лорак  - На Мели (03:00)
-03. Дмитрий Колдун  - Приду Без Повода (03:09)
-04. Натали  - Будут Танцы (03:21)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1AC627BA9EFD9F1B7CACF58BC11B8CF40D3F6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628128   (199526) от 21.04.2023
-
-VA - Rock Ballads (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seether - Broken (4:18)
-02. Metallica - Nothing Else Matters (Remastered 2021) (6:28)
-03. Five Finger Death Punch - Times Like These (3:29)
-04. Three Days Grace - Lifetime (2:56)(   Читать дальше...   )Жанр: RockПродолжительность: 05:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08109D66CF80AC0C9691E8BF4E4337494C72194C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627418   (199537) от 19.04.2023
-
-VA - Весна на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miley Cyrus - Flowers (3:20)
-02. Мари Краймбрери - Иначе Всё Это Зря (2:58)
-03. Lost Frequencies feat. Elley Duhe & X Ambassadors - Back To You (2:37)
-04. Звонкий - Простые Слова (2:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1755F71BDB43AE093A487E18A37017F60AC8BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626888   (199666) от 16.04.2023
-
-Pawel-Wisniewski - Compilation (2023) [MP3|224 Kbps] <Electronic, Instrumental, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium • Space Music
-02. Mood • Romantic Music
-03. Movement • Space Music
-04. Aspiration • Romantic Music(   Читать дальше...   )Жанр: Electronic, Instrumental, RelaxПродолжительность: 07:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B44B96A6F0D0372E9CE12F444316D2374CA1A86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627341   (199675) от 18.04.2023
-
-VA - Retro Vintage Best Vibes (2023) [MP3|320 Kbps] <Synthpop, Disco, New Wave, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul McCartney - Coming Up (Live At Glasgow / 1979 / Remastered 2011)
-02. Bon Jovi - Livin' On A Prayer
-03. Patti LaBelle - On My Own
-04. Kenny Loggins - Footloose (From "Footloose" Soundtrack)(   Читать дальше...   )Жанр: Synthpop, Disco, New Wave, R&BПродолжительность: 02:35:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13D9C57C2F8A7F842B0EA44C79B34A79AB4629E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627030   (199705) от 17.04.2023
-
-VA - Крутые пушки Весна 2023 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.Diddy Feat Keyshia Cole - Last Night (Max Flame & Dacks Remix) (2:52)
-02. Wongo - - The Preacher feat. Chuck Roberts (Sammy Porter Extended Remix) (2:59)
-03. Floral - Need To Feel Loved (MYRON x ZAN Remix) Radio Edit (3:48)
-04. Eminem Feat Nate Dogg - Shake That (Max Flame & Dacks Radio Remix) (4:04)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B91D3700381007CED9EBA4ABFC6B816ED449ECA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626470   (199795) от 14.04.2023
-
-VA - Music News vol.257 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199795.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DASHI feat. Бьянка - Люли (02:37)
- 002. 5 Seconds Of Summer - Amnesia (Live From The Royal Albert Hall) (04:15)
- 003. 5УТРА - Билет в Никуда (02:48)
- 004. 044 ROSE feat. KOOZA K2o - TANCUESH (03:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EFC74892A7264DAB75CEF1B68172F5F05A0B5A
 ```
 
 

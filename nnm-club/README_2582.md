@@ -1,3 +1,55 @@
+###  Публикация: 1791147   (67878) от 12.04.2025
+
+Живая еда с Сергеем Малозёмовым (12.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовая еда из магазинов, сервисов доставки и автоматов: правда ли, что она несет лишние килограммы, как обстоят дела у такой еды с качеством и всегда ли готовить еду самому дешевле?
+ Еда для космонавтов: каково это — месяцами питаться из тюбиков, почему хлеб на МКС называют «кукольным», может ли одна таблетка заменить весь рацион, почему в невесомости пьют чай из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602F7E66845340FA90980526DA46FE052C4F6729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791156   (67879) от 12.04.2025
+
+Kid Ramos - Strange Things Happening (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Things Happening (4:39)
+02. How I Got Over (5:40)
+03. I'm Working On A Building (3:50)
+04. Oh What A Meeting (7:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1B4069B87B195DF53DF9B392F1383D1B815DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791189   (67880) от 12.04.2025
 
 Полночный джаз / Вокруг полуночи / 'Round Midnight (1986) BDRip [H.264/720p]
@@ -600,60 +652,6 @@ magnet:?xt=urn:btih:83E705CD78930C1C22F88308AA94163B0C10EA1E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57DB3D22126773E295553A8C457C05E0E7D7F86A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790954   (67904) от 12.04.2025
-
-VA - Zero Dancefloor [mixed by DJ Юrkanik] (2013) [MP3|320 Kbps] <Disco, Synth-pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Jock Hattle Band - To Be Or Not To Be (12'' Version)
-02. Kool And The Gang - Fresh
-03. Alphabeat - 10000 Nights (Bimbo Jones Remix)
-04. Neil Smith - Help Me Through The Summer (Vocal)(   Читать дальше...   )Жанр: Synth Pop MixПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEF2E1F92BE4BA85E3AABE416D148C40492E0D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791194   (67905) от 12.04.2025
-
-VA - Ibiza Lounge Hits (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly - Night Pulse (05:12)
-02. Sandro Marini - Dingindaya (03:46)
-03. N.E.O.N & Di Mora - Run To Me (03:30)
-04. N.E.O.N & Di Mora - Where I Wanna Go (Radio Edit) (02:46)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B04F44F499542353955BA8E6F98E8062492FFE
 ```
 
 

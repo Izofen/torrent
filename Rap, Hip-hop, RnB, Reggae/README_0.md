@@ -1,3 +1,30 @@
+###  Публикация: 1747678   (44417) от 06.09.2024
+
+Каста - Новинки зарубежного рэпа (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эмигрант эмигранту
+2. Кровопровод «Дружба»
+3. Священный мясокомбинат
+4. Ссылочка ВКонтакте(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FCCD742F54EE22B73DB0B8058782BA70681C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747675   (44429) от 06.09.2024
 
 Каста - Новинки зарубежного рэпа (2024) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -106,6 +133,39 @@ magnet:?xt=urn:btih:35F44D36010E488729FA2F81D4BC2948C3099F5A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293363   (51713) от 28.06.2024
+
+Mad Flava - From Tha Ground Unda (1994) [FLAC|Lossless]<Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Mad Intro (1:32)
+2. From Tha Ground Unda (3:54)
+3. Raw Interlude (0:53)
+4. Gotz Ta Flow Ta This (4:51)
+5. To Tha Break (4:21)
+6. Feel Tha Flava (3:46)
+7. Wax On Tha Belt (Baby G Gets Biz) (0:35)
+8. Bump Ya Head (3:27)
+9. Lick A Shot (3:50)
+10. Kasaan Goes Off Tha Dome (2:11)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B36D05655B40B17065BBAE70571EEBCE3ADF8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 321454   (51717) от 28.06.2024
 
 Tha Mexakinz - Tha Mexakinz (1996) [FLAC|Lossless]<Hip-Hop, Latin Hip-Hop, Hardcore Hip-Hop>
@@ -128,6 +188,93 @@ Tha Mexakinz - Tha Mexakinz (1996) [FLAC|Lossless]<Hip-Hop, Latin Hip-Hop, Hardc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2947F6E34F2A13344EDB3D79C6E74A36522850B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321811   (51722) от 28.06.2024
+
+Chino XL - 3 Альбома (1996-2006) [FLAC|Lossless]<Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Chino XL родился в Бронксе, Нью-Йорк, вырос в Ист Орандж, Нью-Джерси. Рэппер, уважаемый поклонниками за свой технически совершенный стиль и «боевые» способности в лирике. Он известен благодаря умению «посмеяться над собой» (обычно это принимает формы искусной игры слов и удачных сравнений). Большинству же Chino XL известен благодаря непродолжительному бифу с Тупаком Шакуром, который закончился со смертью последнего. (   Читать дальше...   )1996 - Here To Save You All
+2001 - I Told You So
+2006 - Poison PenЖанр: Hip-Hop, RapПродолжительность: 03:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF51066DC923630BDC266FECE058D829B17EDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321968   (51736) от 28.06.2024
+
+Funkdoobiest - 3 Альбома + 2 Сингла (1993-1997) [FLAC|Lossless]<Hip-Hop / Alternative Hip Hop / Rap / West Coast Rap / Gangsta Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+The Funkdoobiest воплотили в своем творчестве все раздолбайство и понты выходцев из Латинской Америки, коих, опасных и насмешливых мерзавцев, в Лос-Анджелесе традиционно было немало. Парни с роскошными прозвищами и настоящими именами, звучащими словно перечисление консультантов(   Читать дальше...   )Альбомы:
+1993 - Which Doobie U B ?
+1995 - Brothas Doobie
+1997 - The Troubleshooters
+
+Синглы:
+1993 - Wopbabalubop (feat. B-Real)
+1995 - Rock On (Vinyl Rip)(   Читать дальше...   )Жанр: Hip-Hop / Alternative Hip Hop / Rap / West Coast Rap / Gangsta Rap
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD797F734FF03DA8EB740D71138F55BC6DDE6FDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 325990   (51738) от 28.06.2024
+
+Snow - 3 Albums + 2 Singles + Compilation (1992-2000) [FLAC|Lossless]<Reggae, Reggae fusion, Ragga, Dancehall, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Даррин О'Брайен (Darrin O'Brien) родился 30 октября, 1969 г, более известный под своим псевдонимом Snow. Обладатель премии «Джуно» (Juno Awards). Наиболее известным стал благодаря синглу "Informer", который занял позицию № 1 в американском чарте Billboard Hot 100.Список альбомов:
+1992 - Informer (Europe)
+1993 - Informer (Germany)
+1993 - 12 Inches Of Snow
+1995 - Murder Love
+1997 - Greatest Hits
+2000 - Mind On The Moon(   Читать дальше...   )Жанр: Reggae, Reggae fusion, Ragga, Dancehall, Hip-HopПродолжительность: 04:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05210430EEF14F730AB0FB098507726449B91F36
 ```
 
 
@@ -216,6 +363,37 @@ magnet:?xt=urn:btih:E7D2104A833F10F4896ED35938FE710A3AA16B28
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292135   (51755) от 28.06.2024
+
+House of Pain - 3 Albums + Compilation + 6 Singles (1992-2004) [FLAC|Lossless]<Underground Hip-Hop / Rap / Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+House Of Pain: Everlast (Эрик Шроди), Danny Boy (Даниэл О’Коннор) и Lethal (Лиор ДиМант) собрались вместе в 1990году. У них было нечто, позволяющее «бить любого лоха» - признание рэп-общественности, что кажется невероятным, если принять во внимание тот факт, что все участники группы были белыми.(   Читать дальше...   )Список альбомов:
+1992 - House Of Pain
+1994 - Same As It Ever Was
+1996 - Truth Crushed To Earth Shall Rise Again
+2004 - Shamrocks & Shenanigans: The Best of House of Pain and Everlast
+Список синглов:
+1992 - Jump Around/House of Pain Anthem
+1993 - Top O' The Morning To Ya(   Читать дальше...   )Жанр: Underground Hip-Hop / Rap / Hardcore Hip-HopПродолжительность: 05:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B660DE91FBCA16D2D38035E63B90613F97F9785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289790   (51756) от 28.06.2024
 
 Das EFX - 5 Albums + 3 Singles (1992-2003) [FLAC|Lossless]<Hip-Hop / Rap / Hardcore Hip-Hop>
@@ -269,6 +447,93 @@ Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE0153D892C87A26EF0A2CCA610B50EF8A5B5860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301577   (51759) от 28.06.2024
+
+Delinquent Habits - 5 Albums + Single (1996-2009) [FLAC|Lossless]<Hip-Hop, Rap, Latin Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Delinquent Habits — хип-хоп-группа из восточной части Лос-Анджелеса, США, штат Калифорния (известна также как Los Tres Delinquentes). Сформирована в 1991 году. Является одним из ярчайших представителей музыкального стиля Chicano Rap. Музыка группы окрашена латинскими и особенно мексиканскими ритмами и мотивами, мелодичными и жесткими одновременно.(   Читать дальше...   )Список альбомов:
+1996 - Delinquent Habits
+1998 - Here Come the Horns
+2001 - Merry Go Round
+2003 - Freedom Band
+2009 - The Common Man
+Сингл:
+1996 - Tres Delinquentes remixes(   Читать дальше...   )Жанр: Hip-Hop, Rap, Latin RapПродолжительность: 04:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDE350C001F27860BCBE2AEE9C993CE40C7B8E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311565   (51773) от 28.06.2024
+
+Naughty by Nature - 5 Albums + 2 Compilation + 8 Singles (1991-2003) [FLAC|Lossless|tracks + .cue]<Hip-Hop, East Coast Hip-Hop, East Coast Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Было время (лет 10-12 назад), когда для России существовало всего пять рэп-групп: Onyx, Cypress Hill, ледяная парочка Ice-T и Ice Cube, House Of Pain, Public Enemy и Naughty By Nature.Список альбомов:
+1991 - Naughty by Nature
+1993 - 19 Naughty III
+1995 - Poverty's Paradise(   Читать дальше...   )Жанр: Hip-Hop / Rap / East Coast Hip-Hop / East Coast RapПродолжительность: 10:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFB76B75BFD8A0B9DDA3460B89B582E5F12AF44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291849   (51774) от 28.06.2024
+
+Gang Starr - 6 Albums + 2 Compilations (1989-2006) [FLAC|Lossless]<East Coast Hip-Hop / Jazz Rap / Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Gang Starr хип хоп дуэт, состоящий из MC Guru и диджея и продюсера DJ Premier. Стиль группы сочетает в себе элементы Нью-Йорк Джаза и East Coast rap.(   Читать дальше...   )Список альбомов:
+1989 - No More Mr. Nice Guy
+1991 - Step In The Arena
+1992 - Daily Operation
+1994 - Hard To Earn
+1998 - Moment Of Truth(   Читать дальше...   )Жанр: East Coast Hip-Hop / Jazz Rap / Alternative Hip-HopПродолжительность: 09:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108353E2B11D011ADE7C9381FD45DF9908AE77D2
 ```
 
 
@@ -356,6 +621,36 @@ magnet:?xt=urn:btih:F18E4846DAC6AE3246E312ED523EE52A65726772
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 290809   (51786) от 28.06.2024
+
+The Fugees - 4 Albums + 5 Singles (1994-2003) [FLAC|Lossless]<Hip-Hop / Soul / Rap / Reggae fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+The Fugees — авторитетная американская хип-хоп-группа, которая в середине 1990-х способствовала более тесной интеграции хип-хопа с другими музыкальными направлениями.(   Читать дальше...   )Список альбомов:
+1994 - Blunted On Reality
+1996 - Bootleg Versions
+1996 - The Score
+2003 - Greatest Hits
+Список синглов:
+1995 - Fu-Gee-La(   Читать дальше...   )Жанр: Hip-Hop / Soul / Rap / Reggae fusionПродолжительность: 05:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A9F146509D1C81DB59436B6C827E2F57C3FB9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731155   (52259) от 24.06.2024
 
 Hugo Kant - 9 Albums (2011-2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Fusion>
@@ -432,276 +727,6 @@ magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55229CDE4FADFE9CE4005BD893975AD3BBF9C840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730460   (53106) от 16.06.2024
-
-VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_53106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Roxpin, MAXIMILLIAN – Vermont Canyon (2:58)
-02. illiterate – Soulangeana, ft. Dom R (2:43)
-03. Saib – Porto Leone, ft. FloFilz (2:46)
-04. Enough Cereals – Sundown (2:42)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4FBD779E02CB20B5FCC99CDD8C3A2E1093BFA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726304   (54986) от 29.05.2024
-
-Ноггано - Первый (2008) [WavPack|Lossless|image + .cue] <Hardcore Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_54986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы
- 02. Супер-герой
- 03. Застрах**
- 04. Еб... Насос(   Читать дальше...   )Жанр: Hardcore Hip-Hop, RapПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296077D5184A3603BC7817CCCF4D94DC484028DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726306   (54992) от 29.05.2024
-
-NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_54992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Там, Где Клён Шумит
- 03. Дождь
- 04. Где Я Ангелом Не Стал(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36646B9A5A2C6A8E0D4E568B8A4826B0A9EBF30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722643   (56778) от 12.05.2024
-
-Ghostface Killah - Set The Tone (Guns & Roses) (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_56778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6 Minutes [00:03:39]
-02. Pair Of Hammers [00:02:36]
-03. Skate Odyssey [00:03:38]
-04. Scar Tissue [00:02:58](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A778C4675A0B418353BC05961D5AB1661483430C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719555   (58139) от 29.04.2024
-
-UB40 - UB45 (2024) [FLAC|Lossless|image + .cue] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_58139.jpg" />
-</div>
-
-
-###  Подробнее
-
-UB45 - 21-й студийный альбом британской группы UB40, вышедший на лейбле SRG Records (Universal) 19 апреля. В этот релиз из 14 треков вошли семь совершенно новых песен, а также перезаписи некоторых из самых любимых хитов группы. И хотя новый студийник записан при участии нового вокалиста Matt Doyle (Kioko), тем не менее спустя 45 лет своей карьеры группа звучит непринужденно, (   Читать дальше...   )01. Home (3:47)
-02. Food For Thought (3:59)
-03. King (4:07)
-04. Champion (3:34)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E506F5829AD31E242DB2591E37FFF14F18FA1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717623   (58972) от 21.04.2024
-
-White Hot Ice - Rastaman (2007) [WavPack|Lossless|image + .cue] <HipHop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_58972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Растаман
- 02. Ангел
- 03. За Окном
- 04. Вован Кожемякин(   Читать дальше...   )Жанр: HipHopПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C171FA70AEFBC8078771AA12B2DC10F291E8A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717327   (59192) от 19.04.2024
-
-UB40 - UB45 (2024) [MP3|320 Kbps] <Reggae, Ska>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_59192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home [03:48]
-02. Food For Thought [04:00]
-03. King [04:07]
-04. Champion (Birmingham 2022 Commonwealth Games: Official Anthem) [03:35](   Читать дальше...   )Жанр: Reggae, SkaПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CA81FD3F3E9F0A54AEE19AFB230AEAFE5BD156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807731   (65122) от 20.07.2025
-
-Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macan, Alblak 52 - Flagman [00:03:05]
-02. Macan, Баста - Пусть Бог Будет Рядом С Твоими Планами [00:03:16]
-03. Macan, Гуф - Бордовая 99 [00:03:26]
-04. Macan, Брутто - Золотые Купола [00:02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC57B6C65C6278922FC27A1B888100F8382128A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803588   (65809) от 24.06.2025
-
-DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rap, Hip Hop, G-Funk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakin' Bread    [0:04:58.27]
-02. What You Know    [0:03:52.22]
-03. Infatuation    [0:04:34.09]
-04. Infatuation    [0:03:02.50](   Читать дальше...   )Жанр: Rap, Hip Hop, G-FunkПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A50754FC3AF4AE88EC2DBC5436B468FA9D0AD88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803385   (65841) от 22.06.2025
-
-SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Psychedelic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Быть человеком
-02.Мир
-03.Любовь обесценили
-04.Дивный новый мирЖанр: Rap, Hip-Hop, PsychedelicПродолжительность: 00:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139DF26EB681DAD02D8E8DD3F863E37F39E4546A
 ```
 
 

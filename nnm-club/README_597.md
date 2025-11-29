@@ -1,3 +1,57 @@
+###  Публикация: 1800406   (15830) от 02.06.2025
+
+VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Punctual feat. EVALINA - Angels (Extended Mix) [3:57]
+02. Gabry Ponte x Jerome Isma-Ae - Hold That Sucker Down (Extended Mix) [5:49]
+03. Paul Oakenfold & Hernan Cattaneo - London To Buenos Aires (Extended Mix) [5:03]
+04. Armin van Buuren & John Christian - All Night (Extended Mix) [4:18](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF024CBFABF4F2C1CAF7DB9CDE9551C228127B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800311   (15831) от 02.06.2025
+
+VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Highend Fashion (Original Mix) [5:20]
+02. Filizola - Get Me (Original Mix) [5:47]
+03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
+04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9066A12A3888F4ACAE6030217392BD83B7D83CBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800412   (15832) от 02.06.2025
 
 State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno, Ambient, Downtempo>
@@ -608,55 +662,6 @@ VA - Intimacy 2 (2025) [MP3|320 Kbps] <Easy Listening, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89737F3F80E8B1C474C96AC195A5638DBE0B927C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800316   (15856) от 02.06.2025
-
-Журнал | Химия и жизнь №5 (май 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_15856.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналИздательство: АНО Центр "НаукаПресс"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F276ACF5319B0B88F236F10FCC8582BD4F11CC8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800304   (15857) от 02.06.2025
-
-Джон Грэй | Мужчины с Марса, женщины с Венеры. Новая версия для современного мира (2023) [MP3, Кирилл Радциг]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_15857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия культового произведения об взаимоотношения мужчин и женщин!
-Более 25 лет назад психолог Джон Грэй издал книгу, которая перевернула представления об отношениях между мужчиной и женщиной, – «Мужчины с Марса, женщины с Венеры». Эта книга убедительно доказала, что мужчины и женщины мыслят, чувствуют и действуют по-разному. И это была настоящая сенсация! (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 10:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612B8620D1D6B9BD10B6F7EF349D6997E0BCEC7A
 ```
 
 

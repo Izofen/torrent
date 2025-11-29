@@ -1,3 +1,57 @@
+###  Публикация: 1792094   (67767) от 17.04.2025
+
+VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atwater Collective - White Rabbit (2:51)
+02.  Josh Arnold - Buried Love (3:20)
+03.  The Lost Gecko - Brothers (4:54)
+04.  Marc Miner - Sweet Revenge (6:13)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789180   (68344) от 03.04.2025
+
+Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pocket of a Clown    [0:02:57.45]
+02. A Thousand Miles From Nowhere    [0:04:29.58]
+03. Home for Sale    [0:03:39.02]
+04. This Time    [0:03:58.28](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DECBF747F6C2156F5F7F752AB94297E516ABE2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789135   (68361) от 02.04.2025
 
 Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -459,289 +513,225 @@ magnet:?xt=urn:btih:ABEB259BFC3DC7E4870D521DD28DF1EC35066342
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451460   (75868) от 13.02.2012
+###  Публикация: 280803   (72155) от 24.01.2012
 
-Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_75868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Huey Lewis & The News - The Power Of Love (3:57)
-2. Lindsey Buckingham - Time Bomb Town (2:47)
-3. Alan Silvestri - Back To The Future (3:20)
-4. Eric Clapton - Heaven Is One Step Away (4:13)
-5. Huey Lewis And The News - Back In Time (4:21)
-6. Alan Silvestri - Back To The Future Overture (8:19)
-7. Etta James - The Wallflower (2:44)
-8. Marvin Berry & The Starlighters - Night Train (2:17)
-9. Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine) (3:01)
-10. Marty McFly With The Starlighters - Johnny B. Goode (3:08)1985Жанр: SoundtrackПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8A00815EFC3C2FD952FB82F3E8D345049A03AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453023   (77829) от 22.02.2012
-
-Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trailer Music>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_77829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trailer MusicПродолжительность: 14:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3E442AB25D063BAF3DA295369560D21AAC7A63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457061   (77954) от 23.02.2012
-
-Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Celtic>
+Ikaiki Amayu - Sumac Llacta (2010) [MP3|320 кб/с]<Folk, Native american, Instrumental>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_77954.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Cry of the Celts - 4.27
-02. Suil A Ruin - 3.18
-03. Celtic Dream - 5.40
-04. Warriors - 3.08
-05. Gypsy - 2.10
-06. Breakout - 3.49
-07. The Lord of the Dance - 4.47
-08. Spirit in the New World - 1.33
-09. Fiery Nights - 3.10
-10. Lament - 3.24(   Читать дальше...   )1996Жанр: CelticПродолжительность: 01:00:28
+(5:59) 01. Qarwa Yaku
+(5:11) 02. Ruminahu
+(5:10) 03. Akuchimay
+(4:37) 04. Sumac Llacta
+(5:13) 05. Muna Q Killa
+(4:35) 06. Kaypim
+(5:52) 07. Drums Dance
+(5:54) 08. Chirapag
+(5:12) 09. Sisahu
+(4:30) 10. Perdoname Amor(   Читать дальше...   )Жанр: Folk, Native american, InstrumentalПродолжительность: 00:56:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCBDCBB5B6CD339B2712147DAE47825DA23A7FEA
+magnet:?xt=urn:btih:A5D9601790B1748052ADF3CE55C0E344B73766C9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 457463   (78208) от 24.02.2012
+###  Публикация: 440996   (72347) от 26.01.2012
 
-Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Rock>
+Алексей Уткин - Колокольные Звоны Валдайского Иверского монастыря (2009) [MP3|320 kbps]<Other>
 
 >>Other Styles
->>Folk
+>>Other
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_78208.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро (00:47)
-02. Живое (04:04)
-03. Тридцать семь (04:59)
-04. Шиповник (04:59)
-05. Это будет моим ответом (03:52)
-06. Великое ничто (06:08)
-07. Спасти (03:16)
-08. Вальсаутро (02:00)
-09. Дикое сердце (03:39)
-10. Маятник вечности (06:47)(   Читать дальше...   )2012Жанр: Cardiowave, RockПродолжительность: 01:01:09
+01 Валдайский
+02 Святоозерский
+03 Успенский
+04 Иверский
+05 Богоявленский
+06 Богородицкий
+07 Молитвенный
+08 Благодатный
+09 Древнерусский2009Жанр: OtherПродолжительность: 00:59:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:078BE8753E29CA93716E61022643134D995E9186
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 458848   (78964) от 28.02.2012
+###  Публикация: 442291   (72350) от 26.01.2012
 
-Монстр в Париже - Un monstre a Paris (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_78964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philippe Peythieu - Interlude: " Les Actualites "
-02. Patrice Renson - La Valse De Paris
-03. Vanessa Paradis - La Seine (Cabaret)
-04. M / Patrice Renson - Emile Et Raoul
-05. Patrice Renson - Sur Les Toits
-06. Patrice Renson - Maynott
-07. Patrice Renson - La Rencontre
-08. M - Un Monstre a Paris
-09. Vanessa Paradis - Interlude: Lucille " Le Baptme "
-10. Patrice Renson / M - Francoeur / Lucille(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459899   (79120) от 29.02.2012
-
-VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
+Amethystium - Aurorae [EP] (2012) [MP3|~245 kbps]<New Age, Ambient>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_79120.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. James Asher - Red desert (05:39)
-02. Prem Joshua - New kafi (06:17)
-03. Prem Joshua - Mango rain (07:10)
-04. James Asher - Further east (05:25)
-05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
-06. Music from the World of Osho - Namaste (03:45)
-07. Al Gromer Khan - Agori dance (07:07)
-08. Ustad Usman Khan - Raga hansadhwani (08:57)
-09. Hariprasad Chaurasia - Indian folklore (10:03)
-10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
+01. Nightfall [4:24]
+02. Solace [4:40]
+03. Faraway [5:36]
+04. Outro [6:05]Жанр: New Age, AmbientПродолжительность: 00:20:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
+magnet:?xt=urn:btih:D26CAED1E092FFACE95F75F4EE76A18D2D772EAE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464920   (81362) от 11.03.2012
+###  Публикация: 444398   (73185) от 31.01.2012
 
-Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
+Sublime With Rome - Yours Truly (2011) [FLAC|Lossless]<Ska-Punk, Reggae>
 
 >>Other Styles
->>Folk
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_81362.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Навигатор (03:22)
- 02. Дубадам вдрабадан (03:23)
- 03. Если горцу выпить не с кем (03:22)
- 04. Ковбойская (02:47)
- 05. Четыре упыря для Кухулина (03:12)
- 06. Ирландские старцы (03:55)
- 07. Тёмные джунгли Лондона (03:13)
- 08. Джиги (04:02)
- 09. Как всё достало! (03:07)
- 10. Три пузыря (03:01)(   Читать дальше...   )2011Жанр: Celtic, Irish FolkПродолжительность: 00:49:10
+01. Panic (2:24)
+02. Only (2:40)
+03. Lovers Rock (3:25)
+04. Murdera (4:26)
+05. My World (2:29)
+06. Paper Cuts (1:53)
+07. PCH (3:23)
+08. Same Old Situation (3:44)
+09. Take It Or Leave It (3:52)
+10. You Better Listen (3:20)(   Читать дальше...   )2011Жанр: Ska-Punk, ReggaeПродолжительность: 00:53:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467022   (81834) от 13.03.2012
+###  Публикация: 444654   (73259) от 31.01.2012
 
-Лоракс / The Lorax - Original Songs From The Motion Picture (2012) [MP3|320 кб/с]<Soundtrack>
+Элвин и Бурундуки 3 (Alvin and the chipmunks chipwrecked) (2011) [MP3|128 kbps]<OST> Участник конкурса "Сделай свой первый музыкальный релиз!"
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_81834.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Ester Dean - Let It Grow (Celebrate The World)-03:39
- 02. Fletcher Sheridan - Thneedville-02:44
- 03. Ed Helms - This Is The Place (Tricky Version)-02:24
- 04. Ed Helms - Everybody Needs A Thneed-01:31
- 05. Ed Helms - How Bad Can I Be-02:52
- 06. Fletcher Sheridan - Let It Grow-03:17
- 07. Jenny Slate - Let It Grow Gospel Ending (Original Demo)-00:53
- 08. Fletcher Sheridan - Thneedville (Original Demo)-03:58
- 09. Ed Helms - The Once-ler's Traveling Madness-01:35
- 10. Randy Crenshaw - I Love Nature-02:43(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 00:34:08
+01. Bad romance (00:04:27)
+02. Born This Way (00:04:55)
+03. Club Can't Handle Me (00:04:47)
+04. Hello (00:03:35)
+05. Party Rock Anthem (00:04:26)
+06. Real Wild Child (00:02:56)
+07. S.O.S. (00:03:09)
+08. Say Hey (00:03:22)
+09. Survivor (00:04:49)
+10. Trouble (00:03:54)(   Читать дальше...   )2011Жанр: OSTПродолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D9A40BF73F8EDCF71BA5E7966ED59CAE811EF3
+magnet:?xt=urn:btih:F1249EC82C242A8A7CA24EEE33E5BEBC26CF8F61
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467154   (81860) от 13.03.2012
+###  Публикация: 444541   (73262) от 31.01.2012
 
-VA - Любимые мелодии Советского кино (2012) [MP3|320 кб/с]<Soundtrack, Pop>
+Darren Korb - Bastion Original Soundtrack (2011) [MP3|320 kbps]<Acoustic Frontier Trip-Hop>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_81860.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Тема детей (из к-ф 'Сказка о звездном мальчике', 1983)
-02. Сны Татьяны (из к-ф 'Шла собака по роялю', 1978)
-03. Вертолет (из к-ф 'Шла собака по роялю', 1978)
-04. Утро (из к-ф 'Служебный роман', 1977)
-05. Увертюра (из к-ф 'Служебный роман', 1977)
-06. Подводный мир и румба (из к-ф 'Человек-амфибия', 1961)
-07. Осень (из к-ф 'Служебный роман', 1977)
-08. Мелодия (из к-ф 'Осенний марафон', 1979)
-09. Вальс (из к-ф 'О бедном гусаре замолвите слово', 1980)
-10. Тема разлуки (из т-с 'Гардемарины, вперед!', 1987)(   Читать дальше...   )2012Жанр: Soundtrack, PopПродолжительность: 04:45:05
+1. Get Used to It (00:54)
+2. A Proper Story (01:09)
+3. In Case of Trouble (02:56)
+4. Bynn the Breaker (04:09)
+5. The Sole Regret (02:27)
+6. Twisted Streets (03:29)
+7. Terminal March (04:06)
+8. Percy's Escape (01:41)
+9. Faith of Jevel (01:31)
+10. Mine, Windbag, Mine (03:06)(   Читать дальше...   )2011Жанр: Acoustic Frontier Trip-HopПродолжительность: 01:00:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1629151A5A7EEA837BCE8505B08F312D27D0E2EE
+magnet:?xt=urn:btih:5AE8D8FF5AE43F7EBCB12473849315F156FF633F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443023   (73294) от 31.01.2012
+
+Leonard Cohen - Old Ideas (2012) [FLAC|Lossless]<Blues, Rock, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home (3:51)
+02. Amen (7:35)
+03. Show Me The Place (4:09)
+04. Darkness (4:29)
+05. Anyhow (3:08)
+06. Crazy To Love You (3:06)
+07. Come Healing (2:53)
+08. Banjo (3:23)
+09. Lullaby (4:46)
+10. Different Sides (4:05)2012Жанр: Blues, Rock, Folk RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+нет
 ```
 
 

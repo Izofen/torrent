@@ -1,3 +1,54 @@
+###  Публикация: 1775392   (71440) от 26.01.2025
+
+Первая передача на НТВ. Автомобильная передача (26.01.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европротокол разногласий: как страховая компания определяет виновника аварий и что важно указать в бланке извещения о ДТП.
+ Эмоциональный сосед обезобразил припаркованный у дома мотоцикл. Сумеет ли владелец получить возмещение?
+ Осторожно, мошенники в шиномонтажных мастерских! Как дурят автолюбителей и что непременно надо знать о колесных дисках.
+ «Ватрушки»: можно (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF2B369BF54DD1E3F4A1E71EE896D7840D5C4CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775251   (71441) от 26.01.2025
+
+Своя игра (25.01.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71441.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 января начался новый турнир "Своей игры" - Кубок "Контура", призовой фонд которого составит 5 миллионов рублей. Турнир будет состоять из 8 этапов по 10 игр в каждом.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B71461CEF2F9A9E7F96D0A011CA164AAA942B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775355   (71442) от 26.01.2025
 
 Горячие головы (Hotheads) - 2 Albums (2003, 2005) Remastered, 2025, Creative Media [FLAC 24/48|Lossless|WEB-DL|tracks] <Russian pop, Euro House, Europop>
@@ -605,60 +656,6 @@ Labÿrinth (Labyrinth) - In The Vanishing Echoes Of Goodbye (2025) [FLAC 24/44.1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F934818BE8B4CBDAB18D1C7A7A595FBBACA0F641
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775095   (71466) от 25.01.2025
-
-Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & Fancy Inc & Meca - Electricity
-02. CamelPhat x ARTBAT ft. Rhodes - For A Feeling (Adam Sellouk & Y do I Remix)
-03. Elderbrook & Vintage Culture - Run (DEPARTAMENTO Remix)
-04. Gabss & Vintage Culture - Creatures(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFA416A87CC9692E96BE4E5F5B258001B282DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775137   (71467) от 25.01.2025
-
-VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee Morgan - Candy [7:05]
-02. Lee Morgan - Since I Fell For You [5:38]
-03. Lee Morgan - C.T.A. [5:08]
-04. Lee Morgan - All The Way [7:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 12:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046AF1F3E8C93FAF65B07FCD1D631A819687CB82
 ```
 
 

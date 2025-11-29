@@ -1,3 +1,57 @@
+###  Публикация: 1775095   (71466) от 25.01.2025
+
+Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Fancy Inc & Meca - Electricity
+02. CamelPhat x ARTBAT ft. Rhodes - For A Feeling (Adam Sellouk & Y do I Remix)
+03. Elderbrook & Vintage Culture - Run (DEPARTAMENTO Remix)
+04. Gabss & Vintage Culture - Creatures(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFA416A87CC9692E96BE4E5F5B258001B282DA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775137   (71467) от 25.01.2025
+
+VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lee Morgan - Candy [7:05]
+02. Lee Morgan - Since I Fell For You [5:38]
+03. Lee Morgan - C.T.A. [5:08]
+04. Lee Morgan - All The Way [7:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 12:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046AF1F3E8C93FAF65B07FCD1D631A819687CB82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775264   (71468) от 25.01.2025
 
 Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -623,60 +677,6 @@ Wildness - Avenger (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38ECAD2B5744AE6192AC6CAB27F1E05017C99C11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775250   (71492) от 25.01.2025
-
-Holly Cole - Dark Moon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Steppin' Out With My Baby (2:41)
-02.  Where Flamingoes Fly (3:47)
-03.  Moon River (3:29)
-04.  No Moon At All (2:18)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474AAEBB1A660139B700BB620D8A09539E7E3394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775104   (71493) от 25.01.2025
-
-VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DE7B8D4BA03ADD2A77248D5530F706F5EE93E1
 ```
 
 

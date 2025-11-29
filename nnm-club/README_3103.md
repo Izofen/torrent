@@ -1,3 +1,350 @@
+###  Публикация: 479681   (98830) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98830.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №6
+Название: Desktop Wallpapers №6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2880х1800
+Расширение (тип) файлов: jpg, pngВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A71505547CA9F44585098DC852E4C1AFDC3539C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479699   (98831) от 07.04.2012
+
+[Wallpapers] Desktop wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2269D937A0EDC00B3E0465381B7D6B6D7126005F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479685   (98832) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98832.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №8
+Название: Desktop Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479483   (98833) от 07.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479754   (98834) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98834.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №14
+Название: Desktop Wallpapers №14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479484   (98837) от 07.04.2012
+
+[Wallpapers] Best HD Wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479682   (98838) от 07.04.2012
+
+[Wallpapers] Nature Pictures №38
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98838.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №38
+Название: Nature Pictures №38
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 1920х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701098495B4266070762D51641B7FAFFF7260719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478856   (98839) от 07.04.2012
+
+Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98839.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Essence
+ 2. OceansЖанр: Atmospheric Math Metal / Post-RockПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479488   (98841) от 07.04.2012
+
+[Wallpapers] Girls Wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DC315D6DC801383901E61C67E89F793BB5481A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479332   (98842) от 07.04.2012
+
+Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:12]
+02. Ray Of Light [3:55]
+03. Brick's [4:47]
+04. Gambling [3:14]
+05. Wing's Love [5:34]
+06. Set Me On Fire [3:24]
+07. Prisoner Of The Past [5:50]
+08. Paradise [5:40]
+09. First Kiss [6:11]
+10. Thunderstorm [4:28](   Читать дальше...   )Жанр: Melodic Metal, Heavy MetalПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479351   (98844) от 07.04.2012
+
+VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
+002. Ingsha & Di - Binary Code (Transit Passengers Remix)
+003. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
+004. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
+005. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
+006. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix)
+007. Cerf, Mitiska & Jaren - Down To You (Original Mix)
+008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
+009. Luca De Maas - E-Motions 2011 (original mix)
+010. The Blizzard & Yuri Kane feat. Relyk - Everything About You07.04.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479485   (98845) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479487   (98846) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479465   (98849) от 07.04.2012
 
 [Wallpapers] Gilrs Wallpaper Collection (07.04.12)
@@ -358,373 +705,6 @@ VA - Chill Out Essentials: Spring Edition (2012) [MP3|320 kbps]<Chillout | Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4FC87ADB83DB561F2D7EA3EBBC113C4C9E5B617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479464   (98872) от 07.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4468DBD3835FD1193395C2925B359AC91B925356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479750   (98875) от 07.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98875.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers №8
-Название: Girls Desktop Wallpapers №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0114DF3C264B838EC705C1BB000ACE2382B6BEC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479463   (98878) от 07.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57351C7DFDC32B12E6F0327D8228CEAB8CE95AC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479220   (98880) от 07.04.2012
-
-Лиза Джейн Смит  | Души теней [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возлюбленный Елены Гилберт, вампир Стефан Сальваторе, находится в плену у демонических существ, по вине которых в городке Феллс-Черч воцарился настоящий хаос. Чтобы освободить его, девушка вынуждена довериться брату Стефана Дамону, красивому, но опасному вампиру, мечтающему завладеть телом и душой Елены.
-Ради спасения Стефана Елена готова на все. Но дни идут, Елена окончательно запутывается в своих чувствах, и вот она уже не в состоянии разобраться, кто из братьев-вампиров ей дороже.
- Тем временем подруги Елены Бонни и Мередит пытаются понять, что за злая сила захватила город. Герои оказываются на пороге страшных и небывалых событий, сумеют ли они справиться с надвигающейся угрозой?2012Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804E62C43A65B0559A0C19769AF8475A2B4344B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479449   (98881) от 07.04.2012
-
-Александр Рыжков | Зар Повторитель [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98881.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Существует 2 вида людей: жертвы и жертвенники. Различие между ними не очень-то и большое. Некоторые вообще его не различают. Но всё же, оно есть. Жертвы губят лишь себя. Жертвенники, губя себя, губят и всех вокруг…»2012Жанр: научная фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E05E9D0D36D801EC3F8D938E48922863BE82694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478969   (98883) от 07.04.2012
-
-VA - Kuduro Reggaeton Club (2012) [MP3|320 kbps]<Dance | Kuduro | Reggaeton | Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BelMondo - Un Beso
-02. La Harissa - Vida louca (feat. Neg' Marrons)
-03. Colonel Reyel - Dis-moi oui (feat. Krys)
-04. Keen'V - J'aimerais trop
-05. Kymai - Balance toi
-06. Alycia Stefano - Vamos a la Fiesta
-07. Sany Afrika - Afrika Baby
-08. Bigu Ferreira - Tudo Mudou (feat. Matias Damasio)
-09. Datcha Dollar'z - Pinacolada
-10. Strikem - Fiesta (feat. Colonel Reyel)(   Читать дальше...   )2012Жанр: Dance | Kuduro | Reggaeton | ClubПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479526EC9531ED02A877133C3E355152CFDF3D9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478827   (98884) от 07.04.2012
-
-[Wallpapers] Black Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола в темных тонах.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D0568662AA076DF98CB9E43ABEFAFEB32130F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479234   (98885) от 07.04.2012
-
-Ministry - Relapse (2012) [FLAC|Lossless]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_98885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghouldiggers (7:40)
-02. Double Tap (4:06)
-03. Freefall (4:35)
-04. Kleptocracy (3:54)
-05. United Forces (4:52)
-06. 99 Percenters (3:53)
-07. Relapse (5:49)
-08. Weekend Warrior (5:42)
-09. Git Up Get Out 'N Vote (3:56)
-10. Bloodlust (5:36)Жанр: Industrial MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477225   (98886) от 07.04.2012
-
-VA - Авто Дискотека Радио Record 50/50 Vol.2 (2012) [MP3|192 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Чебанов - Сердце (Alex Menco Remix)
-02. Issy feat. David Goncalves - You and Me
-03. Руки Вверх И Гости Из Будущего - Он Тебя Целует (Ural Djs Edit Full Version)
-04. Sophie Ellis Bextor - Murder On The Dancefloor (DJ RICH-ART Remix)
-05. Горячий Шоколад - Без Ума От Счастья (Kapler Radio Mix)
-06. DJ Karas - Bamboleo (DJ Hitretz Remix)
-07. Vlad Raygun - Прогулка (Dj Solovey Remix)
-08. Example & Klaas & PH Electro - Kickstarts (Freaky Dj's Mash-Up)
-09. Иракли vs Бьянка - Белый Пляж (Dj Vayk Remix Radio Edit)
-10. Lad Idorf & Sergey Chorniy - Электро Сердце (Sandra 88 Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449E51F2D2D905224D924E91ACB15EBC8EC765EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479232   (98887) от 07.04.2012
-
-VA - Лучшая 100-ка Весна (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ёлка - Около Тебя (Andry Makarov Club Remix)
-02 Винтаж И Dj Smash - Москва
-03 Дзи дзьо - Дасис Фантастиш
-04 Ева Польна - Je Taime (Я Тебя Тоже Нет)
-05 Иракли - Ты Одна (Dj Kirill Clash &Amp_ Dj Dmitriy Nema Remix)
-06 Макsим - Осколки (Dj Val Remix)
-07 Сергей Жуков & Opium Project - Я Буду С Тобой (Club Mix)
-08 Пропаганда - Наберу (Sergey Sunny Remix)
-09 Градусы - Заметает (Alex Shade Remix)
-10 Катя Чехова - Новая Я(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466A99E4E591536ADF7FFECD6F237F98BD293FF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479845   (98889) от 07.04.2012
-
-[Wallpapers] Nature HD Wallpapers Pack 14
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98889.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 14 
-Название:  Nature HD Wallpapers Pack 14 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1440 - 5102х3567
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0072194D5E7CFDDBEEFB151F7A6FE4FA0C3510D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479109   (98890) от 07.04.2012
-
-VA - Deep Line. Harmony Collection (2012) [MP3|320 kbps]<Relax | Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berkstroem - Resena Positiva
-02. Acoustique Parfum - Dawn Under (part 2)
-03. Geb El - The Killer & The Chicken
-04. Enrico Donner - Temptalizing Me (feat. Judy Georges)
-05. Sefu Alengweh - Past Lives
-06. Maria Del Rosario - La Libelula
-07. Cane Garden Quartet - Love Goddess
-08. Calmstreet - Third Wave
-09. DJ Nob Tee aka Dugsoul - Feel It
-10. Roberto Serrador - Boa Noite(   Читать дальше...   )2012Жанр: Relax | ChilloutПродолжительность: 04:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CBEB7DADBE5E995ED00B7D3A1A46BC501114BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479486   (98891) от 07.04.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFFACCE7306C5E1C04E6931ECCEBCA855DC5A5E
 ```
 
 

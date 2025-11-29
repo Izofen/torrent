@@ -1,3 +1,435 @@
+###  Публикация: 1705830   (113760) от 10.03.2024
+
+Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossless|tracks] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Настоящее золото - легкая жизнь. Solid Gold, Lasy Actiont.
+02 - Парень ХХ века. 20th Century Boy.
+03 - Мечта малолеток. Teenage Dream.(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705894   (113761) от 10.03.2024
+
+Сто к одному (10.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113761.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+Что можно делать на бревне? Что делают люди, чтобы реже болеть? Команды "Короли шпаги" и "Королевы сабли" (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Короли шпаги" против команды "Королевы сабли"Язык озвучки: РусскийПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A89CBC14B5A2B54FDFEF3C4F492584ABF50485
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705863   (113762) от 10.03.2024
+
+Nils Hoffmann - Running In A Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, House, Deep-House, Progressive-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer [00:03:34]
+02. Running In A Dream [00:04:29]
+03. Collide [00:03:46]
+04. Holding Me Back [00:04:25](   Читать дальше...   )Жанр: Downtempo, House, Deep-House, Progressive-HouseПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB313DA556980B35B741FE9DBB1AE3DBE7CD3E38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705909   (113763) от 10.03.2024
+
+Владимир Короленко | Чудная. Сказки и рассказы (2014) [MP3, Аркадий Бухмин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика.
+В этот сборник одного из величайших русских  детских писателей Владимира Галактионовича Короленко (1853–1921) вошли следующие рассказы и сказки:
+1.	 Чудная
+2.	 Необходимость(   Читать дальше...   )Жанр: Русская литература, классика, детская прозаИздательство: МедиаКнигаПродолжительность: 06:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2600C66B3F7059BB8193B77E2D4D9667F7638F55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705858   (113764) от 10.03.2024
+
+Ninja Sex Party - These Nuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (These) [00:00:39]
+02. Get Ready (To Get Ready) [00:03:05]
+03. I Own a Car [00:02:29]
+04. Let's Save the Earth [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0490A20EBDE25DAEE91785670EBDE9B4D091504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705602   (113765) от 09.03.2024
+
+Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drag Me to Hell [00:03:02]
+02. Siren's Call [00:04:09]
+03. Of War and Flames [00:04:46]
+04. Firebringer [00:03:52](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E7667C0489E0993E538C6BFB945484BE36C5BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705561   (113766) от 09.03.2024
+
+Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back to Me [5:37]
+02. Sweet Lorraine [3:10]
+03. Shine [3:38]
+04. Solitude [4:15](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EE6225ACB035CAE842BC568F085D8464008B42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705693   (113767) от 09.03.2024
+
+Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aujourd'hui (5:58)
+02. Lâcher-prise (4:20)
+03. 42 à Brest (4:59)
+04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705757   (113768) от 09.03.2024
+
+Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood on the Sand
+02. If I Could
+03. Fallow Season
+04. Pitfalls(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CADBA404604BC157C6C2FA1D713DD429862C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705610   (113769) от 09.03.2024
+
+Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vade Retro
+02. If She Floats
+03. Et Cum Spiritu Tuo
+04. Antecclesia(   Читать дальше...   )Жанр: Doom, Heavy MetalПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C706E004A502BEEA34F974CED6ECCB19C7AA303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705748   (113770) от 09.03.2024
+
+Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Formaldehyde
+02. The Little Things
+03. Armour
+04. Resolution(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4151D12AB3A26AD4287DA4F9BBB484327DB793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705563   (113771) от 09.03.2024
+
+Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [8:20]
+02. April in Paris [5:05]
+03. Cherokee [2:26]
+04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705608   (113772) от 09.03.2024
+
+Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icehouse [00:05:11]
+02. Force Majeure [00:04:44]
+03. Killing Time [00:02:52]
+04. Behind the Tears [00:05:23](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F1F27FBC24DE45207F8143352BFD16A61BED5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705564   (113773) от 09.03.2024
+
+Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby in Rhythm [3:08]
+02. Embraceable You [4:39]
+03. Love for Sale [5:09]
+04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705565   (113774) от 09.03.2024
+
+Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The Honeydripper (1961) 2013, Groove Hut Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctified Waltz [4:54]
+02. Goodnight, It's Time to Go [6:16]
+03. I'll Be Seeing You [7:40]
+04. A Smooth One [10:50](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C35612366D21E0E4664EE78AD840B51C4B0CE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705760   (113775) от 09.03.2024
+
+Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Untethered (00:01:18)
+02 - Liberator (00:03:59)
+03 - Moonlight Over Silver White (00:05:43)
+04 - Until You Return (00:06:40)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA3DA7A573FC24C079686F48D997CBB918F19EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705575   (113776) от 09.03.2024
 
 Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
@@ -260,421 +692,6 @@ Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D184607725D99D06D09A9E5B294C4A00B77AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705583   (113786) от 09.03.2024
-
-FocusSee for Mac 1.0.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113786.jpg" />
-</div>
-
-
-###  Подробнее
-
-FocusSee — это нативное средство записи экрана, предназначенное для пользователей, которые хотят быстро получать профессионально выглядящие видеоролики без ручной постобработки. Он автоматически обрабатывает видео, автоматически отслеживая движение курсора, применяя эффекты динамического масштабирования и щелчков, а также добавляя привлекательный фон, что позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.02024Разработчик: © 2024 Hongkiat.com (HKDC)Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B6D746C2A1DA9884122E53D5079BEA1A0FDBBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705680   (113787) от 09.03.2024
-
-ADDicted! - День (2024) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ADDicted!/KDRR - Чужой среди своих
-2. ADDicted! - Два фаера
-3. ADDicted!/Угарный гаZzz... - Навсегда в твоём плеере
-4. ADDicted! - Чего хотел добиться ты(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A80C51724A0F94B2C6E9BD478B481E649B2A8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705322   (113788) от 09.03.2024
-
-Пятеро на одного (08.03.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8E8EEBAC126236CAF168D4201C13E12265A2A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705628   (113789) от 09.03.2024
-
-Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgment [00:01:28]
-02. Prophecy [00:03:58]
-03. Death in Bloom [00:03:46]
-04. Deceiver [00:03:42](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C41F0BAE8420BE2F7C0FD71251245EF05600E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705742   (113790) от 09.03.2024
-
-Firewind - Stand United (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvation Day
-02. Stand United
-03. Destiny Is Calling
-04. The Power Lies Within(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941C3C9AA6DE2BF54F305C3807BE4143EB7E85A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705616   (113791) от 09.03.2024
-
-Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Indie Rock>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113791.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 – Back to the Treehouse (Ambient Mix)
-12 – Ray’s Golden Fist (Bananahand Remix)
-13 – Burning Flies (Acoustic)
-14 – Columbo’s Car (Peugeot 413 Mix)(   Читать дальше...   )Жанр: Downtempo, Trip Hop, Indie RockПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26C42BB10F3FF2B44FCD40263BA5763158D5A60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705560   (113792) от 09.03.2024
-
-iNet Network Scanner 3.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113792.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 BananaGlue GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817DBE6B78975D491A2310719CE61284BDA19B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705547   (113793) от 09.03.2024
-
-Сто к одному (09.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113793.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Многодетные мамы" против команды "Писатели"Язык озвучки: РусскийПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE63A0E69B011A375606A900D9AC6EB733A310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705501   (113794) от 09.03.2024
-
-Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Away [00:03:23]
-02. Broken Bones [00:02:59]
-03. Day By Day [00:04:05]
-04. Dig Deep [00:03:10](   Читать дальше...   )Жанр: Alt. Rock, Post-Grunge, Hard RockПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3981D244487F247600A0C7663E367E855D9289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705692   (113795) от 09.03.2024
-
-Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cave (Original Mix) (3:51)
-02. Cosmic Funky (Original Mix) (3:50)
-03. Green Gold (Original Mix) (3:27)
-04. Inside (Original Mix) (3:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705704   (113796) от 09.03.2024
-
-Своя игра (09.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113796.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CACE35DF3DFA97A25037AE55A59E42070DD46AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705730   (113797) от 09.03.2024
-
-Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:11]
-02. My Sentence [00:04:13]
-03. Your Friend [00:03:36]
-04. Death's Mark [00:04:37](   Читать дальше...   )Жанр: Progressive Metal, Hard Rock, Gothic MetalПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C887739D89894F99584A030FE7CC407CDF416E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705712   (113798) от 09.03.2024
-
-Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.B.
-02. Pig Corporation
-03. Deviant
-04. Away Form Us All(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A392190C61C1FC7FBFCAD6BF49CFA25AF82632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705687   (113799) от 09.03.2024
-
-Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir James (3:53)
-02. Monkamania (3:23)
-03. An Easy Journey (2:55)
-04. New Surya (4:15)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54759560641A3CF79E3484FD7C15BD20A546201
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705767   (113800) от 09.03.2024
-
-PdfFactory Std & Pro 8.43 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113800.jpg" />
-</div>
-
-
-###  Подробнее
-
-pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66540423BB5C28D114902F8AC91C70D287D9FA85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705709   (113801) от 09.03.2024
-
-Генри Каттнер и др. | То, что вам нужно (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113801.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Журналист Кармишел обнаружил в престижном районе странный магазин с очень неприметной вывеской «Мы имеем то, что вам нужно». Когда он начал общаться с хозяином магазина, то выяснились странные подробности, которые чуть не свели Кармишела с ума. Похоже, что магазин продает своим клиентам кота в мешке, причем за весьма солидные деньги." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50215A0F629064429CE1B128DC3BE2DFB9829AE
 ```
 
 

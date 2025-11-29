@@ -1,3 +1,52 @@
+###  Публикация: 1760341   (31343) от 11.01.2025
+
+Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Millennia - пошаговая стратегическая игра, охватывающая 10 000 лет истории. Игроки ведут свою цивилизацию от скромных истоков до потенциального будущего космического господства. Каждое прохождение игры предлагает уникальный сюжет, формируемый выбором игрока. Игроки будут сталкиваться с кризисами и открытиями, строить империи и ориентироваться в постоянно меняющемся (   Читать дальше...   )Тип издания: RepackРазработчик: C Prompt GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9AF489A555FA0CBAACEA4BD1A8B672D17301AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772571   (31344) от 11.01.2025
+
+Total Commander 11.50 Extended 25.1 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный файловый менеджер под Windows - Total Commander в Extended версии - это новый взгляд на функциональность и стабильность! Lite - версия отличается от старшего брата отсутствием встроенных программ.
+Total Commander Extended - это x86 и x64 версии Total Commander в одном инсталляторе. Оптимальный набор программ и плагинов. Поддерживает интеграцию дополнительных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E3895FC87CEFCA9F7C1FD36B8838102A04E43E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772171   (31345) от 11.01.2025
 
 Илон Маск: искусственный интеллект исчерпал данные человечества
@@ -595,60 +644,6 @@ Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B06EF96CD2F96A6D477769B724B58E5631BB940
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772406   (31369) от 10.01.2025
-
-VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_31369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - I Feel Love
-02. Gary's Gang - Keep On Dancin'
-03. Eddy Rosemond - Wake Up And Move...Funky
-04. Village People - Y.M.C.A.(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95413F948A22CA4C4DD5F0227E4FDE337B29E3CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772411   (31370) от 10.01.2025
-
-Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal jazz, Soul, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_31370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Way We Were (6:03)
-02.  Pure Imagination (3:35)
-03.  Suicide Is Painless (3:23)
-04.  I Have Nothing (4:51)(   Читать дальше...   )Жанр: Vocal jazz, Soul, BluesПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE8082C6F12C81FF23D02299433A9BF3D5AD585
 ```
 
 

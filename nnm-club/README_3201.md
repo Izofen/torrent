@@ -1,3 +1,432 @@
+###  Публикация: 1762787   (102891) от 27.11.2024
+
+Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nascimento [6:08]
+02. Mirage [5:46]
+03. Beyond the Bluebird [7:03]
+04. Pannonica [7:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23241FB4334085FABA78601BB2371A30BEBCE184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762737   (102892) от 27.11.2024
+
+J.P. Reali - Blues Since Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devils Take (4:26)
+02. The Virus Blues (3:02)
+03. It Takes A Lot To Laugh, It Takes A Train To Cry (3:15)
+04. Drunk And In The Way (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B33907F27945172728284F0597B01DEC395960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762746   (102893) от 27.11.2024
+
+Mezzanottemmezza - Out of This Place (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necessarily (4:38)
+02. Summer Nights (5:19)
+03. Maybe out of This Place (3:47)
+04. Landline (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FE17CF4522DDDEB109CEB7AA45CE25ED63A1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762642   (102894) от 26.11.2024
+
+Путаница / Mixed Identities (1913) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинематограф всегда любил близнецов. С ними можно насочинять разную веселую неразбериху. Вот и еще коротенькая комедия о сестрах-близнецах Элис и Эдне, получивших дипломы стенографисток. Их берут на работу мистер Редмонд и мистер Фредди, которые являются друзьями...
+В ролях действительно сестры-близнецы.
+Вот мне всегда было интересно, каково это - гулять с одной (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Уильям ХамфриАктеры: Уолли Ван, Эдна Нэш, Элис Нэш, Уильям Хамфри, Роуз Тэпли, Гарри ЛамбартПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B342BEEE5D1A1A6927AD7154905267C760677892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762611   (102895) от 26.11.2024
+
+Hubert Laws - The Rite Of Spring (1971) 1991, CBS [WavPack|Lossless|image + .cue] <Hard Bop, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faure: Pavane [7:41]
+02. Stravinsky: The Rite of Spring [8:59]
+03. Debussy: Syrinx [3:32]
+04. J.S.Bach: Brandenburg Concerto No.3, 1st Movement [5:59](   Читать дальше...   )Жанр: Hard Bop, Jazz-PopПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A933B926BBE53C8DB3D63E9315C14DD7663137E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762615   (102896) от 26.11.2024
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Флорида Пантерз (25.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102896.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2024, вторник. 03:00 МСК. Стадион: Амерант Банк Арена (Санрайз, США), 18 504 зрителя (95% при вместимости 19 434)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Вес Макколи (Джорджтаун, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада); Линейный: Томми Хьюз (Лондон, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5DA5F9307BED6EC9A6820909373B3BE1E5C6FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762344   (102897) от 26.11.2024
+
+Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections (4:02)
+02. Angelic Evening (3:29)
+03. A Thought of Spring (3:16)
+04. The Promise (3:39)(   Читать дальше...   )Жанр: New Age, Instrumental, AmbientПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0636AFC3C6F0E3D2BA99C26CF42C3D7BA4251DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762299   (102898) от 26.11.2024
+
+Mannheim Steamroller By Chip Davis - Christmas In The Aire (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy to the World (3:40)
+02. Joseph Dear Oh Joseph Mine (3:11)
+03. Rudolph The Red Nosed Reindeer (3:16)
+04. Herbei, Oh Ihr Gläubigen (O Come All Ye Faithful) (3:34)(   Читать дальше...   )Жанр: Instrumental, Pop, ClassicalПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C0D449A7937656A1AB907807619006A0229325
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762551   (102899) от 26.11.2024
+
+VA - Uplifting Only Top 15: December 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormline - Armageddon (Intro Mix) (05:44)
+02. Roxanne Emery & Maratone - Learn To Fly (Mhammed El Alami Extended Remix) (06:45)
+03. Loobosh & Laucco - Volando En Las Nubes (Extended Mix) (11:17)
+04. LR Uplift & SounEmot - I Miss The Moments With You (Emotional Mix) (08:12)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DD2508483225808EA3DE5B6B8E860E2501FFF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762547   (102900) от 26.11.2024
+
+VA - The Independent Blues Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Sean - Mama Taught Me (3:17)
+02. Aldrich Benson - The Postman Always Rings Twice (4:14)
+03. Mak Daddy Revue - Greenville Girl (3:44)
+04. Greg Gunhold - Death of Me (5:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E615E1D74FFD61D3A15FAA6409E32A20923677
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762546   (102901) от 26.11.2024
+
+VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phish - Stash (7:11)
+02. Max Mutzke - Inner City Blues (feat. Max Mutzke) (5:11)
+03. Chicago - South California Purples (6:29)
+04. Boney James - Surrender (feat. Boney James) (4:43)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 02:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9137DC8171BE204468E2281802FA363F3BED41F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762306   (102902) от 26.11.2024
+
+Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Punk, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From A to H and Back Again (6:50)
+02. Cathode Ray (4:34)
+03. Motorbike (New) (3:05)
+04. Drug Music (More or Less) (5:15)(   Читать дальше...   )Жанр: Electronic, Rock, Punk, TechnoПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB39BA7EEF85F8577F9CA1A57EDC2309DF393F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762644   (102903) от 26.11.2024
+
+Activator - Хранитель жизни (2013) [MP3|252-276 Kbps VBR (V0)] <Heavy Power Metal, Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Вступление
+02.Проклятие
+03.Пепел
+04.Только вперёд(   Читать дальше...   )Жанр: Heavy Power Metal, Metal OperaПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48ADFE2F5879E679BD449B2341CCC17944009F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762690   (102904) от 26.11.2024
+
+VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Jazzy Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Keys – Lemon Tree (1:27)
+02. Pale Jay & Chris Keys – Share a Dream (3:15)
+03. YUNGMORPHEUS – The Price (2:46)
+04. Denmark Vessey – Marionette Flex (feat. Nolan & Fly Anakin) (3:15)(   Читать дальше...   )Жанр: Hip-Hop, Jazzy Hop, Underground Hip-HopПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CF94922F03130D12C4898306F97E75DCB83BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762693   (102905) от 26.11.2024
+
+Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Downtempo, Dark Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plug Out (3:49)
+02. Inedit Time (4:22)
+03. Liturgy (5:40)
+04. Gold Silence (4:29)(   Читать дальше...   )Жанр: Dark Chill, Downtempo, Dark JazzПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1F810D55F3EC76B43946184960C25018440B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762608   (102906) от 26.11.2024
+
+Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Me Again 03:58
+02. I Am Calling 03:28
+03. Crumble 04:51
+04. Get In Line 04:25(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BA640193233F205797ACA4D5C0FB888DE2D15F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762586   (102907) от 26.11.2024
 
 Журнал | Таинственные истории №23 (303) (2024) [PDF]
@@ -257,425 +686,6 @@ Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|image + .cue] <Melodic D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E19AF50E3E6528F77453E1D6D73CF6E97D55507E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762345   (102917) от 25.11.2024
-
-The Minus 5 - Down With Wilco: A Tragedy In Three Halfs (2003) [FLAC|Lossless|tracks + .cue] <Rock. Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Days of Wine and Booze (3:42)
-02. Retrieval of You (3:51)
-03. That's Not the Way That It's Done (3:29)
-04. The Town That Lost Its Groove Supply (2:35)(   Читать дальше...   )Жанр: Rock. Indie Rock, Alternative RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0D8C0B4D9B792B4539920CECFD6FB6E7C83E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762437   (102918) от 25.11.2024
-
-Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Loves Me [2:54]
-02. I'm Painting The Town Red [2:57]
-03. All My Life [3:11]
-04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF819BB43D3047C22D58F0360DE7333C0903762F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762164   (102919) от 24.11.2024
-
-НХЛ 2024-2025. Виннипег Джетс - Питтсбург Пингвинз (22.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102919.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 2024, суббота. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 232 зрителя (82% при вместимости 18 673)
-Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D0A924F557320CEE2F4EC68AE8F83CAE47576F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762067   (102920) от 24.11.2024
-
-Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitro Dk 00:58
-02. Lies 03:48
-03. Visions 04:15
-04. Destroy Yourself 03:33(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC5EA37985F534427E2ADE4439072597233842A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762199   (102921) от 24.11.2024
-
-НХЛ 2024-2025. Юта - Питтсбург Пингвинз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102921.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 324 зрителя (87% при вместимости 18 673)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Кори Сиврет (Милгров, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Девин Берг (Китченер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E6ACEA3457F1F6326D1464CB186D180E33BC4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762328   (102922) от 24.11.2024
-
-Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral in GreenЖанр: Thrash Metal, Black MetalПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CA626D620975E41510E1823CB4274AB8084F5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761972   (102923) от 24.11.2024
-
-R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (instrumental) 01:03
-02. Choice 01:32
-03. Сука блядь 02:48
-04. Fatal Mistake 03:10(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50607846548183DDBFE25D4F8BD52DA5E96B329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762070   (102924) от 24.11.2024
-
-Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure & Simple (9:53)
-02. Feed My Hate (7:50)
-03. Bloody Cages (8:18)
-04. Recrucifiction (7:16)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A65F88ED4EFA00B89BBA556147FA9FC082D0F9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762057   (102925) от 24.11.2024
-
-Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image + .cue] <Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Chief - Gathering Souls (28:10)
-02. Runemagick - Bound in Magick Haze (9:39)
-03. Runemagick - Chthonic Temple Smoke (10:13)Жанр: Doom Death MetalПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A5B794DE227696D4DFF88F6AC7DAFC53E3E822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762060   (102926) от 24.11.2024
-
-Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Došli smo do kraja puta (3:21)
-02. Silvana (4:35)
-03. Gotičarka (4:44)
-04. Ferrari (3:47)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37219FA72C6712C09C53E2C2731E7DBB5CCB66FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761975   (102927) от 24.11.2024
-
-Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massacro 03:18
-02. La morte del mondo 05:40
-03. ...e vivere sarà 04:45
-04. Come stai 05:03(   Читать дальше...   )Жанр: Power Doom MetalПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58537228EADAE0AE8740514825D7CCF483FB8E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761995   (102928) от 24.11.2024
-
-Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reductio ad AbsurdumЖанр: Death MetalПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6050514A8EC1E5E6AAC5D6FA2B96384F07FF9C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761992   (102929) от 24.11.2024
-
-Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animula Vagula Blandula 00:33
-02. Pt. 1 03:19
-03. Until Dawn 04:42
-04. Reflections 03:57(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Groove MetalПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6243E1618688D04213A3A949B6CCCB998893ACA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762193   (102930) от 24.11.2024
-
-НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102930.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Дэн Келли (США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67731E1EC733D4136427609EE92646B8FCBEEB22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762021   (102931) от 24.11.2024
-
-Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss of the Underworld (7:40)
-02. Bad Omen (9:18)
-03. Molested, Defiled, Disrupted (9:47)
-04. Chamber of Chaos (8:12)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762322   (102932) от 24.11.2024
-
-Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 7th Empire (4:50)
-02. The Emperor's Children (4:01)
-03. Alter Reality (7:07)
-04. Exposed (9:41)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
 ```
 
 

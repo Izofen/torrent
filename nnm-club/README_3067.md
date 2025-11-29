@@ -1,3 +1,379 @@
+###  Публикация: 469505   (97238) от 19.03.2012
+
+VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (01:19:03)
+01. Sinister Silence Feat. Camille Jones - Someday (Still Around Mix) 08:03
+02. Liquid Soul & Electric Universe - Liquid Universe 09:36
+03. Major7 - Obsession 06:37
+04. Zyce - Dreaming 07:32
+05. Liquid Soul & Symbolic - Different Reality 08:31
+06. Timelock - 99 Calibre 07:17
+07. Sonic Species - Machina Terra (E-Clip Remix) 08:41
+08. D-Addiction - WTF 08:40
+09. Rocky & Sphera - Echo (Yotopia Remix) 08:21(   Читать дальше...   )2012Жанр: Psychedelic Trance, Progressive TranceПродолжительность: 02:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470199   (97240) от 19.03.2012
+
+Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dream Full Of Fire
+02. Maybe We'll Meet Again
+03. El Dorado
+04. Darkness Falls
+05. Hotels
+06. Believe
+07. Life Of The Party
+08. Gone Are The Days
+09. Moon God
+10. In Exile2012Жанр: Progressive Metal / Symphonic RockПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470267   (97241) от 19.03.2012
+
+VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мара - Головокружения
+02. Ian Carey Ft. Bobby Anthony & Snoop Dogg - Last Night
+03. Дмитрий Колдун - В Комнате Пустой
+04. Alice Cooper - What Baby Wants
+05. Мила Нитич - Каюсь
+06. Kalomira - This is the time
+07. Сергей Ялтан - Окаянная
+08. Sophie Ellis-Bextor - Not Giving Up On Love (Extended Version)
+09. Земфира - Webgirl (Alex Valenso Remix)
+10. Darren Hayes - Talk Talk Talk2012Жанр: Pop,DanceПродолжительность: 06:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470439   (97243) от 19.03.2012
+
+VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97243.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Get Sexy vol.1 (2012)Год: 2012
+Жанр: Electro House, House
+Продолжительность: 01:40:24Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:
+01.Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
+02.Sean Paul - She Doesnt Mind (LX-Tronix Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468559   (97244) от 19.03.2012
+
+VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Swedish House Mafia - Save The World
+2. Avicii - Fade Into Darkness (Vocal Extended)
+3. Axwell - Heart Is King
+4. Michael Calfan - Resurrection (Axwells Recut Club Version)
+5. Armin Van Buuren - Drowning (Avicii Remix)
+6. David Tort Feat. Gosha - One Loock (Axwell Vs Dimitri Vegas)
+7. Eric Prydz - Niton The Reason (Extended Mix)
+8. Tim Berg - Seek Romance (Avicci Vocal Extended)
+9. Albin Myers Feat. St James - There 4 You (Extended Mix)
+10. Adrian Lux - Teenage Crime (Axwell & Henrik B Remode)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470316   (97247) от 19.03.2012
+
+Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97247.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waste In Space
+ 2. Repossession
+ 3. New Dead Masters
+ 4. Unholy Abductor
+ 5. Idiot Check
+ 6. Covered In Sick/The Barfer
+ 7. You’re Cut Off
+ 8. Authority Complex
+ 9. Standards and Practices
+ 10. Crushing Chest Wound(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470506   (97249) от 19.03.2012
+
+Alexandra - Mowisz Mi, Ze Przepraszasz (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_97249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD320606177A447E5301985D66DD17498B383474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470170   (97250) от 19.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 42
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97250.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 42
+Название: Sexy Girl Wallpapers Pack 42
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470259   (97251) от 19.03.2012
+
+[Wallpapers] Girls Wallpapers (18.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470613   (97252) от 20.03.2012
+
+[Wallpapers] Best HD Wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467137   (97253) от 20.03.2012
+
+Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
+02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
+03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
+04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
+05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
+06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
+07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
+08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
+09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
+10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470709   (97255) от 20.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470621   (97256) от 20.03.2012
+
+[Wallpapers] Desktop wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470985   (97258) от 20.03.2012
 
 [Wallpapers] Nature Pictures №31
@@ -355,352 +731,6 @@ magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471016   (97276) от 20.03.2012
-
-[Wallpapers] Flower Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97276.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Flower Wallpapers Pack 2
-Название: Flower Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468054   (97277) от 20.03.2012
-
-VA - The Dance Cube XXXX 2CD (2011) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97277.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Продолжительность: 01:10:48
-====================================
-01 - Mat Zo - Bipolar (Original Mix)
-02 - Robbie Rivera Feat. Jes - Turn It Around Feat Jes (David Solano & Landis Remix)
-03 - Tigran Oganezov - Kronos (Original Mix)
-04 - Cathy Burton - Reach Out To Me (Chris Schweizer Dub)
-05 - Tigran Oganezov - Brainbug (Original Mix)
-06 - DJ Madwave & Steve Sanders - Nooza (Damian Wasse Remix)
-07 - DJ Munder - Fly Away (Original Mix)
-08 - Solis & Mike Danis - Eleven (Broning Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467132   (97278) от 20.03.2012
-
-Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Erick Decks & DJ Sign feat. Felice - Running 2012 (Original Erick Decks Extended Mix)
-02 - A. Romeo & Plage & Alateya - Summer Night (Dabruck & Klein Remix)
-03 - Moguai - Mpire (Original Mix)
-04 - Nadia Ali, Starkillers & Alex Kenji - Pressure (Alesso remix)
-05 - Yves Larock & Jesus Luz & Liliana Almeida - Running Man (Hard Rock Sofa Remix)
-06 - Hardwell - Cobra (Official Energy Anthem 2012)
-07 - Tommy Trash - Cascade (Original Mix)
-08 - Ce Ce Rogers & Syke 'n' Sugarstarr - I Believe (Max Lean Remix)
-09 - Vitodito & Oza - Kawaii (Dirty Club Mix)
-10 - Neon Hitch - F U Betta (Chuckie Club Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471009   (97279) от 20.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471010   (97281) от 20.03.2012
-
-[Wallpapers] Nature Pictures №33
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97281.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №33
-Название: Nature Pictures №33
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470262   (97282) от 20.03.2012
-
-[Wallpapers] Cityscapes HD Wallpapers (18.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471070   (97284) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97284.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 5
-Название: HD Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471028   (97285) от 20.03.2012
-
-[Wallpapers] Nature Wallpapers (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471030   (97286) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470984   (97287) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97287.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 2
-Название: HD Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470716   (97288) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470220   (97290) от 20.03.2012
-
-Бамбу / Bambou (2009) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_97290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ален — служащий банка, очень любит свою жену, мечтает о полноценной семье и ребенке. Анна — жена Алена — не готова становиться домохозяйкой. Она поглощена своей музыкальной карьерой. Однажды в их доме появляется щенок по кличке Бамбу. «Личный враг» Алена скоро становится самым верным его другом, а Анна — будущей счастливой мамой и известной пианисткой.Жанр: КомедияРежиссер: Дидье БурдонАктеры: Дидье Бурдон, Энн Консиньи, Пьер Ардити, Эдди Мичелл, Анни Дюпре, Аксель Аббади, Эрик Фратичелли, Жан-Пьер ТальяферриПеревод: Многоголосый закадровыйПродолжительность: 01:33:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471011   (97291) от 20.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
 ```
 
 

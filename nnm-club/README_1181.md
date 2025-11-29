@@ -1,3 +1,57 @@
+###  Публикация: 1773040   (31057) от 13.01.2025
+
+Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Acid Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lanterns (4:52)
+02.  Gonna Be Alright (3:54)
+03.  Out Of The Window (4:35)
+04.  Latin Melody (5:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Acid JazzПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FAC45C3571A14284552DC3001DD7BE40684538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773025   (31058) от 13.01.2025
+
+Conniption - The Theatre of Invention (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Horizon Dreamed (01:25)
+02. Set It Alight (05:04)
+03. Valley of the Void (04:02)
+04. The Theatre of Invention (04:39)(   Читать дальше...   )Жанр: Heavy Thrash MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DE54F771DBED915968E2B01D66F7391626BC38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773086   (31059) от 13.01.2025
 
 Momodora Moonlit Farewell (2024) [Ru/Multi] (1.1f32) Repack Let'sРlay
@@ -584,57 +638,6 @@ magnet:?xt=urn:btih:B177ED4937C8F9CF2D4C2A0E5F9B69B89726226B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89AC55664E33959DADECF6FA2E83EE1C97EFF0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772999   (31083) от 13.01.2025
-
-BurnAware Professional 18.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_31083.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2F7761C0E02AED7725F380F8A23160D2F1F0FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773138   (31084) от 13.01.2025
-
-ДДТ (DDT) - Бокс. 6 Альбомов (2024) Remastered [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_31084.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках проекта на Planeta.ru группа ДДТ готовит новый релиз для слушателей – на виниле будут изданы лимитированными тиражами альбомы ДДТ 90-хх годов: «Актриса Весна», «Чёрный пёс Петербург» , «Это всё», «Любовь» (впервые на LP) и «Мир номер ноль». Также впервые на виниле будет выпущен сольный «французский» альбом Юрия Шевчука и Константина Казански «L’echoppe». (   Читать дальше...   )1992 - Актриса весна
-1993 - Чёрный пёс Петербург
-1995 - Это всё...
-1996 - ЛюбовьЖанр: RockПродолжительность: 05:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DDD1179FBB0F5827262FDEAF960518C99281CB
 ```
 
 

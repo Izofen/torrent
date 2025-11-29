@@ -1,3 +1,54 @@
+###  Публикация: 1788110   (68658) от 28.03.2025
+
+Firefox Browser ESR 128.8.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101EFD1E6D06E95CC89D341E22E0A9D25BCAF07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788028   (68659) от 28.03.2025
+
+VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Ton - Video Killed The Radio Star (Vocal)
+02. Coangielu - Feeling (Extended Version)
+03. Chaya - Russian Affair (Extended Version)
+04. Gazuzu - Go Go Gorilla (Vocal Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784293B358059AA074929358ADC266FDF5C16AD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788104   (68660) от 28.03.2025
 
 Firefox Browser 136.0.4 Portable by PortableApps [Ru]
@@ -616,57 +667,6 @@ magnet:?xt=urn:btih:D92BBD8928C6FAC5EE287DD64F5625965D4291A0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD6014C10D094531B6BC84AE13A18223AD0352D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787768   (68684) от 27.03.2025
-
-Сборник | Время. События. Люди. Великие любовники (2013) [MP3, Александр Котов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68684.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой аудиокниге вы откроете для себя новые образы известных и талантливых людей, их любовные истории, а в любви, как известно, наиболее ярко и неожиданно проявляется характер человека.Жанр: Учебная и научно-популярная литератураИздательство: СОЮЗПродолжительность: 11:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3009E038FD3AF56908DF547E94D987D0F6549790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787829   (68685) от 27.03.2025
-
-VA - Ibiza Springtime 2025 (Dancing In The Sunset) (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DBN & Cosmo Klein - Cold Blooded Thieves (Monoloop remix) (05:02)
-02. Francesco Diaz & Young Rebels - Into The Night (03:05)
-03. Eric Belucca - Lies (03:25)
-04. Madd - Talk to Me (03:40)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B15825F92D598C2E6DC536108C01ECF7B2F04A4
 ```
 
 

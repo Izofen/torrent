@@ -1,3 +1,192 @@
+###  Публикация: 1829834   (201787) от 26.10.2025
+
+VA - 60 minutes. Old School Dance Music vol.29 (mixed by Dj V) (2024) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Chicane Feat. Maire Brennan Of Clannad - Saltwater (The Thrillseekers House Mix)
+02-Sonorous - Protonic (Leama & Moor Remix)
+03-Tiesto vs. Junkie XL - Obsession
+04-Reeloop - Identification (Original Mix)(   Читать дальше...   )Жанр: Progressive Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E5637B0F2F7AFBD32A0A95FF802224162D8180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829917   (201788) от 26.10.2025
+
+VA - Musical kaleidoscope part 60 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aurora Night - One Left
+02 - Dave Koz - I Believe
+03 - York Patrick - All I Have to Give (Club Mix)
+04 - Владимир Кузмин - Золотая Карусель(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4366FA1548A2C365360DE2ACC5F9FFC33173F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615690   (201896) от 03.03.2023
+
+VA - Украинские песенки Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_201896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alyosha  - Калина (03:16)
+02. Kola  - Біля Серця (02:17)
+03. Shumei  - Тривога (03:11)
+04. Маша Кондратенкo - Не Ходи (02:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CE468FD8A83874096318221FEABF59CBF79F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829232   (201994) от 25.10.2025
+
+Whiskey River - Broken Highway (2024) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deserted Dreams [02:00]
+02. Whiskey Nightsong [02:00]
+03. Midnight Road [02:00]
+04. Whiskey Glow [01:54](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BA3DFECFAFBA59507B4F5B43353055A2F8B6C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829259   (202001) от 25.10.2025
+
+Novi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anugerah Terindah
+ 02 - Every Breath I Take
+ 03 - Love Sublime
+ 04 - A Shadow of You (Remix)(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DC82868497135ECD9AE3DB881F3510B9D17462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829261   (202004) от 25.10.2025
+
+Novi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Waited All My Life
+ 02 - Until You Sleep
+ 03 - Because of You
+ 04 - Cold Heart(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB658287B0A7045C563C7651FE909EAB0D02096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829263   (202006) от 25.10.2025
+
+Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, Vocal, Pop Ballad, Other, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forbidden to Love
+ 02 - Echoes of the Dusk
+ 03 - Need You Stay
+ 04 - Stay With Me(   Читать дальше...   )Жанр: Electronic, Pop Rock, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6D314C4AC0906323C798D281C579539AB57768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615636   (202187) от 26.02.2023
 
 VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco, New Wave, Synthpop>
@@ -506,192 +695,6 @@ VA - I'm Listening Now 4 (2023) [MP3|320 Kbps] <Club, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:411C166500A21A2097438EA52B1B470DD80ED35E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655657   (204165) от 27.08.2023
-
-VA - Record Super Chart 26.08.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_204165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peggy Gou - (It Goes Like) Nanana (Edit) (3:51)
-02. Jain - Makeba (4:08)
-03. Oliver Heldens & Djs From Mars & Jd Davis - Blue Monday (3:17)
-04. Dj Belite - All Eyez on Me (2:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB04B215874C0AF941AC0BF0F57E84BE292914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603916   (204175) от 11.01.2023
-
-VA - 300 RU 2 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_204175.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Би-2 - Колыбельная (7:24)
-002. Слава КПСС feat. pyrokinesis - РКН (4:58)
-003. НЕСЛУШАЙЭТО, ЗАВТРА БРОШУ, KseroN - Я не хочу быть твоим другом (4:18)
-004. Гузель Хасанова - Иллюзии (4:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AD68D5178D6EBB09379CA393FDD0D2E3D7A281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356395   (204243) от 10.01.2023
-
-Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_204243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wildways — Российская метал-группа была создана в конце августа 2009 года гитаристом Сергеем Новиковым и изначально носила название «Sarah Where Is My Tea». 17 июня 2014 года группа меняет название на Wildways (англ. дикие пути). «Просто захотели сделать новый шаг, стать более серьезными. Название Sarah Where Is My Tea звучало слишком саркастично. В какой-то момент (   Читать дальше...   )Жанр: Постхардкор, Металкор, РокПродолжительность: 07:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602805   (204367) от 07.01.2023
-
-VA - Car Music Mix 3 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_204367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. WhyBaby - HARLEY (MVDNES Remix) (1:21)
-002. AQUANEON - BAKU (1:26)
-003. KALVADOS - Простыни (karmv Remix) (1:39)
-004. Jakomo - Эй, Братик (1:46)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 06:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEA92D671134C1140342A501F75B5FE869B857F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602550   (204393) от 06.01.2023
-
-VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_204393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Йорш - Половинки (3:25)
-002. Nagart - Сирена (4:15)
-003. Эпидемия - Письмо Ведьмаку (5:37)
-004. 25/17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602521   (204404) от 06.01.2023
-
-VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_204404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Красавцы Love Radio - Танцуем! (3:11)
-02. TSOY - Покажу Паранойю (3:06)
-03. Anna Asti - Ночью На Кухне (3:52)
-04. Alma - Summer Really Hurt Us (2:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03778C83F5CD52240B91744E378F2CEAE1294A46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602497   (204430) от 05.01.2023
-
-VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лучших треков (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_204430.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alis Shuka - Not About Us (2:09)
-002. James Hype & Miggy Dela Rosa - Ferrari (3:06)
-003. Robin Schulz feat. David Guetta - On Repeat (3:10)
-004. Imanbek feat. BYOR - Belly Dancer (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE9431A6892034B3C843C52613280D0696114E
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1036083   (240885) от 18.04.2022
+
+ВИА Акварели - Солнечный Луч В Моем Сердце (1979) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наше Лето (Our Summer)
+02. Дельфины (Dolphins)
+03. Льняные Волосы (Flaxen Hair)
+04. Дилижанс (A Diligence)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F58369FED6DDF88C9431CDCD7A4BE081BDEA9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041389   (240900) от 18.04.2022
+
+Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop,  Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240900.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Малышка (Ma Petite Chose)
+A2 Японские Картинки (Le Samourai)
+A3 Ночь В Буэнос-Айресе (Una Noche En Buenos Aires)
+A4 Тайфун Над Кагосимой (Typhon Sur Kagoshima)(   Читать дальше...   )Жанр: Jazz, Pop,  Easy ListeningПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD29B15E3D3D3C545BC9D4F02D6F0772A978AA64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058930   (241081) от 17.04.2022
+
+VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Отиева - Сон про Джанет
+02. Группа «Ласковый май» - Лето
+03. Жанна Агузарова - Когда-нибудь
+04. Группа «Женсовет» - Женсовет(   Читать дальше...   )Жанр: PopПродолжительность: 08:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631131   (241108) от 04.05.2023
+
+А. Ведерников, ф-но - С. Прокофьев - Пьесы (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дивертисмент, Соч. 43-бис • Divertimento, Op. 43-bis
+A1 Moderato Molto, Ritmato
+A2 Ноктюрн • Nocturne
+A3 Танец • Dance(   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C31A62EF58657C3F36CFC4CDE2FF26DAB380AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042678   (241112) от 17.04.2022
+
+VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Б. Тихомиров - Заставка "Место Встречи"
+02. "Эй Си Ди Си" - Для Тех, Кто Любит Рок
+03. "Статус-Кво" - Меня Не Провести
+04. "Роллинг Стоунз" - Удовлетворние(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059485   (241130) от 17.04.2022
 
 Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Fusion, Jazz-Rock>
@@ -560,138 +695,6 @@ A4 III. Sequentia, No. 2 Tuba Mirum(   Читать дальше...   )Жанр:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC52F838604E4303442A8DED893AE0B420EDC72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627568   (242870) от 19.04.2023
-
-Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_242870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-01. Electric Delight 5:10
-02. Astral World 4:26(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381353635F50F0CE9630D9E2A81AA95AC0C0A7B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623196   (243057) от 01.04.2023
-
-Space - Magic Fly (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ambient, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_243057.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1  Пристегните Ремни 5:59
-A2  Баллада 2:17
-A3  Танго В Космосе 4:28
-A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambient, DiscoПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627156   (243080) от 18.04.2023
-
-Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243080.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tabu 1:53
-A2 Demand 4:58
-A3 Sexy Girl (LP Version) 4:57
-A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539789   (243174) от 27.03.2022
-
-The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243174.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Start Me Up
-A2 Hang Fire
-A3 Slave
-A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623884   (243215) от 03.04.2023
-
-Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
 ```
 
 

@@ -1,3 +1,101 @@
+###  Публикация: 455342   (77337) от 20.02.2012
+
+Annihilation - Decimation (2012) [MP3|192 kbps]<Old School Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Decimation (03:02)
+02. Kill Or Be Killed (05:20)
+03. Death March (04:01)
+04. Subconcious Suicide (04:27)
+05. Corruption (04:37)
+06. Social Destruction (02:47)
+07. Erased (02:48)
+08. Shattered Soul (03:54)
+09. Decimation (04:47)2012Жанр: Old School Death MetalПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A4AB7A25FDB252061568448630EBE79FBE359C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453949   (77346) от 20.02.2012
+
+Howlin Rain - 4 альбома (2006 - 2012) [FLAC|Lossless]<Psychedelic / Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Made Man - 08:00
+02. Phantom In The Valley - 07:17
+03. Can't Satisfy Me Now - 06:19
+04. Cherokee Werewolf - 05:26
+05. Strange Thunder - 08:53
+06. Plex Reception - 00:37
+07. Dark Side - 05:18
+08. Beneath Wild Wings - 04:16
+09. Collage - 05:01
+10. Walking Through Stone - 06:53(   Читать дальше...   )Жанр: Psychedelic / Blues-RockПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454437   (77358) от 20.02.2012
+
+Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green River (3:25)
+02. Midnight Special (4:14)
+03. Bad Moon Rising (2:19)
+04. Proud Mary (3:24)
+05. I Put A Spell On You (4:37)
+06. Fortunate Son (2:48)
+07. Have You Ever Seen The Rain (2:45)
+08. Travelin Band (3:26)
+09. Run Through The Jungle (8:08)
+10. Up Around The Bend (3:53)2010Жанр: Classic Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455453   (77363) от 20.02.2012
 
 Фирма / The Firm (Сезон 1, 1-2 серии из 22)(2012) WEB-DLRip (SET)
@@ -590,88 +688,6 @@ magnet:?xt=urn:btih:7E6806DC7C378EDA31039D93BC5F21BF03E733EA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFCD49E963AD4A3DEAC02F40A4BE490043ADC7C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455298   (77450) от 20.02.2012
-
-Need For Speed: Porsche Unleashed [Cider] [Eng]
-
->>Игры для macOS
->>Racing, Simulation, Sports для macOS
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_77450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что игра вышла в 2000 году, фактически она является приуроченной к 50-летнему юбилею фирмы Porsche, который был в 1998 году. В качестве маркетингового хода был снят рекламный ролик игры Need for Speed: Porsche Unleashed со вставками из фильма «Угнать за 60 секунд» с Николасом Кейджем в главной роли.
-Пятая часть игры полностью посвящена автомобилям Porsche. В ней представлен практически весь модельный ряд, начиная с модели 356 1950 года и заканчивая 911 (996)Турбо 2000-го. Всего в Porsche Unleashed насчитывается 80 автомобилей: это разнообразные модификации моделей 356, 911, 914, 944, 928, 959, Boxster, а также гоночные 550 Spyder и 935/78 Moby Dick. Машины серий 924 и 968, большое число гоночных автомобилей (917, 956, 962 и т. д.) в игре отсутствуют.
-Помимо простых гонок, в NFSPU целых два режима прохождения плюс "Одиночная гонка". В режиме Evolution игрок участвует в гонках, покупая, совершенствуя, ремонтируя и продавая машины. В режиме Factory Driver требуется выполнять задания — проехать (   Читать дальше...   )2000Тип издания: Cider-портЖанр: RacingЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D512FCB41C62A52A62199B80D32A29DB1376CE10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455519   (77458) от 20.02.2012
-
-Windows 7 Ultimate SP1 (x64) by Loginvovchyk с программами {Февраль 2012} [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_77458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 Ultimate (Максимальная) создана для тех, кто хочет получить максимум возможного. Это наиболее универсальный и производительный выпуск Windows 7. Он сочетает в себе исключительное удобство использования с развлекательными функциями выпуска «Домашняя расширенная», а также компонентами для ведения бизнеса выпуска «Профессиональная», включая возможность запуска многих рабочих программ для Windows XP в режиме Windows XP. Функции шифрования диска BitLocker и BitLocker To Go позволяют зашифровать данные и повысить уровень защиты. А поддержка 35 языков обеспечивает дополнительную гибкость.Название программы: Microsoft Windows 7 Ultimate SP1 x64 Феврaль 2012 by LoginvovchykЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455937   (77475) от 21.02.2012
-
-Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_77475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot House (5:31)
-02. Mode VI (8:14)
-03. Another Tango (6:52)
-04. Turn Out The Stars (9:19)
-05. Rhapsody (8:12)
-06. Very Early (7:02)
-07. But Beautiful Part I (3:41)
-08. But Beautiful Part II (9:13)
-09. Puccini's Walk (5:24)2012Жанр: Jazz, BopПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 

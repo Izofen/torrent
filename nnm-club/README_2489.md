@@ -1,3 +1,57 @@
+###  Публикация: 1805145   (65460) от 05.07.2025
+
+Ренат Мансуров - Жди меня (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Жди меня [00:04:40]
+02 - Вечер без тебя [00:04:59]
+03 - Жизнь [00:05:07]
+04 - Не простил 2 (Клён) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FC0A5718226BD65695AEBC9AAED0D597A55A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805292   (65461) от 05.07.2025
+
+Jeremiah Kane - Back For More (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, Synthrock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On The Streets [00:04:20]
+02. Midnight Queen [00:04:31]
+03. Trans Am [00:04:32]
+04. Fight To Survive [00:04:14](   Читать дальше...   )Жанр: Retrowave, Synthwave, SynthrockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEAE90BEB1DFAD1E6446E11CFDB7B5E0BA0DB13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805302   (65462) от 05.07.2025
 
 Trigger - Second Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -608,60 +662,6 @@ magnet:?xt=urn:btih:FBDDCCB4C6BB7117F195D31744DFAADEAD5E4896
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EECA069F7B3166ED462ABA88522D865B8F9D234
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805309   (65486) от 05.07.2025
-
-Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Moon [00:03:51]
-02. Sanguine Covenant [00:03:48]
-03. Vesperal Salvation [00:05:24]
-04. Umbral Exorcism [00:04:03](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCBDC4F547C0E9391BC95744F519C5E728469CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805323   (65487) от 05.07.2025
-
-VA - Nothing But... Trancetopia, Vol. 27 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonic Wave & E-Set - Magic Fly (Extended Mix) 05:32
-02. Digital Dreams - Nirvana 05:09
-03. David Adam - Escape King (Extended Mix) 05:24
-04. Christophe Quinlivan-Hunt & Vikram Prabhu - Flight Mode (Extended Mix) 06:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954352C58714DF8540300B864C88140FF06868C1
 ```
 
 

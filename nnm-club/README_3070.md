@@ -1,3 +1,366 @@
+###  Публикация: 470525   (97363) от 21.03.2012
+
+Luigi Lusini - Beyond Horizons (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Horizons2012Жанр: TranceПродолжительность: 00:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D48A22B99A8FA3F3FA29F6F22BB20EA63344FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471489   (97364) от 21.03.2012
+
+Ministry - Relapse (2012) Scene [FLAC|Lossless]<Industrial Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ghouldiggers  (7:41)
+ 02.  Double Tap  (4:06)
+ 03.  Freefall  (4:36)
+ 04.  Kleptocracy  (3:54)
+ 05.  United Forces  (4:52)
+ 06.  99 Percenters  (3:53)
+ 07.  Relapse  (5:49)
+ 08.  Weekend Warrior  (5:42)
+ 09.  Git Up Get Out 'N Vote  (3:57)
+ 10.  Bloodlust  (5:36)(   Читать дальше...   )2012Жанр: Industrial MetalПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471423   (97366) от 21.03.2012
+
+VA -  Зарубежный Super Хит (2012) [MP3|128 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maison & Dragen - Rio De Janeiro
+002. Craig Smart - 123 (Davey Badiuk Extended Mix)
+003. Radio Killer - You And Me (Radio Edit)
+004. Sender & Inusa Dawuda Feat. Lia Gold - Do It Waka Waka
+005. Flava Feat. Jean Milimeroff - Summer Luv (Affective & Dj Bodriac Radio Edit)
+006. Funky Chicos - Girls In Love (Sunrider Edit)
+007. Akcent - I'm Sorry (Original Version)
+008. Flo Rida Feat. Christina Aguilera - Good Feeling (Official Remix)
+009. Dima Bilan - Rock My Life
+010. Guenta K Feat. Kane & Miami Inc - Baby Let's Get Loud(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 12:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE73824F608098B0992D1FA4CAC2F8CB395AF38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471464   (97367) от 21.03.2012
+
+Журнал | Автомир [Россия] №12 [март  2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97367.jpg" />
+</div>
+
+
+###  Подробнее
+
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D0283F50C54FFB5BCEA527027EED95D84B8725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471498   (97369) от 21.03.2012
+
+[Wallpapers] HD Wallpapers Pack 11
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97369.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 11
+Название: HD Wallpapers Pack 11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115FE6B2DE37F107702A10CC21AD52CAD20207C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471041   (97372) от 21.03.2012
+
+Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Metal, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Endeavors (3:55)
+02. Karma's Plight (5:20)
+03. Circle (5:10)
+04. Costumed in Grace (4:24)
+05. Cosmos (4:20)
+06. Crawl Above (3:57)
+07. Mirror Child (5:03)
+08. Road to You (4:24)
+09. Belong (4:19)
+10. Not the Same (4:29)(   Читать дальше...   )2012Жанр: Progressive Metal, FusionПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6C0B6E9BF64508DBBC6254F452709BD30F271A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471480   (97373) от 21.03.2012
+
+И.Г.Лебедева | Витаминные салаты и напитки [2005] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97373.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашей книге вы найдете лучшие рецепты самых полезных салатов и напитков, с помощью которых вы сможете поддержать и укрепить свое
+здоровье в любой сезон. Вкусно и полезно - девиз этой книги. Готовьте на здоровье!Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471507   (97375) от 21.03.2012
+
+Поединок со смертью. Фильм №1 (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый фильм из цикла "Поединок со смертью", посвящённого борьбе с наиболее массовыми и губительными болезнями современности. В этом фильме речь пойдёт о борьбе с заболеваниями сердечно-сосудистой системы.
+ В фильме принимают участие: академик Евгений Чазов, кардиохирург Лео Бокерия, кардиолог Абрам Сыркин, кардиотехнолог Александр Фадеев, врач-реабилитолог Константин Лядов, трансплантолог Сергей Готье, хирург Амиран Ревишвили.Жанр: ТелепередачаПродолжительность: ~ 00:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1859331644D29E26F34D05B106E56CC94EC58248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471137   (97376) от 21.03.2012
+
+Побеждай! / Win Win (2011) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неуверенный в себе адвокат Майк Флаэрти, пытаясь прокормить семью, подрабатывает тренером по борьбе в средней школе, и связывается с бывшим звездным спортсменом, который участвует в некоторых сомнительных деловых операциях. Майк берет на себя опеку над пожилыми клиентами в отчаянной попытке сохранить свою адвокатскую практику на плаву. Когда один из подростков, внук клиента, убегает из дома и появляется на пороге дома его деда, жизнь Майка переворачивается с ног на голову, а его взаимовыгодное положение превращается в нечто гораздо более сложное, чем он когда-либо ожидал.Жанр: Драма, КомедияРежиссер: Томас МакКартиАктеры: Пол Джаматти, Эми Райан, Бобби Каннавале, Джефри Тэмбор, Берт Янг, Мелани Лински, Алекс Шеффер, Марго Мартиндейл, Дэвид ТомпсонПеревод: Многоголосый закадровыйЯзык субтитров: русский, датский, английский, эстонский, финский, латышский, литовский, норвежский, испанский, словенский, украинскийПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471314   (97378) от 21.03.2012
+
+Журнал | САМ [Украина] №2 (2011) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «САМ» делаем своими руками это практичная и полезная информация в области строительства, ремонта и благоустройства вашего жилища.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8BB0E4EB91B2EFCFF6D9475A320D5369BE290C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470495   (97379) от 21.03.2012
+
+VA - Trance Angels  Vol 1-4 (2010-2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97379.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010-2012Жанр: TranceПродолжительность: 02:31:52
+ 1. Serenade – Serenade (Doublev Remix) 7:30
+ 2. Cardinal – Sink Into Me (Feat Arielle Maren) 6:44
+ 3. Running Man – Shine (Estiva Remix) 7:30
+ 4. Noel Gitman – Reaching Above (Feat Marina Korvin - Oceanica Dub ... 7:51
+ 5. Matt Bukovski – Mesmerized 8:44
+ 6. Andre Visior – Moonraker (Daniel Kandi Bangin' Remix) 6:22
+ 7. George Harrold – The Gateway 8:24
+ 8. Alexey Kozlov – Above The Sky 7:24
+ 9. Lange – Reflections (Lange Rework) 8:09(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E379C15092F8837334B774FE518FC87BAA3444C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471124   (97384) от 21.03.2012
+
+Anna Luca - Listen And Wait (2012) [MP3|320 кб/с]<Acoustic, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beautiful Dawn
+02 Miracle Of Love
+03 Listen And Wait
+04 Everything I've Got In My Pocket
+05 Old Fellow Fear
+06 Collecting Pieces
+07 You Can Keep What's Yours And I Will Keep What's Mine
+08 Someone Who Moves My Feet
+09 Love Me Quietly
+10 First Class Suicide(   Читать дальше...   )Жанр: Acoustic, JazzПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50CA1DFECCD46F78794394FC0E356311399A456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470688   (97385) от 21.03.2012
+
+Домашняя работа / The Art of Getting By (2011) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97385.jpg" />
+</div>
+
+
+###  Подробнее
+
+История повествует о парне, который имеет славу разгильдяя и двоечника. У него появляется реальный шанс понравиться девушке своей мечты.Жанр: Драма, МелодрамаРежиссер: Гэвин ВьесенАктеры: Фредди Хаймор, Эмма Робертс, Саша Спилберг, Маркус Карл, Франклин Энн Дауд, Майя Ри Санчез, Блэр Андервуд, Энн Харада, Рита Уилсон, Ярлат КонройПеревод: ДублированныйЯзык субтитров: русский, английский, немецкий, греческий, исландский, польский, турецкийПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470386   (97388) от 21.03.2012
 
 VA - Весенние Танцевальные Хиты. Зарубежный (2012) [MP3|256 кб/с]<Dance, Рор>
@@ -363,406 +726,6 @@ VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E82130866613BFBAE5B98F18DB60C25E0C5A013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471115   (97417) от 21.03.2012
-
-Год собаки / A Dog Year (2009) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_97417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Кац быстро позабыл о своей меланхолии и кризисе среднего возраста, когда в его жизни появился пёс породы бордер колли.Жанр: Драма, КомедияРежиссер: Джордж ЛавуАктеры: Джефф Бриджес, Лорен Эмброуз , Лоис Смит, Домналл Глисон, Уэлкер Уайт, Элизабет Марвел, Памела Стюарт, Дирдри О’Коннелл, Карен Аллен, Лео Тромбетта, Патриция Ленц, Жан Лесли Хардинг, Тереза Йенке, Гленн Кесслер, Джо Вачовски, Manish Baliga, Кевин РоджерсПеревод: Одноголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471102   (97418) от 21.03.2012
-
-VA - 100% Relax - Wildlife (2012) [MP3|192 kbps]<New Age | Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder & Rain
-02. Turkey Talk
-03. Backwater Chorus
-04. Bayou
-05. Big Surf
-06. Birdsong
-07. Jamboree
-08. Marsh
-09. Pebble Beach
-10. Small Rapid(   Читать дальше...   )2012Жанр: New Age | RelaxПродолжительность: 08:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8950B22CBC103029B26040E61CBB1A7A0945B17B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471228   (97419) от 22.03.2012
-
-VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Soul - Hypnotic Energy (Egorythmia remix) (7:06)
-02. Sixty9 feat. Double Click - Underground Beats (6:33)
-03. Naturalize - Dont Lie (7:00)
-04. Aioaska - Higher Consciousness (original mix) (9:32)
-05. Faders - Bass Destroyer (original mix) (7:40)
-06. Tryptamoon - Phoenix From The Ashes (10:21)
-07. Kularis - Fruitopia (7:13)
-08. Chemogen - Winter Is Coming (7:19)
-09. Infected Mushroom - Pink Nightmares (album mix) (6:06)
-10. Bizzare Contact - Bizzare Adventures (8:13)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 04:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471978   (97420) от 22.03.2012
-
-[Wallpapers] HD Wallpapers Pack 13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97420.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 13
-Название: HD Wallpapers Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF5E2F5797905ED97CCC1B44FD38EE976D35B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471982   (97422) от 22.03.2012
-
-[Wallpapers] Flower Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97422.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Flower Wallpapers Pack 3
-Название: Flower Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA7FF361DD388ECD94EAEE18A929A0F514DCB16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471452   (97423) от 22.03.2012
-
-Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97423.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. When Dogma Ends... Begins Pythagorized
-2. Blind
-3. Hatred
-4. Samos
-5. The Secret Room
-6. Proplasma of Bow
-7. To Amasi of Egypt
-8. ΠΑΤΕΡΑΣ ΒΟΡΡΑΣ
-9. Inside You
-10. (club mix) Outro(   Читать дальше...   )2011Жанр: Industrial/Sympho Black MetalПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFE2EC48C9CD60B11942FEC7EB42A297E1D6A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471466   (97425) от 22.03.2012
-
-Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodbrothers (Part 1)
-02. Warriors Of Thor
-03. Ancestral Blood (Brothers From The Day We Were Born)
-04. Once We Were Kings
-05. Bloodbrothers (Part 2)
-06. Wolves Of Odin
-07. Take Us To Valhalla
-08. Sons Of The Northern Land (We March For War)
-09. Bloodbrothers (Part 3)2010Жанр: Epic Viking MetalПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D79D845E3555D147071CBC30BCE21AA14F4988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471662   (97426) от 22.03.2012
-
-Dünedain (Dunedain) - Magica (2012) [FLAC|Lossless]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_97426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corazon De Invierno 06:26
-02. Valor 05:48
-03. Para Siempre 04:01
-04. Ahora O Nunca 04:21
-05. Entre Tu Y Yo 05:54
-06. El Año De La Rabia 04:59
-07. La Carta 05:50
-08. Jugando A Ser Dios 04:06
-09. Noche De Sueños 05:46
-10. Magica 13:16(   Читать дальше...   )2012Жанр: Heavy/Power MetalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470884   (97428) от 22.03.2012
-
-VA - The Voice Kids - The Songs (2012) [MP3|320 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zende Murdock - Here I Am
-02. Channah Van Wingerden - Mercy
-03. Bente Fokkens - Lost
-04. Melissa Meewisse - Jar Of Hearts
-05. Vinchenzo Tahapary - You Give Me Something
-06. Aisha Echteld - Listen
-07. Dave Dekker - Geef Mij Je Angst
-08. Pim Kouwenhoven - Love You More
-09. Vajen Van Den Bosch - The Climb
-10. Lieke Van 't Veer - Bottles(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B6A0D6766D3A7993D835DB5519CBABE358481C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471601   (97430) от 22.03.2012
-
-VA - XXXL Танцевальный 50/50 Весна (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LMFAO - Sexy & I Know It
-02. MaXimA - Так Тихо (Fidel Wicked Radio Edit)
-03. Jai Alexander & Sarah - The Legend (Radio Edit)
-04. Samo'L feat A-Sen - Малиновие сны (DJ Movskii & DJ Karasev Remix)
-05. Serge Devant - Sweet Harmony (Mike Candys Higher Level Bootleg Rework)
-06. Алена Высотская - С ума сходил (DJ Prosvirin Mix)
-07. Andrey Dubovitskiy & Dj Bobo - Love Is All Around (2012 Club Mix)
-08. DJ Nejtrino & DJ Siluyanova & MC Shayon - Любовь
-09. Yolanda Be Cool feat. Crystal Waters - Le Bump (Original Mix)
-10. F. Jay feat. Olesya - Держи меня за руку (DJ Melnikoff feat. DJ Prado Remix)2012Жанр: Pop,DanceПродолжительность: 06:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF0D45CE5EE5331FB0BD8FDE093357C97691B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471952   (97432) от 22.03.2012
-
-Каникулы в Мексике - 2. Выпуск №14 (2012.03.22) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97432.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49259657152DE75F5CA90AE8D9EA4981509D7077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471529   (97433) от 22.03.2012
-
-VA - Sound RMX (2012) [MP3|320 kbps]<Club | Dance | House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dom Omar - Ella Ella (DJ Spice)
-02. Emir Kusturica - Nexboy Daan Mahalageasca Maxim Play Ilya Steklov Bootleg Remix
-03. Christopher S Feat. Mc X-Large - Horny! (Johan K Arcade Bootleg)
-04. Ruslan Nigmatulin feat Syntheticsax DJ Half Diss BoyZ - Equinox Time Freaky DJs Mash Up
-05. Black White feat Robson - Do You Know Dj Rmx
-06. Dirty South and Those Usual Suspects feat. Erik Hecht - Walking Alone (DJ ViTaLiKe Bootleg)
-07. Rihanna - We Found Love (Dj Stifmaster Remix)
-08. Syster - Navi G Nothing You Can Do (Alex Boot Remix)
-09. Unikall Project - I Love Rock-N-Roll (Unikall Project Mush Up)
-10. Flashtronica - I Can't Stop (Aleks Foton Remix)(   Читать дальше...   )2012Жанр: Club | Dance | HouseПродолжительность: 04:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08712387B5C91C5A5A78E973A7C5B73386FD959E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471523   (97435) от 22.03.2012
-
-OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking Back To Hell 02:12
- 02. Marble King 05:11
- 03. Spartan Warriors 05:21
- 04. Overlord 05:48
- 05. Revolution World 05:38
- 06. Jungle Of Madness 04:53
- 07. Nameless Hero 06:37
- 08. Children Of The Sand 05:39
- 09. Battle Prayer 05:24
- 10. Prophet Of War 05:35(   Читать дальше...   )2010Жанр: Power MetalПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EC9669B208DF8DE8E6C6A9FEEA53CBF428CE9B
 ```
 
 

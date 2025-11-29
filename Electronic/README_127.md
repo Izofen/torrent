@@ -1,3 +1,84 @@
+###  Публикация: 1640199   (211281) от 16.06.2023
+
+VA - A State Of Trance Radio Top 50 - 2023, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Vini Vici feat. ALBA - When We Come Alive (Extended Mix) [5:52]
+02. Above & Beyond - Angry JP8 (Extended Mix) [6:40]
+03. Delerium feat. Sarah McLachlan - Silence (Andrew Rayel & Achilles Extended Remix) [3:45]
+04. Cosmic Gate & Nathan Nicholson - Just the Beginning (Extended Mix) [6:50](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 05:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EA90BC70C39A3032C35035A7EDF667931B6059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640249   (211320) от 16.06.2023
+
+VA - Paradise Ibiza Summer 2023: Best of Deep & Tropical House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Wonderful Life [03:40]
+02. Awstin Shanu - Sinners [02:41]
+03. BETASTIC - Where's My Love (Extended Mix) [04:01]
+04. Echevo - Escape [03:23](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65D276B29A9147D3789125005D68F8399845AC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640175   (211337) от 16.06.2023
+
+VA - Black Hole House Music 06-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myon & Jhirst - The Predictable Unknown (Extended Mix) [5:59]
+02. Sarah De Warren - Monster (Paul Oakenfold Extended Remix) [4:25]
+03. Siskin - Rest Of My Days (Extended Mix) [6:19]
+04. Orkidea - Fundamental (Extended Mix) [7:18](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED33C2DB33149C75755685AC0E56E20E16DF8697
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640170   (211345) от 16.06.2023
 
 VA - Black Hole Trance Music 06-23 (2023) [MP3|320 Kbps] <Trance>
@@ -614,87 +695,6 @@ VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D15E87E42911D9D758253C783975C48C06B5489E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344144   (213609) от 09.12.2019
-
-Malik Djoudi - Temperaments (2019) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <French Electronic, Synthpop, Ambient Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_213609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempérament (3:13)
- 02. Autrement (3:01)
- 03. Épouser la nuit (3:37)
- 04. Dis moi qu't'y penses (3:37)(   Читать дальше...   )Жанр: French Electronic, Synthpop, Ambient PopПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71550C38B93208C18E07B27A38CFE45024CD811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344239   (213659) от 09.12.2019
-
-Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Trance, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_213659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Avalan - Sucker For Love (Original Mix)
-02. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real (Extended Mix)
-03. Armin van Buuren feat. Sam Martin - Wild Wild Son (Original Mix)
-04. Armin van Buuren & Garibay - Phone Down (Original Mix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F329C51826CC057AB4F4B91857839DBCEA0C19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426565   (213677) от 25.11.2020
-
-Cpektir & Survey Channel - Myriagon Atlas (2020) Music Is The Devil [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_213677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off World Power Lines (00:43)
- 02. Sinepuxent (03:40)
- 03. Turquoise Waters (01:04)
- 04. Mt. Norquay (04:20)(   Читать дальше...   )Жанр: Ambient, IDM, Downtempo, ExperimentalПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD06407C8D8F5EF933FE50DDC980D4CD88F36951
 ```
 
 

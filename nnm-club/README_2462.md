@@ -1,3 +1,57 @@
+###  Публикация: 1809273   (64758) от 29.07.2025
+
+Lights of Vimana - Neopolis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nowhere [00:14:10]
+02. Endure [00:09:50]
+03. Real [00:11:35]
+04. Neopolis [00:04:26](   Читать дальше...   )Жанр: Progressive Doom MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8061C26B6105807655035867AF4FA6DD0B527850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809266   (64759) от 29.07.2025
+
+Mass Deception - Resurrections (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gain of Function (02:41)
+ 02. Selling Souls! Buying Lies! (02:33)
+ 03. Menticide (04:00)
+ 04. Metropolis (01:15)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13080DCC83802A4A93744D16DF38556E95B2E1A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809277   (64760) от 29.07.2025
 
 Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
@@ -592,60 +646,6 @@ CD1 - Woodland Rites:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52D8FEBEF013511C3EB8F30C2073933FFF3F28D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808960   (64784) от 27.07.2025
-
-Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_64784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be Bop Baby (6:45)
-02.  Possession Over Judgement Day (8:34)
-03.  Diamond Man (3:55)
-04.  Mud Bucket (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5548DF80EB3460BB10FB9289F340A8C1C58DB07E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808956   (64785) от 27.07.2025
-
-Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_64785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  (Buddy's) Big Legged Woman (4:25)
-02.  Rock Me (3:27)
-03.  Blues for Mud (3:29)
-04.  You're So Fine (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
 ```
 
 

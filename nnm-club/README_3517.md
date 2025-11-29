@@ -1,3 +1,417 @@
+###  Публикация: 1717764   (111108) от 21.04.2024
+
+НашПотребНадзор (21.04.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветчину, мороженое, сливочное масло проще простого приготовить дома с помощью бюджетной кухонной техники: правда ли, что эти продукты получатся совсем как магазинные, только полезные и с понятным составом? Апельсиновый сок от каких брендов сильно разбавили водой, а вкус украсили подсластителями? Велосипеды: как выбрать недорогой, но долговечный и комфортный велосипед, (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EDBCF9930D16FFE0452C13878CD24DF9668F00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717631   (111109) от 21.04.2024
+
+Zuider Zee - Collection (1975-2018) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+1. Listen To The Words (3:21)
+2. Rubber Man (2:50)
+3. The Last Song Of It's Kind (3:37)(   Читать дальше...   )Жанр: Power pop, glam, psychedelic rockПродолжительность: 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213EDA9E985F4382CA89784752006353A90125BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717775   (111110) от 21.04.2024
+
+Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spectre Of Devastation
+02. Pestilence
+03. Rat King
+04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717696   (111111) от 21.04.2024
+
+Angel Witch - Angel Witch (1980) Reissue, Remastered, Universal [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Witch 3:22
+02. Atlantis 3:41
+03. White Witch 4:46
+04. Confused 2:51(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0420A6FE2EBE316B9FE98D7F6670CCC978790D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717812   (111112) от 21.04.2024
+
+Claptone & Diplo - Live @ The Masquerade, Fabrik Madrid, Spain (2024-04-06) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Claptone & Diplo played:
+01. Noizu ft. Madge - Acid Rain
+02. Empire Of The Sun - We Are The People (Adam Sellouk Remix)
+03. CASSIMM - Feel So Good(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D60AC449E814155E37F0C0BD0804E0FAB19E62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717664   (111113) от 21.04.2024
+
+The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ein Sof Overture - Beyond the Soul
+02 - Mr. Evil (2021 Remastered)
+03 - Stay Down (2022 Remastered)
+04 - Media Crimes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC429E6B1C8327C9F3C1B95C6D9BA431D80A9EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717786   (111114) от 21.04.2024
+
+Своя игра (21.04.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111114.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043E741EBB1D792D19FC87B1369324E27858957C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717679   (111115) от 21.04.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 1-й матч) Нью-Йорк Айлендерс - Каролина Харрикейнз (20.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111115.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 апреля 2024, воскресенье. 00:00 МСК. 1/4 финала - Восток. 1-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 18 825 зрителей (99% при вместимости 19 041)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Эндрю Смит (Китченер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6801C88C1A3CAD873E62652824C6F84A1E3CE7AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717645   (111116) от 21.04.2024
+
+Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polka Dots and Moonbeams [3:37]
+02. Nina Never Knew [3:25]
+03. Crazy She Calls Me [3:34]
+04. Lush Life [3:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C989D2803536DA4CC077A02A1EFF35A5EDFA746C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717644   (111117) от 21.04.2024
+
+Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [9:24]
+02. I Remember You [14:14]
+03. Yesterdays [11:17]
+04. Let's Do It [10:43](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7C35B49750BB2890CE72FD1B596D6F8B514C0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717647   (111118) от 21.04.2024
+
+Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Joy [4:35]
+02. The Archangel [6:52]
+03. Nothing Ever Was, Anyway [6:51]
+04. Gary [4:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Jazz FusionПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717677   (111119) от 21.04.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 1-й матч) Торонто Мэйпл Лифс - Бостон Брюинз (20.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111119.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 апреля 2024, воскресенье. 03:00 МСК. 1/4 финала - Восток. 1-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Джеймс Тобиас (Баффало, США)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BAFFC9C1BA1C6A0DC7C13BD47B19A730EB9F39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717771   (111120) от 21.04.2024
+
+Speedtest от Ookla 5.3.6 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.04.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09167E65CFFC80BCCCCBEB108B8B79AB0351491B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717651   (111121) от 21.04.2024
+
+Месть марсельца / Некто по имени Рокка / Un nomm La Rocca  (1961) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по роману Жозе Джованни «Отлучённый»... Член банды Роберто Ла Рокка пытается помочь своему другу Ксавье, которого обвиняют в убийстве, которого тот не совершал. Вместе с сообщниками Роберто втирается в доверие к любовнице партнёра убитого, Виллановы, которого они подозревают в совершении этого преступления. Однако все их усилия напрасны, и Ксавье сажают (   Читать дальше...   )Производство: Франция, Италия / Da Ma Produzione, Les Films du CyclopeЖанр: драма, криминалРежиссер: Жан БеккерАктеры: Жан-Поль Бельмондо, Кристина Кауфманн, Пьер Ванек, Беатрис Альтариба, Анри Вирложё, Марио Давид, Нико (I), Педро Серано, Шарль Мулен, Жан-Пьер Даррас, Эдмон Бошан, Жак Леонар, Жан Гра, Мишель Константен, Фредерик ЛамбреПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43581C86B609EAA56223A5A17205545033AC411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717650   (111122) от 21.04.2024
+
+Аксель Петерманн | Перед лицом зла (2024) [MP3, Александр Мозгунов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аксель Петерманн 40 лет прослужил в криминальной полиции и расследовал более 1000 дел, связанных со смертью или увечьями. Он освоил передовые технологии работы ФБР и успешно внедрил методы профайлинга в Германии.
+В своей книге автор-эксперт изучает причудливые сексуальные фантазии маньяка; расследует убийство, которое не смогли раскрыть в течение почти 20 лет; описывает (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 09:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0094C3A3A5936BBF05DDC854395E9B524C9E82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717824   (111123) от 21.04.2024
+
+Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Declaration (5:02)
+02. Flight 19 (4:40)
+03. V Is For Victory (4:33)
+04. This Is A Woman's War (4:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A974EB4266945C0D192A1FF10BAA776875C2B87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717810   (111124) от 21.04.2024
 
 VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -252,435 +666,6 @@ magnet:?xt=urn:btih:9D890697AD65B761705CAA9BC8C1BDDC16A1CA74
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C6507A31B4BCE230D5DFBEFEAA68F9B9125B057
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717781   (111134) от 21.04.2024
-
-VA - Black Hole House Music 04-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOYA - OneЖанр: House, Progressive HouseПродолжительность: 02:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F855C64568588A0122AC03FD2865986EB16AF496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717511   (111135) от 20.04.2024
-
-SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Emocore, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allow Us To Set The Scene [00:02:26]
-02. Subtle Whispers To Take Your Breath Away [00:03:06]
-03. And the Two Slipped Into The Shadows [00:03:25]
-04. Red Wine And Discontent [00:03:33](   Читать дальше...   )Жанр: Emocore, Post-HardcoreПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCEE86CBE38D7406B526100072D663B21597882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717467   (111136) от 20.04.2024
-
-Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know (2:49)
-02. Hill Country Love (3:04)
-03. Shake Em On Down (2:55)
-04. Juke Joint (2:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717417   (111137) от 20.04.2024
-
-Сто к одному (20.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111137.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда Артисты против команды Инфанты.Язык озвучки: РусскийПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D5F81B5F61B65D9853B09CD99FC033FDA9B413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717430   (111138) от 20.04.2024
-
-Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Should've Happened a Long Time Ago [6:07]
-02. Fiasco [7:49]
-03. Conception Vessel [4:32]
-04. Introduction [3:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D4AA38324B343EA6B303EB4082973D16C3155B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717485   (111139) от 20.04.2024
-
-Severin - Times like this (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What there's a lot of (3:15)
-02. Haze (4:19)
-03. Gun Shots (5:10)
-04. Down the Drain (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B02EFE60AB6880C7632145221D1249A92D3C2B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717424   (111140) от 20.04.2024
-
-Erroll Garner Trio - The Most Happy Piano: The 1956 Studio Sessions (2010) 2CD, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonglow [5:29]
-02. All God's Chillun Got Rhythm [5:02]
-03. Creme de Menthe (aka Dreamy) [4:45]
-04. Humoresque [5:11](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 02:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401DDBE5AEE5B14134C2A6667934A7007072C0E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717480   (111141) от 20.04.2024
-
-Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Said (4:33)
-02. You Know What I'm Talking About (4:11)
-03. Devil Woman (4:33)
-04. I Say Its Cold (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C6F3CAFC0867EB7E9119E65970FFC6649D568E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717318   (111142) от 20.04.2024
-
-Bongripper - Empty (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing [00:20:39]
-02. Remains [00:12:03]
-03. Forever [00:12:42]
-04. Empty [00:21:24]Жанр: Doom MetalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC38F30A9BEA6DC4DB0BA7DC5E6CCF9D3D5ECA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717533   (111143) от 20.04.2024
-
-High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lambsbread [00:05:44]
-02. Burning Down [00:06:12]
-03. Trismegistus [00:05:36]
-04. Cometh The Storm [00:06:11](   Читать дальше...   )Жанр: Stoner, Sludge, DoomПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD65ABCC9828A898643C72B1FAAF154D2B2DE959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717479   (111144) от 20.04.2024
-
-Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Is A Highway (3:10)
-02. Skeleton Man (4:52)
-03. Blues Trap (3:02)
-04. Blood (5:56)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFD6DF560365D6A5057FFA0391B11EA4A43F9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717483   (111145) от 20.04.2024
-
-Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poor Boy (feat. Charlie Musselwhite) (2:27)
-02. Blues Singer (feat. Jimmy Vivino) (3:08)
-03. Left Hand Soul (feat. Lester Chambers of the Chamber Brothers) (5:04)
-04. Blackberry Jam (feat. Lester Chambers of the Chamber Brothers) (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5774CAC58B6C1C4D8CBFDEEE4D3ABE0721DA060
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717470   (111146) от 20.04.2024
-
-City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Hold Myself (4:15)
-02. Not Good Enough for You (3:22)
-03. Beautiful Soul (2:44)
-04. We Change (4:41)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193A13665B64CC56F98DAF7D80DB2958EB2F708B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717426   (111147) от 20.04.2024
-
-Joe Mooney - The Happiness Of & The Greatness Of... (1964, 1965) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait Till You See Her [2:55]
-02. But Beautiful [2:53]
-03. The Second Time Around [2:38]
-04. I Wish You Love [2:43](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D0C0E04B3246E19321A425DD43E0B3437D79EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717453   (111148) от 20.04.2024
-
-Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Button - Incendiary
-02. Soul Button - Dalliance
-03. Soul Button - Secret Sense
-04. Soul Button - Qabila(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01;14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42197CDC105F34E7A609E0C08D4E50B8D9943E39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717443   (111149) от 20.04.2024
-
-Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinzen, Shallou - Burnin'
-02. Rinzen - The Pursuit
-03. Rinzen - Astronauta
-04. Rinzen, Molly Moonwater - Déjà Vu(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21058218FC5045DBEBD831FB678D511554BE75C
 ```
 
 

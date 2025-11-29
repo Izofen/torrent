@@ -1,3 +1,57 @@
+###  Публикация: 1807592   (65148) от 19.07.2025
+
+Charlie Hunter & Ella Feingold - Different Strokes for Different Folks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  There's Still a Riot Goin' On (4:25)
+02.  Shirley Chisholm (2:56)
+03.  Agitated Fonk (1:59)
+04.  Feel No Shame For Who You Are (1:55)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E076CF1CF3772157AC7D4A75658DD7BA49A6461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807595   (65149) от 19.07.2025
+
+Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Guadoka (3:40)
+02.  Redemption Song (4:48)
+03.  Mi Preciosa (3:37)
+04.  I Was, I Am And I Will Always Be (3:55)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB28A294020B621BC9042CEFDD50F55B5BD697A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807404   (65150) от 19.07.2025
 
 Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deathcore>
@@ -626,57 +680,6 @@ magnet:?xt=urn:btih:DF49AFC38FD954B7013B9BC35B1D5B55669C0478
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ACE9BEA66EA7C42606E235B6D5A23B0BEDC42DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807480   (65174) от 19.07.2025
-
-VA - If I Don't Care_ Rock Hits Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Rockpins - 1980 Something (4:11)
-02.  Silke Berlinn - Ball & Chain (3:45)
-03.  love2be - Billy Boy (3:12)
-04.  Greg Penn - If I Don't Care (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0DAA377D28922F6E6BEE93943150636ABCAF8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807448   (65175) от 19.07.2025
-
-Артур Конан Дойл | Этюд в багровых тонах (2013) [MP3, Игорь Верник, Александр Жарков, Алексей Шулин и др.]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65175.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Этюд в багровых тонах» – первое дело Шерлока Холмса, описанное его другом доктором Ватсоном. Череда таинственных убийств, следующих друг за другом, ставит в тупик лондонскую полицию. Пользуясь своим излюбленным орудием – методом дедукции, Шерлок Холмс находит убийцу и рассказывает драматическую историю кровавой, но справедливой мести.Жанр: английские детективы, аудиоспектакли, зарубежные детективы, классические детективыИздательство: Литрес ПаблишингПродолжительность: 01:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D74B24E3E352BA31802C892145D6777278EDB9
 ```
 
 

@@ -667,28 +667,28 @@ magnet:?xt=urn:btih:65758414BD860D1E59F2C3D0A3DF5D68561C3A8B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658754   (190394) от 10.09.2023
+###  Публикация: 1589027   (190341) от 09.11.2022
 
-The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Beat, Electropop>
+Cyber Space - Future On Mars (2009) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
 
 >>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_190394.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [00:01:09]
-02. Live Again [00:05:09]
-03. No Reason [00:04:52]
-04. Goodbye [00:05:49](   Читать дальше...   )Жанр: Big Beat, ElectropopПродолжительность: 00:47:03
+01. Electronic Dream of a Robot (Ambiente Version)
+02. Dreams
+03. We Fly into Another Galaxy
+04. Give It to Me (Dance Version)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:849A125B51165F4198106B01D690C669A012C1A6
+magnet:?xt=urn:btih:40BF9171A5D1353716688240523F8952D3BAA69A
 ```
 
 

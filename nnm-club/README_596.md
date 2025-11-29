@@ -1,3 +1,51 @@
+###  Публикация: 1800483   (15803) от 03.06.2025
+
+Master PDF Editor 5.9.90 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9C6807A2ED71676445700D759B5CBE48A581B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791514   (15804) от 03.06.2025
+
+Одни из нас / The Last of Us (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit] (сезон 2, серии 1-7 из 7) RHS, LostFilm, Продубляж, SS, HDrezka, NewComers, WStudio, LE (обнов)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять лет после событий первого сезона Джоэл и Элли оказываются втянуты в конфликт друг с другом и с миром, еще более опасным и непредсказуемым, чем тот, который они оставили позади.Производство: Канада, США /	Naughty Dog, PlayStation Productions, Sony Pictures TelevisionЖанр: ужасы, фантастика, боевик, драмаРежиссер: Крэйг Мэйзин, Марк Майлод, Нил Дракманн, Питер Хор, Кейт ХерронАктеры: Педро Паскаль, Белла Рэмси, Кейтлин Дивер, Гэбриел Луна, Ник Офферман, Кон О`Нилл, Мерл Дэндридж, Джеффри Пирс, Анна Торв, Мюррэй БартлеттПеревод: Дублированный (Red Head Sound, IRON VOICE, HATE Studio), Многоголосый (LostFilm, Продубляж, Sunnysiders, HDrezka, NewComers, TVShows, WStudio, заКАДРЫ, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1E9EAF5ACB9B69C98119C118A33F7B6CCEF33C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791568   (15805) от 03.06.2025
 
 Одни из нас / The Last of Us (2025) WEB-DL [H.265/2160p] [4K, SDR 8-bit] (сезон 2, серии 1-7 из 7) RHS, HATE, LostFilm, Продубляж, Sunnysiders, HDrezka, NewComers, WStudio, LE-Production (обновляемая)
@@ -582,60 +630,6 @@ SUM★41 - Compilation (2000-2024) [MP3|320 Kbps] <Punk rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6072C8467F2E330B1E120BCE52607C28F7262D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800406   (15830) от 02.06.2025
-
-VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_15830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Punctual feat. EVALINA - Angels (Extended Mix) [3:57]
-02. Gabry Ponte x Jerome Isma-Ae - Hold That Sucker Down (Extended Mix) [5:49]
-03. Paul Oakenfold & Hernan Cattaneo - London To Buenos Aires (Extended Mix) [5:03]
-04. Armin van Buuren & John Christian - All Night (Extended Mix) [4:18](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF024CBFABF4F2C1CAF7DB9CDE9551C228127B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800311   (15831) от 02.06.2025
-
-VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_15831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-Sta - Highend Fashion (Original Mix) [5:20]
-02. Filizola - Get Me (Original Mix) [5:47]
-03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
-04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9066A12A3888F4ACAE6030217392BD83B7D83CBE
 ```
 
 

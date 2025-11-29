@@ -1,3 +1,57 @@
+###  Публикация: 1799583   (16535) от 28.05.2025
+
+Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Before You Accuse Me (3:50)
+02.  Wind Cries Mary (3:38)
+03.  Red House (3:45)
+04.  Same Old Blues (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87E63E8A6C918D2B43A31AE322F2CF31EF3D707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799570   (16536) от 28.05.2025
+
+Atrophy - Socialized Hate, Violent By Nature (2022) 2 x CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16536.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Socialized Hate:
+1-1 Chemical Dependency 4:07
+1-2 Killing Machine 3:47
+1-3 Matter Of Attitude 3:25(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6241BCD79C15FA51D4ED1CFD97408E47CDEF1BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799582   (16537) от 28.05.2025
 
 Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -587,57 +641,6 @@ magnet:?xt=urn:btih:A12DF3ACC8A2C1A826ABB1B38FDD9BBAA1C80FB3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BBF5DA68AD5D2DE463D967057E69F9ABD3BFDB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799538   (16561) от 28.05.2025
-
-Мисс Остин / Miss Austen (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_16561.jpg" />
-</div>
-
-
-###  Подробнее
-
-1830 год. Кассандра уже 13 лет живёт в Чотон-коттедже одна после смерти своей сестры Джейн Остин. Однажды ей приходит известие о тяжёлой болезни старого знакомого – преподобного Фаула. Она без предупреждения едет его навестить, преследуя свою тайную цель. Кассандра хочет найти все письма Джейн, которые та писала покойной жене викария, чтобы они не попали в чужие (   Читать дальше...   )Производство: Великобритания, США / BBC Studios, PBS Masterpiece, Bonnie ProductionsЖанр: мелодрама, драмаРежиссер: Эшлин УолшАктеры: Кили Хоуз, Пэтси Ферран, Роуз Лесли, Синнове Карлсен, Альфред Энох, Филлис Логан, Макс Айронс, Калам Линч, Кевин МакНолли, Джессика Хайнс, Миррен Мак, Клер Фостер, Феликс Скотт, Ив Понсонби, Хьюберт БёртонПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EE7671003CB5049845737C300CF658D588D0AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811101   (16562) от 08.08.2025
-
-Firstborne - Lucky (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_16562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Again
-02. Rescue Me
-03. Shine
-04. Wake Up(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785D5E5621A9C1B3AB34C15AB0501AF0F71C0F3A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1784252   (69568) от 10.03.2025
+
+The Wildhearts - Satanic Rites of The Wildhearts (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard rock, heavy metal, pop rock, punk rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eventually [00:06:15]
+02. Scared Of Glass [00:05:16]
+03. Troubadour Moon [00:04:39]
+04. Fire In The Cheap Seats [00:04:31](   Читать дальше...   )Жанр: Hard rock, heavy metal, pop rock, punk rockПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03028903677D24129CA29BE290C51710838A5341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784407   (69569) от 10.03.2025
+
+Daddy Mack Blues Band - Doctor's Orders (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let Me Pull A Few Strings (3:27)
+02.  Boss's Wife (2:18)
+03.  Doctor's Orders (3:05)
+04.  Givin' Up On Givin' In (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F83ED5856D72E95C2106430D9C44C74FD891DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784338   (69570) от 10.03.2025
 
 Футбол. Чемпионат МИР РПЛ 2024/25 19-тур. Краснодар - Крылья Советов (01.03.2025) IPTVRip [H.264]
@@ -631,59 +685,6 @@ Bluebird, Skoko - Trust Your Mojo, Sista (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AAA1FC078C3F2427BDFAAAEF9EC7BAE8EDE3D83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784017   (69594) от 09.03.2025
-
-Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thought About You [6:15]
-02. Beautiful Love [4:25]
-03. The Christmas Song [5:10]
-04. In the Wee Small Hours of the Morning [5:33](   Читать дальше...   )Жанр: Smooth Jazz, Mainstream JazzПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B26C0514340A49B828D59DE7055C130747027EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784213   (69595) от 09.03.2025
-
-Первая передача на НТВ. Автомобильная передача (09.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69595.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Подкрадули» для шоферов: обувь безопасная для дорожного движения и для здоровья водителя.
- Кто и зачем отслеживает, и глушит «умные» машины?
- «Я вам не дойная корова!»: участницу ДТП затаскали по судам. Почему размер ущерба может увеличиться?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64697AD6EAE27FDAA0205DA308CFB73C7906C54
 ```
 
 

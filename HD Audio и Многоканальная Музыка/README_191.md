@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672832   (152209) от 
+###  Публикация: 1672832   (152209) от 17.10.2025
 
 Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
 

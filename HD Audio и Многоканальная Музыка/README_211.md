@@ -1,3 +1,57 @@
+###  Публикация: 1586124   (214672) от 28.10.2022
+
+Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Rock, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214672.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Warriors Of The Wasteland
+A2 Rage Hard
+A3 Kill The Pain
+A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586355   (214753) от 28.10.2022
+
+Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Never Know
+02. If Only
+03. This Time Around
+04. Runaway Run(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649764   (216114) от 13.08.2023
 
 Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
@@ -106,6 +160,33 @@ magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084837   (217767) от 19.12.2016
+
+The Alan Parsons Project - Tales of Mystery and Imagination [40th Anniversary Edition] (2016) 1976 [DTS 5.1|44.1/16|image +.cue|BD-Audio] <pop/rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_217767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 .«A Dream Within a Dream» – 4:14
+02. «The Raven» – 3:57
+03. «The Tell-Tale Heart» – 4:38
+04. «The Cask of Amontillado» – 4:33(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C34CB758DFA8DE2304D4769AFD7990C09BDCD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652169   (217891) от 11.08.2023
 
 VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Pop, Acoustic, Soft Rock>
@@ -155,6 +236,57 @@ A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966329   (217951) от 18.12.2015
+
+Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Blues, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_217951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Le Jardin Du Luxembourg - Люксембургский Сад  11:52
+2. Il Etait Une Fois Nous Deux - Однажды мы были вдвоем  3:52
+Сторона 2(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665289   (218308) от 10.08.2023
+
+Deep Purple - 29 альбомов (1968-2020) [FLAC 2.0 24/96-24/192, APE2.0 24/96, WV2.0 24/192|image+.cue, tracks (Vinyl-Rip)] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_218308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple - британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в «тяжёлой музыке» 1970-х годов. Музыкальные критики называют Deep Purple в числе основателей хард-рока и высоко оценивают их вклад в развитие прогрессивного рока и хеви-метала. Музыканты «классического» состава Deep Purple (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:39:55
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -555,141 +687,6 @@ A3 Тихо Несет Вода(   Читать дальше...   )Жанр: Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268854   (223061) от 13.12.2018
-
-VA - ''Не люблю прощания'' - Песни на музыку Игоря Якушенко (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_223061.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Т. Анциферова - Портрет
-A2 ВИА ''Пламя'' - Вчера, еще вчера
-A3 А. Герман - Сумерки
-A4 Ж. Рождественская - Запомни(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268574   (223122) от 13.12.2018
-
-Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Acid Jazz, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_223122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Feels So Good
-A2 Little L
-A3 You Give Me Something
-A4 Corner Of The Earth(   Читать дальше...   )Жанр: House, Acid Jazz, DiscoПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648998   (224575) от 03.08.2023
-
-Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_224575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aerosmith — музыкальная группа, вероятно, самый важный представитель американского хард-рока. Группа черпала своё вдохновение в британском блюз-роке, доминировавшем на рок-сцене в конце 1960-х и начале 1970-х, как, например, Cream, Led Zeppelin, Jeff Beck Group, а также the Rolling Stones.1993 - Get A Grip
-1997 - Nine Lives
-2001 - Just Push Play
-2006 - Honkin On Bobo(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 10:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649563   (224804) от 03.08.2023
-
-The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_224804.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Stop, Get Off
-A2 Love Changes
-A3 Forever Yours
-A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649382   (224838) от 03.08.2023
-
-Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_224838.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blood On The Bricks {04:53}
-A2. Medicine Man {04:47}
-A3. Bang Bang {04:27}
-A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 ```
 
 

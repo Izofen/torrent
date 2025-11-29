@@ -1,3 +1,30 @@
+###  Публикация: 1788359   (68556) от 30.03.2025
+
+The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Neo-Classical Crossover Pop, Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive [00:03:43]
+02. Bitter Sweet Kiss [00:03:51]
+03. Bumblebee [00:03:18]
+04. Shout [00:05:04](   Читать дальше...   )Жанр: Neo-Classical Crossover Pop, Ballad, VocalПродолжительность: 2 CD, 02:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F94303AE8A8FA80E265F790E53AE16FC8004538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788269   (68614) от 29.03.2025
 
 Bordeaux - Pesa tutto il mondo addosso (2025) [FLAC|Lossless|WEB-DL|tracks] <Italian Pop>
@@ -321,6 +348,39 @@ magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 104381   (72874) от 29.01.2012
+
+Palast Orchester & Max Raabe - Super Hits (2000) [APE|lossless]<Europop, Big Band, Swing, Parody>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Данный диск включет кавер-версии золотых Хитов ,таких известных исполнителей, как Tom Jones (Sex Bomb), Freddy Mercury (We Will Rock You), Abba (Supper Trouper) и других, исполненные великолепным Максом Раабе, и его оркестром.01. Intro (00:04)
+02. We Will Rock You (02:45)
+03. Sex Bomb (02:59)
+04. Aroound The World (03:16)
+05. Dance With Me (03:16)
+06. Blue (03:53)
+07. Superme (03:24)
+08. You're My Mate (03:20)
+09. There Must Be An Angel (03:58)
+10. Upside Down (03:28)Жанр: Europop, Big Band, Swing, ParodyПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 445155   (73499) от 01.02.2012
 
 Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
@@ -337,6 +397,166 @@ Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
 
 Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавствовала в записи альбома "Bella Stella").
 Коллектив соединяет в своей музыке поп, дэнс и рэп с элементами псевдооперы и шотландским фолком. Получается очень интересный коктейль, сдобренный своеобразным и глубоким вокалом, исполняемым на итальянском и английском языках со (   Читать дальше...   )Жанр: PopПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446837   (74463) от 06.02.2012
+
+Eros Ramazzotti - The Original Albums Collection (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+CD1 - Cuori agitati:
+CD2 - Nuovi eroi:
+CD3 - In certi momenti:
+CD4 - Musica e:Жанр: PopПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447495   (74515) от 06.02.2012
+
+Lana Del Rey - Born To Die (Deluxe Edition) (2012) [FLAC|Lossless]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Die (4:46)
+02. Off To The Races (5:00)
+03. Blue Jeans (3:29)
+04. Video Games (4:42)
+05. Diet Mountain Dew (3:43)
+06. National Anthem (3:51)
+07. Dark Paradise (4:03)
+08. Radio (3:35)
+09. Carmen (4:09)
+10. Million Dollar Man (3:52)(   Читать дальше...   )2012Жанр: Indie PopПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452319   (76131) от 14.02.2012
+
+VA - Compact Disc Club - Wonderful Life [4CD Box Set] (2011) [FLAC|Lossless]<Pop, Rock, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Moody Blues – Nights In White Satin
+02. Chicken Shack – I’d Rather Go Blind
+03. Rainbow – The Temple Of The King
+04. Kansas – Dust In The Wind
+05. Air Supply – Lost In Love
+06. Scorpions – Wind Of Change
+07. Styx – Babe
+08. Europe – Carrie
+09. Heart – Dog & Butterfly
+10. Joe Cocker – Many Rivers To Cross(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 04:59:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452796   (76448) от 16.02.2012
+
+ABBA - The Love Songs (1989) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Under Attack (3:45)
+02. Slippin' Through My Fingers (3:59)
+03. Should I Laugh Or Cry (4:29)
+04. Gonna Sing You My Love Song (3:40)
+05. Lovers (Live A Little Longer) (3:32)
+06. Lovelight (3:49)
+07. I've Been Waiting For You (3:42)
+08. My Love My Life (3:54)
+09. One Man One Woman (4:34)
+10. Tropical Loveland (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453505   (76897) от 18.02.2012
+
+Louis Clark conducting Royal Philharmonic Orchestra - The Best Of Hooked On Classics 1981 - 1984 (1984) [FLAC|Lossless]<Pop / Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Hooked On Classics (Parts 1 & 2)
+02 - Can't Stop The Classics
+03 - A Night At The Opera
+04 - Hooked On America
+05 - Symphonies Of The Seas
+06 - Hooked On A Can Can
+07 - Also Sprach Zarathustra
+08 - Journey Through The Classics
+09 - Hooked On Tchaikovsky
+10 - Hooked On Romance Opus 3(   Читать дальше...   )Жанр: Pop / Classical / Baroque / Modern / Romantic / ContemporaryПродолжительность: 00:58:27
 
 ## Скачать торент
 ```bash
@@ -445,21 +665,30 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466229   (81386) от 11.03.2012
+###  Публикация: 460623   (79725) от 03.03.2012
 
-Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
+Mustafa Sandal - Best Album (2007) [APE|Lossless]<Pop, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_81386.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Disco, PopПродолжительность: 00:44:54
+1. All My Life (Remix)
+2. Gel Askim
+3. Aya Benzer (2003 Mix)
+4. Yok Gerekcem
+5. Iki Tas Cobra
+6. Kopmam Lazim
+7. Gecmis Olsun
+8. Isy Ankar (Orient Remix)
+9. Araba
+10. Aska Yurek Gerek (Orient Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:08:38
 
 ## Скачать торент
 ```bash
@@ -469,23 +698,24 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 324775   (82711) от 17.03.2012
+###  Публикация: 459136   (79835) от 03.03.2012
 
-Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
+Sting - Desert Rose featuring Cheb Mami (1999) [FLAC|Lossless]<Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_82711.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы:
-2003 - The Definitive Collection
-2012 - TuskegeeЖанр: Pop, Soul, R&BПродолжительность: 02:46:35
+01. Desert Rose featuring Cheb Mami (Radio Edit)*- 03:55
+02. If You Somebody (Set Them Free) (Live at the Universal Amphitheatre, Los Angeles) - 04:27
+03. Fragile (Live at the Universal Amphitheatre, Los Angeles) - 04:08
+04. Desert Rose (CD-ROM Video) - 04:44Жанр: PopПродолжительность: 00:16:14
 
 ## Скачать торент
 ```bash
@@ -495,235 +725,34 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472139   (83950) от 23.03.2012
+###  Публикация: 463122   (80134) от 05.03.2012
 
-Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
+Clout - Substitute (2000) [FLAC|Lossless]<Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_83950.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-CD 1
-
-01. Girl Gone Wild (3:43)
-02. Gang Bang (5:26)
-03. I'm Addicted (4:34)
-04. Turn Up The Radio (3:47)
-05. Give Me All Your Luvin' (3:23)
-06. Some Girls (3:54)
-07. Superstar (3:55)
-08. I Don't Give A (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:07
+01. Substitute
+02. Save Me
+03. Under Fire
+04. You've Got All Of Me
+05. The Best Of Me
+06. Gimme Love
+07. Sunshine Baby
+08. Gonna Get It To You
+09. Tom-morrow
+10. When Will You Be Mine(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:41
 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477811   (86326) от 04.04.2012
-
-VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_86326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alicia Keys - Fallin' 03:33
-02. R.Kelly - I Believe I Can Fly 04:44
-03. Ten Sharp - You 04:26
-04. Gary Barlow - Forever Love 04:34
-05. Manhattans - Kiss And Say Goodbye 04:28
-06. Maroon 5 - Sunday Morning 03:59
-07. Boston - More Than A Feeling 04:41
-08. Simon Garfunkel - The Sound Of Silence 03:05
-09. Toto - Melanie 03:58
-10. Acda en De Munnik - Als Je Bij Me Weggaat 04:04(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:29:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478196   (86568) от 05.04.2012
-
-Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_86568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Is Your Paradise [3:29]
-02. Forever More [4:19]
-03. The Lady In Red [4:17]
-04. Missing You [4:07]
-05. Much More Than This [2:59]
-06. Fatal Hesitation [4:14]
-07. In Love Forever [4:03]
-08. So Beautiful [3:49]
-09. Almays On My Mind [3:24]
-10. Seperate Tables [3:39](   Читать дальше...   )Жанр: PopПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487577   (90517) от 24.04.2012
-
-Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_90517.jpg" />
-</div>
-
-
-###  Подробнее
-
-C 1984 года Eros Ramazzotti выпустил 11 студийных альбомов, один миньон, три сборника, три концертных альбома, а также 35 синглов, каждый из которых имели высокие места в чартах многих европейских стран, а также в Южной и Центральной Америке. Eros Ramazzotti продал больше 40 миллионов записей за свою 25-летнюю карьеру.01 - Stella Gemella
-02 - Più Bella Cosa
-03 - Quasi Amore
-04 - Il Mio Amore Per Te(   Читать дальше...   )Жанр: PopПродолжительность: 02:17:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821879   (91219) от 04.10.2025
-
-Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_91219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mon crédo (2:51)
-02. Une histoire d'amour (Love Story) (3:00)
-03. Pardonne-moi ce caprice d'enfant (3:22)
-04. Pourquoi le monde est sans amour (2:53)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 03:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769695   (100617) от 29.12.2024
-
-Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See The Sun (Remastered 2024)
-02. (Do You Wanna Play) My Rock And Roll Song (Remastered 2024)
-03. Our Story (Remastered 2024)
-04. Keep On Dancing (Remastered 2024)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765913   (101301) от 15.12.2024
-
-The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_101301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Woman (5:20)
-02. Endless Summer (4:59)
-03. Aubree's Melody (4:38)
-04. Say You Love Me (4:35)(   Читать дальше...   )Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDD6CA8A8A46636CC02E4B118B6C4EA3B3BCF62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765718   (101356) от 14.12.2024
-
-Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_101356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Too Much [00:03:48]
-02. Power of Love / Love Power [00:06:42]
-03. Give Me the Reason [00:04:42]
-04. Stop to Love [00:05:11](   Читать дальше...   )Жанр: R&BПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4918FF6F9B65214CCD10A03ECE705F6AC0EA52
 ```
 
 

@@ -1,3 +1,52 @@
+###  Публикация: 1757156   (39247) от 26.10.2024
+
+Windows 11 20in1 24H2 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2024.10.25 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39247.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 редакций Windows 11 (русские и английские) с обновлениями по октябрь 2024, основанных на оригинальном русском дистрибутиве и интегрированными системными библиотеками
++5 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED7ED7C06DA06EE6794C89567149402C8D44D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349616   (39248) от 26.10.2024
+
+Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.60.0.67142/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodstained: Ritual of the Night – это смесь готического хоррора, экшна, платформера и RPG в атмосфере Англии XIX века. Сверхъестественные силы призвали на Землю замок, населенный демонами, и кристаллы-осколки, полные магической силы. Играйте за Мириам - сироту, чье тело медленно превращается в кристалл из-за алхимического проклятия.Тип издания: LicenseРазработчик: Inti Creates, Dico Co., Ltd., ArtPlay, MonobitЖанр: Экшны, Ролевая игра, MetroidvaniaЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Японский и другиеЯзык интерфейса: Русский, Английский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED7326198D49BB3BE40EBEBB9117F28E45B21C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749391   (39249) от 26.10.2024
 
 Старик / The Old Man (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) HDrezka
@@ -590,59 +639,6 @@ magnet:?xt=urn:btih:EA476CE9C5C5F6ABA379597BDB876A0E9BCC80D9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE01C0A400370F082BCBE082B3E8EA067289B8DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757069   (39273) от 25.10.2024
-
-Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_39273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
-02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
-03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757130   (39274) от 25.10.2024
-
-Grant Jackson - Devotion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_39274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine (6:34)
-02. Glass (7:56)
-03. Mourning (8:36)
-04. Devotion (8:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346F94DE6C11D50C6B8E147195AA37B65A3478F0
 ```
 
 

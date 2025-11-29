@@ -1,3 +1,380 @@
+###  Публикация: 488531   (100513) от 26.04.2012
+
+VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen Breeze Manuel 2santos Feat. Mercy Grey - Le Grand (Radio Edit)
+02. Dj Alex Ghost Feat. Dj Tagro - Skyrim (Radio Edit)
+03. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+04. Romano Sapienza Feat. Rodriguez - Tacata
+05. Akcent - I'm Sorry (Reworked Radio Edit 2012)
+06. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)
+07. Laurentiu Duta Feat. Andreea Banica - Shining Heart (Radio Edit)
+08. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
+09. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
+10. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)(   Читать дальше...   )2012Жанр: Dance, ClubПродолжительность: 06:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78186D29F1CC9F4DE0D866552335E2D1665AD8C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487375   (100515) от 26.04.2012
+
+VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anse Source pres. Pierays - Quiet Words (Original Mix)
+02. Syntheticsax - Crowd (Original Mix)
+03. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
+04. Phunk Investigation - Shan Saw (Original Mix)
+05. Timur Shafiev feat. Dasha - Out Of Limit (Original Mix)
+06. Moree MK - Maui Beach feat. Dakaneh (Coqui Selection Remix)
+07. Ad Brown, Ben Coda - Rinse & Repeat (Magitman Remix)
+08. Катя Чехова - Сердце Тебе В Ответ (Агент Смит Клуб Микс)
+09. Cosmic Funk feat. Tanya Michelle - I Defy (John Jacobsen Remix)
+10. Thomas Gold - Sing 2 Me (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488561   (100517) от 26.04.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100517.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+Название: Nature Desktop Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488565   (100521) от 26.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100521.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 7
+Название: Computer Desktop Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488067   (100522) от 26.04.2012
+
+[Wallpapers] Desktop Wallpapers Collection (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488476   (100524) от 26.04.2012
+
+[Wallpapers] Best Impressive Full HD Wallpapers (27.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770379   (100527) от 31.12.2024
+
+Журнал | ТЕХСОВЕТ премиум №9-10 (227) (сентябрь-октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100527.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП Гайдукова Н.А.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C41906CDF100E76E34D33CEE9B7FA39BC92C8E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770176   (100528) от 31.12.2024
+
+Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Email the Queen [00:05:13]
+02. Recycled Women [00:05:48]
+03. Don't Dim Your Light [00:03:59]
+04. Rise and Grind [00:03:22](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770256   (100529) от 31.12.2024
+
+Газета | Тайны СССР №25 (151) (декабрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EA1460295131D85A442A17715E485A2675F335
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770289   (100530) от 31.12.2024
+
+VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prestige & Rana Saab - Itha Hajarta (Extended Mix) (06:04)
+02. Faruk Khaledi - A Sense Of Euphoria (Toamun Remix) (05:54)
+03. Faruk Khaledi - A Sense Of Euphoria (Jordan B Remix) (07:22)
+04. Toamun - Mim (05:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3AEE89DB56FE678B94F9D1456C01AE72CEB3B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770167   (100531) от 31.12.2024
+
+VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freelife - For You (Original Mix) [08:01]
+02. Iberian - Stela (Original Mix) [07:04]
+03. SounEmot - En Mis Sueños Siempre Te Vuelvo a Recordar (Emotional Mix) [10:01]
+04. Masaru Hinaiji - Toward Heaven (Original Mix) [09:45](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F57D913B82A54FD191E74E2E28B3358341D90A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770358   (100532) от 31.12.2024
+
+Франтишек (1967) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морозик Франтишек учится рисовать морозные узоры в школе для маленьких морозиков. Да только Франтишеку надоела белая краска; рисовать цветные узоры гораздо интереснее…Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, детскийРежиссер: Вадим КурчевскийАктеры: Клара Румянова, Анатолий Папанов, Мария ВиноградоваСубтитры: отсутствуютПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884BA71638C63AAB371DC90BD20A3289E9E77CBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770294   (100533) от 31.12.2024
+
+Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbps] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Camera 3:56
+02. I'm The Message 5:01
+03. 15 Minutes Of Fame 4:10
+04. Reality 4:40(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC3BA217755FF2E2530C352C83A688EB7981121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770284   (100534) от 31.12.2024
+
+VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LR Uplift - Yesterday's Rain (Extended Mix) [09:07]
+02. Masaru Hinaiji - Fear And Anger [09:47]
+03. Grande Piano - Emotion Code [06:55]
+04. LekSin & Yuri Melnikov - The Forgotten Heart (Extended Mix) [07:54](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CDA94C2DEB5D6E0A2EF38C008F3A452D738CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770287   (100535) от 31.12.2024
 
 VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
@@ -313,378 +690,6 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE11D5885A4FB3E24C7E12D24C631CAEB7EB7313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770316   (100547) от 31.12.2024
-
-Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chorus Intro (Live) [00:01:46]
-02. Call The Press/On The Town (Live) [00:02:36]
-03. Unless You've Played The Palace / Shine On, Harvest Moon / Some Of These Days / My Man / I Don't Care (Live) [00:07:33]
-04. Rockabye Your Baby (Live) [00:03:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC977DA44381D44CBAA73A3B62103B42FD7ABBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770367   (100548) от 31.12.2024
-
-Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Getting Started (3:53)
-02. Wait a Minute (3:21)
-03. Whole Lotta Rosie (5:04)
-04. Listen to Her Heart (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F37902159D47E93662FCE8B40AEF0C3ACA9AC53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770277   (100549) от 31.12.2024
-
-Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad of the Broken Bard [00:04:39]
-02. Mistress of Nightfall [00:04:38]
-03. The Siren and the Sailor [00:07:41]
-04. Jester [00:04:44](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalsПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1F8C4162DD55BD9E3E4FB8C346265A73FDAF08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770352   (100550) от 31.12.2024
-
-Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Electric Session, Burning Again (4:16)
-02. Lazy Night (3:21)
-03. Don't Get Me Around (5:22)
-04. Junky Funky (4:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0638F2B64387146E2372E62228BCECB18D672E45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770356   (100551) от 31.12.2024
-
-Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get No Grindin' (2:15)
-02. Pipeline (2:42)
-03. Long Distance Call (3:31)
-04. Ida Red (2:34)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C22A2BB9A4DC9EE39422E544BA26237D8D7F2A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770270   (100552) от 31.12.2024
-
-Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embers of Elysium [00:02:14]
-02. Serpents Among Rats [00:04:37]
-03. Faceless War Machines [00:05:00]
-04. Of One Blood [00:04:08](   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E66D3745C59893CDD5FA5840001985A75F0BD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770360   (100553) от 31.12.2024
-
-Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitchhiking (5:02)
-02. Worried About It (6:27)
-03. Willoughby, for Mr. Serling (4:08)
-04. Close to the Truth (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B2B696ACE10BAC26165F9B814FD0D36424E796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770243   (100554) от 31.12.2024
-
-John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Come Lately [5:17]
-02. Lush Life [4:20]
-03. Rain Check [4:19]
-04. Star-Crossed Lovers (Pretty Girl) [4:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B243C797D5D8582D9059798EBDE17E453154A56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770350   (100555) от 31.12.2024
-
-Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claw Hammer (4:27)
-02. Shop Around (3:34)
-03. Trying to Live My Life Without You (4:07)
-04. The Love Mechanic (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85D7619B7FC6642AD7E134785B519085544DA90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770347   (100556) от 31.12.2024
-
-Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three O'Clock Blues (3:42)
-02. Fruit Boots (2:34)
-03. Tell me what's the reason (2:39)
-04. Mary Ann (4:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E4767ACDA3B85045987BB87E081E85D89BC19B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770340   (100557) от 31.12.2024
-
-A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bamako Convention Center (4:48)
-02.  Corny Big (4:58)
-03.  Mr. Well Dressed (4:25)
-04.  At Least The Sky Is Blue (6:34)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFEE42248294764046708E27FCCEE20122FCB43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770344   (100558) от 31.12.2024
-
-Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We are Bump2Soul - Live at TONE Studio, Seoul (1:38)
-02. Let’s Clap - Live at TONE Studio, Seoul (5:05)
-03. Dopamine - Live at TONE Studio, Seoul (4:17)
-04. Do you like F? - Live at TONE Studio, Seoul (5:12)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635CA79CBAD602C7CBC0843040BBA14AA58C8AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770040   (100559) от 30.12.2024
-
-Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100559.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Свеча”- это приключенческий квест с уникальным геймплеем и сюжетной линией. Игрок исполняет роль свечи, которая может гореть только в течение 10 секунд, находить выход из ловушек и путаниц, пробираться сквозь свет и тьму. Прикоснитесь к невероятной атмосфере игры, в которой нужно пробираться сквозь мрак в поисках света, найдите все сокровища, спрятанные в реалистичной (   Читать дальше...   )Тип издания: LicenseРазработчик: Candleman GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031C03E68C982F5733D00AD3CEBD4B2C4F769342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770066   (100560) от 30.12.2024
-
-Четвертое желание (2003) DVDRemux (2 серии)
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая новогодняя сказка о любви и человеческой доброте. О том, что в мире ещё могут происходить чудеса - надо только поверить в это! Главная героиня фильма Настя - восходящая "звезда" телесериалов и театральной сцены давно уже не верит в чудеса. Её вместе с женихом приглашают встретить Новый год за границей. Но Настя опоздала на рейс и была вынуждена (   Читать дальше...   )Производство: Россия / Югра-фильмЖанр: мелодрамаРежиссер: Ольга ПеруновскаяАктеры: Гoшa Куцeнкo, Мария Порошина, Cepгeй Acтaхoв, Михаил Тарабукин, Ирина Домнинская, Алиса Гребенщикова, Сергей ШиховцовСубтитры: английскиеПродолжительность: 02:38:14 (01:18:29+01:19:45)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABF470833157516C0DF2C5A5F85FC643A0A5701
 ```
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1811442   (16142) от 10.08.2025
+
+Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Dark Ambient, Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Peter Bjärgö - шведский музыкант, вокалист.
+Основатель музыкальной группы Arcana.2005 - Out Of The Darkling LIght, Into The Bright Shadow
+2009 - A Wave Of Bitterness
+2011 - The Architecture Of Melancholy
+2017 - Animus RetinentiaЖанр: Dark Ambient, Modern ClassicalПродолжительность: 07:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB643FCF6AC24ADC72AC9FA213B66495EDAA7B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811458   (16143) от 10.08.2025
+
+Шрифты - Behance - Alexey Atapin - Kosmos - 140863565 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5606DA2D0107F529B7AA14C82EB31833234B120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811456   (16144) от 10.08.2025
 
 Шрифты - Behance - Alexey Atapin - Motion - 211991577 [TTF]
@@ -571,57 +623,6 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D257D91C4456B54FFC00B6C277901B13B413D9B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811433   (16169) от 09.08.2025
-
-VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_16169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Echoes (4:30)
-02. Private Sense - Desert Lights (Jack Essek Remix) (7:35)
-03. Clive Vaz - Gypsy Prince (6:25)
-04. Martin Hiska - Mahoya (4:10)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811432   (16170) от 09.08.2025
-
-Чарльз Шеффилд | Заброшенная земля (2025) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_16170.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Джефф по состоянию здоровья покинул напряженную службу в полиции и устроился на спокойную должность охранником в лаборатории. Кто знал что ему придется расследовать загадочную гибель одного из ученых на пустыре с ядерными отходами. Прежний опыт подсказывает, что даже у самого сложного преступления должен быть мотив." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F08D5B453579671F0DEB3FEEDD6FCB129F218F
 ```
 
 

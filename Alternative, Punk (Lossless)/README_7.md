@@ -1,3 +1,300 @@
+###  Публикация: 1694697   (120636) от 27.01.2024
+
+Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk, Oi, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 2022 (Live im Waldstadion 2022) [00:01:46]
+02. 10 Jahre (Live im Waldstadion 2022) [00:02:57]
+03. So sind wir (Live im Waldstadion 2022) [00:05:15]
+04. Der nette Mann (Live im Waldstadion 2022) [00:03:54](   Читать дальше...   )Жанр: Punk, Oi, Hard RockПродолжительность: 02:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2195E0732AB918973E431FE9837A29A5808507F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694166   (120945) от 25.01.2024
+
+Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dark Skies
+02 – The Fucked Generation
+03 – House of the rising sun
+04 – Dead man walking(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, MetalcoreПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A0FA475611B07D4330EB661E2C78D8769340D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361464   (122240) от 18.01.2024
+
+Ghinzu - 3 альбома (2000 - 2009) [FLAC|Lossless]<Alternative / Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghinzu - рок группа, основанная John Stargasm в 1999-ом году в Брюсселе, Бельгия и завоевавшая популярность в Европе, с выходом своего второго альбома "Blow" в 2005 году. Могли засветиться и на много раньше, но дебютный альбом Electronic Jacuzzi (2000) был издан только в Бельгии (в ноябре 2005 года в результате всенародного опроса, их первый альбом был (   Читать дальше...   )Список альбомов:
+1999 - Electronic Jacuzzi
+2004 - Blow
+2009 - Mirror MirrorЖанр: Alternative / Indie RockПродолжительность: 02:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E244A6F42ECD55EEE2AB68B8D7E73299F53F1944
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692505   (122337) от 17.01.2024
+
+Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. August Song [00:05:29]
+02. Long Egg [00:03:03]
+03. Sexy Photograph [00:03:29]
+04. Top Requests [00:04:33](   Читать дальше...   )Жанр: Math RockПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69528FB93D92EE1F04DC59E07097BC601B008B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692375   (122360) от 17.01.2024
+
+Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cani Umani [00:03:31]
+02. Mattino di Luce [00:03:45]
+03. Pugno Di Sabbia [00:03:36]
+04. Universo [00:04:40](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64105BC272FEE2CA66E117CAA7E4EBC8483F7C4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692111   (122764) от 15.01.2024
+
+Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Kraut-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polaris [00:05:20]
+02. Tanger Telex [00:04:35]
+03. Diver [00:03:29]
+04. Loisaida Sisters [00:04:22](   Читать дальше...   )Жанр: Post-Rock, Kraut-RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBBF36295963ACC1E6297DEA0645728288F9C8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691969   (122881) от 14.01.2024
+
+Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Another Cycle (00:02:51)
+02 - Fulfilled (00:01:36)
+03 - Found Hand (00:02:15)
+04 - Clawing, Still (00:02:51)(   Читать дальше...   )Жанр: Screamo, HardcoreПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2BE31B89E0743733EC8F66F3949E463C312E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690960   (123615) от 09.01.2024
+
+Hurricane on Saturn - Фnx (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Metal, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We Die Young [3:50]
+02 - In Ash [4:17]
+03 - Sturm [4:07]
+04 - Pollute the Mainstream [3:47](   Читать дальше...   )Жанр: Electro, Metal, Post-HardcoreПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB75FCCC7C19B0C19CFBAA86011FE8D3679902D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690344   (123920) от 07.01.2024
+
+yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, indie rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poppy [00:02:11]
+02. Reckless [00:03:35]
+03. Other [00:03:25]
+04. Armchair [00:04:55](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689671   (124560) от 03.01.2024
+
+Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Nothing Happen
+02. Unnamed Road
+03. Mirage
+04. The Distance Between Us(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D08F4313C13A9F87B4FB517031489F2D95E489A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689473   (124649) от 02.01.2024
+
+T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hymn 0:40
+02.Snakedance 3:27
+03.If You Don't Like my Dog 3:24
+04.7 Deadly Sins 4:26(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BE7D16C46FC13209A449EA7066AE7D5D3D42F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689353   (124759) от 01.01.2024
 
 Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive-Rock>
@@ -398,303 +695,6 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61712588D00B04E029F47922B235A6E87A0E791F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683376   (128540) от 10.12.2023
-
-Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor To Wrist Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_128540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leper Friend [00:04:29]
-02. 9 to 5 at the Morgue [00:04:38]
-03. Mushroom Cult [00:04:27]
-04. Antiquity’s Small Rewards [00:03:48](   Читать дальше...   )Жанр: Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk-MetalПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033FC158A46796557634920929F8373AE000DD15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824006   (128643) от 13.10.2025
-
-Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_128643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Are You Waiting For [00:03:51]
-02. Where Were You? [00:04:05]
-03. Out Of My Hands [00:03:17]
-04. I'm OK [00:03:28](   Читать дальше...   )Жанр: Alt. Rock, Nu Metal, Post-GrungeПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10624EFB1DA16726E2980989F7DA2A97D75E845
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824231   (128930) от 14.10.2025
-
-Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_128930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coping Mechanisms [00:03:14]
-02. What You Deserve [00:04:13]
-03. Suicide in K Minor [00:04:26]
-04. Persian Delta Blues [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AD43E3A6B5285D1EB2F6BB8335A8F2C8FAEE36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525626   (129164) от 21.01.2022
-
-King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Hot Soup (DJ Shadow “My Own Reality” Re-Write)  (03:36)
-02 - Shanghai (The Scientist Dub)  (04:00)
-03 - Shanghai (Deaton Chris Anthony Remix)  (03:32)
-04 - Dreams (Yu Su Instrumental Mix)  (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525572   (129167) от 21.01.2022
-
-Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime (02:57)
- 02. No Glory in the West(04:14)
- 03. Drive Me, Crazy (05:18)
- 04. Kids(03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755D4E4F3BFEFA065CD0ADC5F1BE79CCC364A301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525682   (129169) от 21.01.2022
-
-Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wanna Move (4:03)
- 02. Too Much (3:29)
- 03. First Drumset (5:18)
- 04. Teenage Sequencer (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525646   (129221) от 21.01.2022
-
-Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiveness I + II (6:41)
- 02. Reckless Paradise (3:24)
- 03. I Beg To Differ (This Will Get Better) (3:37)
- 04. The Wolf (3:48)(   Читать дальше...   )Жанр: Punk Rock, Alternative RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49542489F5CC4F12CCC123F66C285E81287E870D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525301   (129560) от 20.01.2022
-
-Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Could You Want Him (When You Know You Could Have Me) (03:48)
- 02. Deja Vu I Love You (03:08)
- 03. Caught up in a Moment (03:36)
- 04. Satellite (04:02)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82E10CB8667FAE1C0191DE5FC5A56C28E868286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683009   (129758) от 09.12.2023
-
-Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Still Sick
-02. Acne Superstar
-03. Fold Under Pressure
-04. That's Not The World At All(   Читать дальше...   )Жанр: Alt.Rock, Alt.MetalПродолжительность: 00:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52996FF4FD26B8DDEB66E91293DEBADF330542E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525480   (129763) от 20.01.2022
-
-Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She (02:12)
- 02. When I Come Around (02:52)
- 03. Basket Case (02:56)
- 04. 2000 Light Years Away (02:38)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CD56DF6025FCD64012EAA26FD73479F21F2F60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525114   (130089) от 19.01.2022
-
-The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like Honey (Live) (03:33)
- 02. The Living End (Live) (02:20)
- 03. Taste the Floor (Live) (03:34)
- 04. The Hardest Walk (Live) (02:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED32CE9BA8C61FB6B6006FC47319FB7BC34BD9A3
 ```
 
 

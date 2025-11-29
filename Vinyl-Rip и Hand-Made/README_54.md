@@ -1,3 +1,54 @@
+###  Публикация: 1623371   (200488) от 02.04.2023
+
+Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172695   (201399) от 11.03.2023
+
+VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_201399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Таня Тишинская - Золотая ручка
+02. Иван Кучин - Жиганская душа
+03. Слава Исетский мл. - От бухты Цемесской... (Сон жигана)
+04. Михаил Круг - Ярославская(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599189   (201512) от 09.03.2023
 
 In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal, Melodic Groove Metal/Metalcore>
@@ -644,61 +695,6 @@ B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653071   (206046) от 17.08.2023
-
-ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Synth-pop, Symphonic Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_206046.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prologue
-A2 Twilight
-A3 Yours Truly, 2095
-A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Symphonic Rock, Pop RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582513   (206229) от 10.10.2022
-
-AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_206229.jpg" />
-</div>
-
-
-###  Подробнее
-
-AC/DC  — австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.
-Наряду с такими группами, как Led Zeppelin, Deep Purple, Queen, Iron Maiden, Scorpions, Black Sabbath, Uriah Heep, Judas Priest и Motörhead, AC/DC часто рассматриваются как пионеры хард-рока и хеви-метала. Сами же музыканты (   Читать дальше...   )1990 - The Razors Edge
-1995 - Ballbreaker
-2000 - Stiff Upper Lip
-2008 - Black Ice(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
 ```
 
 

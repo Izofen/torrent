@@ -1,3 +1,57 @@
+###  Публикация: 1804281   (65694) от 28.06.2025
+
+Nathan East & Noah East - Father Son (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (0:06)
+02.  Eric Clapton - Close to Home (1:25)
+03.  UTOPIANOAH (5:25)
+04.  My Favorite Things (4:49)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5902D4281AF648B88E094C28A9FD450722951190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804298   (65695) от 28.06.2025
+
+Zig Zags - Deadbeat At Dawn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Not Of This World (3:30)
+02.  Altered States (3:15)
+03.  Deadbeat At Dawn (3:58)
+04.  At War With Hell (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72605DCB9B4C7DEABF5AB2AD744BB8B31E7F603A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804225   (65696) от 28.06.2025
 
 Конвертер Валют Плюс v3.0.3 Mod by vadj [Ru/Multi]
@@ -602,60 +656,6 @@ Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F85C3BBEE919B1AC12CA61E7E2BCF88F6CA414
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803957   (65720) от 26.06.2025
-
-VA - Ablazing Summer Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze - Aestas Baleares (Extended Mix) [6:56]
-02. Mhammed El Alami & Exolight - Velvet Skies (Transaphonic Extended Remix) [6:50]
-03. Nikolauss - Lost In Transition (Guava Extended Remix) [6:49]
-04. Peter Miethig & Van Cosmic - Sunshine (Extended Mix) [6:30](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A30618ED9BDC15272E32B1B39754F665BAFD6DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804004   (65721) от 26.06.2025
-
-Anthony Krizan - Cool Shade of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Into The Groove (3:47)
-02.  Strawberry Wine (3:58)
-03.  If You're Tired of Being Lonely (4:42)
-04.  It's All Coming Back to Me (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D174D5999BE01812DF79EB622BBA444ECE5F038
 ```
 
 

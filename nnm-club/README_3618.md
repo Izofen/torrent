@@ -1,3 +1,421 @@
+###  Публикация: 1706068   (113734) от 11.03.2024
+
+MotoGP. Этап 01 из 21. Гран-при Катара. Гонка (10.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113734.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 марта 2024, воскресенье. 20:00 МСК. Этап 1, Доха. Гран-при Катара. Гонка (21 круг)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6031219241B667B582BE2ADE1E03608939D6B398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705895   (113735) от 11.03.2024
+
+НашПотребНадзор (10.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как испечь идеальные блины, помогут ли гаджеты-блинницы, как выбрать правильную муку, чтобы замесить тонкое, но прочное тесто, и что прячется в составе блинной муки - расскажет Олег Солнцев в новом выпуске. Традиционно в программе проведут "Контрольную закупку": молоко от каких брендов отдаёт горькой полынью и даже навозом, какое перекипятили, а какое - (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D0FDFDF42B1F105DE6EA50C19892FDF3734D67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706007   (113736) от 11.03.2024
+
+VA - Rage Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deftones - My Own Summer (Shove It) (3:35)
+02. Nickelback - Next Contestant (2020 Remaster) (3:35)
+03. Disturbed - I'm Alive (4:42)
+04. Korn - Rotting in Vain (3:33)(   Читать дальше...   )Жанр: RockПродолжительность: 03:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB41779281A2DE6B56AD23A84867AB63CE259B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706087   (113737) от 11.03.2024
+
+DJ Mix Pads 2 - Remix Version 6.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113737.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Mix Pads 2 - Remix Version - это уникальное приложение для музыкантов, которая включает все необходимое для создания битов.Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2023 Music Paradise, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED5CACDE012A9F369902E049D2ADB2232C70187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706003   (113738) от 11.03.2024
+
+Лихорадка приходит в Эль-Пао / La fievre monte a El Pao (1959) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диктатор Мариано Варгас убит в результате военного переворота. И неожиданно в период смуты во главе южноамериканского острова Эль-Пао оказывается Рамон Васкез, бывший до того мелким чиновником. Теперь новый либеральный правитель вынужден бороться с наследием диктаторского режима и зачастую идти на компромисс с собственной совестью... Фильм про беспомощность либеральной (   Читать дальше...   )Производство: Франция, Мексика / Le Groupe des Quatre, Cinematografica Filmex S.A.Жанр: драмаРежиссер: Луис БунюэльАктеры: Жерар Филип, Мария Феликс, Мигель Анхель Феррис, Рауль Дантес, Доминго СолерПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: английские, французские SDHПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81DBFD293287BDE67543883396F6D17C2586263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705872   (113739) от 10.03.2024
+
+Чудо техники с Сергеем Малозёмовым (10.03.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бамбук для сна и уборки! Правда ли, что постельное белье из этого растения суперпрочное и самое нежное, а тряпки сами убивают микробов? Сколько действительно бамбука в экзотическом текстиле и стоит ли за него переплачивать?
+Где роботы будут сортировать мусор вместо человека?
+Как в Нидерландах полиция борется с опасными электровелосипедами?
+Когда регулярное донорство (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6313C5E0153FEC3D760D03E660F155D9CF995BD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705861   (113740) от 10.03.2024
+
+Первая передача на НТВ. Автомобильная передача (10.03.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живот беременной смягчил удар в ДТП: что стало с роженицей и ребенком?
+ «Паркетник» из паркета: на чем ездит Drowenwagen?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8C1DD55DCB6DA44896B176A34626E3FBDA5B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705929   (113741) от 10.03.2024
+
+Даниил Мордовцев | За чьи грехи? (2015) [MP3, Савелий Гуреев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая повесть «За чьи грехи?» русского писателя Д. Л. Мордовцева (1830−1905) рассказывает о временах восстания Степана Разина.
+В произведении изображены многие исторические лица и события, воссоздан целостный образ России XVII века.
+
+ Даниил Мордовцев на NoNaMe ClubЖанр: Русская историческая литература, повестьИздательство: Вира-М (аудио)Продолжительность: 07:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE85A6CFA2C982A38D276BA0B4A5135C7A5172FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705834   (113742) от 10.03.2024
+
+Обними Кита & Евгения Рыбакова - Концерт (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ко мне [00:03:16]
+02. Пополам [00:04:04]
+03. Одеяло [00:03:31]
+04. Мир недостроенных иллюзий [00:02:54](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F77C130F34F94244C5655DB2AF8E57A0180971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705833   (113743) от 10.03.2024
+
+Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Именно так
+02 - Свети ярче
+03 - Незаметно укройся (от моего лунного света)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705761   (113744) от 10.03.2024
+
+Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow
+02. Under Another Moon
+03. He Who Longed For The Stars
+04. These Mortal Sins(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15FEDCB4CFA55E6123E8380EE2A2ED9CFB17369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705843   (113745) от 10.03.2024
+
+Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Saw Stars [2:32]
+02. The Continental [2:38]
+03. Avalon [2:53]
+04. Some of These Days [2:24](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5E2EE2E95D99A91F76523020BE115BF2BEBDEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705847   (113746) от 10.03.2024
+
+Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things That You Never Were [3:51]
+02. A Moment Alone [4:47]
+03. Haven's Paradise [4:08]
+04. Homecoming [4:44](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830C296253195D74ED14A2E861400950640812AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705837   (113747) от 10.03.2024
+
+Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuss Budget [7:46]
+02. Oatmeal Cookie [4:39]
+03. Da-Baby [7:33]
+04. Down Home [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C7F9DA17CD70C29CEFE637E44BA2946ED991F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705840   (113748) от 10.03.2024
+
+Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) Marsalis Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Supreme, Part 1: Acknowledgement [9:01]
+02. A Love Supreme, Part 2: Resolution [17:32]
+03. A Love Supreme, Part 3: Pursuance [11:04]
+04. A Love Supreme, Part 4: Psalm [10:49]Жанр: Post-BopПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13685FC494826607EE050046890F3AD85F5D9494
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705838   (113749) от 10.03.2024
+
+The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chick It Out [6:26]
+02. Suite Sixteen [6:57]
+03. Automaton [10:12]
+04. For Gillian [8:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9D15736E9919A089B548AF4ACBAA5DD0B4D68D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705953   (113750) от 10.03.2024
 
 Ландыши - Командировочные (Акустика) (2024) [MP3|320 Kbps] <Rock>
@@ -250,438 +668,6 @@ The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705830   (113760) от 10.03.2024
-
-Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossless|tracks] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Настоящее золото - легкая жизнь. Solid Gold, Lasy Actiont.
-02 - Парень ХХ века. 20th Century Boy.
-03 - Мечта малолеток. Teenage Dream.(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705894   (113761) от 10.03.2024
-
-Сто к одному (10.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113761.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-Что можно делать на бревне? Что делают люди, чтобы реже болеть? Команды "Короли шпаги" и "Королевы сабли" (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Короли шпаги" против команды "Королевы сабли"Язык озвучки: РусскийПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A89CBC14B5A2B54FDFEF3C4F492584ABF50485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705863   (113762) от 10.03.2024
-
-Nils Hoffmann - Running In A Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, House, Deep-House, Progressive-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer [00:03:34]
-02. Running In A Dream [00:04:29]
-03. Collide [00:03:46]
-04. Holding Me Back [00:04:25](   Читать дальше...   )Жанр: Downtempo, House, Deep-House, Progressive-HouseПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB313DA556980B35B741FE9DBB1AE3DBE7CD3E38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705909   (113763) от 10.03.2024
-
-Владимир Короленко | Чудная. Сказки и рассказы (2014) [MP3, Аркадий Бухмин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-В этот сборник одного из величайших русских  детских писателей Владимира Галактионовича Короленко (1853–1921) вошли следующие рассказы и сказки:
-1.	 Чудная
-2.	 Необходимость(   Читать дальше...   )Жанр: Русская литература, классика, детская прозаИздательство: МедиаКнигаПродолжительность: 06:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2600C66B3F7059BB8193B77E2D4D9667F7638F55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705858   (113764) от 10.03.2024
-
-Ninja Sex Party - These Nuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (These) [00:00:39]
-02. Get Ready (To Get Ready) [00:03:05]
-03. I Own a Car [00:02:29]
-04. Let's Save the Earth [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0490A20EBDE25DAEE91785670EBDE9B4D091504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705602   (113765) от 09.03.2024
-
-Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drag Me to Hell [00:03:02]
-02. Siren's Call [00:04:09]
-03. Of War and Flames [00:04:46]
-04. Firebringer [00:03:52](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E7667C0489E0993E538C6BFB945484BE36C5BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705561   (113766) от 09.03.2024
-
-Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Come Back to Me [5:37]
-02. Sweet Lorraine [3:10]
-03. Shine [3:38]
-04. Solitude [4:15](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EE6225ACB035CAE842BC568F085D8464008B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705693   (113767) от 09.03.2024
-
-Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aujourd'hui (5:58)
-02. Lâcher-prise (4:20)
-03. 42 à Brest (4:59)
-04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705757   (113768) от 09.03.2024
-
-Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood on the Sand
-02. If I Could
-03. Fallow Season
-04. Pitfalls(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CADBA404604BC157C6C2FA1D713DD429862C6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705610   (113769) от 09.03.2024
-
-Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vade Retro
-02. If She Floats
-03. Et Cum Spiritu Tuo
-04. Antecclesia(   Читать дальше...   )Жанр: Doom, Heavy MetalПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C706E004A502BEEA34F974CED6ECCB19C7AA303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705748   (113770) от 09.03.2024
-
-Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formaldehyde
-02. The Little Things
-03. Armour
-04. Resolution(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4151D12AB3A26AD4287DA4F9BBB484327DB793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705563   (113771) от 09.03.2024
-
-Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [8:20]
-02. April in Paris [5:05]
-03. Cherokee [2:26]
-04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705608   (113772) от 09.03.2024
-
-Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icehouse [00:05:11]
-02. Force Majeure [00:04:44]
-03. Killing Time [00:02:52]
-04. Behind the Tears [00:05:23](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F1F27FBC24DE45207F8143352BFD16A61BED5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705564   (113773) от 09.03.2024
-
-Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby in Rhythm [3:08]
-02. Embraceable You [4:39]
-03. Love for Sale [5:09]
-04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705565   (113774) от 09.03.2024
-
-Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The Honeydripper (1961) 2013, Groove Hut Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanctified Waltz [4:54]
-02. Goodnight, It's Time to Go [6:16]
-03. I'll Be Seeing You [7:40]
-04. A Smooth One [10:50](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C35612366D21E0E4664EE78AD840B51C4B0CE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705760   (113775) от 09.03.2024
-
-Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Untethered (00:01:18)
-02 - Liberator (00:03:59)
-03 - Moonlight Over Silver White (00:05:43)
-04 - Until You Return (00:06:40)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA3DA7A573FC24C079686F48D997CBB918F19EF
 ```
 
 

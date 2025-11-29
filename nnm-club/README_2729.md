@@ -1,3 +1,55 @@
+###  Публикация: 1773531   (71700) от 16.01.2025
+
+Алла Зацаринная | Весёлый родничок (1982) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи для детей старшего дошкольного и младшего школьного возраста.
+Иллюстрации Н.Грудинской.Жанр: стихиИздательство: ТаврияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74B85E0FBEFC58D718F5B64B375F6111DE90051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773612   (71701) от 16.01.2025
+
+Jesse James and the Mob - Checkin the Mic (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Checkin the Mic (6:32)
+02.  Somehow Somewhere (7:54)
+03.  Who Was the Iceman (5:42)
+04.  Walkin the Cup (7:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213A40A06AF60AC53E4F109D253770D7B07F958F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773655   (71702) от 16.01.2025
 
 Martín Burguez & His Rhythm Combo - I'm Gonna Move (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhythm and Blues>
@@ -636,60 +688,6 @@ Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9582FFF17E0616D257CAEA256E4584AFA4FD6FA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773043   (71726) от 13.01.2025
-
-Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Singularity (4:14)
-02.  Jupiter Brain (4:56)
-03.  Demon Core (1:15)
-04.  Drowning Machine (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4FD94324A1DB08DCD00DB7C134574286B10796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773019   (71727) от 13.01.2025
-
-Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing in a Ring [3:41]
-02. Soft [6:49]
-03. Le Sue Ali [4:23]
-04. African Flowers [6:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1654462   (205179) от 21.08.2023
+
+Курара - ПП (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глушь [00:03:20]
+02. Тороплюсь [00:07:11]
+03. Агония [00:04:24]
+04. Войнах [00:06:00](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E429FDC489B6B915AD75AC83979674E8D0EB87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653408   (205538) от 15.08.2023
 
 Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:37BACE8A2CB59580968B4A81951C3983F5334D22
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5222FC114C55B6391527717E6F10CD093E9FDA29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514606   (213726) от 05.12.2021
-
-Бахыт-Компот - Алёшенька живой (2021) [FLAC|Lossless|image + .cue] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_213726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А птица пела
-02 - Алёшенька живой!
-03 - Дождь Сергей
-04 - Шаман Саня(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B1082BAF379D0C7D671CA5E869A180EA4E48DF
 ```
 
 

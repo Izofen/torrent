@@ -1,3 +1,56 @@
+###  Публикация: 1787630   (68736) от 26.03.2025
+
+Шрифты - MyFonts - Mathieu Sans [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mathieu вдохновлялся пропорциями, текстурой и элегантностью шрифтов эпохи Возрождения, а также работами голландских типографов, в которых я всегда ценил баланс между традиционным подходом и экспериментом.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C11A39D975A9C7E6A97F548FFF9FD69F8D8FF5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787684   (68737) от 26.03.2025
+
+Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's Only Love (4:20)
+02.  Same Old Lies (5:14)
+03.  Change Your Mind (4:09)
+04.  Don't Leave (6:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C35245FCEE57EDE45FD60622937C0ECA81AF98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787474   (68738) от 26.03.2025
 
 Traveler - Echoes of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -616,60 +669,6 @@ magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666DB9830C6206D3F734BD4480BA98C7B3936275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787283   (68762) от 26.03.2025
-
-Sundenrausch - Original Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Hard Rock, Alternative Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dawn Of Time [1:02]
-02 - Red Sun [3:46]
-03 - Trapped In Limbo [4:08]
-04 - Original Sin [4:05](   Читать дальше...   )Жанр: Gothic Metal, Hard Rock, Alternative Rock, MetalПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D097F8C2AF5F51A67D08B06782743638FD501
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787689   (68763) от 26.03.2025
-
-The Smoothies - We Can Change The Past (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  We Can Change The Past (3:33)
-02.  Don't Change a Thing (3:34)
-03.  Springtime Song (3:34)
-04.  It's Raining in Rome (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C03E1DA14D352FF7CE7068EEC9BB340174D1F99
 ```
 
 

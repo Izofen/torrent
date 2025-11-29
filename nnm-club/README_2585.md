@@ -1,3 +1,57 @@
+###  Публикация: 1790987   (67956) от 11.04.2025
+
+Dov Hammer - Exile - The Chicago Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genuine (4:20)
+02. Deitra Farr - I'm Just Your Fool (2:46)
+03. The same thing (6:14)
+04. I'm your man (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7A75F61D0DFF49D800D191B1F80F44043E8192
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790910   (67957) от 11.04.2025
+
+Steven Hufalar - Memento Mori (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore, Alt.Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memento Mori [00:03:56]
+02. Walls of Glass [00:05:09]
+03. Get Me Out [00:03:18]
+04. Entropy [00:03:48](   Читать дальше...   )Жанр: Progressive Metalcore, Alt.MetalПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A902120E72EBEC5D1E95480F9902D29334A8F6ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790965   (67958) от 11.04.2025
 
 Allison August - August Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -605,57 +659,6 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D5B9011DAE30460216681B69AF17FF02ED6669E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790814   (67982) от 11.04.2025
-
-The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Night Verses [00:01:03]
-02 - Days under the Dark [00:07:40]
-03 - Seer [00:04:40]
-04 - These Traces [00:05:12](   Читать дальше...   )Жанр: Atmospheric Gothic MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790858   (67983) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Black & Gold Art Deco Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чёрно-золотые узоры в стиле арт-деко.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
 ```
 
 

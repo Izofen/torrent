@@ -1,3 +1,421 @@
+###  Публикация: 1726757   (108664) от 30.05.2024
+
+Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Electro, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108664.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bataillon D'Amour
+A2 Josef & Maria
+A3 Schlohweisser Tag
+A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New WaveПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726861   (108665) от 30.05.2024
+
+Anthony Phillips - Private Parts & Pieces XII: The Golden Hour (2024) ex-Genesis [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog, New Age>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wychmore Hill Suite I: Country Mile
+02. Wychmore Hill Suite II: Ring of Steel
+03. Wychmore Hill Suite III: Peaceful Land
+04. Wychmore Hill Suite IV: Jack the Lad(   Читать дальше...   )Жанр: Symphonic Prog, New AgeПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B3C969E15A49BB900F882096B12474542D683A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726826   (108666) от 30.05.2024
+
+Дарья Кузнецова | Змееловов больше нет (2021) [MP3, Ксения Большакова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий Змеелов мертв, орден повержен, мир оправляется от безумия гражданской войны. Наступившая зима заботливо укрывает землю снегом, пряча кровь и пепел, знаменуя начало новой жизни.
+
+Новую жизнь пытается начать и Норика Неро, старший офицер ордена, которую месть и ненависть к бывшим учителям привела на сторону их врага. Молодой король предложил ей возглавить школу, (   Читать дальше...   )Жанр: ФэнтезиИздательство: Литрес Паблишинг, АЛЬФА-КНИГАПродолжительность: 12:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3897E79FEFD5142E064E31157FACA0904E87C1EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726768   (108667) от 30.05.2024
+
+VA - Lounge Heaven, Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup, Evamaria Linnet - Faces (3:32)
+02. Weber & Weber - The Diamond Life (5:24)
+03. Eivissarts - Sunset Reflections (6:31)
+04. Peter Pearson - Nostalgie (5:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF52E025704D33FB0D5C19F1DE35CADEFD87573E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726799   (108668) от 30.05.2024
+
+Евгения Михайлова | Жажда расплаты (2024) [MP3, Елена Калиниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даша Смирнова – невероятная красавица, в которую влюбляются все мужчины. Но она выбрала своего коллегу Влада, хотя тот женат, а она замужем. Однажды жена Влада застала любовников вместе, и начался настоящий кошмар… Сотрудники фирмы, где работают Даша и Влад, в курсе их отношений. Знают они и о том, что во Влада отчаянно и безответно влюблена начальница Даши… Буря (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 06:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6483169509BB92EAEB6EF762E582BC95C5C884A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726713   (108669) от 30.05.2024
+
+Чингиз Абдуллаев | Дронго (Книга 61). Покушение на власть (Том 3): Объект власти (2024) [MP3, Татьяна Некрасова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дело о покушении на Президента России далеко еще не закончено, и специальный агент Дронго, сумевший предотвратить это преступление буквально в последний момент, снова вступает в рискованную игру. Потому что по-прежнему живы и по-прежнему скрываются от закона таинственные заказчики покушения, и по-прежнему ведет охоту исполнитель – гениальный киллер, не смирившийся (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЛитРес: чтецПродолжительность: 05:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFC683FC3C6F4F2AAE20FB12812A8B9B6EEA190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726761   (108670) от 30.05.2024
+
+VA - Uplifting Only Top 15: June 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JINGYAN - Yonshaku-dama (Intro Mix) [3:50]
+02. Illitheas - Catch The Sunrise (Extended Mix) [7:12]
+03. Mark Versluis & Emy Smith - Next To Me (Extended Mix) [7:31]
+04. Rowan Van Beckhoven - Return To Dust (Extended Mix) [8:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F865004AAA14624BA97A672E0CAAC3BE13AED09F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726466   (108671) от 29.05.2024
+
+Decortication - Necrolatry: A Morbid Worship (2023) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funeral Mask
+02. Begotten Of Pests
+03. Necrosadistic Desires
+04. Grotesque Impulse(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF2EE63B7FB25EC044FCF66818EFAE61860D0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726558   (108672) от 29.05.2024
+
+Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker's Mood [5:30]
+02. Broken Promises [4:27]
+03. Two Sleepy People [7:00]
+04. I'm Getting Sentimental over You [5:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB8DF37EA647CF8EA44B507502D8BC309905B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726556   (108673) от 29.05.2024
+
+The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Birdland [5:55]
+02. On the Street Where You Live [5:26]
+03. Let's [4:56]
+04. Taking Flight [7:21](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0811E679AB9AB01ED8E0DEF7F352C7A77691BB73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726635   (108674) от 29.05.2024
+
+Sun Ra - Excelsior Mill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Hiroshima [00:42:23]Жанр: JazzПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990EA97BDCA6B1128F5CD2C37356032BD68D801E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726601   (108675) от 29.05.2024
+
+Зёрна | Блаженная Любовь Рязанская (2006) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является дополненным переизданием брошюры “Блаженная Любовь Рязанская”, выпущенной под редакцией митрополита Симона (Новикова) в 2001 году.
+
+Настоящее издание содержит точные, документально подтвержденные даты рождения и кончины, места рождения и крещения, архивные данные о составе семьи и местах проживания блж. Любови Рязанской (Любови Семеновны Сухановской).Жанр: ПравославиеИздательство: ЗёрнаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF508765A13FC2011A0BBB01491431F1FCF09332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726413   (108676) от 29.05.2024
+
+VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Islands in Tranquility (5:06)
+02. Chillaxing Jazz Kollektion - Wherever I Go (4:19)
+03. Konstantin Klashtorni - Together Again (4:07)
+04. Chillaxonic - Quintessence (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD82EBEC01BA90EE01C6AAC4952568348EF242A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726594   (108677) от 29.05.2024
+
+Благовест | Акафистник в душевных болезнях «Помощь и защита» (2018) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафистник в душевных болезнях «Помощь и защита» содержит акафисты Пресвятой Богородице в честь Ее икон «Неупиваемая Чаша», «Утоли моя печали», «Отрада» («Утешение»), «Умягчение злых сердец», «Всех скорбящих Радость» и святым – великомученице Анастасии Узорешительнице, святителю Тихону Задонскому, мученику Вонифатию, Алексию человеку Божию, священномученику Киприану (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE5A36E9FE334DE90BC1E64DE498480F23689DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726347   (108678) от 29.05.2024
+
+Pleasurekraft - On Growth and Form (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Optimist [00:06:48]
+02. Ritual [00:07:00]
+03. Umbilicis Universalis [00:05:56]
+04. Fear [00:06:45](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961EBEAFD072A8BE1BF5D15BC638CC1B994C07BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726378   (108679) от 29.05.2024
+
+Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revenge (6:16)
+02. The Captain's Chair (7:22)
+03. Stringman Blues (3:45)
+04. What Went Wrong (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7448B96FD4CABAECB2956BBD224C8FBC78EC6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726705   (108680) от 29.05.2024
 
 7he Myriads - Planetarium (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Indie, Space Rock>
@@ -263,430 +681,6 @@ VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC9E45030351DED6912692A664F7D72E26405FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726599   (108690) от 29.05.2024
-
-Зёрна | Благоверный князь Роман Рязанский (2019) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108690.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной брошюре представлены житие святого благоверного князя Романа Рязанского, акафист (для келейного чтения), а также молитвы святому.Жанр: ПравославиеИздательство: ЗёрнаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013A7992BCC542D837DA9940399179280C74BDD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726506   (108691) от 29.05.2024
-
-Dead Head - Kill Division (1999) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill Division
-02. old Being
-03. Waste Of Skin
-04. Six(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7200E41EF8636B8D65658E173D23BAD3A2B432DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726559   (108692) от 29.05.2024
-
-Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willis [3:41]
-02. O.W. [2:20]
-03. Praise the Lord [2:13]
-04. Old Time Spiritual [1:14](   Читать дальше...   )Жанр: Bop, Soul-Jazz, Piano JazzПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0D1949839B3075BD84B6570CFD40156F08EFBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726492   (108693) от 29.05.2024
-
-Celestial Season - Mysterium III (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, doomdeath>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fecund Universe [00:06:16]
-02. Black Goat Of The Woods [00:04:34]
-03. Empty Corridors [00:04:54]
-04. Daughter Of The Lake [00:03:41](   Читать дальше...   )Жанр: doommetal, doomdeathПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CA3A1DD5EDA9A352D03FA251B479465AF26B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726687   (108694) от 29.05.2024
-
-Eliza Neals - Colorcrimes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heal This Land (2:42)
-02. Banned In Jackson (3:40)
-03. Colorcrimes (5:08)
-04. Something's Better Than Nothing (3:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B149EB3B45AD5B6DEF7146EB9F413D3C9F814751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726552   (108695) от 29.05.2024
-
-VA - Footsteps On The Dancefloor, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4brownbottles - My Memories (02:57)
-02. VarZet - Flashback (Extended Mix) (02:52)
-03. Narra - Bodyrock (04:52)
-04. MVRTK, Zeead & Leon3s - Your Love (02:12)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EF801ACC93317DE3E84096156A463F250C3768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726398   (108696) от 29.05.2024
-
-VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Belleto - Hope (3:49)
-02. Stuart Fischer - Time After Time (4:02)
-03. Doyle McCarthy - Falling Leaves (4:01)
-04. Zoltan Swanson - Sweet Sadness (3:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42726AB5494EA6A759B47F8EC01A2A93817B083E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726628   (108697) от 29.05.2024
-
-НХЛ. Кубок Стэнли 2024. Восток - Финал. 4-й матч. Нью-Йорк Рейнджерс - Флорида Пантерз (28.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108697.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 мая 2024, среда. 03:00 МСК. Финал - Восток. 4-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 754 зрителя (102% при вместимости 19 434)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081B76D82F5778461580F1D1CFCCE07DD551FF11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726644   (108698) от 29.05.2024
-
-Cosmo's Midnight - Stop Thinking Start Feeling (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synth-pop, Dance-pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telephone [00:03:28]
-02. Fantasy [00:03:32]
-03. Borrowed Time [00:03:13]
-04. Two Kinds [00:02:59](   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CADF407DB3EF54DE4D8DEECACCC1A4B7879253A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726416   (108699) от 29.05.2024
-
-VA - Modern Rock New Anthems (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MIKE SHINODA - In My Head (2:52)
-02. Meet Me @ The Altar - Say It (To My Face) (2:39)
-03. Theory Of A Deadman - Dinosaur (3:48)
-04. White Reaper - Fog Machine (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF08083CED7020CE96B710419DCB59AD37186F95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726614   (108700) от 29.05.2024
-
-Radio Slave - Venti (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strobe Queen [00:05:11]
-02. Wait A Minute [00:04:24]
-03. Can't Get You [00:04:11]
-04. Wild Life [00:05:49](   Читать дальше...   )Жанр: HouseПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920A7D981A3FED9378F59F2007FD046C5C3BF23F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726500   (108701) от 29.05.2024
-
-Night Sins - A Silver Blade In The Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, new wave, post punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lowest Places You'll Go [00:03:47]
-02. Silver Blade [00:03:36]
-03. Burn Away [00:03:57]
-04. Like A Stranger [00:03:57](   Читать дальше...   )Жанр: industrial, new wave, post punkПродолжительность: 00:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BD0BF8E0AFDFA179F2A23E08964E10E664C9F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726380   (108702) от 29.05.2024
-
-Hell Riders - Rising Phoenix (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Moon Trucker [00:04:27]
-02 - Cyber Machine [00:05:51]
-03 - Cartomancer [00:05:02]
-04 - Ritual of Scales [00:05:51](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723432CBAA3427DE720A2B0AE8F27A264928A583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726377   (108703) от 29.05.2024
-
-Kalad - Arkamine (2024) [MP3|320 Kbps] <Modern Metal, Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Arkamine [00:01:34]
-02 - Inner Tide [00:04:11]
-03 - After the Storm [00:03:57]
-04 - Shipwreck [00:03:33](   Читать дальше...   )Жанр: Modern Metal, Symphonic Metal, Female VocalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC76E0BE5ACE5DB58B6FE92462D03D3400137559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726634   (108704) от 29.05.2024
-
-Karfagen - Land of Chameleons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land of Chameleons [00:04:51]
-02. Agora by Day [00:10:04]
-03. My Shadow [00:07:49]
-04. Dios Pyros, Pt. 2 [00:03:02](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D244006D90981048D9ACED718DF9A7E8D2D33C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726596   (108705) от 29.05.2024
-
-Сатисъ | Акафистник православной семьи (2001) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья – святое пристанище, частичка Царства Божия на земле, и поэтому так необходимо и важно, чтобы в наших семьях возрастали любовь, взаимоуважение, мир и благополучие. А для того, чтобы не в одиночку слабому человеку бороться с приходящими скорбями, Господь даровал ему помощников – святых небесных заступников. Обращаясь к ним в особых песнопениях – акафистах, вы (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BCEF38B33BE16CEACB3EEDB6245AFE0B0DA992
 ```
 
 

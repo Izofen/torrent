@@ -1,3 +1,128 @@
+###  Публикация: 1577327   (207724) от 18.09.2022
+
+Стивен Скиена | Алгоритмы. Руководство по разработке. 3-е изд (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является наиболее полным руководством по разработке эффективных алгоритмов. Первая часть книги содержит практические рекомендации по разработке алгоритмов: приводятся основные понятия, дается анализ алгоритмов, рассматриваются типы структур данных, основные алгоритмы сортировки, операции обхода графов и алгоритмы для работы со взвешенными графами, примеры использования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A57A4C180F760F65A3166C156BE19EBE43732F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576197   (207728) от 18.09.2022
+
+Спарк Флоу | Занимайся хакингом как невидимка (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучитесь секретным навыкам Спарка Флоу, проникающего в самые отдаленные уголки облачных инфраструктур. Наблюдайте за каждым его шагом, от разведки до проникновения, когда он атакует политическую консалтинговую фирму, собирающую данные избирателей. Цель вымышленная, но уязвимости взяты из реальной жизни. Испытайте вместе с ним всю гамму ощущений настоящего хакера (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405795801912790E04E0CDF9C19CED154B5F33D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577397   (207764) от 18.09.2022
+
+John M. Blain | Blender 2D Animation: The Complete Guide to the Grease Pencil (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grease Pencil - это компонент программы 3D-моделирования и анимации Blender.
+Blender - это бесплатный набор инструментов для 3D-компьютерной графики с открытым исходным кодом, используемый для создания анимационных фильмов, визуальных эффектов, 3D-моделей для 3D-печати, моушин графики, интерактивных 3D-приложений, виртуальной реальности и компьютерных игр.
+
+В этой (   Читать дальше...   )Жанр: 2D анимацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242B81F3AF120C8A62412037EE9E7EFE3F72C180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610735   (207904) от 08.02.2023
+
+Benjamin Evans, Jason Clark, Martijn Verburg | The Well-Grounded Java Developer, Second Edition (2022) [PDF] [Ebook & Video Edition] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207904.jpg" />
+</div>
+
+
+###  Подробнее
+
+This is the video edition of the book from manning, of course compressed (so not 2.5GB but a lot less, around 600mb or so), I have also included the pdf book as well for fun (also in compressed form). The videos' total length are around 20hrs. Source is on github, attached as an extra resource.
+
+Understanding Java from the JVM up gives you a solid foundation to grow (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75F153F62EB1B8D1FCC4A1AD4500E3906BD4E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576664   (208007) от 15.09.2022
+
+John Canning и др. | Структуры данных и алгоритмы на Python (2023) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_208007.jpg" />
+</div>
+
+
+###  Подробнее
+
+This practical introduction to data structures and algorithms can help every programmer who wants to write more efficient software. Building on Robert Lafore’s legendary Java-based guide, this book helps you understand exactly how data structures and algorithms operate. You’ll learn how to efficiently apply them with the enormously popular Python language and scale (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986DFD356BD1747E842C0B30213B3D4681D700E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610210   (208080) от 06.02.2023
 
 Maximilian Schwarzmüller | React Key Concepts: Consolidate your knowledge of React’s core features, 1st Edition (2022) [PDF] [EN]
@@ -512,126 +637,6 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585100   (211857) от 20.10.2022
-
-Dimitrios Xanthidis и др.| Handbook of Computer Programming with Python (2023) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_211857.jpg" />
-</div>
-
-
-###  Подробнее
-
-This handbook provides a hands-on experience based on the underlying topics, and assists students and faculty members in developing their algorithmic thought process and programs for given computational problems. It can also be used by professionals who possess the necessary theoretical and computational thinking background but are presently making their transition (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B700030FADCAC6291808DBC0D4C1CDBE9C2A103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565838   (212012) от 25.07.2022
-
-Андреас Антонопулос, Гэвин Вуд | Осваиваем Ethereum. Создание смарт-контрактов и децентрализованных приложений (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_212012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ethereum — окно в мир всемирных децентрализованных вычислений. Эта платформа позволяет реализовывать децентрализованные приложения (DApps) и смарт-контракты без центральных точек доступа или контроля, интегрироваться с платежной сетью и работать с открытым блокчейном. В этом практическом пособии Андреас Антонопулос и Гэвин Вуд дают всю информацию, необходимую для (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C7B970DAA0F3DBC427DFE35DC8433C0A172C5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831496   (212135) от 28.10.2025
-
-Саймон Монк | Raspberry Pi. Сборник рецептов. Решение программных и аппаратных задач [2 книги] (2023, 2025) [PDF] [RU, EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_212135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит более 200 рецептов по работе с микрокомпьютером Raspberry Pi, рассматривающих как программные, так и аппаратные задачи. Показана установка и настройка операционной системы для Raspberry Pi, подключение датчиков и двигателей, способы интеграции Raspberry Pi в систему умного дома и сеть Интернета вещей. Рассмотрен язык Python в контексте программирования (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М. РайтманЯзык: Русский, английскийИздательство: O’Reilly Media, АЛИСТФормат: PDFКачество: Обработанный скан, Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5DBEBEB9CC2A2B39F1F9E54BA42F6FCFCB8736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831020   (212157) от 28.10.2025
-
-Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_212157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы сделать первые шаги в мире программирования? Независимо от того, новичок вы или хотите расширить свой набор инструментов для программирования, этот экспресс-курс по Python поможет вам в кратчайшие сроки начать писать настоящие программы. Следуйте пошаговому руководству, чтобы освоить основные элементы Python: от переменных и циклов до типов данных, функций (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827814A96E2FE855FCCF9B49F1F07064516EA123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831405   (212159) от 28.10.2025
-
-Marcelo Rovai | Edge AI Engineering: Hands-on with the Raspberry Pi (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_212159.jpg" />
-</div>
-
-
-###  Подробнее
-
-In the rapidly evolving landscape of technology, the convergence of Artificial Intelligence (AI) and Edge Computing stands as one of the most exciting frontiers. This intersection promises to revolutionize how we interact with the world around us, bringing intelligence and decision-making capabilities directly to the devices we use every day. At the heart of this (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: UNIFEIФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4795FFDDB9EDE4090EAC25DF9DF7E83D9074D2
 ```
 
 

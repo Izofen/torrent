@@ -1,3 +1,57 @@
+###  Публикация: 1770142   (32409) от 31.12.2024
+
+JJ Cale - Compilation (1971-2019) [MP3|320 Kbps] <Blues, Country rock, Tulsa sound>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight (Naturally 1971)
+02. Anyway The Wind Blows (Okie 1974)
+03. Bringing It Back (Naturally 1971)
+04. Cajun Moon (Okie 1974)(   Читать дальше...   )Жанр: Blues, Country rock, Tulsa soundПродолжительность: 04:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FFD5A4EEE6972EB58ED6DC196C30ACC2E4DBA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770292   (32410) от 31.12.2024
+
+Cosmic Ally - Twin Sun (2005) [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just A Dream
+02. Paranoid
+03. Twin Sun (Novan K's Club Mix)
+04. Cloudy Perfume In The Wind(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7680C3AC11C40E701800DBEAC30CBC80EBC930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770384   (32411) от 31.12.2024
 
 QOwnNotes 25.1.0 Portable [Multi/Ru]
@@ -575,54 +629,6 @@ magnet:?xt=urn:btih:DEAF4E5D2FD8933E92E2BB0ED266F93E6EEF92E8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01F7E05698F3EEC4F990B4A94C81AE1E4B01A922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770373   (32435) от 31.12.2024
-
-Topaz Photo AI 3.4.3 RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_32435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDD7318D772E3B7650F093D4ACAF6A7DC020FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770246   (32436) от 31.12.2024
-
-AIMP 5.40.2653 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_32436.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60595449D90ECCEDBC386F4D1D64AC2A50E77FF7
 ```
 
 

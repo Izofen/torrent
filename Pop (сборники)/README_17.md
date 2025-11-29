@@ -679,28 +679,28 @@ magnet:?xt=urn:btih:3520FA273D872422CA94ADF0F0E5CC6CBBB0CEA3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425637   (218469) от 22.11.2020
+###  Публикация: 1269585   (216089) от 17.12.2018
 
-VA - National Pop Dance Music Vol.09 (2020) [MP3|320 Kbps] <Pop, Dance>
+VA - German Top 100 Single Charts 14.12.2018 (2018) [MP3|320 Kbps] <Pop, Hip-Hop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_218469.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Irama - Mediterranea
-002. Ava Max - Who's Laughing Now
-003. Chocolate Spoon - Sunglasses At Night
-004. Karol G & Nicki Minaj - Tusa(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:43:24
+001. Ava Max - Sweet but Psycho
+002. Sido - Tausend Tattoos
+003. Mero - Baller los
+004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Hip-Hop, DanceПродолжительность: 05:37:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3DE8311E304917BD08507E130C74BEF8E376E37
+magnet:?xt=urn:btih:6B36F120502F2EC4E981D4C52B862650759C7D1C
 ```
 
 

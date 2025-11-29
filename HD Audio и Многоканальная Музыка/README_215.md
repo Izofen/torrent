@@ -1,3 +1,163 @@
+###  Публикация: 1150283   (237946) от 02.05.2022
+
+Валерий Леонтьев - Песни Раймонда Паулса (1984, 1986) 2LP Reissue [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237946.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Гиподинамия · Hypodynamics
+A2 Притяжение Любви · Attraction Of Love
+A3 Три Минуты · Three Minutes
+A4 Карусель · Merry-Go-Round(   Читать дальше...   )Жанр: Pop, Soul, DiscoПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629316   (238010) от 26.04.2023
+
+Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238010.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Follow Me 3:50
+2 Gold 3:45
+3 Mother, Look What They've Done To Me 4:32
+4 Run Baby Run 3:45(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F15FCE05947CEDCDFFCB69B6DD35338D1DDD1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628932   (238121) от 25.04.2023
+
+Carl Perkins/Карл Перкинс - Лучшее из репертуара Карла Перкинса (1991) Unofficial Release, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rockabilly>р
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238121.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Синие Замшевые Башмаки • Blue Suede Shoes
+A2 Спичечный Коробок • Matchbox
+A3 Играя Блюз • Boppin' The Blues
+A4 Нет, Милая • Honey Don't(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC453BD8D98812CFC57FED895639A0436360367C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122096   (238151) от 01.05.2022
+
+VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Майя Кристалинская - Снег Идёт (из к.ф ''Карьера Димы Горина''')
+02. Оркестр - Медленный Фокстрот (из к.ф. ''Бессонная ночь'')
+03. Милан Хладил - Песня (из к.ф. ''Смерть в седле'')
+04. Инструментальный ансамбль - На Двенадцатой улице (из к.ф. ''Пилигрим'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385A9BCBA4B819EAD00B0348ED667D5DCFB3DE3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131204   (238228) от 30.04.2022
+
+VA - В Помощь Любителям Грамзаписи. Для Проверки Работы Воспроизводящих Устройств (1968, 1973) [2xLP] [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Field Recording, Technical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238228.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Кармен-Сюита. Вступление  (Проверка Правильности Сторон)
+A2 Дорога Вдаль (Проверка Баланса Каналов)
+A3 Босса-Нова (Проверка Полярности Громкоговорителей)
+A4 Бронепоезд 14-69(   Читать дальше...   )Жанр: Field Recording, Technical, Classical, Baroque,
+Romantic, Modern, Contemporary, Jazz, LatinПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8B783A92A7B1CB92854035CFDCC6B53FD27A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623834   (238237) от 03.04.2023
+
+Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CC70CBC07EEAA5ECF6641346C04DCD0DA694BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639342   (238268) от 13.06.2023
 
 Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
@@ -533,168 +693,6 @@ A3 Nummern 3:00
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572611   (238954) от 27.08.2022
-
-Europe - Дискография (14 albums) (1983-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_238954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
-1984 - Wings of Tomorrow
-1986 - The Final Countdown
-1988 - Out of This World(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638659   (238977) от 09.06.2023
-
-Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_238977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beseech — шведская готик-метал-группа из города Бурос, основанная в 1992 году, прекратившая существование в 2006 году и воссоединившаяся в конце 2013-го.1998 - ...From A Bleeding Heart
-2000 - Black Emotions
-2002 - Souls Highway
-2004 - DramaЖанр: Gothic MetalПродолжительность: 04:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636293   (239216) от 29.05.2023
-
-Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All We Have Is Now (3:40)
-02. I Don't Care (2:55)
-03. Estranged Fruit (3:40)
-04. Cubicle (2:49)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377807057B1E5E3B09C4CFFB907E7458C84EB9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063727   (239353) от 25.04.2022
-
-Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239353.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 She's A Lady
-A2 Do What You Gotta Do
-A3 In Dreams
-A4 Nothing Rhymed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF7D07A4FF897612C46534F2AF3883BE931A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627866   (239544) от 20.04.2023
-
-Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239544.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 La Habanera 5:10
-A2 Moon On Ice 4:12
-A3 Call It Love 5:05
-A4 Le Secret Farida 3:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059810   (239608) от 24.04.2022
-
-Пикник - Иероглиф (1987) Repress 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Goth Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остров
-02. Иероглиф
-03. Праздник
-04. Ты вся Из огня(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
 ```
 
 

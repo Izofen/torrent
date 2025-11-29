@@ -1,3 +1,57 @@
+###  Публикация: 1785408   (69308) от 15.03.2025
+
+Steve Postell - Walking Through These Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Weather (4:41)
+02.  Walking Through These Blues (5:37)
+03.  Buried Stone (5:06)
+04.  How Far We've Come (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493C5C90F1115B178C61F9890CFF13BE3ECCF679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785407   (69309) от 15.03.2025
+
+Shawn Pittman - My Journey (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Until The Time Is Right (5:07)
+02.  Damage Is Done (3:13)
+03.  Add It Up (4:20)
+04.  Heartbreak in East Dallas (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44615A7AE392D85FD6BFAF28B7FFF46FF3F5AA95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785310   (69310) от 15.03.2025
 
 Goo Goo Dolls - A Boy Named Goo (1995) 30th Anniversary Deluxe Edition, 2025, Warner Records[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock, Pop Rock>
@@ -626,60 +680,6 @@ Confidence Man - 4AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319A36DA14F5E20E93F95AB503A9706C27BBDFF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785412   (69334) от 15.03.2025
-
-Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Long-Distance Runner (3:57)
-02.  Captured In The Night (3:40)
-03.  Sleep Walk (3:50)
-04.  Learn To Love Again (5:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688CB34508C75185FB54705BE54BE744A1C52671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784248   (69335) от 15.03.2025
-
-Сергей Одинцов - Пусть не кончается любовь (2025) [MP3|320 Kbps] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А там, за тучами свет [00:03:59]
-02 - А ты танцуй, танцуй [00:04:04]
-03 - Всё так же, как тогда [00:03:23]
-04 - Ну как же я хочу [00:03:16](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB116EF87FA13CFFF348BAEE86E6041523F62458
 ```
 
 

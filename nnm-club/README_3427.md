@@ -1,3 +1,423 @@
+###  Публикация: 1726426   (108768) от 28.05.2024
+
+Smart AudioBook Player 10.9.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart AudioBook Player - отличное приложение для всех поклонников прослушивания аудиокниг и всех прочих форм записей. Пользователи получают серьёзный функционал в минималистичном дизайне. Простое управление не создаст ни каких проблем при взаимодействии с программой, а разные полезные качества добавляют положительных впечатлений. Например, если человек, использующий (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24.05.2024Разработчик: Books SoftwareПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC82DA5CDD374A5AF6A4BB13D12A1DF01B59F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726436   (108769) от 28.05.2024
+
+Chromium 125.0.6422.113 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC35DEAC922A360C15BCB5D85EBF066EFE71F45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726399   (108770) от 28.05.2024
+
+Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108770.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book contains not only questions but also activities including, role-plays, board games, discussions and much more designed to get your students speaking effortlessly. Lessons are best suited to lower intermediate to advance level learners. Features:
+Instant lessons. Print and go type lessons inside.
+Easy to follow lessons.
+Online access- FREE Downloadable worksheets (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726376   (108771) от 28.05.2024
+
+Firefox Browser 126.0.1 (x86/x64) Portable by 7997 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E0F3A60724C29D062ABD2B0923D1EC7987E7AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726423   (108772) от 28.05.2024
+
+Журнал | Золотые рецепты наших читателей №10 (356) (май 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974D1D693E86D9C577991A9BE8C08403AF003A01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726076   (108773) от 27.05.2024
+
+Lorne Lofsky - Lorne Lofsky (1992) Jazz Inspiration [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All of You [6:30]
+02. My Foolish Heart [7:14]
+03. Highway 9 [5:55]
+04. Marion Kind [5:19](   Читать дальше...   )Жанр: Cool, Post-Bop, Guitar JazzПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DC9647AC7EA02ADBECDDDC5CE9461AD8DC2B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726066   (108774) от 27.05.2024
+
+Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108774.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 If I Had A Boat
+A2 Give Me Back My Heart
+A3 I Loved You Yesterday
+A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726263   (108775) от 27.05.2024
+
+Tezza F - Key To Your Kingdom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108775.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The Fire Still Burns (05:04)
+2 - Voices (04:57)
+3 - Dead Roses (05:26)
+4 - Key To Your Kingdom (05:31)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B502685FEAA4C20934FE68AA37CCDE98DF36D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726071   (108776) от 27.05.2024
+
+Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Pork Pie Hat [8:06]
+02. Sunspots [6:14]
+03. Firm Roots [4:33]
+04. Monk's Mood [5:53](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CBE251B391101321A6900AE8F4F9013FC3346C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725967   (108777) от 27.05.2024
+
+Wizzard - Back and Alive (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer on the Loose (Live) [00:05:00]
+02. In My Dreams (Live) [00:05:12]
+03. Let the Demon Fly (Live) [00:05:02]
+04. Head over Heels (Live) [00:05:28](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE6674B6A814EAC9AD9FF4FE67F8C760E38CF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725815   (108778) от 27.05.2024
+
+Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Degrees [11:00]
+02. Scorpian Dance [8:24]
+03. Alfie [5:35]
+04. Out of Bounds [8:02](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A19732DA6050FE3D4F80690CB466A9434C154D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726010   (108779) от 27.05.2024
+
+Cypecore - Take the Consequence (2010) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Values of Life
+03. The Lie of Redemption
+04. The Balance(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01265D636DA87CAE03689B779E006B319A0F6263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725999   (108780) от 27.05.2024
+
+Dawn of Perception - Fragments (2005) Demo [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken
+02. Final Prayer
+03. Storm Inside The Hourglass
+04. Fall(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3665E537E14DB8DA713A676E04B7C897BB34EBDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726018   (108781) от 27.05.2024
+
+Cypecore - Identity (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Saint of Zion
+03. Where the World Makes Sense
+04. My Confession(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96330340E12DF874EC9839EF44CFC1871AE11E08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726262   (108782) от 27.05.2024
+
+Dead Head - Dream Deceiver (1993) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Heart
+02. House Of Ambience
+03. Repulsive Emmision
+04. Unholy(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F73B87C90DF59792032B30A1CE81ECC1D64FC9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726220   (108783) от 27.05.2024
+
+Vlado Grizelj - Purple Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First One (7:01)
+02. Wanna Dance? (6:50)
+03. Bring It On (5:25)
+04. Purple Sky (5:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47109A908EE9069AFC28653CFE234E88FE6D45F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726160   (108784) от 27.05.2024
 
 Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
@@ -260,433 +680,6 @@ The Boxx Orchestra - The Horn of Plenty (2024) [FLAC 24/48|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAFC923CCAE2BDF03E08DA0C0EAE239575F30E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726139   (108794) от 27.05.2024
-
-Paula Atherton - Dancin' Shoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baila (4:11)
-02. Inside Out and Backwards (4:14)
-03. Keep It Comin' (4:05)
-04. Give Me a Reason (5:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33880E38AEE180459438A8727D08C00E8190AFC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726146   (108795) от 27.05.2024
-
-Randy Scott - Oasis (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fixation (4:10)
-02. Twilight (4:34)
-03. Glow (4:56)
-04. Oasis (3:40)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A759ECA354ADC99866F653FE70C02C2EFDFFCF75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726021   (108796) от 27.05.2024
-
-VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Speed Metal, Heavy Metal, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108796.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Heretic - Impulse
-A2 - Sentinel Beast - Sentinel Beast
-A3 - Flotsam And Jetsam - I Live, You Die
-A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Speed Metal, Heavy Metal, HardcoreПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726217   (108797) от 27.05.2024
-
-Pau Casares - Sobretaula a casa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Grow Too Old To Dream (5:17)
-02. Status Quo (5:19)
-03. Goin' On (4:48)
-04. Ain't Misbehavin' (4:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D394E5CEB235576D8F3C362E943592496FBA320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726154   (108798) от 27.05.2024
-
-dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do you need a ring (3:01)
-02. Laissez le bon temps rouler (3:33)
-03. Too fast (2:32)
-04. Show me Suzanne (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F930958DDF56EF2B92A4CA73DE3DF77CC3C28FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725813   (108799) от 27.05.2024
-
-Roy Eldridge - Little Jazz & The Jimmy Ryan All-Stars (1975) 2001, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between the Devil and the Deep Blue Sea [2:51]
-02. St. James Infirmary [5:20]
-03. Beale Street Blues [5:11]
-04. Black and Blue [4:55](   Читать дальше...   )Жанр: SwingПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CDDE0E335BEC181C853944556D66341CBFC0F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726240   (108800) от 27.05.2024
-
-Spike Wilner Trio - Contrafactus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At First Blush (7:44)
-02. Contrafactus (5:12)
-03. Kinetic Neurosis (3:27)
-04. Ants Go Marching (6:37)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F5FC8AB2BB0EAEE7276F2E201190155F13B020
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726019   (108801) от 27.05.2024
-
-Cypecore - The Alliance (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Alliance
-03. Dissatisfactory
-04. Dreamsmasher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D13690B42EC45891626E7B50B7C593F5940F177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726114   (108802) от 27.05.2024
-
-Andralls - Universal Collapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross Of Shame
-02. How Many Lives I Need To Die
-03. Escape From The Traps
-04. Dead Consumers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE57230E530B0001848D32225EB21D3AB450167
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726189   (108803) от 27.05.2024
-
-Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock, Heavy Metal, Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemmy & The Upsetters – Paradise (The Brains Mix) 02:46
-02. Motörhead – Keep Us On The Road (Live) (The Brains Mix) 03:14
-03. Larry Wallis – Police Car ( Re-Recorded) (2023 Mix) 03:25
-04. Pink Fairies – Lone Wolf 03:06(   Читать дальше...   )Жанр: Hard Rock, Rock, Heavy Metal, Rock and RollПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F8E2FBE1E38DF87D31448BBCF073C132849849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726124   (108804) от 27.05.2024
-
-НХЛ. Кубок Стэнли 2024. Восток - Финал. 3-й матч. Нью-Йорк Рейнджерс - Флорида Пантерз (26.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108804.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 мая 2024, воскресенье. 22:00 МСК. Финал - Восток. 3-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 780 зрителей (102% при вместимости 19 434)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E49BB5C43C3E59512025101DAE4E92441565B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726260   (108805) от 27.05.2024
-
-Sequoia Grove - Tales from Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Folk, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dragon and the Farmer [00:10:54]
-02. Ice Giant Gierrod, Pt. 1: Gierrod Is My Name [00:04:36]
-03. Ice Giant Gierrod, Pt. 2: Gierrod's Revenge [00:06:28]
-04. Ice Giant Gierrod, Pt. 3: Gierrod's Demise [00:06:26](   Читать дальше...   )Жанр: Pagan, Folk, Symphonic MetalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65CC44B6E3A227785D9FB5820B673D1862263D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726246   (108806) от 27.05.2024
-
-VA - Love Making Music (Sensual Saxophone Jazz) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Neve - Pretty Woman (4:56)
-02. Jan Henlich - Night in Montreal (4:31)
-03. Charlie Neve - Unforgettable (4:14)
-04. Tom Cray - April in Paris (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60A601FA851E07034E81D41CF42D6097E810DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726080   (108807) от 27.05.2024
-
-Митрополит Стефан (Яворский) | Камень веры Православно-Кафолической Восточной Церкви (2010) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108807.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Камень веры» – полное систематическое изложение Православного вероучения. Книга была написана в 1718 году выдающимся церковным и государственным деятелем Петровских времен Митрополитом Стефаном Яворским (1658–1722) в защиту Православия, «Православным сынам Святой Церкви на утверждение и духовное созидание, претыкающимся же о камень – на восстание и исправление» (   Читать дальше...   )Жанр: ПравославиеИздательство: Общество памяти игумении ТаисииФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C53056D1BED1890A21AE926E8DE3DC1C10CD01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726242   (108808) от 27.05.2024
-
-Studying Music Group, Instrumental Music Ensemble - 2024 Relaxing Saxophone for Studying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlit Pages (3:42)
-02. Fireside Reflections (3:36)
-03. Literary Groove (4:16)
-04. Candlelit Conversations (3:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61A01EC4EA3DFB89A328F4B114B754D0D3FE4AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726228   (108809) от 27.05.2024
-
-Smooth Jazz Music Ensemble, Jazz Sax Lounge Collection, Restaurant Jazz Music Collection - Night Saxophone Jazz in The City: Cozy Bar Ambience for Relax, Good Mood (2024) [FLAC 24/48|Lossless|WEB-D ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Lights Lullaby (3:08)
-02. Restaurant Jazz Music Collection - Downtown Dreaming (3:24)
-03. Jazz Sax Lounge Collection - Jazz Club Comfort (2:59)
-04. Saxophone Street Serenade (3:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD63CAB5E10ABA9183DDF2587387EFA855CA37FF
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1787283   (68762) от 26.03.2025
+
+Sundenrausch - Original Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Hard Rock, Alternative Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dawn Of Time [1:02]
+02 - Red Sun [3:46]
+03 - Trapped In Limbo [4:08]
+04 - Original Sin [4:05](   Читать дальше...   )Жанр: Gothic Metal, Hard Rock, Alternative Rock, MetalПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25D097F8C2AF5F51A67D08B06782743638FD501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787689   (68763) от 26.03.2025
+
+The Smoothies - We Can Change The Past (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  We Can Change The Past (3:33)
+02.  Don't Change a Thing (3:34)
+03.  Springtime Song (3:34)
+04.  It's Raining in Rome (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C03E1DA14D352FF7CE7068EEC9BB340174D1F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787591   (68764) от 26.03.2025
 
 Шрифты - MyFonts - Fliper [OTF, TTF]
@@ -617,60 +671,6 @@ The Sun Or The Moon - Into The Light (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB073E499DF3FFE4D860B52058204933167E6B59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787326   (68788) от 25.03.2025
-
-UMC - CHAPTER 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Never Be Like You [4:10]
-02 - MONEY ON THE DASH [2:24]
-03 - GIMME LOVE [3:15]
-04 - GREEDY [2:13](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A54C5A279879BFC346100C69679CB134DA57F6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787510   (68789) от 25.03.2025
-
-Riot V - Armor Of Light (2018) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68789.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Victory
-02. End of the World
-03. Messiah(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2074C7D325B6C253BACC0A211A90263A611CAB5
 ```
 
 

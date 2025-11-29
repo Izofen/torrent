@@ -1,3 +1,35 @@
+###  Публикация: 445246   (73635) от 02.02.2012
+
+Les Friction - Les Friction (2012) [FLAC|Lossless]<Alternative Rock, Neo-Classical, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Louder Than Words (4:44)
+ 2. Torture (5:03)
+ 3. What You Need (3:31)
+ 4. Here Comes the Reign (3:48)
+ 5. World on Fire (3:51)
+ 6. Save Your Life (3:09)
+ 7. Sunday (3:36)
+ 8. String Theory (4:07)
+ 9. Come Back to Me (3:52)Жанр: Alternative Rock, Neo-Classical, Symphonic RockПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449950   (75211) от 10.02.2012
 
 Bleeding Through - The Great Fire (2012) [FLAC|Lossless]<Symphonic Metalcore / Hardcore>
@@ -64,6 +96,204 @@ Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, 
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460542   (79422) от 01.03.2012
+
+No Doubt - Icon (2010) [FLAC|Lossless]<New Wave, Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Just A Girl
+02. It's My Life
+03. Hey Baby (Featuring Bounty Killer)
+04. Bathwater
+05. Sunday Morning
+06. Hella Good
+07. New
+08. Underneath It All (Featuring Lady Saw)
+09. Excuse Me Mr.
+10. Running(   Читать дальше...   )Жанр: New Wave, Alternative Rock, Pop-RockПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461521   (79775) от 03.03.2012
+
+Florence & The Machine - Ceremonials (Deluxe Edition) (2011) [FLAC|Lossless]<Alternative, Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Only If for a Night (4:58)
+02. Shake It Out (4:37)
+03. What the Water Gave Me (5:33)
+04. Never Let Me Go (4:30)
+05. Breaking Down (3:49)
+06. Lover to Lover (4:02)
+07. No Light, No Light (4:34)
+08. Seven Devils (5:03)
+09. Heartlines (5:01)(   Читать дальше...   )Жанр: Alternative, Rock, SoulПродолжительность: 01:01:04 + 00:33:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462762   (79958) от 04.03.2012
+
+Anneke van Giersbergen - Everything Is Changing (2012) [FLAC|Lossless]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Alive (3:38)
+02. You Want To Be Free (3:23)
+03. Everything Is Changing (3:18)
+04. Take Me Home (3:23)
+05. I Wake Up (3:30)
+06. Circles (4:01)
+07. My Boy (4:15)
+08. Stay (4:09)
+09. Hope, Pray, Dance, Play (3:20)
+10. Slow Me Down (2:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463295   (80767) от 08.03.2012
+
+Florence + The Machine - Between Two Lungs (2 CD) (2010) [FLAC|Lossless]<Pop Rock, Ethereal, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy In Your Arms :: 04:47
+02. You've Got The Dirtee Love :: 03:41
+03. Hurricane Drunk (The Horrors Remix) :: 05:45
+04. Strangeness & Charm (Live From Hammersmith Apollo) :: 05:49
+05. Swimming (Live From Hammersmith Apollo) :: 03:31
+06. Dog Days Are Over (Yeasayer Remix) :: 04:15
+07. Drumming Song (Acoustic iTunes Festival 2010) :: 04:41
+08. Girl With One Eye (Acoustic iTunes Festival 2010) :: 03:49
+09. Hurricane Drunk (Acoustic iTunes Festival 2010) :: 03:33
+10. Dog Days Are Over (Acoustic iTunes Festival 2010) :: 04:15(   Читать дальше...   )Жанр: Pop Rock, Ethereal, Indie Rock      |Формат: 2 × CD, AlbumПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466687   (81596) от 12.03.2012
+
+Cat Power - The Covers Record (2000) [FLAC|Lossless]<Acoustic, Lo-Fi, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  (I Can't Get No) Satisfaction :: 03:05
+02.  Kingsport Town :: 04:54
+03.  Troubled Waters :: 03:29
+04.  Naked If I Want To :: 02:47
+05.  Sweedeedee :: 03:53
+06.  In This Hole :: 04:26
+07.  I Found A Reason :: 02:00
+08.  Wild Is The Wind :: 04:10
+09.  Red Apples :: 04:24
+10.  Paths of Victory :: 03:24(   Читать дальше...   )2000Жанр: Acoustic, Lo-Fi, Indie RockФормат: CD, AlbumПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473386   (84333) от 25.03.2012
+
+Fun. - Some Nights (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Some Nights Intro [02:17]
+02. Some Nights [04:37]
+03. We Are Young (Feat. Janelle Monae) [04:10]
+04. Carry On [04:40]
+05. It Gets Better [03:36]
+06. Why Am I The One [04:46]
+07. All Alone [03:05]
+08. All Alright [03:59]
+09. One Foot [03:31]
+10. Stars [06:54](   Читать дальше...   )Жанр: Pop Rock, Indie RockФормат: CD, AlbumПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473194   (84389) от 25.03.2012
 
 Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
@@ -97,6 +327,74 @@ Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474550   (85127) от 29.03.2012
+
+My Darkest Days - Sick and Twisted Affair (2012) [FLAC|Lossless]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+My Darkest Days — канадская рок-группа из Торонто. Были замечены Чедом Крюгером, который пригласил их к сотрудничеству с компанией 604 Records. В июне 2010 года группа отправилась в тур с Sick Puppies, Янус, и It’s Alive,(   Читать дальше...   )01. Sick and Twisted Affair (3:39)
+02. Save Yourself (3:41)
+03. Casual Sex (3:14)
+04. Stutter (2:43)
+05. Nature of the Beast (3:01)
+06. Perfect (3:49)
+07. Again (3:36)
+08. Gone (3:31)
+09. Love Crime (2:59)
+10. Rolling Stoned (Bonus Track) (3:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CF356F38B283369279A3788B501675E295B977
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477534   (86202) от 03.04.2012
+
+Poets Of The Fall - Temple Of Thought (2012) [FLAC|Lossless]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Poets of the Fall  — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Она образовалась в Хельсинки в 2003 году. Группа завоевала множество значимых наград в родной стране (включая 2 премии Emma-gaala — финского аналога Grammy), победила в номинации «Лучший финский исполнитель» на MTV Europe Music Awards в 2006 году, а клип на песню «Carnival of Rust» был признан телезрителями «Лучшим клипом Финляндии всех времён».
+
+Оф. сайт группы01. Running Out Of Time (3:13)
+02. Temple Of Thought (4:38)
+03. Cradled In Love (4:44)
+04. Kamikaze Love (3:41)
+05. The Lie Eternal (4:34)
+06. Skin (4:29)
+07. The Distance (5:05)
+08. Show Me This Life (4:29)
+09. Morning Tide (4:41)
+10. The Ballad Of Jeremiah Peacekeeper (5:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479376   (87014) от 07.04.2012
 
 The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
@@ -115,6 +413,66 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 02. Tomorrow (3:55)
 03. Fire & Soul (4:32)
 04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483618   (89194) от 18.04.2012
+
+Leningrad Cowboys - Zombies Paradise (2006) [FLAC|Lossless]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:31)
+02. What Is Love (3:19)
+03. Goldfinger (4:07)
+04. Perfect Day (3:53)
+05. Puttin' On The Ritz (2:55)
+06. Manic Monday (2:33)
+07. Starman (4:25)
+08. Ring Of Fire (3:12)
+09. My Sharona 	(3:46)
+10. Play That Funky Music (5:37)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458285   (90334) от 23.04.2012
+
+Halestorm - 3 альбома, 2 EP (2009-2012) [FLAC|Lossless]<Alternative Rock/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Love Bites (So Do I) (3:12)
+02. Rock Show (3:19)
+03. Daughters Of Darkness (3:55)
+04. Here's To Us (2:58)Жанр: Alternative Rock/Hard RockПродолжительность: 00:13:24
 
 ## Скачать торент
 ```bash
@@ -416,303 +774,6 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A90F68AB75F63976AAF28AC152BD6D712310A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753990   (103747) от 08.10.2024
-
-Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103747.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1:
-01 - MOON MUSiC [4:37]
-02 - feelslikeimfallinginlove [3:57]
-03 - WE PRAY [3:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822797   (104497) от 08.10.2025
-
-AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bird of Prey [00:03:08]
-02. Behind the Clock [00:03:57]
-03. Holy Visions [00:03:30]
-04. Blasphemy & Excess [00:03:04](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A176C8D9C9DABFCAAD8615AA6616B91A680FCC7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748261   (104563) от 09.09.2024
-
-Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore / Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation [00:04:13]
-02. Future Proof [00:03:30]
-03. Mystic Cord [00:03:01]
-04. Third [00:03:12](   Читать дальше...   )Жанр: Chaotic Hardcore / Southern RockПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44248F806AD5317F287D3DA5B61CC88DEE16BE6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747666   (104608) от 07.09.2024
-
-Conner Youngblood - Cascades, Cascading, Cascadingly (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From an Ocean, to a Lake [00:04:02]
-02. Reveille! [00:05:15]
-03. Running Through the Tøyen Arboretum in the Spring [00:04:12]
-04. All They Want Is Violence [00:03:18](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C678DA39B6A9966B5364B6BEE3B93CEB4E941390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747661   (104609) от 07.09.2024
-
-Rex Orange County - The Alexander Technique (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander [00:04:44]
-02. Guitar Song [00:03:57]
-03. 2008 [00:02:33]
-04. Therapy [00:04:05](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62296C72565AAF44C89C638C75DCB908F2421CBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746938   (104791) от 03.09.2024
-
-Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Normal Life [00:06:51]
-02. Lightning and Thunder [00:03:25]
-03. I’m Not Getting Better [00:02:47]
-04. Down To You [00:02:27](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD296AAA7608710CE3477ADCA367444A377D0972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745925   (104979) от 28.08.2024
-
-Rising Insane - Wildfires (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reign [00:03:49]
-02. Monster [00:02:52]
-03. Lighthouse [00:03:34]
-04. Malicious [00:02:56](   Читать дальше...   )Жанр: Alt.Metal, Post-Hardcore, MetalcoreПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CB3EC63EA344BCFD283EC2DA2F6618E6CB2CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743578   (105368) от 17.08.2024
-
-Royal Blood - Royal Blood (2014) 10th Anniversary Edition, 2024, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Black [00:04:00]
-02. Come on Over [00:02:53]
-03. Figure It Out [00:03:03]
-04. You Can Be So Cruel [00:02:44](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8578CCD5149275A99FCC6157CBBEB5C35A7A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743597   (105374) от 17.08.2024
-
-SunSay - Дайвер (2010) Digipack [WavPack|Lossless|image + .cue] <Alternative Rock, Leftfield, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Будь Слабей Меня
- 02. Брат (Feat.Fame)
- 03. Сонин Сон
- 04. Дайвер(   Читать дальше...   )Жанр: Alternative Rock, Leftfield, Indie RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE90C01A89785C396AA246883D427B8E5CCCF489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743596   (105379) от 17.08.2024
-
-Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pieces [00:04:30]
-02. I Want You To Know [00:04:30]
-03. Ocean In The Way [00:04:19]
-04. Plans [00:06:40](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF92F000C1E08C11B6ABB8CD415487C8D7A92035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743591   (105405) от 16.08.2024
-
-Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready? (Remastered 2024) [00:04:45]
-02. What If (Remastered 2024) [00:05:18]
-03. Beautiful (Remastered 2024) [00:04:19]
-04. Say I (Remastered 2024) [00:05:15](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3608EB2DFFF0399A0792B20D78C3222FED1BE7D6
 ```
 
 

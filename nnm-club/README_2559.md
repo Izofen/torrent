@@ -1,3 +1,51 @@
+###  Публикация: 1794198   (67280) от 28.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Pastel Rainbow Feathers Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения для сублимационного дизайна с перьями в пастельных тонах.Формат: PNGРазрешение файлов: 2925 x 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CE3060F3B988678896DACEDE1EA3876E543470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794206   (67281) от 28.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Pastel Aqua Dream Snowflakes Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения для сублимационного дизайна со снежинками в пастельных тонах.Формат: PNGРазрешение файлов: 2925×1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B887FB2EC9B8E30B4948882AC213A12CAEEF323D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794032   (67282) от 28.04.2025
 
 Aeonyzhar - The Profane Era (2025) [MP3|320 Kbps] <Symphonic Death, Black Metal>
@@ -597,57 +645,6 @@ magnet:?xt=urn:btih:6E28232ADC16268ACCF49FA7E9B80BA88F39B2E2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222884DA80B9F4322C3381A0A2FE3C94424FEE6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794227   (67306) от 28.04.2025
-
-Andrew Duncanson - California Trap (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relearning to Climb (3:00)
-02. Naw Naw Naw (4:29)
-03. Hold Me Back (3:02)
-04. California Trap (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DF046B296E08F3C74068DBF2F7CCA062AF6A65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794313   (67307) от 28.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Ocean Animals Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением морских животных в розовых тонах.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D089BD939031A33C4BFF3A497B9E281A397F96C
 ```
 
 

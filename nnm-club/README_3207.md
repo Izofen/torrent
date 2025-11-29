@@ -1,3 +1,426 @@
+###  Публикация: 1761600   (103047) от 21.11.2024
+
+Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103047.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Violent Vanity
+2. Ghost Of Disease
+3. Rebirthless
+4. Painted Cruelty(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458A97D6EA5FC17FFF5E6B84BCB71151FA053052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761595   (103048) от 21.11.2024
+
+Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This is Sparta (2:16)
+02. The Triathlon Anthem (3:15)
+03. Now or Never (3:06)
+04. Resilience Warrior (2:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761512   (103049) от 21.11.2024
+
+Живая лестница / De levende ladder (1913) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая драма с голландской дивой раннего кинематографа: Энни Бос. Энни влюбляется в циркового клоуна, но родители запрещают ей быть с ним. Жених - клоун! Разве такого мужа они желали дочери? Завидной партией клоуна не назовешь. Но у цирковых есть и неоспоримые достоинства - они традиционно очень сплоченные, сильные, ловкие и решительные люди. И они докажут (   Читать дальше...   )Производство: Нидерланды / N.V. Maatschappij voor Artistieke CinematografieЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Мауриц Бингер, Louis H. ChrispijnАктеры: Энни Бос, Алекс Бенно, Koba Kinsbergen, Barend Barendse, Луис БоувмеестерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3719F260D10127E65FC18A664AF44EF9A858196C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761479   (103050) от 21.11.2024
+
+Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doomgaze, Shoegaze, Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylvan (Remastered) [00:02:47]
+02. It Rains in My Heart (Remastered) [00:06:02]
+03. Silent Chamber, Noisy Heart (Remastered) [00:06:32]
+04. Тоска (Remastered) [00:04:18](   Читать дальше...   )Жанр: Doomgaze, Shoegaze, Atmospheric Black MetalПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D94064AD9272009297A550BDB51F77DCDA9D20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761598   (103051) от 21.11.2024
+
+Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resist (3:16)
+02. Break these chains now (3:13)
+03. There is no tomorrow (3:11)
+04. Fake world (2:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FE561EF3FDE75054E7FF69330D3E4DCCBB1EEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761582   (103052) от 21.11.2024
+
+Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without You Here (2:23)
+02. Think Twice (3:44)
+03. At Least We’re Dreaming (4:09)
+04. Still Here Waiting (2:16)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EFC4E0A418213D232CFB1159E2B9B3BF7A31EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761590   (103053) от 21.11.2024
+
+About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come To You (3:53)
+02. Endure (3:45)
+03. Legion (3:29)
+04. Fire With Fire (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939CB4B52D2F7A9FE4AEAB78695C5FECF3B54A86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761359   (103054) от 19.11.2024
+
+Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attention Whore
+02. No Fucking Way
+03. Do Not Think / Do Not Act
+04. Shitstorm(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4226FAB63F63ECA714772D024148D8509EC455
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761289   (103055) от 19.11.2024
+
+Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stelae of Vultures
+02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to
+Eat Feces by the Four Apes
+03. To Strike with Secret Fang(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4BFCBD401D9D3DC51BA5CFBCE4FC8CC7F383AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761278   (103056) от 19.11.2024
+
+Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made Of Metal 04:12Жанр: Heavy Metal, Hard RockПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DEA9E063467D0F6597B31871BC2C6FFA3A85C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761360   (103057) от 19.11.2024
+
+Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wes Jeans feat. Tommy Katona - No Tears Left to Cry (4:14)
+02. Wes Jeans feat. Tommy Katona - Graceland (4:51)
+03. Me & My Woman (3:52)
+04. Wes Jeans feat. Tommy Katona - Dimples (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227D86D46925AD706760C1761E786D008A689D5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761323   (103058) от 19.11.2024
+
+Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Reggaeton, R&B, Trap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosa Nuestra [00:04:20]
+02. Déjame Entrar [00:04:14]
+03. Qué Pasaría... [00:03:11]
+04. Tú Con Él [00:04:49](   Читать дальше...   )Жанр: Pop, Reggaeton, R&B, TrapПродолжительность: 01:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF9C0128E9398DFB2892441FFE4F7FC6259B98E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761368   (103059) от 19.11.2024
+
+J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby What You Want Me To Do (4:13)
+02. Steady Rollin' Man (5:21)
+03. It Takes a Lot Of Love, It Takes A Train To Cry (6:33)
+04. I Can't Hold Out (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D869AA9AEF240DF4ADE6AE84D15517756302E4D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761370   (103060) от 19.11.2024
+
+Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Who We Are (4:12)
+02. Here In '68 (4:37)
+03. Can't Outrun A Memory (4:28)
+04. Just Drive (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761200   (103061) от 19.11.2024
+
+Месье Пип выращивает грибы / Monsieur Pyp als Champignon-Zuchter (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Месье Пип бездельник, транжира и, как следствие, банкрот. Поправить свои дела он решил за счет своего состоятельного дяди. Причем довольно банально. Он наплел дяде, что мол, он начинает перспективный бизнес и скоро обогатится и вот только для начала надо вложиться и не мог бы дядя помочь (вполне по современному звучит, ага?). Дядя готов помочь, но, как человек не (   Читать дальше...   )Производство: Германия / MonopolfilmЖанр: короткометражный, комедия, немое киноРежиссер: Шарль ДекруаАктеры: нет сведенийПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D59073C556BCCB8A0A19AB587747C0558C723E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761295   (103062) от 19.11.2024
+
+Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C315838AA9207546388B465A60BA56EEDB17B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761273   (103063) от 19.11.2024
 
 Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal>
@@ -257,416 +680,6 @@ Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761243   (103073) от 18.11.2024
-
-Святитель Василий Великий | Письма (2007) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103073.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В эпистолярном наследии Святителя ярко отразился огромный духовный путь, который святитель Василий прошел от юношеской риторической экспрессии до сдержанной умудренной вдохновенности Писанием. Кроме того, письма святого Василия представляют собой и ценный исторический источник: по его письмам можно проследить, как разворачивалась борьба с различными ересями, противостоявшими (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0663E2CAE0BD9D968B28CFB626DC01CB38BF8A33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761223   (103074) от 18.11.2024
-
-Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anymore (3:12)
-02. The Prisoner (4:14)
-03. Same Game (2:51)
-04. Facade (3:07)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C041DC2C6FC42CA5DCA4E6EDBEEF7801E69F4858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761216   (103075) от 18.11.2024
-
-Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronicles Of The Chosen King (6:26)
-02. Crown Of Thorns (6:23)
-03. Crown Of Night (6:58)
-04. Knights Of The Unbreakable Oath (6:59)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBAF1D3266A0CFE7BB7D4FC7FB40F699EE17AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761227   (103076) от 18.11.2024
-
-Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, Americana>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talkin' Destination Blues (2:29)
-02. A Hill Worth Climbing (3:13)
-03. I Keep Running (3:12)
-04. Gideons Bible (3:58)(   Читать дальше...   )Жанр: Blues, Rock, AmericanaПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DCC6592589897065D518ACB2666ADA87D681D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761250   (103077) от 18.11.2024
-
-Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betting on the End (3:42)
-02. A Leap into the Dark (4:16)
-03. Deafening Heartbeats (3:11)
-04. Casket (2024 Remaster) (1:54)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F56B5187C54F9F9E5CC5BED401E3C0D014EF5BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761246   (103078) от 18.11.2024
-
-Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Face (3:48)
-02. We play Rock N Roll (3:37)
-03. Turn over The Game (3:37)
-04. I Got it That Go (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF652B526B33A53636D22B58EC836F7D6836A3D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761219   (103079) от 18.11.2024
-
-Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiver (4:22)
-02. Three Steps Back (4:34)
-03. Getting Closer (4:35)
-04. Help Me Brother (3:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05440208EEC208FC2C15E684181B8ED45E70484A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761214   (103080) от 18.11.2024
-
-Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of Life (Intro) (0:58)
-02. No Way Out (3:29)
-03. Warriors Of The Wasteland (4:14)
-04. Sacrifice (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA17133FFDCEC116AF63809FE11DFCFF63524C79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761213   (103081) от 18.11.2024
-
-Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (1:08)
-02. Desert Flames (4:23)
-03. One for all, all for one (3:25)
-04. Rain in Paradise (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761180   (103082) от 18.11.2024
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Вегас Голден Найтс (17.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103082.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 ноября 2024, понедельник. 04:00 МСК. Стадион: Ти-Мобайл Арена (Парадайс, США), 17 877 зрителей (96% при вместимости 18 702)
-Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада)Телекомпания: NHLЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFCE41C67E0BA968DDC05CCB8415FDCFB6FEE0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761143   (103083) от 18.11.2024
-
-Auburn Sounds - Panagement 2 2.6.0 (FULL) VST, VST 3, AAX (x86/x64) Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panagement 2 - плагин для управления стереополем с бинауральной обработкой.
-Panagement 2 - это лаборатория пространственного преобразования, которая работает в тысячах студий по всему миру. Panagement 2 дает вам полную власть над вашими стереодорожками.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6129969BD79B4C8C208A5404A5AA75272176A140
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761149   (103084) от 18.11.2024
-
-Newfangled Audio - Recirculate 1.1.9 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recirculate - это не просто дилей плагин; это квинтэссенция того, каким должно быть эхо с обратной связью. Отбросив ненужный багаж и сосредоточившись на звуке и управлении, мы создали идеальный инструмент для придания глубины и объема вашим миксам..Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786927821CE35E015A23A25ED34AC2B92C09378B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761224   (103085) от 18.11.2024
-
-Конвертер Валют Плюс / Currency Converter Plus 2.13.1 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертер Валют Плюс - максимально простой, а значит и очень удобный, конвертер валют. Что предоставляет пользователям точные данные сразу по нескольким позициям. Достаточно просто задать базовую валюту, а так же желаемые варианты. Программа обновляется через Европейский центральный банк, что обеспечивает использование только актуальных данных. При этом есть поддержка (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B374BB796908BC1B70C3663A9C42902E4D7451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761140   (103086) от 18.11.2024
-
-Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработанный с нуля для иммерсивных рабочих процессов, Dolby Atmos и объемного звучания, Blackhole Immersive расширяет фирменное звучание стереоверсии Eventide во всем вашем иммерсивном миксе. От деликатной атмосферы до массивных затуханий вы создаете и формируете погружение слушателя - что, когда и где он это чувствует.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2280F9FAE4C516A121E8D413D03EA26C0E3ACCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761156   (103087) от 18.11.2024
-
-Неужто я больше не главная героиня? / Hiroin shikkaku (2015) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103087.jpg" />
-</div>
-
-
-###  Подробнее
-
-На её месте могла оказаться любая. Представьте, что вы стали главной героиней любовной истории... Хатори верила, что однажды выйдет замуж за своего друга детства Риту. К сожалению, мир устроен совсем не так... Перед вами умопомрачительная история непростой любви одной молодой девушки.Производство: ЯпонияЖанр: мелодрама, комедияРежиссер: Цутому ХанабусаАктеры: Мирэи Киритани, Кэнто Ямадзаки, Кэнтаро Сакагути, Това Араки, Аяно Фукуда, Мари Хамада, Акира Накао, Сэйдзи Роккаку, Маридзюн Такахаси, Рики ТакэутиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (ФСГ Cardinals), английскиеПродолжительность: 01:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFDAEFEB9A66CD5ADCC1F64950238C65E5FCB94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761239   (103088) от 18.11.2024
-
-Преподобный Никодим Святогорец | О хранении чувств (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не отказался бы взойти на Небеса и наслаждаться нескончаемым блаженством, если бы этого можно было достичь, не прилагая усилий и подвига. Все мы готовы быть с Господом во славе Его, но мало найдется тех, кто пребудет верным Ему в скорбях и поношениях. И даже если уже решились идти вслед за Христом, при первой трудности наш ветхий человек начинает вопиять о (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F18DE3C487F2136AFD0E771D0FA5D8859E38051
 ```
 
 

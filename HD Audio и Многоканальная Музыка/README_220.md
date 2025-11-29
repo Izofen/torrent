@@ -1,3 +1,165 @@
+###  Публикация: 1626464   (255201) от 14.04.2023
+
+Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Piece Of The Action 3:37
+A2 Midnight Reservation 3:42
+A3 It's Got To Be Love 3:08
+A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625981   (255266) от 12.04.2023
+
+Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255266.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Run For Your Life 4:08
+A2 10, 9, 8, 7, 6, 5, 4  4:24
+A3 I Do It All For You 4:04
+A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625644   (255296) от 11.04.2023
+
+Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
+2015 - Major / Bye Julia (Triptych EP)
+2017 - Burst
+2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625760   (255300) от 11.04.2023
+
+Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Waiting On The Border Line (3:46)
+A2. How Do You Feel Now (4:51)
+A3. Back To The Wall (5:12)
+A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625753   (255302) от 11.04.2023
+
+Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+
+1. I hear talk 4:34
+2. Indebted to you 4:29(   Читать дальше...   )Жанр: BritPopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625837   (255306) от 11.04.2023
+
+Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 My Camera Never Lies
+A2 Easy Love
+A3 Love Dies Hard
+A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625027   (255339) от 10.04.2023
 
 Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
@@ -269,6 +431,275 @@ D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжите
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838580   (260648) от 23.11.2025
+
+VA - Original Rocking Hits. From The Soundtrack Of «Side By Side» (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260648.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Rubettes - I Can Do It
+A2 Mac & Katie Kissoon - Sugar Candy Kisses
+A3 Hello - Games Up
+A4 Twogether - Side By Side (Together)(   Читать дальше...   )Жанр: Soundtrack, Pop Rock, GlamПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A248C5C86247D34F8A8BBD7B13610ECADBBB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838434   (260910) от 23.11.2025
+
+The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260910.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Born With A Smile On My Face
+A2.a I Want A Girl Just Like The Girl That Married Dear Old Dad
+A2.b I'm Following In Father's Footsteps
+A3.a Green Green(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838847   (261510) от 25.11.2025
+
+VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Garage Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_261510.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Gerry & The Pacemakers - Ferry Cross The Mersey
+A2 Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody
+A3 Gerry & The Pacemakers - I'm The One
+A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838993   (261627) от 26.11.2025
+
+Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_261627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
+2019 - The Last Day on Earth
+2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192188   (263373) от 16.12.2017
+
+Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_263373.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fire On High (5:31)
+A2. Waterfall (4:12)
+A3. Evil Woman (4:35)
+A4. Nightrider (4:22)(   Читать дальше...   )Производство: Jet Records - JZ 35527Жанр: Progressive RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191929   (263708) от 15.12.2017
+
+Electric Light Orchestra - A New World Record (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_263708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tightrope (5:04)
+A2. Telephone Line (4:40)
+A3. Rockaria! (3:12)
+A4. Mission(A World Record) (4:27)(   Читать дальше...   )Производство: United Artists - GP 530Жанр: Progressive RockПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839120   (287217) от 
+
+The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_287217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Big Country (From The Film Of The Same Name)
+A2 Moon River (From The Film ''Breakfast At Tiffany's'')
+A3 Lara's Theme ''Somewhere My Love'' (From The Film ''Dr. Zhivago'')
+A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше...   )Жанр: Soundtrack, ThemeПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210826   (778426) от 04.03.2018
+
+Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak To Me (1:08)
+02. Breathe (In The Air) (2:49)
+03. On The Run (3:44)
+04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116120   (824358) от 19.03.2017
+
+Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_824358.jpg" />
+</div>
+
+
+###  Подробнее
+
+side A
+A1 It's A Heartache
+A2 Blame Me
+A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006983   (824796) от 13.04.2016
+
+Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_824796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    600 Years    06:25
+2.    Naked Love    05:36
+3.    The Journey    05:55
+4.    Earthbound    04:06(   Читать дальше...   )Жанр: new ageПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA554F97074C6D2723914B3346F7036251221D2
 ```
 
 

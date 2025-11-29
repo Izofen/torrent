@@ -1,3 +1,57 @@
+###  Публикация: 1799435   (66474) от 27.05.2025
+
+Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cry from the Halls of Blood/Empire of Lost Dreams (A Long Journey Demo, 1991)
+02. A Lonely Ceremony/The Eternal Walk (Very First Recording With the Band, 1990)
+03. Journey in Darkness/Entering the Forest (An Old Rehearsal Recording, 1991)
+04. Castle of No Repair/Lies from a Blackened Heart (A Long Journey Demo, 1991)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCD5DD3E979E06E8740EB13406D610E1E6A70AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799118   (66475) от 27.05.2025
+
+Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frivolous Sal [3:17]
+02. Tangerine [3:10]
+03. I Cover the Waterfront [3:43]
+04. You Stepped Out of a Dream [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5112A0DA0F9099C3C02269EBAB54F5F4285BC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799301   (66476) от 27.05.2025
 
 Текстуры - TijanaARTStudio88 - Creative Fabrica - Pastel Grainy Surface Paper Texture [JPG]
@@ -599,54 +653,6 @@ magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFF14DB6744E0C3F34291EF62586DD9E76CEC28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798717   (66500) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-4 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5441D06F50BBAB17D879534A696A8B22456B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798513   (66501) от 26.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cherry Blossom Easter Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пасхальный клипарт с цветущей вишней.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0055D695F1174158BCA8C831F460788A2718501B
 ```
 
 

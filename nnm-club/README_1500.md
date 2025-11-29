@@ -1,3 +1,57 @@
+###  Публикация: 1756987   (39351) от 24.10.2024
+
+The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn in Paris (4:00)
+02. An American in Paris (3:25)
+03. Autumn Lost in Paris (3:43)
+04. Autumn Wedding in Paris (4:33)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9798FD96B6CE40A3EBA374EEDFDE447DB93FA0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554831   (39352) от 24.10.2024
+
+Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dedicated to You [2:48]
+02. My Funny Valentine [3:01]
+03. Shulie a Bop [2:42]
+04. Lover Man [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8DACCA5F8257553847983A8370DED489A73E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756991   (39353) от 24.10.2024
 
 Журнал | Народный доктор №20 (666) (октябрь 2024) [PDF]
@@ -607,57 +661,6 @@ magnet:?xt=urn:btih:097E7CB892450F4252794C982EF3883A8605D11D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBDE9A7ADA8EE9C248BD880FA785817C9DBE0EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757002   (39377) от 24.10.2024
-
-Magic Eraser / Магический ластик v2.11.1 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_39377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.10.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F9436602262B5AA45D93684B8B8ED7A8F71CF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756797   (39378) от 24.10.2024
-
-VA - musical kaleidoscope part 8  Electronic,  Easy listening (2024) [MP3|320 Kbps] <Electronic,  Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_39378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladimir Korg - Ты Со Мной
-02. Цифеi - Callisto
-03. Vladimir Korg - You Are My Dream
-04. Цифеi - Bring Down the Sky(   Читать дальше...   )Жанр: Electronic,  Easy listeningПродолжительность: 03:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D8C268E7FED251ADE9A1FF99E3C8F4E3801287
 ```
 
 

@@ -1,3 +1,429 @@
+###  Публикация: 1745736   (105024) от 27.08.2024
+
+4K YouTube to MP3 5.5.5.0116 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105024.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896EFEDDF0762A73457771C49270A2B07C358A2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745651   (105025) от 27.08.2024
+
+Nino Helfrich - Shadow Empress (2024) [MP3|320 Kbps] <Prog Metal, Vocals Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Our Remedy feat. Vicky Psarakis (04:16)
+ 02 - Outrun The Storm feat. Maja Shining (04:39)
+ 03 - All Must Die feat. Britta Gortz (04:05)
+ 04 - Rise Up feat. Emelle Elizabeth (03:32)(   Читать дальше...   )Жанр: Prog Metal, Vocals InstrumentalПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F8242BF65653D27A59DF2B5AB23E544461E7B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745051   (105026) от 27.08.2024
+
+Лидия Чинарева - Жду тебя дома (2024) [MP3|320 Kbps] <Shanson, Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Жду тебя дома [00:03:29]
+02 - Два билета в осень [00:02:13]
+03 - Осеннее танго [00:01:57]
+04 - Бабочка [00:03:13](   Читать дальше...   )Жанр: Shanson, Авторская песняПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C73C61E99A1F919AF0216F535E5E79FAA8B8A75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745750   (105027) от 27.08.2024
+
+MediaHuman YouTube to MP3 Converter 3.9.9.95 (0803) RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F285CD9DBFDC64634B443F6662F800195C3C4C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745693   (105028) от 27.08.2024
+
+Андрей В. Евсеев - Тонкий контур (2024) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Романсеро [00:03:15]
+02 - Путь [00:02:35]
+03 - Дальтоник [00:03:52]
+04 - Возвращение [00:04:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5047E6F5AD4F101FCEE812FA4349A8577FCA09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745659   (105029) от 27.08.2024
+
+Piper and The Hard Times - Revelation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble Man (4:50)
+02. The Hard Times (4:40)
+03. Heart for Sale (3:44)
+04. Preacher Blues (5:06)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4678F408D6F07BE8011674A766BAD2C7833CAFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745342   (105030) от 26.08.2024
+
+Chet Baker - Chet's Choice (1985) Criss Cross [APE|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I should lose you [4:45]
+02. Sad walk [5:37]
+03. How deep is the ocean [6:27]
+04. Doodlin' [5:38](   Читать дальше...   )Жанр: CoolПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400D667F771E7DF79B713DF8225F5440B378F77E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745509   (105031) от 26.08.2024
+
+Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back With A Bang
+02. My Monster
+03. Raise Your Glass
+04. Queen Of The Night(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67F0ECB6052596A432E0B764550F5C1876FD211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745596   (105032) от 26.08.2024
+
+Moonshine Jasmine - Grateful (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grateful (4:10)
+02. Once a Prick (Always a Narcissist) (4:09)
+03. Fire (5:31)
+04. Free (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83A0D97739887BC8E91598276E7D5FE75939726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745574   (105033) от 26.08.2024
+
+Emily Wurramara - NARA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie-Pop, Trip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Blues [00:04:18]
+02. WWGBH [00:05:49]
+03. It's You [00:03:12]
+04. DTMN [00:03:48](   Читать дальше...   )Жанр: Indie-Pop, Trip-HopПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AEBC1AA2E1AA148F36D7BA74BE5C0EE97F0A45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745285   (105034) от 26.08.2024
+
+Loss - Human Factor (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Segredos [00:03:28]
+02. Hold Me [00:04:06]
+03. Leaving [00:04:02]
+04. Material Delight [00:04:00](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C9787089227F83A9BE3AC0A3C03D7C06F90B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745581   (105035) от 26.08.2024
+
+Johnny Ray Jones - Mystic Chiefs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automatic (feat. Carl Sonny Leyland) (3:35)
+02. Trying to Get Back on My Feet (feat. Junior Watson) (3:38)
+03. Devil Woman (feat. Junior Watson) (4:57)
+04. Don't Go No Further (feat. Junior Watson) (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37852DAAA452F29816A428B00CE35C2A1347821E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745593   (105036) от 26.08.2024
+
+Memphis Royal Brothers - Memphis Royal Brothers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good God I Got The Blues (4:22)
+02. Goin' South (5:35)
+03. Brand New Heart (3:41)
+04. Ready To Rise (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20700F72907E744E069313C5A685F5C9E6C4214
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745487   (105037) от 26.08.2024
+
+Ruthie Foster - Mileage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mileage (4:11)
+02. Rainbow (3:30)
+03. Good For My Soul (3:31)
+04. Heartshine (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD654A9C239267B5C064C941737167554F6712E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745443   (105038) от 26.08.2024
+
+This Ending - Crowned In Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Crowned In Blood
+2. Birth Of Evil
+3. Devils
+4. Will Of Iron(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42714E466C5A9C398E63F0DA2FEFE141445F7118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745493   (105039) от 26.08.2024
+
+Thom Rotella - Side Hustle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Bebop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Dat? (5:09)
+02. Love for Sale (5:32)
+03. Pick Pocket (4:47)
+04. Side Hustle (3:19)(   Читать дальше...   )Жанр: Jazz, BebopПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66777010CCD03D5C034C8212CDC0C99F3A40CBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745457   (105040) от 26.08.2024
 
 Diane Durrett - Sweet Georgia Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -260,425 +686,6 @@ Mike Tramp - Songs Of White Lion, Vol. I-II (2023-2024) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5FCCBEBFAD8069D09FFCE7891261A5F0851254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745563   (105050) от 26.08.2024
-
-Мрачная равнина / Мрачная долина / Ужмури (1934) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105050.jpg" />
-</div>
-
-
-###  Подробнее
-
-По древней легенде, Колхидское болото принадлежит царице Ужмури, ревностной хранительнице этих земель. Местные боятся болота, но советские власти не идут на поводу у суеверий и решают осушить болото и построить водопровод. Но есть и такие, кто против строительства и хочет помешать любым способом. Конечно же, это местный кулак...Производство: СССР / Госкинопром ГрузииЖанр: социальная драма, немое киноРежиссер: Нутса ГогоберидзеАктеры: Котэ Даушвили, М. Чиковани, Нутса Чхеидзе, Н. Иашвили, И. Джорджадзе, О. Гогоберидзе, М. Цитлидзе, И. СлуцкериСубтитры: грузинские, русские (интертитры)Продолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73819098DEA161F8D0159E95702E689173CFD9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745515   (105051) от 26.08.2024
-
-reaConverter Pro 7.822 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105051.jpg" />
-</div>
-
-
-###  Подробнее
-
-reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
-Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6721A895C41613903F5B9E748065F7346306797B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745539   (105052) от 26.08.2024
-
-High-Logic FontCreator Professional 15.0.0.2999 Portable by 7997 [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105052.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301C3142E79841FB45FC39D5C486E65D5A453125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745383   (105053) от 26.08.2024
-
-VA - DJ Hits 14 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steinberg feat. Chantal Mc Laine - Energy (Life Mix)
-02. Melanie Bender - You Just Want Sex (Radio Cut)
-03. Tomatues - Do You Like (Radio Mix)
-04. Marc Almond & P.J. Proby - Yesterday Has Gone (Bulearico Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D037EB552CF4862F4A54F28D5218592A567C561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745525   (105054) от 26.08.2024
-
-Photo Supreme 2024.2.2.6626 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1072019EB22EACBAA9DB04DEAF862A11EA21BD72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744459   (105055) от 26.08.2024
-
-Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Пуля-дура (аудио) [00:05:29]
-02 - На всех парусах (аудио) [00:06:56]
-03 - Звериная душа (аудио) [00:07:27]
-04 - Всё та же злость (аудио) [00:04:01](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DF043AC17963F14830C8FCFC7FE53A3190E70F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745459   (105056) от 26.08.2024
-
-Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angra — бразильская пауэр-метал-группа, основанная в 1991 году.1993 - Angels Cry
-1996 - Holy Land
-1998 - Fireworks
-2001 - RebirthЖанр: Power/Progressive MetalПродолжительность: 10:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50CDA7E32FE24EEA6468A53F3CD516B2A061FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745476   (105057) от 26.08.2024
-
-Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shaman - бразильская прогрессив-пауэр-метал группа, образованная в 2000 году Рикардо Конфессори, Луисом Мариутти и Андре Матосом после того, как они покинули "Angra".2002 - Ritual
-2005 - Reason
-2007 - Immortal
-2010 - OriginsЖанр: Progressive/Power MetalПродолжительность: 04:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE556676D92A88B8559B5000E429A09E42ACDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745490   (105058) от 26.08.2024
-
-The Georgia Thunderbolts - Rise Above It All (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonna Shine (4:02)
-02. Rock and Roll Record (4:19)
-03. Rise Above It All (3:22)
-04. Moonlight Play (4:06)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BF953D6E177FA76A210C935702C96136208C84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745463   (105059) от 26.08.2024
-
-Footloose - Footloose (1980) Japanese Edition, Reissue, 2001, Cool Sound [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Leaving For Maui (3:26)
-2. Just Enough Love (3:27)
-3. Dancin' Feelin' (3:31)
-4. It'll Take Some Time (3:44)(   Читать дальше...   )Жанр: Westcoast, Soft Rock, AORПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1620C84780248352009FD312ACA8DC592F75BB95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745594   (105060) от 26.08.2024
-
-Miller and the Other Sinners - Thieves In The Breadline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thieves In The Breadline (3:46)
-02. Uneven (6:57)
-03. Better Times, Better Days (4:50)
-04. Street Child (5:23)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3550B19F6F97AB9CA3347BC471C599AB19066A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745405   (105061) от 26.08.2024
-
-Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 [2015, TV, 40 эп.] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий и последний сезон Аниме Инфинити Надо.
-История о приключениях суперкоманды из четырех мастеров фантастической игры Надо. С помощью волшебных волчков игроки получают необыкновенную силу, которую используют для борьбы со злом. Надо – это больше, чем игра. Это самое популярное соревнование в мире, во время которого бойцы устанавливают связь с магическими волчками, (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 40 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BFB2678D6BA8FB67070739360B4C0B517BFF80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745578   (105062) от 26.08.2024
-
-Grace Bowers & The Hodge Podge - Wine On Venus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock, Americana>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Won No Teg (2:28)
-02. Get On Now (5:55)
-03. Tell Me Why U Do That (4:38)
-04. Holdin On To Something (4:38)(   Читать дальше...   )Жанр: Blues Rock, AmericanaПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418D14186ADE025F1FA7DA7D62D0FF6D9D28A56F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745488   (105063) от 26.08.2024
-
-Steve Cropper and The Midnight Hour - Friendlytown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Cropper - Friendlytown (3:59)
-02. Steve Cropper - Too Much Stress (feat. Brian May) (3:13)
-03. Steve Cropper - Hurry Up Sundown (3:06)
-04. Steve Cropper - Let's Get Started (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D138A85F06AE6BCC1E88272E5DA87FA4A1AAD4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745462   (105064) от 26.08.2024
-
-Jeff Lorber - Elevate (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erick Walls - Elevate (3:29)
-02. JEFF LORBER - Spanish Joint (4:04)
-03. ZigZag (3:51)
-04. Glacier (4:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE19019DB169C8334A7D9C0CD07A7692183FC6B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745597   (105065) от 26.08.2024
-
-of Books&Blues - That Ain't It (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freight Train Ride (4:19)
-02. That Ain't It (4:52)
-03. VooDoo-Hearted Blues (3:51)
-04. Under That Skirt (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A9FAF0AA2D3A36410C5D718E124151BD7D8C4F
 ```
 
 

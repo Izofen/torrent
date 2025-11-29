@@ -1,3 +1,432 @@
+###  Публикация: 1743580   (105388) от 16.08.2024
+
+Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing On The Outside (2011 Remastered) [00:02:56]
+02. Cheap Wine (2011 Remastered) [00:03:25]
+03. When The War Is Over (2011 Remastered) [00:04:25]
+04. All For You [00:04:57](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3860C49F287DA3C26213D23374D45D2FF5096E65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743449   (105389) от 16.08.2024
+
+Dark Tranquillity - Endtime Signals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shivers and Voids (3:48)
+02. Unforgivable (3:44)
+03. Neuronal Fire (4:32)
+04. Not Nothing (4:53)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D38DE048ED22AF13673FB77DC94B39EEB29DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743486   (105390) от 16.08.2024
+
+Чудо в камере / 7Beonbangui Seonmool (2013) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории мужчины, который под давлением признал себя виновным в изнасиловании и убийстве 9-летней девочки 27 сентября 1972 года в Чхунчхоне и был оправдан в ноябре 2008 года... Умственно отсталый отец-одиночка обвиняется в совершении преступления и отправляется в тюрьму. Его маленькая дочь очень скучает по папе, поэтому тайком пробирается (   Читать дальше...   )Производство: Южная Корея / CL Entertainment, Fineworks, Next Entertainment WorldЖанр: драма, комедияРежиссер: Хван Гён ЛиАктеры: Сын Рён Рю, Шин Хе Пак, Со Вон Галь, Даль Су О, Ман Сик Чон, Вон Сан Пак, Чон Тхэ Ким, Чжин Ён Чон (II), Чжэ Юн Чо, Док Хён Чо, Сон У Юн (I)Перевод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (фансаб-группа Альянс), английскиеПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062235A1AEAEF6D78F020B734C06B7330D315524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743512   (105391) от 16.08.2024
+
+Edwin Starr - H.A.P.P.Y. Radio (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.A.P.P.Y. Radio (6:38)
+02. Rip Me Off (4:10)
+03. It's Called The Rock (7:25)
+04. I'd Rather Fight Than Switch (4:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA36F0682C492048B2808ECC246B8B4431E2E0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743517   (105392) от 16.08.2024
+
+Jimmy James - Dancin' Till Dawn (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stop My Feet From Dancing (6:48)
+02. Be What You Wanna Be (5:35)
+03. If You Think Funk Is Junk You're Drunk (2:58)
+04. Let's Go Disco (3:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B2CC811C6B7E5AE02185876E413017D1D3323B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743574   (105393) от 16.08.2024
+
+Markus Schulz - Global DJ Broadcast World Tour: Untold Festival 2024 + Reflections Mix (2024-08-15) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz (Recorded Live from Untold Festival Romania - August 11 2024)
+01. Markus Schulz - Ram Attack w/ Ivan Gough Feenixpawl & Georgi Kay - In My Mind
+02. Eric Prydz - Pjanoo (Markus Schulz Festival Mix)
+03. Markus Schulz x Daxson - Frantika(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098CA67BCA56EC01AFB593112A2D310E3AF12ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743291   (105394) от 16.08.2024
+
+The Red Moon Macabre (Renzo Tellez) - 13 Albums (2021-2024) [MP3|320 Kbps] <Gothic Rock, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+The Red Moon Macabre - 2021 - Blood Masquerade
+The Red Moon Macabre - 2021 - The Red Moon Macabre
+The Red Moon Macabre - 2022 - Iniquity(   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 13 CD, 12:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4CA78F8923A0AA15A633929654A56B7EBCE2B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743484   (105395) от 16.08.2024
+
+Роберт Льюис Стивенсон | Алмаз Раджи (Инсценировка) (2023) [MP3, Рогволд Суховерко, Зиновий Гердт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Роберт Льюис (Луис) Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+Инсценировка по мотивам одноимённого романа Роберта Льюиса Стивенсона.
+Эти истории повествуют о том, как принц Флоризель, вновь оказавшись (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4231AA7D76644FD49FBBEE9325772160F0194B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743325   (105396) от 16.08.2024
+
+Eisregen - Abart (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Am Abgrund (5:06)
+02. Ich und mein Bolzenschussgerät (3:44)
+03. Im blutroten Raum (4:34)
+04. Lebendköder (4:57)(   Читать дальше...   )Жанр: Gothic, Black, Death MetalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E43562DC933E9AC0141C6EB14D99FA18FE4963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743525   (105397) от 16.08.2024
+
+All India Radio - 2006 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Post Rock, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chameleon [00:03:41]
+02. Eyes Ahead (2006 Version) [00:05:04]
+03. Fall (2006 Version) [00:04:31]
+04. Stretch Into the Stars (2006 Version) [00:05:38](   Читать дальше...   )Жанр: Ambient, Downtempo, Post Rock, Space RockПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2DBBA99328C5DCC1225B11AB9F970214B701B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743571   (105398) от 16.08.2024
+
+Hail Darkness - Death Divine (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciferan Dawn [00:05:53]
+02. Cult Of The Serpent Risen [00:06:30]
+03. Hour Of The Silent Rite [00:03:37]
+04. With Horns Of A Beast [00:03:46](   Читать дальше...   )Жанр: Occult Doom MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAE2170F9524FF005759B97920F12789E4AE22B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743436   (105399) от 16.08.2024
+
+Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nat Meets June [4:44]
+02. Too Marvelous For Words [2:34]
+03. Embraceable You [3:25]
+04. Tea For Two [12:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5D321F178A3CA6FC44B58C7E83CC466B864618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743170   (105400) от 16.08.2024
+
+Per Wiberg - The Serpent’s Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Sky Lullaby [00:06:58]
+02. The Serpent’s Here [00:05:32]
+03. Blackguards Stand Silent [00:08:31]
+04. This House Is Someone Else’s Now [00:06:54](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69350B12D5847331FCDCEB9E3119B7D1E44C621
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743554   (105401) от 16.08.2024
+
+Extinction A.D. - To The Detested (2024) [MP3|320 Kbps] <Thrash Metal, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Desperate Grasp (03:55)
+ 02 - Escape From New York (03:34)
+ 03 - Epidemic of Mutation (03:53)
+ 04 - Apocalypse Rising (04:28)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35A455A324B9E7F7A11B23375FECCC690965CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743277   (105402) от 16.08.2024
+
+Dwell in Doom - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War [00:04:19]
+02. Annihilation [00:05:13]
+03. Mortal Sin [00:04:50]
+04. Last Endeavor [00:06:48](   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 2 CD, 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38462890C29E4BDE6DFAE160E88A33489E4AD957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743524   (105403) от 16.08.2024
+
+Kayas - By the Moon and the Stars (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempest
+02. Span Of Time
+03. The Winter Curse
+04. Deadwood(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46117783F33D7512CD7C00BFAC9E3E0F788143F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743457   (105404) от 16.08.2024
 
 Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1080p raw+rus
@@ -251,427 +680,6 @@ magnet:?xt=urn:btih:F13899F0E64944AAE5E4C0B0D485F2F2BABD4A20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F54C833CAF92AE6447AF0031F8553A3E466A82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743488   (105414) от 16.08.2024
-
-VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria Gaynor - Love Is Just A Heartbeat Away (Nocturna's Theme) (7:13)
-02. Vicki Sue Robinson - Nightime Fantasy (9:36)
-03. Heaven 'N' Hell Orchestra - Whatcha Gonna Do (8:31)
-04. Heaven 'N' Hell Orchestra - Bitten By The Love Bug (8:10)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A176B0099D5A64A4CA88AAAE18575C29BAC0D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743509   (105415) от 16.08.2024
-
-PdfFactory Std & Pro 9.02 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105415.jpg" />
-</div>
-
-
-###  Подробнее
-
-pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C66D8783FD91F830C0D2B745059B3C77A07858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743498   (105416) от 16.08.2024
-
-Чудо в камере / 7Beonbangui Seonmool (2013) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальной истории мужчины, который под давлением признал себя виновным в изнасиловании и убийстве 9-летней девочки 27 сентября 1972 года в Чхунчхоне и был оправдан в ноябре 2008 года... Умственно отсталый отец-одиночка обвиняется в совершении преступления и отправляется в тюрьму. Его маленькая дочь очень скучает по папе, поэтому тайком пробирается (   Читать дальше...   )Производство: Южная Корея / CL Entertainment, Fineworks, Next Entertainment WorldЖанр: драма, комедияРежиссер: Хван Гён ЛиАктеры: Сын Рён Рю, Шин Хе Пак, Со Вон Галь, Даль Су О, Ман Сик Чон, Вон Сан Пак, Чон Тхэ Ким, Чжин Ён Чон (II), Чжэ Юн Чо, Док Хён Чо, Сон У Юн (I)Перевод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (фансаб-группа Альянс), английскиеПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8268224D64F8D6E630E8592E6101AB5E5D165485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743428   (105417) от 16.08.2024
-
-Алла Пашкова | Безопасная беременность в вопросах и ответах (2020) [MP3, Наталья Беляева]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алла Пашкова – врач акушер-гинеколог с 18-летним стажем, кандидат медицинских наук, одна из самых популярных врачей-гинекологов Инстаграма. В этой книге учтены пожелания и приведены ответы на самые насущные вопросы будущих мам.
-Алла Пашкова расскажет, как и когда проходят важные обследования, что означают разнообразные медицинские термины, куда бежать и что делать (   Читать дальше...   )Жанр: Медицина, здоровьеИздательство: ЭксмоПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE287F8F5CBE5B69BEEB685E444476BEE4B2BCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743537   (105418) от 16.08.2024
-
-Приданое Жужуны (1934) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из жизни грузинской деревни 1930-х годов.
-Остроумно высмеивая и осуждая попытки «выйти в люди» нетрудовым путем, комедия доказывает преимущества колхозной системы и коллективного труда в условиях советской деревни.
-Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта «Культура.РФ» и Госфильмофонда России «Открытая коллекция».Производство: СССР / Госкинпром ГрузииЖанр: мелодрама, комедия, немое киноРежиссер: Сико Палавандишвили, Д. КикабидзеАктеры: Георгий Габелашвили, Кириле Мачарадзе, Александра Тоидзе, Илья Мампория, Аркадий Хинтибидзе, Д. Алавидзе, П. Джалагания, К. Хинидбидзе, Кетеван Андроникашвили, Александр АлазниспирелиСубтитры: русские (интертитры)Продолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6040717236C2811B3579504629BD6665BAFFB168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743136   (105419) от 15.08.2024
-
-Junco Shakers - Lace up Ya Boots... It's the Junco Shakers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Island Line (3:07)
-02. Body Vandal (3:25)
-03. Can't Be Satisfied (3:30)
-04. Glad When You're Dead (2:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C7111998A4D03444C8CA078E9F1F89043D1FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743178   (105420) от 15.08.2024
-
-Pentagram - Review Your Choices (1999) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Rays [00:02:34]
-02. Change Of Heart [00:05:23]
-03. Living In A Ram's Head [00:02:32]
-04. Gorgon's Slave [00:06:26](   Читать дальше...   )Жанр: Doom Metal, heavy metalПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBC4A60D928D0DBFC346B7A19072F831D425883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743340   (105421) от 15.08.2024
-
-Свадебное платье / Brudekjolen (1911) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть такая русская народная припевочка - "Хороша я, хороша, да плохо лишь одета - никто замуж не берет девушку за это!" Представленный фильм, по существу, датская вариация на эту тему.
-Сердце Алисы начинает колотиться, когда ее друг детства Отто возвращается домой после долгого отсутствия. Алиса давно любит Отто, но возникает проблема: гораздо более богатая (   Читать дальше...   )Производство: Дания / Filmfabrikken SkandinavienЖанр: короткометражный, мелодрама, немое киноРежиссер: нет сведенийАктеры: Метте Андерсен, Альма Лагони, Берта Линдгрен, Ёрген Лунд, Людвиг Натансен, Марта Олсен, Ольга Свендсен, Эрик УинтерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A465EFB85160B53651CFFA88A0FD72A4CA6048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743005   (105422) от 15.08.2024
-
-Eater - The Album (1977) Deluxe Edition, 2024, Cleopatra Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You [00:02:04]
-02. Public Toys [00:01:58]
-03. Room For One [00:01:42]
-04. Lock It Up [00:01:58](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2C4570AFDD2DE518E7375842E4881637DE610B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743354   (105423) от 15.08.2024
-
-Voodoo Kiss - Feel The Curse (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel The Curse (4:05)
-02. Angel Demon (4:22)
-03. Spellbound by her Eyes (4:43)
-04. Dr. Evil (2:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1069286A7CDE578F5A86E389707E57707D8389B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743148   (105424) от 15.08.2024
-
-Ticket West - All Is Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buzzing (2:25)
-02. Don´t Judge Me (3:44)
-03. Head Over Heels (2:26)
-04. Hip Shakin´ Woman (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC2C3DD463BA0F8A840D8CF65B0B845AA709D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743168   (105425) от 15.08.2024
-
-Mangrove - Bridge to Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog/Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bridge to Fiction [00:10:45]
-02. Reflection [00:06:42]
-03. Stay [00:06:36]
-04. Chasing Something [00:03:43](   Читать дальше...   )Жанр: Symphonic Prog/Progressive RockПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90328648653CBBBEB75D489B09F6B01F6876FAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743137   (105426) от 15.08.2024
-
-Kaliopi & The Blues Messengers - The Devil's Voodoo Curse (Festival Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calypso Blues (5:06)
-02. Gaslight Blues (4:11)
-03. Strollin' With Bones (2:46)
-04. Earthmover Blues (4:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A8752993C334CB5A6CBFA877836CB544EBE21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743145   (105427) от 15.08.2024
-
-Sarah Wright - Drive Outta Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heading Downhill (2:53)
-02. Devil in the Bottle (3:30)
-03. Oh Bobby Gene (3:31)
-04. Coffee Drinking Blues (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B36273EF202E6BA7D48FD4E18C181B7E81AD17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743276   (105428) от 15.08.2024
-
-Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Enough
-02. Keep On Dreaming
-03. Soldiers Of Love
-04. We Can Make It(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F046E29FF9803EC0340CD12BFC5DBC8EC16E649F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743316   (105429) от 15.08.2024
-
-Футбол. Суперкубок УЕФА 2024. Реал (Мадрид, Испания) - Аталанта (Бергамо, Италия) (14.08.2024) IPTV [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Суперкубок УЕФА 2024. Реал (Мадрид, Испания) - Аталанта (Бергамо, Италия) (14.08.2024)
-СУДЬЯ Шерер Сандро (Швейцария)
-Судья на линии 1: Де Алмейда Стефан (Швейцария)
-Судья на линии 2: Эрни Джонас (Швейцария)(   Читать дальше...   )Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русский, интершумСубтитры: отсутствуютПродолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1D44CB56FB282482D7BA278D4A31EAB105660C
 ```
 
 

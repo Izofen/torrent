@@ -1,3 +1,138 @@
+###  Публикация: 1628877   (254819) от 25.04.2023
+
+Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254819.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Glory! Glory! 4:50
+A2 Call Me No. 1 3:57
+A3 Rubber Ball (Space Kitchen) 3:38
+A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628677   (254852) от 24.04.2023
+
+Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy In The Night (Barking At Airplanes) 3:39
+02. One Kiss 3:32
+03. Begging For Favors (Learning How Things Work) 4:53
+04. He Makes The Sun Rise (Orpheus) 4:30(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628322   (254888) от 23.04.2023
+
+Раймондc Паулс - Мой Путь (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Smooth Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254888.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Увеселитель - The Entertainer (S. Joplin)
+А2 Как Велика Твоя Любовь - How Deep Is Your Love (В., M., R. Gibb)
+АЗ Здравствуй! - Salut! (C. Pallavicini)
+А4 Мой Путь - My Way (P. Anka)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 30:4:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627632   (254994) от 20.04.2023
+
+Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		Беспокойный Пульс = Restless Beat	4:10
+A2		Печаль = Sadness	4:20
+A3		Испанский Мотив = Spanish Theme	3:40
+A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626965   (255126) от 16.04.2023
+
+Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & I
+02. This Is The World
+03. Jerusalem
+04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626464   (255201) от 14.04.2023
 
 Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
@@ -458,6 +593,113 @@ D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжите
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838580   (260648) от 23.11.2025
+
+VA - Original Rocking Hits. From The Soundtrack Of «Side By Side» (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260648.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Rubettes - I Can Do It
+A2 Mac & Katie Kissoon - Sugar Candy Kisses
+A3 Hello - Games Up
+A4 Twogether - Side By Side (Together)(   Читать дальше...   )Жанр: Soundtrack, Pop Rock, GlamПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A248C5C86247D34F8A8BBD7B13610ECADBBB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838434   (260910) от 23.11.2025
+
+The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260910.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Born With A Smile On My Face
+A2.a I Want A Girl Just Like The Girl That Married Dear Old Dad
+A2.b I'm Following In Father's Footsteps
+A3.a Green Green(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838847   (261510) от 25.11.2025
+
+VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Garage Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_261510.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Gerry & The Pacemakers - Ferry Cross The Mersey
+A2 Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody
+A3 Gerry & The Pacemakers - I'm The One
+A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838993   (261627) от 26.11.2025
+
+Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_261627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
+2019 - The Last Day on Earth
+2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
 ```
 
 

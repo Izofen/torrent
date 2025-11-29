@@ -1,3 +1,435 @@
+###  Публикация: 1746547   (104790) от 03.09.2024
+
+Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Soft rock, blue-eyed soul, folk rock, art rock, progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner Suite (18:04)
+02. The Hurt (4:15)
+03. How Many Times (4:25)
+04. Later (4:40)(   Читать дальше...   )Жанр: Soft rock, blue-eyed soul, folk rock, art rock, progressive rockПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1620B8CED0DF37318896761D69214D1DFD1F53EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746938   (104791) от 03.09.2024
+
+Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Normal Life [00:06:51]
+02. Lightning and Thunder [00:03:25]
+03. I’m Not Getting Better [00:02:47]
+04. Down To You [00:02:27](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD296AAA7608710CE3477ADCA367444A377D0972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746453   (104792) от 03.09.2024
+
+Евгений Любимцев - Белые следы (2023) [MP3|256 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Туман над зоною [00:04:33]
+02 - А дождь летит без остановки [00:04:05]
+03 - Карлуша [00:04:00]
+04 - Пожелтевшие листья [00:04:01](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA2F45CFEDC3A34B1E2CDB278DF323CFF98149C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746916   (104793) от 03.09.2024
+
+Euge Valovirta - Hardtones (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testify (Feat. Samy Elbanna) 03:53
+02. The Game (Feat. Joonas Kosonen & Ben Varon) 03:44
+03. Gone Without A Trace (Feat. Nico Hartonen) 03:32
+04. Pasadena 78 (Feat. Jules Naveri) 03:04(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8112B08C5F6924805FBEFE5C6FC63DF2F81C40B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746847   (104794) от 03.09.2024
+
+Body Meat - Starchris (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Tone in The Dark [00:02:49]
+02. The Mad Hatter [00:03:47]
+03. High Beams [00:04:09]
+04. Electrische [00:03:31](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E040233E75D9C1A9F7DA4F1A1C1F16D9B859EAA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746518   (104795) от 03.09.2024
+
+Bonsai Kitten - Let It Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Psychobilly>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose Your Illusion (2:54)
+02. I Love That You Hate Me (4:05)
+03. I Wonder (2:24)
+04. Peacemaker (5:28)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, PsychobillyПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980FA33509E81B9301701E7F40EDDB5DA9A03184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747054   (104796) от 03.09.2024
+
+Korrosive - Katastrophic Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In The Name Of Destruction
+2. Khaos Unbound
+3. Nuclear Awakening
+4. Maelstrom(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F38CE825A1D4F7EEF84D116DB45C2C3CCBF4F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746625   (104797) от 03.09.2024
+
+Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <Post Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Is Here [7:09]
+02. Antigny [7:34]
+03. Easy Living [7:43]
+04. There We Go [8:24](   Читать дальше...   )Жанр: Post Bop, Mainstream Jazz, CoolПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3CA7B87FD72065722CE84B92920B49DDB8B229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746553   (104798) от 03.09.2024
+
+Palaye Royale - Death or Glory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death or Glory (3:01)
+02. Hot Mess (2:38)
+03. Just My Type (2:56)
+04. Ache In My Heart (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF617DA97FF754729E518FFAFD22F992E61AF5A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747042   (104799) от 03.09.2024
+
+Ragnar​ö​k - Schicksal der G​ö​tter, Tod der Menschen und Ende der Welten (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prolog - Weissagung (09:06)
+02. Praeludium ad Fortunam Deorum (04:04)
+03. I. Akt - Hass und Missgunst (05:46)
+04. II. Akt - Fimbulwinter (11:39)(   Читать дальше...   )Жанр: Progressive, Pagan Black MetalПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A1B37591C4646101466BCE756A77FBF3332B32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746877   (104800) от 03.09.2024
+
+Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiana [4:54]
+02. Without A Song [4:42]
+03. I Don't Stand A Ghost Of A Chance With You [5:53]
+04. I Can't Believe That You're In Love With Me [5:22](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFBD96CC86BE14D2D846F702CEBD70F8DE06A5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746550   (104801) от 03.09.2024
+
+Oceano - Living Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted Life (3:23)
+02. Mass Produced (3:34)
+03. Darkness Rising (4:07)
+04. Into The Flames (2:56)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD4C91D37D04FCBFCD0DB63CD929688C8E94A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747043   (104802) от 03.09.2024
+
+Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look How Long
+02. Don't You Ever (Try To Change Me)
+03. Time Is Ticking
+04. Love's Got Me(   Читать дальше...   )Жанр: Contemporary R&BПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C2DD5A779E9DFCB4C4C642FA6FEE32D831B20C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746932   (104803) от 02.09.2024
+
+Piper and The Hard Times - Revelation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble Man (4:50)
+02. The Hard Times (4:40)
+03. Heart for Sale (3:44)
+04. Preacher Blues (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E9FB240ED1FA300016312CD02A463788D15EC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746882   (104804) от 02.09.2024
+
+Shane Allessio - Tripp City (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything and Nothing (11:29)
+02. Artistry in Rhythm (4:56)
+03. Henniker Blues (5:33)
+04. BHU (10:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552F5A8C560B5E9E4C20083B42B918735FCE890B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746900   (104805) от 02.09.2024
+
+Breaklight - I (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Your Neck (04:48)
+02. Fate (04:21)
+03. There's No Escape For Us (05:02)
+04. Palace Of Shame (04:49)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B47B88CDCC6B2D7900E1BF708FA89236CECD3C88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746923   (104806) от 02.09.2024
 
 Покоритель Альмы / Alma's Champion (1912) WEBRip [H.264/720p]
@@ -260,426 +692,6 @@ Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C6DC62CDD8B55956E8D0D3DD8C4550364ABE68F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746930   (104816) от 02.09.2024
-
-Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll No Bout Me (3:34)
-02. Sittin Right Here (3:16)
-03. Come Get Your Man (3:45)
-04. Put It On You (4:12)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8424177CEDD1641B7A408471B430C4FCFE90B6BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746896   (104817) от 02.09.2024
-
-Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Great Apostasy (7:54)
-02. The Birth of Venus (6:11)
-03. Antiprism (7:10)
-04. For Fred (1:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9371B757A905AAA19B515A1CEEA3DA6469721739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746933   (104818) от 02.09.2024
-
-Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Ol Woman Blues (4:32)
-02. Lipstick and Lace (5:51)
-03. Ca Viens Mama (5:25)
-04. Have a Good Time Tonight (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96318DA6A7E450FE8E6FF25A7297C46C99EE930B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746887   (104819) от 02.09.2024
-
-Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Something About Believing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Really Just A Blues (8:14)
-02. Dance To The Lady (10:05)
-03. The Chief (7:45)
-04. Something About Believing (9:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB2663B51FFEE921542189E032EA65B38AC95E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746941   (104820) от 02.09.2024
-
-Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Things (1:35)
-02. Bad Trip (4:41)
-03. Crossroads (3:41)
-04. Cruz (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93EB7147559BC82660AE25D65AA89FB5025F84A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746934   (104821) от 02.09.2024
-
-Steve Smith and The Sneakers - Hopeless Troubadour (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What About Love (5:17)
-02. The Salvation Of Love (5:19)
-03. Cheaper to Keep Her (5:00)
-04. Too Little Too Late (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F550430815DE31CB8891F46B91632BBADD10C63D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745390   (104822) от 02.09.2024
-
-Футбол. Чемпионат Англии 2024-2025. 2-й тур. Ливерпуль - Брентфорд (25.08.2024) HDTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Англии 2024-2025. Ливерпуль - БрентфордЖанр: Спорт, ФутболЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F2D8D3E99E8310B2827F309DA8FC50B471E6EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746891   (104823) от 02.09.2024
-
-TMS Underscores - Cool Like That Jazz! (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cool Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carefree Cool (2:55)
-02. Quirky Romance (3:13)
-03. Fun Fresh Freddy (2:58)
-04. West Coast Breezin' (3:24)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9516F5AA7E76055C44F31AF079BDE24F0CC4AA12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745454   (104824) от 02.09.2024
-
-Футбол. МИР РПЛ 2024/2025. 6-тур. Динамо-Краснодар. (2024) TVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой тур может перетряхнуть всю верхнюю часть таблицы, начиная от матча «Зенита» со «Спартаком» и заканчивая поединком «Локомотива» с «Ростовом». Игра «Динамо» с «Краснодаром» достойно смотрится своей афишей в такой компании. Это первая встреча команд после памятной игры в Краснодаре, когда бело-голубые могли взять золотые медали. Сейчас всё иначе. Победа позволит (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9588EA43EDA75F2E5E1C48877DABD9A9E7ACE30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746870   (104825) от 02.09.2024
-
-Peter Ndlala - Beira (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You for Your Love (3:24)
-02. Mbambi (Dedication to Tete Mbambisa) (3:25)
-03. Nothing to Lose (4:54)
-04. Talita (Dedication to My Daughters Talita and Ina) into Bass Heroes (7:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DC25C8D9E050F6B94B23814126033133E3ADD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746929   (104826) от 02.09.2024
-
-Jerry Phillips - For The Universe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Number One Girl (2:37)
-02. Treat Her Like She Was Mine (3:19)
-03. She Let Me Slip Right Through Her Fingers (3:51)
-04. Black Widow Eyes (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE21549FD98B3B58800D6445B9EE18B21B02EC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746676   (104827) от 02.09.2024
-
-PhotoRoom v5.2.9 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 31.08.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560D01CDBB3C265E9832E82CE63D02A457214C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746845   (104828) от 02.09.2024
-
-Журнал | Армейский сборник №9 (сентябрь 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104828.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: ФГБУ "РИЦ "Красная звезда" МО РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3EA50868A5B9107249FC6A1D6999873E7B4ADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746940   (104829) от 02.09.2024
-
-T. Graham Brown - From Memphis to Muscle Shoals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Tears Me Up (2:57)
-02. Take Me to the River (4:04)
-03. You Better Move On (2:45)
-04. Do Right Woman, Do Right Man (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2FAA6211BF8C3DD9335500C8708FC9A8A5C53E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746468   (104830) от 02.09.2024
-
-VA - Здорово, бандиты! (Ништяк,браток!) (1999) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Александр Дюмин - Пацаны [00:04:02]
-02 - Беломорканал - Бычок [00:05:32]
-03 - Александр Звинцов - На кичу [00:03:49]
-04 - Михаил Круг - Здравствуйте! [00:02:40](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05D5BF12358AFE923C6761963243D7438B79BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746818   (104831) от 02.09.2024
-
-Ты супер! (2024) WEBRip [H.264/1080p] (сезон 8, выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104831.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ — восьмой сезон международного детского вокального конкурса «Ты супер!». Каждую неделю на сцене проекта удивлять зрителей и жюри своими невероятными способностями будут талантливые ребята в возрасте от 7 до 18 лет, оставшиеся без попечения родителей и проживающие в детских домах, школах-интернатах, приемных и опекунских семьях. Всего в шоу принимают участие (   Читать дальше...   )00:00 Премьера нового сезона
-09:34 «Песня о волшебном цветке» — Ариадна Плотникова, 7 лет, г. Абакан
-22:25 Torna a Surriento — Адам Тутаев, 9 лет, Ингушетия
-35:34 «Зима» — Валерия Яковлева, 15 лет, г. Сыктывкар(   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106343F60EC22275C3B8D35B8B65D76ECDC60E6F
 ```
 
 

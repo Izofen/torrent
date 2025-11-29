@@ -1,3 +1,57 @@
+###  Публикация: 1786360   (69074) от 20.03.2025
+
+VA - History Of Trance - The Classic Hit Collection (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69074.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rank 1 - Airwave (Original Vocal Edit) (02:59)
+02. Armin van Buuren - Communication (Radio Edit) (03:19)
+03. Binary Finary - 1998 (Radio Edit) (03:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B923C861D26018A70F91C13B52CBC01C0297C81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786363   (69075) от 20.03.2025
+
+VA - History Of Trance Vol. 2 - Classic Hit Collection (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69075.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Chicane - Don't Give Up (03:43)
+02. Push - Universal Nation (Original Mix) (10:14)
+03. Cosmic Gate - Exploration Of Space (Radio Edit) (03:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6BF3831DB9DA00AA407F3D93278B8E0DE7769F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786421   (69076) от 20.03.2025
 
 Таблица Калорийности v3.14.2 Mod by vadj [Ru/Multi]
@@ -588,57 +642,6 @@ magnet:?xt=urn:btih:D00BF4D978AFE6FB55AFF319B7F974A71B8EACA4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2C013C8C48AC4272E8E8B3874A028C9498A668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785999   (69100) от 19.03.2025
-
-Купидон в операционной / Operating on Cupid (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричная фарс-комедия. В некой больнице врач-хирург влюбился в медсестру. Что ж, обычное дело, сплошь и рядом служебные романы. Но у барышни уже есть сердечный друг, отнюдь не медик. Он приходит в больницу, чтобы повидаться с любимой. Тут и разворачивается соперничество за юное сердце. В больничных интерьерах и с медицинским юморком.Производство: США / Nestor Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Хорас ДэвейАктеры: Билли Родс, Рэй Галлахер, Нил БарнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533C05A3244E7F115678AAEFE5686F8697E512B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786110   (69101) от 19.03.2025
-
-River of Magma - Into the Unknown (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Children of the Night [3:03]
-02 - The House on Haunted Hill [4:13]
-03 - Thunder Lightning Fire [3:55]
-04 - Into the Unknown [6:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA11B3CB5999F83A5FE2012CF5CF5B39EF33E389
 ```
 
 

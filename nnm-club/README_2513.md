@@ -1,3 +1,57 @@
+###  Публикация: 1802246   (66084) от 15.06.2025
+
+Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down To Joy (3:38)
+02.  If It Wasn’t For Ray (3:17)
+03.  Haven’t Lost My Sense Of Wonder (5:28)
+04.  Love, Lover and Beloved (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00F15B345B1B03760804B52EDD02F5799A274F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802263   (66085) от 15.06.2025
+
+Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blues Is The Mother (4:09)
+02.  Setup For Disaster (3:29)
+03.  Jaded Like Me (2:57)
+04.  Walk In The Sunshine (2:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4831D61C073499E933AEE393E2998E0009F570BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802082   (66086) от 15.06.2025
 
 Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
@@ -610,59 +664,6 @@ The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802079   (66110) от 14.06.2025
-
-Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Doom, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows [00:05:18]
-02. Under Blessed Skies [00:05:23]
-03. Where Silence Dwells [00:04:56]
-04. The Pale Light of Fireflies [00:06:57](   Читать дальше...   )Жанр: Melodic-Doom, AcousticПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBE4DD1ADD4CB3DAE9D66B27AA16340172F67BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801933   (66111) от 14.06.2025
-
-Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro Pop, Mashup, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H. & Jordan Suckley & Andyg vs. Dubvision & Martin Garrix vs. Sharam & Adam Beyer - Ambush Won't Let Go Patt (Johnny de City Intro Mashup)
-02. Tocadisco & Lucas & Steve vs. Lola Young vs. David Guetta & Morten - Morumbi Messy Kill Me Slow (Johnny de City Mashup)
-03. Galoski & Yaksa vs. Tiga vs. Audion vs. Age Of Love (   Читать дальше...   )Жанр: Dance, Electro Pop, Mashup, Hard DanceПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B78D249CE4DFAE394C925A114CC04FC80F0F2EF
 ```
 
 

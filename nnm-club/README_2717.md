@@ -1,3 +1,54 @@
+###  Публикация: 1775874   (71388) от 28.01.2025
+
+Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) [MP3|320 Kbps] <Instrumental Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravitas (G3 Reunion Live) (1:43)
+02. Avalancha (G3 Reunion Live) (7:24)
+03. Little Pretty Intro (G3 Reunion Live) (1:53)
+04. Little Pretty (G3 Reunion Live) (6:36)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 02:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD24A9C8F462E2D835FA942B405FB391FCE60BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775842   (71389) от 28.01.2025
+
+Шрифты - Historic Mystique – Modern Display Serif Typeface [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Historic Mystique — современный шрифт с засечками от Timelesstype.Co. Подходит для любых проектов, таких как: логотипы, проекты по брендингу, дизайн товаров для дома, упаковка продуктов, кружки, цитаты, плакаты, сумки для покупок, футболки, обложки книг, именные карточки, пригласительные билеты, поздравительные открытки, этикетки, фотографии, водяные знаки, специальные (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775827   (71390) от 28.01.2025
 
 Журнал | Приусадебное хозяйство №1 (январь 2025) [PDF]
@@ -611,60 +662,6 @@ Mal Waldron - The Recordings (2016) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B730504A7FF13E8A360B04E4DC37FDBC673000F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775616   (71414) от 27.01.2025
-
-VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow - Caladan (5:22)
-02. Kalico Jak - Reverence (7:33)
-03. Aglaia Rave - Dhyana (5:20)
-04. Tibetania - Equinox (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2123017CA30D6DCAD9FF998B999784DF73964870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775430   (71415) от 27.01.2025
-
-VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic, Pop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny ''Guitar'' Watson - A Real Mother For Ya
-02. Boz Scaggs - Lowdown
-03. Brothers Johnson - Strawberry Letter 23
-04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE5A6BE95CCB35AFF00E42FDE9007449B4270C8
 ```
 
 

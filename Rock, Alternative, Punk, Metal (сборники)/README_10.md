@@ -106,6 +106,33 @@ magnet:?xt=urn:btih:56EC92BA1A44A8F68FE85EFDE727DE3AC24414C4
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426339   (214267) от 24.11.2020
+
+VA - Рок 2020 Главные Хиты [MP3|320 Kbps] <Rock, Alternative, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_214267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corey Taylor - Black Eyes Blue (3:22)
+02. The Dangerous Summer - Fuck Them All (3:16)
+03. Highly Suspect - Canals (4:33)
+04. Trophy Eyes - Figure Eight (3:21)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 04:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A773AA5BAD8B780561A9D6D2A0B15357F8DD29EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343846   (214799) от 08.12.2019
 
 VA - Festival Indie Pop Rock Music (2019) [MP3|320 Kbps] <Indie, Pop, Rock, Alternative>
@@ -155,6 +182,60 @@ Dr. Project Point Blank Blues Band - Compilation (2022) [MP3|320 Kbps] <Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C4268655A8932939E2FF8ABA0B10A7403B3BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586448   (216629) от 26.10.2022
+
+The Kelly Family - Compilation (2022) [MP3|320 Kbps] <Rock, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Speak
+02. Like a Queen
+03. Life is Hard Enough
+04. First Time(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 02:57:44 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8F124974624E6D5AAB0969A2A810DA09345713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426099   (216634) от 23.11.2020
+
+VA - Punk Rock: Just The Hits! (2020) [MP3|320 Kbps] <Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Closed Speech - Offenpunk
+002. Holly Would Surrender - Centerfold
+003. Revenge - Booze Time
+004. Queequeg's Coffin - These Clouds(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 07:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3F62093B9AA1F1A49A02848DEFBBC68CCA1CCD
 ```
 
 
@@ -614,87 +695,6 @@ Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632974   (234803) от 13.05.2023
-
-Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_234803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Time Low
-02. I Know I Ain't Been So Perfect
-03. I Know What Love Can Do
-04. Here In Babylon(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632425   (234920) от 12.05.2023
-
-VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_234920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Black Dog (Remaster) [04:55]
-02. Megadeth - Symphony Of Destruction [04:07]
-03. Slayer - South Of Heaven [04:59]
-04. Black Sabbath - Paranoid (2012 - Remaster) [02:48](   Читать дальше...   )Жанр: RockПродолжительность: 06:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632541   (234935) от 12.05.2023
-
-VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_234935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blur - Coffee and TV (Radio Edit)
-02. Red Hot Chili Peppers - Under the Bridge
-03. Coldplay - High Speed
-04. New Order - Regret(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 02:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
 ```
 
 

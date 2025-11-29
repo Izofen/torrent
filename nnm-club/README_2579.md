@@ -1,3 +1,54 @@
+###  Публикация: 1791594   (67800) от 14.04.2025
+
+Своя игра (22.03–13.04.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:41:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872CF4FE6C0C3B19BC6342F803F1966842DCCA47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791537   (67801) от 14.04.2025
+
+Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait For You [5:42]
+02. The Windmills Of Your Mind [5:40]
+03. The Summer Knows [4:51]
+04. How Do You Keep The Music Playing_ [3:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA071091D7EC51EE59387AA4CF4E3309365E16AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791467   (67802) от 14.04.2025
 
 Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -615,60 +666,6 @@ magnet:?xt=urn:btih:16E1F73DEB171678C4E9FE07651D20D22E614B62
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3703D4F47C54F424F37BCBF30C8DFEEAB54F8513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790476   (67826) от 13.04.2025
-
-Алексей Ром - Всё к лучшему (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - В озере глаз твоих [00:02:59]
-02 - Всё к лучшему [00:03:25]
-03 - Бяссоннiца [00:04:18]
-04 - Зима [00:03:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE57D82431C9C929AE76F75D1E837E7F7FB66FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791297   (67827) от 13.04.2025
-
-Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Let Me Down Again
-2. Can't Get On
-3. I'll Be Home
-4. I Wanna Sail Into Your Life(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Soft RockПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C8BE230145E73798521249637028C49983CC15
 ```
 
 

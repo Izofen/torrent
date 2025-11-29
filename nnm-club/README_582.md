@@ -1,3 +1,57 @@
+###  Публикация: 1800880   (15439) от 06.06.2025
+
+Rhythmsoul - Wasted Dreams & Lonesome Roads (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost in the Midnight Blues (3:11)
+02.  Echoes of a Lost Love (3:54)
+03.  Long Road Back to You (3:23)
+04.  Shadows of the Past (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4E5F4D293A9994AD2C07D317B491ECCCC35438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800867   (15440) от 06.06.2025
+
+Ina Forsman - After Dark Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Four Seasons (3:54)
+02.  After Dark Hour (3:55)
+03.  Stubborn (5:07)
+04.  Pass You Bye (2:48)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DA7E6FFCB8CD506581F435B468BA3C83F39B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800877   (15441) от 06.06.2025
 
 Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -615,57 +669,6 @@ Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800836   (15465) от 06.06.2025
-
-Хлеб и розы / Bread and Roses (2000) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_15465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майя перебралась из Мексики в Лос-Анджелес к старшей сестре. Но здесь нелегальную иммигрантку встретила отнюдь не сладкая жизнь. Вместе с сестрой она работает за копейки, каждый день опасаясь высылки из страны. Кажется, что страх и бесправие — неизменный фон их будущей жизни. Но девушки встречают Сэма Шапиро, молодого парня, который вовлекает их в борьбу за свои (   Читать дальше...   )Производство: Великобритания, Франция, Германия, Испания, Италия, Швейцария / Alta Films, Alta Producción S.L., ARTE, Bac Films...Жанр: драмаРежиссер: Кен ЛоучАктеры: Пилар Падилла, Эдриан Броуди, Эльпидия Каррильо, Джек МакГи, Моника Ривас, Фрэнки Девила, Лиллиэн Херст, Мария Ореллана, Джордж Лопес, Мелоди Гаррет, Бенисио Дель Торо, Тим Рот, Одед Фер, Рон ПерлманПеревод: профессиональный многоголосый (Другое Кино)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9108FAA80E67A440469B41AD5B44CED47A44C573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800894   (15466) от 06.06.2025
-
-A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_15466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Away (04:38)
- 02. Running In Place (04:58)
- 03. Nothing Is Over (04:18)
- 04. A Wordless Prison (06:05)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109B8BB1B5EBCEF864C62E61B90DDEEFCC2B1DBB
 ```
 
 

@@ -1,3 +1,432 @@
+###  Публикация: 1717781   (111134) от 21.04.2024
+
+VA - Black Hole House Music 04-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZOYA - OneЖанр: House, Progressive HouseПродолжительность: 02:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F855C64568588A0122AC03FD2865986EB16AF496
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717511   (111135) от 20.04.2024
+
+SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Emocore, Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allow Us To Set The Scene [00:02:26]
+02. Subtle Whispers To Take Your Breath Away [00:03:06]
+03. And the Two Slipped Into The Shadows [00:03:25]
+04. Red Wine And Discontent [00:03:33](   Читать дальше...   )Жанр: Emocore, Post-HardcoreПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCEE86CBE38D7406B526100072D663B21597882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717467   (111136) от 20.04.2024
+
+Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know (2:49)
+02. Hill Country Love (3:04)
+03. Shake Em On Down (2:55)
+04. Juke Joint (2:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717417   (111137) от 20.04.2024
+
+Сто к одному (20.04.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111137.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда Артисты против команды Инфанты.Язык озвучки: РусскийПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D5F81B5F61B65D9853B09CD99FC033FDA9B413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717430   (111138) от 20.04.2024
+
+Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Should've Happened a Long Time Ago [6:07]
+02. Fiasco [7:49]
+03. Conception Vessel [4:32]
+04. Introduction [3:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D4AA38324B343EA6B303EB4082973D16C3155B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717485   (111139) от 20.04.2024
+
+Severin - Times like this (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What there's a lot of (3:15)
+02. Haze (4:19)
+03. Gun Shots (5:10)
+04. Down the Drain (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B02EFE60AB6880C7632145221D1249A92D3C2B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717424   (111140) от 20.04.2024
+
+Erroll Garner Trio - The Most Happy Piano: The 1956 Studio Sessions (2010) 2CD, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonglow [5:29]
+02. All God's Chillun Got Rhythm [5:02]
+03. Creme de Menthe (aka Dreamy) [4:45]
+04. Humoresque [5:11](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 02:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401DDBE5AEE5B14134C2A6667934A7007072C0E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717480   (111141) от 20.04.2024
+
+Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Said (4:33)
+02. You Know What I'm Talking About (4:11)
+03. Devil Woman (4:33)
+04. I Say Its Cold (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C6F3CAFC0867EB7E9119E65970FFC6649D568E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717318   (111142) от 20.04.2024
+
+Bongripper - Empty (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing [00:20:39]
+02. Remains [00:12:03]
+03. Forever [00:12:42]
+04. Empty [00:21:24]Жанр: Doom MetalПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC38F30A9BEA6DC4DB0BA7DC5E6CCF9D3D5ECA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717533   (111143) от 20.04.2024
+
+High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lambsbread [00:05:44]
+02. Burning Down [00:06:12]
+03. Trismegistus [00:05:36]
+04. Cometh The Storm [00:06:11](   Читать дальше...   )Жанр: Stoner, Sludge, DoomПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD65ABCC9828A898643C72B1FAAF154D2B2DE959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717479   (111144) от 20.04.2024
+
+Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Is A Highway (3:10)
+02. Skeleton Man (4:52)
+03. Blues Trap (3:02)
+04. Blood (5:56)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFD6DF560365D6A5057FFA0391B11EA4A43F9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717483   (111145) от 20.04.2024
+
+Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poor Boy (feat. Charlie Musselwhite) (2:27)
+02. Blues Singer (feat. Jimmy Vivino) (3:08)
+03. Left Hand Soul (feat. Lester Chambers of the Chamber Brothers) (5:04)
+04. Blackberry Jam (feat. Lester Chambers of the Chamber Brothers) (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5774CAC58B6C1C4D8CBFDEEE4D3ABE0721DA060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717470   (111146) от 20.04.2024
+
+City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Hold Myself (4:15)
+02. Not Good Enough for You (3:22)
+03. Beautiful Soul (2:44)
+04. We Change (4:41)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193A13665B64CC56F98DAF7D80DB2958EB2F708B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717426   (111147) от 20.04.2024
+
+Joe Mooney - The Happiness Of & The Greatness Of... (1964, 1965) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wait Till You See Her [2:55]
+02. But Beautiful [2:53]
+03. The Second Time Around [2:38]
+04. I Wish You Love [2:43](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D0C0E04B3246E19321A425DD43E0B3437D79EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717453   (111148) от 20.04.2024
+
+Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Button - Incendiary
+02. Soul Button - Dalliance
+03. Soul Button - Secret Sense
+04. Soul Button - Qabila(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01;14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42197CDC105F34E7A609E0C08D4E50B8D9943E39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717443   (111149) от 20.04.2024
+
+Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rinzen, Shallou - Burnin'
+02. Rinzen - The Pursuit
+03. Rinzen - Astronauta
+04. Rinzen, Molly Moonwater - Déjà Vu(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21058218FC5045DBEBD831FB678D511554BE75C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717535   (111150) от 20.04.2024
 
 Живая еда с Сергеем Малозёмовым (20.04.2024) WEBRip [H.264/720p]
@@ -253,417 +682,6 @@ magnet:?xt=urn:btih:8BF9B56EFC449013BA316470272BD003C2BF2883
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4EFFDBEE5E7E33C5A0DC2D84387556ADC49FD11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717563   (111160) от 20.04.2024
-
-Breeze - It's Only A Matter Of Time (1977) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only A Matter Of Time (3:12)
-02. A Letter (2:49)
-03. Where Is The Love (5:15)
-04. Cry Out (3:08)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7CC00D2F034CC81413FDCB134C23A87EF2577F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717501   (111161) от 20.04.2024
-
-Bloodbound - The Tales of Nosferatu - Two Decades of Blood (2004-2024) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal,  Melodic Metal,  Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodtale (Live at Masters of Rock 2023) [00:01:30]
-02. Tales from the North (Live at Masters of Rock 2023) [00:04:31]
-03. Slayer of Kings (Live at Masters of Rock 2023) [00:05:13]
-04. In the Name of Metal (Live at Masters of Rock 2023) [00:04:25](   Читать дальше...   )Жанр: Heavy Metal,  Melodic Metal,  Power MetalПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C4F3375BC8428380E2CC63DF236D9D4CB8BADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717319   (111162) от 20.04.2024
-
-Escape The Fate - Out Of The Shadows 2.0 (2023) Deluxe Edition, 2024, Big Noise Music Group [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgive Me [00:05:03]
-02. Choke [00:03:13]
-03. LOW [00:03:14]
-04. Rather Be Dead [00:02:36](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761C02A36C3CD2977FFBE7C974741EB01659BD1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717442   (111163) от 20.04.2024
-
-Пятеро на одного (20.04.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B55FF164747C81FF93186718948FEE05D4D41CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717492   (111164) от 20.04.2024
-
-Supernova Jazzhands - Blue Sunset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues will pick you up (2:02)
-02. You show me the way (2:54)
-03. Blue sunset (2:24)
-04. Got my motorcycle (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCED07B5D9764E781FEA256978048D98C7C7E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717482   (111165) от 20.04.2024
-
-Larry Campbell & Teresa Williams - All This Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Island Dreams (2:46)
-02. All This Time (3:45)
-03. Ride With Me (3:27)
-04. The Way You Make Me Feel (3:22)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F5AE161F75184930B3A5185F810F3FC3F8827A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717538   (111166) от 20.04.2024
-
-Слишком поздний блюз / Too Late Blues (1961) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон по прозвищу "Призрак", принципиальный музыкант, предпочитает играть блюз в парке для птиц, нежели идти на творческий компромисс. Однако когда Джон встречает прекрасную певицу Джесс Полански и влюбляется в неё, всё меняется: Джесс встаёт между блюзменом и его товарищами по группе, и Джон забывает о своих иллюзиях, отправляясь на поиски славы...Производство: США / Paramount PicturesЖанр: драмаРежиссер: Джон КассаветисАктеры: Бобби Дарин, Стелла Стивенс, Эверетт Чэмберс, Ник Дэннис, Винс Эдвардс, Вэл Эйвери, Мэрлин Кларк, Джеймс Джойс, Руперт Кросс, Марио ГаллоПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D2C30DE54B00EDDD74CCF81A08DBED263543A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717578   (111167) от 20.04.2024
-
-Своя игра (20.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111167.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5982A0F8AB818F9330DD55D3AAF2BAF00D42F08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717456   (111168) от 20.04.2024
-
-Whitecross - Fear No Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way We Rock 04:03
-02. Lion Of Judah 05:04
-03. Jackhammer 01:18
-04. Man In The Mirror 04:39(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC2AD5378EB821BE7A85F209017A52C2EEB9AE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717439   (111169) от 20.04.2024
-
-Kid Nebraska - Loud and Rude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud and Rude (3:21)
-02. Taylor Made (3:22)
-03. Making Up (3:59)
-04. Diggin a Ditch (3:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FA21EB1C33C6FAF448B30E6E447712A60B8076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717400   (111170) от 20.04.2024
-
-К.С. Барыбин | Геометрия. 9-11 классы (1967) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник написан по программам вечерней (сменной) средней общеобразовательной школы на 1965/66 учебный год.Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB994CDE904FEFA8C4DF19CC54942C19DF0E8A2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717399   (111171) от 20.04.2024
-
-Nova Scotia - Before I Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Trance, Scouse House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Scotia – Before I Sleep (4:45)Жанр: Trance, Pop Trance, Scouse HouseПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853A82B8201E8CC9C7453922D04B7B3A463C167D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717500   (111172) от 20.04.2024
-
-Поедем, поедим! Дубай: фотоссесия на краю небоскреба, заплыв с акулами и арабский плов (20.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Головокружительные приключения Федерико Арнальди в Дубае: ведущий отправился в самый туристический эмират и завис на краю небоскреба, заглянул в гости к акулам, поторговался на золотом рынке и посмотрел на мир с высоты башни Бурдж-Халифа. А еще Федерико побывал на ифтаре, попробовал самые яркие блюда местной кухни, пообедал со звездой фудблогинга, приготовил мусахан (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29484483AE9719DA80A7F2B6BDD08F2449B26A43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717608   (111173) от 20.04.2024
-
-VA - Pure Dreams, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zaranka - Last Journey (2:45)
-02. Prana Tones - Inner Peace (Original Mix) (4:56)
-03. Openzone Bar - Caribbean Nights (Original Mix) (3:45)
-04. Ajuna - Miracle (Anderson Doyle Instrumental Remix) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7F52C884E81B06E22B001BF1B29C451BB68824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717494   (111174) от 20.04.2024
-
-Сатисъ | Библия для детей (2017) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами новое, существенно переработанное издание книги протоиерея Александра Соколова «Священная История в простых рассказах для чтения в школе и дома. Ветхий и Новый заветы». При подготовке книги были устранены ошибки и неточности предыдущих изданий, текст приведен в соответствие с нормами современного русского языка.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57EE345AC4459F7A78AFA71CCAD23D625180EF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717455   (111175) от 20.04.2024
-
-Soul Button - Master Minds (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Button - Lumina (Original Mix)
-02. Soul Button - Tartribe (Original Mix)
-03. Soul Button - Mystique Veil (Original Mix)
-04. Soul Button - Tartribe (Nick Devon Remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EECEE5D97A42462F2694F40963EFFC4388DDA3
 ```
 
 

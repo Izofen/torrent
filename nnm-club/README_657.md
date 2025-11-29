@@ -1,3 +1,51 @@
+###  Публикация: 1810343   (17397) от 03.08.2025
+
+Сборники - Creative Market - Chroma Forms Ultimate-40 Pack - 6637721 [PNG, PSD, FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный набор Chroma Forms Ultimate-40, вдохновлённый эстетикой неофутуризма, содержит 40 форм с хромированным эффектом и их аналогов. Формы представлены в разнообразных формах с детализированными хроматическими эффектами, трёхмерными контурами, бликами и эффектами затухания.Формат: PNG, PSD, FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608E749E5782A95A9EB83B73F404CE0B239BD298
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798457   (17398) от 22.05.2025
+
+R-Drive Image System Recovery Media Creator 7.3 Build 7307 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17398.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Drive Image — является эффективной утилитой для создания файлов образа диска и резервного копирования данных. Файл образа диска, содержащий точную, "байт в байт" копию жесткого диска, раздела или логического диска, может быть создан без перезагрузки компьютера и с различным уровнем сжатия данных. Созданный образ диска может быть сохранен на носителях (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32DBBDCEAA35E17FD13015FFAC8775A384B4605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797888   (17399) от 22.05.2025
 
 ВИА «Васильки» (2025) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
@@ -581,60 +629,6 @@ Tenkiller - Burn the Boats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD30AF70045F7DA748C3B7A91CF49739A26A6B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810315   (17423) от 03.08.2025
-
-Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_17423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can't Hold on Forever (3:29)
-02.  Heartache (4:25)
-03.  Everywhere I Go (3:23)
-04.  No One's Business (3:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B8757FB2477325676FE081DD57152AF3A10302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810318   (17424) от 03.08.2025
-
-Sepultura - Roots (1996) 2 x CD, Compilation, Reissue, Remastered, 2017, Roadrunner Records [FLAC|Lossless|image + .cue] <Thrash, Nu Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_17424.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 2017 Remaster:
- 1-1 Roots Bloody Roots 3:33
-1-2 Attitude 4:15
-1-3 Cut-Throat 2:45(   Читать дальше...   )Жанр: Thrash, Nu Metal, ExperimentalПродолжительность: 02:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB7DD11338F055D6CEE32EB13FF44CB26662F77
 ```
 
 

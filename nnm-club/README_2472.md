@@ -1,3 +1,57 @@
+###  Публикация: 1808026   (65018) от 22.07.2025
+
+Sculptured - The Liminal Phase (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressiveб Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Ordeal Of Undecidability (08:41)
+02 - Dead Wall Reveries (06:21)
+03 - State Of Exception (06:40)
+04 - At The Margins Of Light (09:49)(   Читать дальше...   )Жанр: Progressiveб Melodic Death MetalПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1927206BDECE44991ABE697FB9EA444196717EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808030   (65019) от 22.07.2025
+
+Sculptured - The Liminal Phase (2021) [MP3|320 Kbps] <Progressive, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ordeal of Undecidability
+02. Dead Wall Reveries
+03. State of Exception
+04. At the Margins of Light(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C757AFF97BF4E1DB3B1D8204946DF11DFCD9A56D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808080   (65020) от 22.07.2025
 
 Bleeding Hands - Lost Integrity (2015) [FLAC|Lossless|image + .cue] <Melodic Thrash, Groove Metal>
@@ -632,60 +686,6 @@ Cyanide Grenade - Cannibal Era (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CFAC92ED1DE033EB0D2A6D335DB9847EF59FAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808125   (65044) от 22.07.2025
-
-Dwellers - Corrupt Translation Machine (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Headlines (4:04)
-02.  Spiral Vision (4:21)
-03.  Old Ways (4:33)
-04.  The Beast (5:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22344EC37C579CF8C07D20C6C3DBBCC29CBB355
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807989   (65045) от 22.07.2025
-
-Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation (5:05)
-02. Slave To Love (4:27)
-03. Don't Stop The Dance (4:19)
-04. A Waste Land (1:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 1799630   (66448) от 29.05.2025
+
+Гы-Гы приколы v1.134 Mod by vadj [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66448.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГыГы приколы - это обновляемая несколько раз в день, подборка смешных видео и фото. Внутри приложения вы найдете социальную сеть людей, которые ценят качественный юмор. Практически все публикации в приложении созданы пользователями. Наша особенность, мы позволяем делиться приколами с друзьями. Вы сможете отправить само видео, картинку или гиф. Не ссылку на публикацию, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.05.2025Разработчик: OlVicПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4D1EB69BC00EF17544248296458604974A5A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799729   (66449) от 29.05.2025
+
+Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Firefighting Simulator вам предстоит примерить на себя роль настоящего работника пожарной команды крупного американского города. Игроков ждут захватывающие задания, разворачивающиеся на 23 квадратных милях (почти 60 кв. км) городской застройки, и более 40 разнообразных мест, созданных под впечатлением от пейзажей западного побережья США.Тип издания: RepackРазработчик: Chronos UnterhaltungssoftwareЖанр: Экшены, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B018821940AD26C0BD1D0645B87492806022BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799720   (66450) от 29.05.2025
 
 O.C. Zienkiewicz, L.R. Taylor | The Finite Element Method [3 книги] (2000) [DJVU] [En]
@@ -621,60 +669,6 @@ Barbara Dennerlein - Hot Stuff (1990) Enja Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C1ACD82DEBE8B9E35DB3CDDD12394E09618B11B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799435   (66474) от 27.05.2025
-
-Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Cry from the Halls of Blood/Empire of Lost Dreams (A Long Journey Demo, 1991)
-02. A Lonely Ceremony/The Eternal Walk (Very First Recording With the Band, 1990)
-03. Journey in Darkness/Entering the Forest (An Old Rehearsal Recording, 1991)
-04. Castle of No Repair/Lies from a Blackened Heart (A Long Journey Demo, 1991)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCD5DD3E979E06E8740EB13406D610E1E6A70AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799118   (66475) от 27.05.2025
-
-Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frivolous Sal [3:17]
-02. Tangerine [3:10]
-03. I Cover the Waterfront [3:43]
-04. You Stepped Out of a Dream [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5112A0DA0F9099C3C02269EBAB54F5F4285BC9
 ```
 
 

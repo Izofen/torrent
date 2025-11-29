@@ -1,3 +1,366 @@
+###  Публикация: 1769648   (100651) от 29.12.2024
+
+Маленький зуав / Au P'tit Zouave (1950) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кафе «Маленький зуав», которым управляют Арман Бийе и его жена, часто собираются колоритные завсегдатаи из рабочих кварталов Парижа. Там бывают владельцы близлежащих магазинов и мелкий бандит Луи, заходит мадмуазель Элен, которая вынуждена терпеть назойливые ухаживания клиентов и Эжен, бывший офицер полиции, сутенер «ночной бабочки» Ольги... Однажды вечером в бистро (   Читать дальше...   )Производство: Франция / Codo CinémaЖанр: драма, комедияРежиссер: Жиль ГранжьеАктеры: Франсуа Перье, Дани Робен, Мари Даэмс, Жак Морель, Алиса Фильд, Робер Ле Фор, Бернар Ла Жарриж, Поль Азаис, Марсель Делэтр, Эмиль ЖеневуаПеревод: любительский одноголосый (Мика Бондарик)Язык озвучки: русский, французскийСубтитры: русские (Мика Бондарик), английскиеПродолжительность: 01:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A6148A118032DAD2325579788005CCD1B1B918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769593   (100652) от 29.12.2024
+
+Photo Studio PRO v2.7.12.3613 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 28.12.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2358D2EE733CE6749C7ED7FF353396D539DA9139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769750   (100653) от 29.12.2024
+
+Александр Костюнин - Апельсин (2024) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Авось [00:02:36]
+02 - Братцы [00:03:27]
+03 - Брейк-данс [00:02:46]
+04 - Дикий конь [00:02:25](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02E34812AD096CF4423E0622B1CAC9D4F91EA8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769694   (100654) от 29.12.2024
+
+Газета | Тайны СССР №1 (127) (январь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF871CBB2BD418DE24715C2FA64AB1E75D80ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769698   (100655) от 29.12.2024
+
+Газета | Тайны СССР №2 (128) (февраль 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A725B0750547584CBC283253BE8DC7E88E37FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769772   (100656) от 29.12.2024
+
+Marcus King - Mood Swings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood SwingsЖанр: Blues, RockПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A559EDFED74BB10E2D876AC9AB805B819078327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769794   (100657) от 29.12.2024
+
+Ned Evett - Strange Kind Of Freedom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good News (3:18)
+02. Make Way For LaBuda (3:26)
+03. Strange Kind Of Freedom (4:13)
+04. In Between (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A844B8F6C24C343B726386D97D6DE9EEA9F4087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769780   (100658) от 29.12.2024
+
+Mesquite Cafe - Raven's Cry (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snakebite Juice (3:05)
+02. Believe (4:39)
+03. Purple Pants (2:49)
+04. I Know How To Run (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E6566BBE96860FD0701C6349A6DFEA94EC5024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769776   (100659) от 29.12.2024
+
+Mark Bennett Gartman - Crossing of the Roads (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avenue D Blues (3:31)
+02. The Train (2:43)
+03. Mama I'm Tired (3:01)
+04. Can't Hold Back (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7789A47D7F268D9A055ADAD33A98A29933AED797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769754   (100660) от 29.12.2024
+
+Kripton - Fire on My Strings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Dreams (1:10)
+02. Soulful Blues (English version in the style of Blues Rock) (2:54)
+03. Digital Show (2:59)
+04. Delta blues (2:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E199C8CF08FDF78FF78D9D4D7D5FFFE11FDAD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769763   (100661) от 29.12.2024
+
+Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return Of The Dynamite Biters (1:35)
+02. Friendly Fire (4:28)
+03. Creatures Of The Night (4:16)
+04. Underground Shuffle (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3CF4E65C1344CFBCEC8CFDFE71171C5B591219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769767   (100662) от 29.12.2024
+
+Mako - Virtual Blues II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bench Side (2:23)
+02. Cozy Corner (2:44)
+03. Cruel Shadow (2:34)
+04. Digital Soulmates (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1618404EF4BBC4C9CB4D5CE408D8AEBA685C470A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769759   (100663) от 29.12.2024
+
+Lance and Lea - Boots & Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Blues, Blues Rock, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longneck State Of Mind (2:55)
+02. Cowboys From Texas (3:09)
+03. Neon Dream (3:52)
+04. Heartbreak Hall Of Fame (Lea’s Version) (3:18)(   Читать дальше...   )Жанр: Country, Blues, Blues Rock, Singer-SongwriterПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325DD81CB67F576EF8FDD81FEA34DC90037017BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769702   (100664) от 29.12.2024
+
+Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Mates [9:43]
+02. Someone to Watch over Me [4:58]
+03. All God's Chillun Got Rhythm [3:35]
+04. My Funny Valentine [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAC5058D69E5CA9251721CB7ADC93B1082CB26E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769685   (100665) от 29.12.2024
 
 НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
@@ -296,384 +659,6 @@ Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD18A689A255A660DB4099113824E61B094B2221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769332   (100677) от 28.12.2024
-
-Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is Alive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Snow [2:31]
-02. We Three Kings [3:55]
-03. Have Yourself a Merry Little Christmas [4:56]
-04. Sleigh Ride [3:48](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36F87876E4A2937B90914D1249FA34C65C79200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769346   (100678) от 28.12.2024
-
-The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Water Blues (2:55)
-02. White Trash Mind (3:08)
-03. Mississippi Mud (2:55)
-04. Corn Liquor (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615DBBED15049262CDF43AF609187028797CD826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769458   (100679) от 28.12.2024
-
-VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TP One & D`Arcangel - Jade Eyes Of Asia (Mixed) [05:02]
-02. Mike Van Fabio - Love Of Yesterday (Mixed) [03:45]
-03. Kaselia & N-sKing - Endless Horizon (Mixed) [04:54]
-04. Laucco - Yinghu (Mixed) [04:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73C4B1745B5D314744F701065D210C0442DAFD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769355   (100680) от 28.12.2024
-
-Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinta Kali Ini (4:23)
-02. Take It Easy (4:41)
-03. Worries (5:02)
-04. In My Veins (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CEE1724B6F478EAD8DD779D3CFCA6A71182F70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769290   (100681) от 28.12.2024
-
-Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push - Universal Nation
-02. Mesh - Purple Haze
-03. Rex Mundi - Backpain
-04. Bart Claessen & Raz Nitzan presents Who.Is - We.Are (Markus Schulz In Search of Sunrise Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A30505EA080930FD46B3FFF1F838E5EF3C2A58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769349   (100682) от 28.12.2024
-
-The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Raiders (3:25)
-02. Smoke (4:14)
-03. Yeah-Yeah (3:18)
-04. Body on the Floor (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A87A77C4431002D56BEEF41162AB032B2B58DD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769354   (100683) от 28.12.2024
-
-Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right On Track for the Trainwreck (2:55)
-02. When Questionable People Have the Answers (3:36)
-03. Overpoured (I've Had It and I've Had It) (2:49)
-04. Patterning (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE0D0769339590C417306B2FCBA26FEF87F0500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769469   (100684) от 28.12.2024
-
-VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pinkque - Ghost Of You (Mixed) [03:23]
-02. Airdream & Victor Special - Autumn Haze Before Sunrise (Mixed) [05:36]
-03. Kvaii - Sunshine (Mixed) [05:01]
-04. Cenk Basaran - Coming From Paradise (Mixed) [04:20](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DDFC6E70083306DF213093BE62A2C5C7EC4A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769287   (100685) от 28.12.2024
-
-Vintage Culture - Live @ Ushuaïa Closing Pre-Party: The Last dANTS, Cafe Mambo Ibiza, Spain (2024-10-11) [MP3|320 Kbps] <House, Nu Disco, Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Voulez-Vous
-02. Chew Fu ft. Steve Clisby - Purple Rain (Mousse T Home Alone Mix)
-03. Mousse T & Hot 'N' Juicy ft. Inaya Day - Horny
-04. Piero Pirupa - Everybody's Free (To Feel Good) (Deeper Purpose Remix)(   Читать дальше...   )Жанр: House, Nu Disco, DiscoПродолжительность: 01:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C662AA511691AC91B84C713087FBE508E24D4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769418   (100686) от 28.12.2024
-
-VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Ram Attack (03:46)
-02. DIM3NSION & Daxson - Ardora (03:12)
-03. Mike EFEX - Malfunction (02:39)
-04. Stoneface & Terminal - In My Mind (02:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769335   (100687) от 28.12.2024
-
-Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big River Little Town (4:29)
-02. The Witch (Gal Durly Dee) (2:40)
-03. Dreamin' (3:43)
-04. Babe & I (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4753CFEA239736A58B455F21C373F406E2703C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769425   (100688) от 28.12.2024
-
-VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Crooker - New World (Mixed) [04:48]
-02. Menno Veda - Orbit (Mixed) [02:00]
-03. Afterus - Sparta (Mixed) [04:43]
-04. Pinkque & Darren Porter - Divergent (Mixed) [04:21](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805A759EB9C359A19DB18A4DC32DEE1B6569E77A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769337   (100689) от 28.12.2024
-
-The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murder (2:53)
-02. Started Something New (2:44)
-03. Anthropomorphic (3:10)
-04. Blue Minute (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046B7A338F5B49765918B5116D5A8F277BDC3157
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769330   (100690) от 28.12.2024
-
-Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll with the Punches (4:29)
-02. Route 66 (3:36)
-03. Get Together (3:15)
-04. Yeah Yeah (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC3AEB45BE195A26CE3E9941026655E4F214BBC
 ```
 
 

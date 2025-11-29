@@ -1,3 +1,420 @@
+###  Публикация: 1729312   (108118) от 10.06.2024
+
+Николай Лесков | Владычный суд. Епархиальный суд (2008) [MP3, Валентин Морозов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+«Владычный суд» – рассказ Николая (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, быльИздательство: Вира-М (аудио)Продолжительность: 03:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB202223EEDF4161CE01AEA6C6575D7A9DAD2383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729010   (108119) от 10.06.2024
+
+Kujan - Crying at the Discoteque (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kujan - Crying at the Discoteque (3:24)Жанр: Nu-Disco, HouseПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E999F11E89425E99A08FE2523F38F2588C9767C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729247   (108120) от 10.06.2024
+
+Журнал | Таинственные истории №12 (292) (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108120.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1FF5A3A9F8C49F19D630F3212E074D2CBAC340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729068   (108121) от 10.06.2024
+
+Humanity Gone - Everything Nothing (2024) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything (07:53)
+ 02. Nothing (09:39)
+ 03. Tossing Stones (05:55)
+ 04. EMP (07:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BE1B49C5D5FF5CCE36B4006098C30C3A208FB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729293   (108122) от 10.06.2024
+
+Joanne Shaw Taylor - Heavy Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet 'Lil Lies (5:18)
+02. All The Way From America (4:20)
+03. Black Magic (4:26)
+04. Drowning In A Sea Of Love (4:35)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6258C75DC7D366ACA8A7EA30B6CDBC3DBAF5F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729301   (108123) от 10.06.2024
+
+Lucassen & Soeterboek's Plan Nine - The Long-Lost Songs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor Robert's Medicine Show (3:52)
+02. The Preacher (4:33)
+03. Annie Moore (4:46)
+04. Get Down To Bizniz (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0D4262C39C1A6D79ADDF9B43AAA518131990B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729294   (108124) от 10.06.2024
+
+Calvin Russell - Tribute To Calvin Russell (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugh Coltman - Shadow Of Doubt (4:33)
+02. Manu Lanvin - Wild Wild West (4:17)
+03. David Minster - Behind The 8 Ball (5:54)
+04. Beverly Jo Scott - Crossroads (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76977C7873C94B95A2E9BFFC5B80D5B4DDC4C3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729242   (108125) от 10.06.2024
+
+VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run 4 Fun - Please Don't Talk To Jessica (Pleasure Mix)
+02. General Base - I See You (General Radio Mix)
+03. Real Hype - Train Of Love (Radio Edit)
+04. Sophie Weller - Venus (Goddess Of Love)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC33D8A334079A1F09463A6FF55FA8FF7A5FAC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729298   (108126) от 10.06.2024
+
+Ivan Kravchenko - Lady Made of Sand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Made of Sand (2:55)
+02. Waves (2:34)
+03. Beautiful Liar (4:37)
+04. Special (Nastly Liquor) (2:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F232C1C506E74D964A75DC51CFEF048C36F1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729093   (108127) от 10.06.2024
+
+Gone til Winter - Hear Me (2009) Single [MP3|320 Kbps] <Gothic Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me (Radio Edit)Жанр: Gothic Metal, RockПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0E7795C523453821EDAE8FD559C5ED6C764E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729279   (108128) от 10.06.2024
+
+Carpenthus - Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of the Dancing Valkyries [00:02:05]
+02. Heroes of the Great Battle [00:02:49]
+03. The Saga of the North Winds [00:02:53]
+04. The Legend of the Ancient Drakkar [00:01:36](   Читать дальше...   )Жанр: Folk, Symphonic MetalПродолжительность: 00:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A75396C31ABCED5B5C4DD21B1B260F6187AAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729300   (108129) от 10.06.2024
+
+Johanna Red - Stronger Than You Thought (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Games (3:41)
+02. Stronger Than You Thought (3:30)
+03. Hiding in Your Lies (3:45)
+04. Red Room (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E6C0C2DCC2B9534959CE17CEDD0834A985380E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728981   (108130) от 10.06.2024
+
+Gangruel - The Harvest Withers (2024) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Harvest Withers
+02. Starvation
+03. Forlorn
+04. Faltering(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749855B0E4745CF6DC3D5AFAA454D7F8D7A488CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729339   (108131) от 10.06.2024
+
+The Hu - Live At Glastonbury (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shihi Hutu (Live at Glastonbury)
+02. The Gereg (Live at Glastonbury)
+03. Shoog Shoog (Live at Glastonbury)
+04. Eseerin Vasahina (Live at Glastonbury)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84D2BCFEEBAEC58CA4007807718DD126FE31482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729180   (108132) от 10.06.2024
+
+Лара Фортуна | Душа бизнесмена (2024) [MP3, Сергей Курнаев]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновляющая история о нелёгком пути бизнесмена к финансовому и духовному процветанию. Книга, основанная на автобиографическом материале, подробно описывает опыт внутренней трансформации главного героя Максима от первого лица.
+Пройдя через предательство бизнес-партнера, развод с женой и ряд других событий, Максим обретает целостность, настоящую любовь и своё истинное (   Читать дальше...   )Жанр: Бизнес-романИздательство: Аудиокнига своими рукамиПродолжительность: 09:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6417327A47206C6585005FD6D3C31E2FA55643
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729250   (108133) от 10.06.2024
+
+Кирилл Кащеев, Илона Волынская | Потомокъ (Книга 3). Князь мертвецов (2024) [MP3, Илья Сланевский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение детективного стимпанк-фэнтези в альтернативной Российской империи, где правят потомки древних славянских богов! Митя Меркулов мечтает о блеске светских вечеров и новых нарядах, но судьба заставляет его нести тяжелое бремя героя. Сначала – спасение уезда от нашествия зомби, затем – защита губернского города от варяжского набега. Митя уже упокоил (   Читать дальше...   )Жанр: фэнтези, мистикаИздательство: ВИМБОПродолжительность: 23:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646DF8393733619F166524794342127F6DB863C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729252   (108134) от 10.06.2024
 
 Иеромонах Елпидий | Пророчества. Сценарий конца времён (2023) [PDF]
@@ -248,432 +665,6 @@ magnet:?xt=urn:btih:777ED8D0954DAA969316ABCC44029FE2EB350D9B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D8CED98D6FD910A622F8A4E6EEFE6040B421DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729319   (108144) от 10.06.2024
-
-Николай Лесков | Павлин (2017) [MP3, Дмитрий Креминский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Николай Лесков широко, объективно отразил в своих произведениях жизнь российского общества его эпохи – эпохи отмены крепостного права, пробуждения деловой активности масс, размежевания (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ООО «Эвербук»Продолжительность: 02:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231B6295D5E71F617D285E2148528C435FD324F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729109   (108145) от 10.06.2024
-
-НашПотребНадзор (09.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аппараты для дозирования мороженого в кафе — это притон для плесени, бактерий и даже опарышей? Какие бренды лепят эскимо и пломбир из растительных жиров? Как субпродукты превращают в гастрономический шедевр и почему это одобряют даже врачи? Куриные крылья от каких брендов пропитаны антибиотиками? Действительно ли уличную мебель делают из токсичной пластмассы и насколько (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BF6B0DE9BF416579C3678BBBA4EE9C16800368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729106   (108146) от 10.06.2024
-
-VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N-Trance & Richardo Da Force - Stayin' Alive
-02. Masterboy - Feel The Fire
-03. DJ Bobo - Everything Has Changed
-04. The Outhere Brothers - La La La Hey Hey(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95594B6A2E55A1A4AF2E2B43F1279102024B2414
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728879   (108147) от 09.06.2024
-
-Etta Jones - 1944 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salty Papa Blues [2:58]
-02. Evil Gal Blues [2:59]
-03. Blow Top Blues [2:36]
-04. Long, Long, Journey [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90C853AB65BCA59AA79612E5605653FB94BBE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728903   (108148) от 09.06.2024
-
-The Measure - Heaven Is Only In Our Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Void [00:03:40]
-02. One Million Eyes [00:03:43]
-03. What I Am [00:03:19]
-04. DAYDREAMER [00:03:45](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AE13A397EE99F13BD6B402909B15BF11DD931F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728806   (108149) от 09.06.2024
-
-Gurt - Satan etc (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The most dying way to die [00:04:25]
-02. Knife fever [00:03:48]
-03. In for a penny, In for a pounding [00:04:08]
-04. Appetite for construction [00:04:34](   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29405F47BE84B73880290ADEF43888252316840B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728876   (108150) от 09.06.2024
-
-Sonny Stitt - 1951 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Cover the Waterfront [2:42]
-02. Don't Worry 'Bout Me [2:47]
-03. Down with It [2:34]
-04. For the Fat Man [2:58](   Читать дальше...   )Жанр: BopПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CD401ED22429407BC9F3E7A9BFBC188CB40450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728900   (108151) от 09.06.2024
-
-Intranced - Muerte Y Metal (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reyes De Las Tinieblas (03:53)
-02. Switchblade (04:25)
-03. Fantasy (04:18)
-04. I Dunno Nothin' (03:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0051BE6CFB4CB2696FA78892EA4505A3C7571D01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728918   (108152) от 09.06.2024
-
-Goat Girl - Below The Waste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. reprise [00:01:46]
-02. ride around [00:04:09]
-03. words fell out [00:03:01]
-04. play it down [00:03:40](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6158E3E53DDE7C2A06E513FD53E65CE02A513E72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728749   (108153) от 09.06.2024
-
-Cristiano Giardini - Odisseya (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Viaggio (6:40)
-02. La Tela (6:06)
-03. La Tempesta (8:50)
-04. Il Ciclope (8:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17B9468DA2605AC104D8C362787EF7672AB1E12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728906   (108154) от 09.06.2024
-
-Folkrim - Tales of Tumult (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Fate Foretold (00:03:22)
-02 - Santulla Saahaan (00:03:22)
-03 - Hoist The Dew (00:03:18)
-04 - aventyrsvisan (00:03:25)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6850ED57CA18DDC72A5FE67DC6617E61315CBA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728988   (108155) от 09.06.2024
-
-Adjentist - Ill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dark Days (00:04:09)
-02 - Blackout (00:03:42)
-03 - The Edge (00:03:33)
-04 - Empty Halls (00:02:56)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2E71D5630B082BB854962B1692C300721852B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728909   (108156) от 09.06.2024
-
-Krec - Сухой Закон (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сухой [00:01:32]
-02. Наши тени [00:05:12]
-03. Пустяк [00:05:02]
-04. Ветер [00:03:00](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B77CF3314994FB81C99A5643E475C593D0E739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728950   (108157) от 09.06.2024
-
-Sant Andreu Jazz Band - Jazzing 14 Vol.2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Never Knew (6:10)
-02. When You're Smiling (3:39)
-03. The Nearness Of You (4:26)
-04. Chinatown My Chinatown (2:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE9109C618694F99C3FE981F869CEB3B4749C56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728964   (108158) от 09.06.2024
-
-ADX - Lempire du crepuscule (2024) [FLAC|Lossless|image + .cue] <Speed Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les charognards (3:56)
-02. Tout en puissance (5:00)
-03. Hors controle (4:40)
-04. Legions (4:30)(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A344F34C488779B5F99939E42E4E99EA681C521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728875   (108159) от 09.06.2024
-
-Dizzy Gillespie - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocktails for Two [2:43]
-02. Cognac Blues [2:42]
-03. Moon Nocturne [3:04]
-04. Sabla y blu [3:06](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE9E06859D36757BB8BA11AED2EFB6683E1C339
 ```
 
 

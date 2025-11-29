@@ -1,3 +1,51 @@
+###  Публикация: 1779279   (70738) от 12.02.2025
+
+Microsoft Visual Studio 2022 Community 17.13.0 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D734DF4866BC68C2E2EB447EA9D69E047D5B8179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779360   (70739) от 12.02.2025
+
+Microsoft Visual Studio 2022 Enterprise 17.13.0 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408B30970334CCC06EE11EF2C746FE58A00F451A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779283   (70740) от 12.02.2025
 
 Бесхитростное убийство / Den enfaldige mordaren (1982) HDRip [H.264] [VO]
@@ -590,60 +638,6 @@ magnet:?xt=urn:btih:DC3C165FADB046A51F43700952C656C127C48289
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B2D6A949BD81A6A2FEDB10859F3778C5B924D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778881   (70764) от 10.02.2025
-
-Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak with a Single Voice [17:42]
-02. O's Time [11:06]
-03. Goodbye [13:56]
-04. Scufflin' [14:39]Жанр: Post-BopПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3BC85AB0146B23719DA585C5528668ECF886EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778876   (70765) от 10.02.2025
-
-Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Around [4:55]
-02. Pusherman/Superfly [7:16]
-03. Wichita Lineman [6:04]
-04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
 ```
 
 

@@ -1,3 +1,434 @@
+###  Публикация: 1729925   (107988) от 13.06.2024
+
+The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mine All Mine (3:33)
+02. How Does It Feel (3:09)
+03. Last Time I Saw The Sun (4:13)
+04. Mainline (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE1F0D13B221DE459919371132A539FFEA78ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729972   (107989) от 13.06.2024
+
+Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got to Get in Touch (2:41)
+02. Prodigal Son (4:50)
+03. Don't Be Dismayed (MD) (5:37)
+04. Walkin' Shoes (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C8C24A65B34F1ED9A153905EE8F0BBC5A3EAA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729812   (107990) от 13.06.2024
+
+Hypersonic - Existentia (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Sound of Life (Principium)
+02. The Eyes of the Wolf
+03. As an Angel
+04. Blind Sins(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A920003590971BD54B731444C1B7A7A7BA2BC6B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729887   (107991) от 13.06.2024
+
+Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic pop, indie rock, fadeaway, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If She Really Loved Me (00:04:40)
+02 - Slow Down (00:03:39)
+03 - My Reasons Why (00:05:03)
+04 - IVe Come To Realize (00:05:12)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2DC8C0247DB941D89C810DEB0CE838D4A9C036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729920   (107992) от 13.06.2024
+
+Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Law Of Jante (feat. Freya Miller) (1:27)
+02. We Come Alive (3:29)
+03. Teenage Rebel (4:32)
+04. Last To Know (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241DABD4B532719039C99F6B964B114BB527C1A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729882   (107993) от 13.06.2024
+
+Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic, indie rock, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cant Be Late (00:05:18)
+02 - Spring Song (00:04:55)
+03 - I Dont Like Money Anyways (00:03:48)
+04 - Colours (00:03:36)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8A8F8CCE1D2628FF4F26370686CB51B70E23BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729959   (107994) от 13.06.2024
+
+Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk Metal, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Зима Р-254
+A2 - Лён
+A3 - Плач Нау
+B1 - Последнее Лето Детства(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729739   (107995) от 13.06.2024
+
+Gustaf Westin featuring AGFF - Piece by Piece (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure (4:01)
+02. Messed Up Mind (4:42)
+03. Paria (3:37)
+04. Cotton Bear Road (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1322660EE3CB12F4DF7801A4401C1F6601413873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729741   (107996) от 13.06.2024
+
+Kickhunter - Greatest Kicks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Emotions (Remix 2024) (3:31)
+02. Mine All Mine (Remastered 2024) (4:00)
+03. This Summer (3:48)
+04. To Hell and Back Again (Remix 2024) (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08C4DA14E0D6EE5FD8C42D876271004C4CC5487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729933   (107997) от 13.06.2024
+
+Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|Vinyl-Rip]  <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107997.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ferrum Aeternum
+A2 Iron
+A3 Sword Chant
+A4 Mourning Heart - Interlude(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7454BBFA23C158F5DA11FF22A25A741672747478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729921   (107998) от 13.06.2024
+
+Shred - What They Say (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What They Say (4:51)
+02. Nobody Knows Me (4:29)
+03. The Ride (3:39)
+04. Monster (4:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3B7A544944D849486552D933115989F56D7DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729588   (107999) от 12.06.2024
+
+When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107999.jpg" />
+</div>
+
+
+###  Подробнее
+
+When Nothing Remains - шведская дум/дэт-метал группа, в которую входят участники таких групп, как Nox Aurea, The Cold Existence, Rimfrost, Draconian, Doom: VS.
+Идея When Nothing Remains родилась в конце 2010 года, когда Питер Лаустсен «Rimfrost, Nox aurea, The Cold Existence» и Ян Салландер «The Cold Existence» захотели создать что-то очень мрачное и эмоциональное. (   Читать дальше...   )2012 - As All Torn Asunder
+2013 - Thy Dark Serenity
+2016 - In MemoriamЖанр: Gothic/Doom/Death MetalПродолжительность: 03:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88278C64D1AB5C7A3E29DF0125E67A0C6DC749A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729408   (108000) от 12.06.2024
+
+Libra - Follow The Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journeying [00:03:39]
+02. Live Yourself [00:04:22]
+03. My Shining Soul [00:03:35]
+04. I'll Breathe For Me [00:04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CE32EEE15B4D7AD3CA5C4EF59E11200AD17B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729733   (108001) от 12.06.2024
+
+Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xaon — швейцарская метал-группа, образованная в 2014 году.2016 - Face of Balaam (EP)
+2017 - The Drift
+2019 - Solipsis
+2022 - The LetheanЖанр: Symphonic Death MetalПродолжительность: 02:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729766   (108002) от 12.06.2024
+
+Корней Чуковский | Лучшие стихи для детей (2007) [MP3, Клара Румянова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корней Иванович Чуковский (1882–1969). Настоящее имя – Николай Васильевич Корнейчуков. Русский писатель, поэт, переводчик, историк литературы.
+В книге собраны лучшие стихотворения детского писателя Корнея Ивановича Чуковского: «Муха-Цокотуха», «Телефон», «Мойдодыр»...
+CD-диск с записью стихов в исполнении Клары Румяновой, Ирины Муравьевой, Валентина Гафта, Алексея (   Читать дальше...   )Жанр: Русская литература для детей, классика, стихиИздательство: Студия «Самовар»Продолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19AAD5D3EDB1443B7017E14B0EE4CA87DAFD161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729693   (108003) от 12.06.2024
+
+Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mortician - австрийская хэви-метал группа из Саттайнса и Фельдкирха, Форарльберг.2011 - Mortician
+2014 - Shout For Heavy Metal
+2020 - Titans
+2023 - 40 Years Of MetalЖанр: Heavy MetalПродолжительность: 02:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729596   (108004) от 12.06.2024
 
 Hilltop Howlers - Alright, Alright! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
@@ -263,430 +694,6 @@ Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28933356C7D8CAD375FD247AD144CCBB3966810
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729726   (108014) от 12.06.2024
-
-Hour of Penance - Disturbance (2003) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Zorn Gottes
-02. Rise and Oppress
-03. Mystification as Law
-04. From Hate to Suffering(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68387B13CE44679AEAD23C914A1D3FC24BD3129F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729735   (108015) от 12.06.2024
-
-Hour of Penance - Pageantry for Martyrs (2005) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Towards Our Storm
-02. Shreds of Martyr
-03. End of Relief
-04. Celebrating Collective Terror(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C58626DA7BCCA82ED5497681A3E2A753B9F432F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729743   (108016) от 12.06.2024
-
-Hour of Penance - The Vile Conception (2008) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misconception
-02. Liturgy of Deceivers
-03. Hideously Conceived
-04. Drowned in the Abyss of Ignorance(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D2106675DC31AB4E8BB036477B024AC51479C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729549   (108017) от 12.06.2024
-
-Hour of Penance - Cast the First Stone (2017) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.XXI Century Imperial Crusade
-02.Cast The First Stone
-03.Burning Bright
-04.Iron Fist(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F718A96C19B3A39EC6D5472DF9AE6C214AB9A8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729595   (108018) от 12.06.2024
-
-The Delta Voices - America Sings the 4th of July (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sparkling Skies (3:15)
-02. Fireworks in the Sky (3:36)
-03. Small Town Fireworks (2:19)
-04. Independence Day (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA47014F4A7C3DBBB0FE8FAD1A07F7727BD8065B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729481   (108019) от 12.06.2024
-
-Broken English Club - Decade (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn in the Fire [00:04:58]
-02. Crime (Club Edit) [00:05:34]
-03. Ritual Killing (Club Edit) [00:06:10]
-04. Concrete Desert (Ron Morelli Remix) [00:05:57](   Читать дальше...   )Жанр: Techno DanceПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4C759C60379AECE13C646701489BF03CF74B9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729650   (108020) от 12.06.2024
-
-Black Diamonds - Destination Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through Hell And Back
-02. After The Rain
-03. Everyday Heroes
-04. Bottoms Up(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EFBFA80F89D8F612B0E5C69C3622C361B0F737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729669   (108021) от 12.06.2024
-
-VA - Nothing But... Trancetopia Vol. 15 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crisy - Astrum (Extended Mix) [6:30]
-02. Pourya Feredi - In The Rain (Original Mix) [3:49]
-03. Rixson - Elevate (Original Mix) [3:06]
-04. Pourya Feredi - Exploration (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51220C98DD01CAA5AEBA42BF63CECD2D7DEE444D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729614   (108022) от 12.06.2024
-
-Шах и мат / Menudas piezas / Checkmates (2024) WEB-DLRip [H.264] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Канделы в одночасье кардинально меняется, и она из успешной преподавательницы элитного колледжа превращается в простую училку в не самой лучшей школе «на районе». Теперь ей придется обучать трудных подростков из неблагополучных семей. Благодаря Канделе у компании школьных аутсайдеров появляется реальный шанс стать чемпионами страны по шахматам. Ведь в шахматах (   Читать дальше...   )Производство: Испания / Aragon TV, Ayuntamiento de Zaragoza, Diputación de ZaragozaЖанр: комедияРежиссер: Начо Г. ВелильяАктеры: Александра Хименес, Луис Кальехо, Росио Велайос, Пабло Луазель, Вероника Сенра, Кико Бена, Tuoxin Qiu, Франсеск Орелья, Мария Аданес, Мигель РельянПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:00Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729732   (108023) от 12.06.2024
-
-Журнал | Народный доктор №11 (657) (июнь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99678B8B4985DBD0FDFCEDCA4997FA570FC86C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729646   (108024) от 12.06.2024
-
-Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lonesome Road [2:35]
-02. You Set Me on Fire [2:41]
-03. Baby Won't You Please Come Home? [2:54]
-04. I've Only Myself to Blame [2:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376A085C5FCB62A1B207686BB73B6AD81175E358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729700   (108025) от 12.06.2024
-
-LuLa Featuring Papa Joe - Last Night A DJ Saved My Life [While A DJ Gave Me Trouble] (2008) [FLAC|Lossless|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LuLa Featuring Papa Joe – Last Night A DJ Saved My Life (While A DJ Gave Me Trouble) (LuLa radio drop/shout) (0:07)
-02. LuLa Featuring Papa Joe – Last Night A DJ Saved My Life (While A DJ Gave Me Trouble) (Eddie Cumana vs Bruno Renno vs Eddie Amador mixshow mix) (4:42)
-03. LuLa Featuring Papa Joe – Last Night A DJ Saved My Life (While A DJ Gave Me Trouble) (Eddie (   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5E1036072CD40B040FA6DFDB6F2DBA7F799E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729711   (108026) от 12.06.2024
-
-Борис Пастернак | Стихотворения (2008) [MP3, Вера Павлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Борис Леонидович Пастернак (1890–1960) – величайший лирик XX столетия. За более чем полувековой период творчества он создал стихотворения, вошедшие в сокровищницу мировой поэзии.
-Актерское чтение стихов отличается от поэтического. Актер всегда занимается голосовой интерпретацией материала, а с точки зрения поэта стихи должны «читать (   Читать дальше...   )Жанр: Русская литература, классика, лирика, поэзияИздательство: КонтентМедиаПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550473ADAB52AA6827198B4C3B2897545E45D53B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729762   (108027) от 12.06.2024
-
-VA - DJ Hits 48 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Jack - Captain Jack
-02. Clubzone feat. Ricardo Lyte - Passion of the night
-03. Culture Beat - Take me away (dance mix)
-04. Nina - The reason is you (7'' mix)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662CCFAD9CF51A80B3D07587820CF68CA90D5D66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729717   (108028) от 12.06.2024
-
-Libra - Follow The Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Journeying
-02 - Live Yourself
-03 - My Shining Soul
-04 - I'll Breathe For Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8937EEC07884E4DA832467348E87EEB41FB391C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729710   (108029) от 12.06.2024
-
-Left Lane Cruiser - Bayport BBQ Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motown Mash [00:03:41]
-02. Big Momma Shake [00:03:08]
-03. Man Down The Road [00:04:14]
-04. Crazy Love [00:03:34](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8602036300FA45CEEAF85953DA4F8604F190039
 ```
 
 

@@ -1,3 +1,412 @@
+###  Публикация: 903069   (136999) от 25.11.2023
+
+Foo Fighters - 15 альбомов, 3 сингла (1995 - 2023) 26 CD [FLAC|Lossless|tracks + .cue]<Alternative, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foo Fighters — американская альтернативная пост-гранжевая рок-группа, образованная бывшим участником рок-группы Nirvana Дейвом Гролом (David Eric Grohl) в 1995 году. "Если бы не смерть Кобейна, я думаю, никаких Foo Fighters сейчас бы не было. Я наверняка остался бы тем, кем я был, и по сей день стучал бы на барабанах в Nirvana. Мне всегда хотелось быть просто (   Читать дальше...   )Список альбомов:
+1995 Foo Fighters
+1997 The Colour And The Shape
+1999 There Is Nothing Left To LoseЖанр: Alternative, Post-GrungeПродолжительность: 121:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A3E491C01B8759BADD466FA02E67D83F7216D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273288   (137892) от 31.12.2018
+
+Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading (03:17)
+02. Ordinary Pleasure (03:03)
+03. Laws of the Universe (02:49)
+04. Miss Me (feat. ABRA) (03:00)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EC386872AB93F2C6AE705806E66CAD453AA143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679321   (138281) от 25.11.2023
+
+Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Doom Metal, Free Jazz, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Eons
+2021 - Solar Drone CeremonyЖанр: Avantgarde, Doom Metal, Free Jazz, KrautrockПродолжительность: 2CD, 03:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679432   (138304) от 25.11.2023
+
+Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, Neo-Psychedelia>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - UNLOVED [3:17]
+02 - ASHAMED [3:02]
+03 - CHILDREN OF SORROW [3:21]
+04 - SICKO (feat. Godflesh) [2:22](   Читать дальше...   )Жанр: Noise Rock, Electronic Rock, Neo-PsychedeliaПродолжительность: 00:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CF61B060572D3995058D380EE355C86E6F0CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272942   (139783) от 30.12.2018
+
+Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's Going On (02:59)
+02. Get Down (02:41)
+03. Never On My Mind (03:15)
+04. Supercharger (02:37)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969957   (141547) от 30.12.2015
+
+VA - Kerrang! Ultimate Rock Heroes! (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enter Shikari - Know Your Enemy (Rage Against the Machine) :: 04:36
+02 - Neck Deep - Don't Tell Me It's Over (Blink-182) :: 02:29
+03 - Palm Reader - My Plague (Slipknot) :: 03:49
+04 - Feed The Rhino - I'm Broken (Pantera) :: 04:18(   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, HardcoreПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4645B3D59A643ABE129E3B7DAF9ED5D0F2BE3649
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195334   (142450) от 29.12.2017
+
+Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul & Cigarette (03:28)
+02. Talisa (02:20)
+03. Mount Napoleon (03:26)
+04. Flush (04:26)(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E85E75E102D899A634BD32631B622AEDD454C29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195496   (142566) от 29.12.2017
+
+Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves (00:53)
+02. How Can We Go On (03:26)
+03. Bang Bang (03:44)
+04. Youth (00:51)(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5E18BAD5DD4B908AAB34D1FBD4F2642A2CBF0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125784   (143150) от 28.12.2019
+
+New Found Glory - Makes Me Sick (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Jokes Aren't Funny (3:08)
+02. Party on Apocalypse (3:23)
+03. Call Me Anti-Social (3:28)
+04. Happy Being Miserable (3:00)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB440F86BC181939F556C390167122424A5A055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272418   (143227) от 28.12.2018
+
+Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petit homme (4:02)
+ 02. C'est promu (2:52)
+ 03. Machine world (3:01)Жанр: Alternative Rock, SkaПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0747DF51538F7155D96623FFBED91880EA6CC4C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969916   (143296) от 29.12.2015
+
+R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Song (4:16)
+02. Losing My Religion (4:28)
+03. Low (4:56)
+04. Near Wild Heaven (3:19)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52757400664E04CDEB340F1BA8F3268F7CE9769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678410   (143984) от 22.11.2023
+
+Aurora View - SHMR (2022) Deluxe, 2023, Aurora View [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock / Post-Hardcore / Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Me Under [00:03:50]
+02. Don't Look Up [00:03:08]
+03. Lovesick [00:03:57]
+04. Inside My Head [00:02:50](   Читать дальше...   )Жанр: Alternative Rock / Post-Hardcore / Industrial RockПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F4F2A9F3B123D0A3E2BED392BE7EFD3242F29F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739694   (144059) от 29.12.2013
+
+Hard-Fi - Best Of 2004-2014 (2014) [FLAC|Lossless]<Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Cash Machine (03:44)
+ 02. Tied Up Too Tight (04:50)
+ 03. Hard To Beat (04:15)
+ 04. Living For The Weekend (03:44)
+ 05. Better Do Better (04:38)
+ 06. Stars Of CCTV (03:59)
+ 07. Move On Now (05:10)
+ 08. You And Me (03:49)
+ 09. Suburban Knights (04:31)
+ 10. Can't Get Along (Without You) (03:00)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467D6FC8410323FCA280B7985BAACF998594C654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272265   (144770) от 27.12.2018
+
+The Appleseed Cast - Middle States (2011) EP [FLAC|Lossless|tracks + .cue] <Emo, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Frigate Constellation (5:50)
+ 02. Interlude (2:55)
+ 03. Middle States (5:13)
+ 04. Three Rivers (14:04)Жанр: Emo, ExperimentalПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AD36B3111C8A5E2E4D3E6C9E6614889603DCA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272432   (144832) от 27.12.2018
+
+Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Você Me Faz Continuar (5:34)
+ 02. Conflitos Existenciais (2:29)
+ 03. Roda Gigante (4:20)
+ 04. Sandro (3:08)(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1221B4779CACE273632E38AFF9CB8F8C3BEA247E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272065   (145717) от 26.12.2018
 
 Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tracks + .cue] <Industrial, Post-Punk, Experimental>
@@ -267,434 +676,34 @@ magnet:?xt=urn:btih:CDD47B63C07250999BA22EBC0597E0ACC33A60A0
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825781   (151401) от 
+###  Публикация: 588810   (151297) от 14.12.2012
 
-Maggie Lindemann - I feel everything (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Pop-Punk, Crossover Rock, Electronic, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_151401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. fang (3:09)
-02. spine (2:27)
-03. mourning (3:42)
-04. joyride (2:19)(   Читать дальше...   )Жанр: Alternative Metal, Pop-Punk, Crossover Rock, Electronic, Female VocalsПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F7A36F3225550032A4268752FD5489A90100CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825479   (151534) от 
-
-Chrissie Hynde - Duets Special (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk>
+No Doubt - Push and Shove (2012) 2CD Deluxe Edition [FLAC|Lossless]<Pop Rock, Ska, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_151534.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01 - Chrissie Hynde; k.d. lang - Me & Mrs Jones (feat. k.d. lang) [00:04:14]
-02 - Chrissie Hynde; Mark Lanegan - Can’t Help Falling In Love (feat. Mark Lanegan) [00:03:16]
-03 - Chrissie Hynde; Lucinda Williams - Sway (feat. Lucinda Williams) [00:03:23]
-04 - Chrissie Hynde; Dave Gahan - Dolphins (feat. Dave Gahan) [00:03:15](   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:47:08
+Долгожданная пластинка самой яркой рок-группы 90-х, обладателей премии Грэмми. Над “Push And Shove” – своей первой пластинкой за 11 лет - No Doubt работали два года, во главе с вокалисткой Гвен Стефани, доводя каждый трек до совершенства и результат этого кропотливого труда не разочарует поклонников. “Push And Shove” – сочетание фирменного звучания No Doubt, в котором беззаботные ритмы ска переплетаются с нью-вейвовыми мелодиями, и энергичного дэнс-попа, присущего сольным работам Гвен Стефани. Оставаясь верными себе, No Doubt всегда звучат модно и современно, сохраняя репутацию одной из лучших поп-рок-групп современности.01. Settle Down :: 06:00
+02. Looking Hot :: 04:42
+03. One More Summer :: 04:39
+04. Push And Shove :: 05:06
+05. Easy :: 05:10
+06. Gravity :: 04:25
+07. Undercover :: 03:31
+08. Undone :: 04:37
+09. Sparkle :: 04:08
+10. Heaven :: 04:07(   Читать дальше...   )Жанр: Pop Rock, Ska, Alternative RockФормат: 2xCD, Album, Deluxe EditionПродолжительность: 01:27:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2802951AE364D585037E601FE41FD34361CE518D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195020   (152290) от 27.12.2017
-
-Lit - These Are The Days (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night In The Life (03:22)
-02. Good Problem To Have (03:08)
-03. All Eyes On Us (02:48)
-04. Back With You (03:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC660340048EAAD189C9D15219BC8C8E0A769C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194868   (152391) от 27.12.2017
-
-K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Alternative, Post-grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not An Addict (04:50)
-02. A Sound That Only You Can Hear (04:15)
-03. White Kite Fauna (04:59)
-04. Mr. Freeze (04:23)(   Читать дальше...   )Жанр: Indie rock, Alternative, Post-grungeПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36B4862F1409AD6FD9015ED78DC2DEFF4DCDCD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347343   (152397) от 23.12.2019
-
-We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Post Rock, Doom Jazz>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shepherd's Walk (2:57)
-02. Squid Marks on a Broken Fool: Volume One (7:45)
-03. Private Windy Plains (6:40)
-04. A Stroll to Nowhere (2:50)(   Читать дальше...   )Производство: JM Throne ProductionsЖанр: Experimental, Ambient, Post Rock, Doom Jazz, InstrumentalПродолжительность: 00:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E289E5ECF53DD50F87561F7ADB0DF240780940BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600702   (156097) от 28.12.2022
-
-Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Groove Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_156097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Weapons [00:03:51]
-02. Inhuman Skin [00:04:54]
-03. Dead to Rights [00:02:54]
-04. Consume/Collapse [00:02:44](   Читать дальше...   )Жанр: Deathcore, Groove Metal, RapcoreПродолжительность: 00:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E66A566974B1F82B801111F0C5CD56B74487521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085434   (156882) от 22.12.2016
-
-The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_156882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Would You Do? - 1:27
-02. One Said To The Other - 2:44
-03. Who's Gonna Save Us? - 3:21
-04. End Of The World - 3:36(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD726D4D31E59ABD68DDF1E5BEF054FA30053D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085917   (156890) от 22.12.2016
-
-Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_156890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Harvest Moon
-03. Ennui
-04. Walpurgi Flame(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8AF33A9E67FB3150C18519A13BB6AB6FF5566D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600321   (159053) от 26.12.2022
-
-Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_159053.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Sophomore album from Detroit's grittiest punkers! This album sees the band evolving from nihilistic scum punk toward a more refined post-punk garage-rock sound that only a band from a decimated rust-belt town like Detroit could offer!
-If there is such a thing as Michigan punk, it's Werewolf Jones. Musically, the band falls perfectly in line with the Detroit (   Читать дальше...   )01. Don't Look Now (03:51)
-02. Lock the Door (02:11)
-03. Make Me Bleed (02:18)
-04. Rough Time (02:32)(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676088   (159304) от 11.11.2023
-
-Seether - Acoustic Originals (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_159304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fine Again [4:25]
-02. Rise Above This [3:38]
-03. Broken [4:15]
-04. Truth [4:08](   Читать дальше...   )Жанр: Rock, Pop Rock, Acoustic RockПродолжительность: 00:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B233752D78E792FEC09F01CCB7FE8C8A524BB29E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599684   (159588) от 24.12.2022
-
-Severals - Algorithm (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_159588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crutch [00:04:12]
-02 - Melody (Algorithm Version) [00:03:47]
-03 - Incinerate [00:03:49]
-04 - Resonance [00:01:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DCEFD225594A441FE30261CDF1D6B4CB694214
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599539   (159669) от 24.12.2022
-
-Choke Out - Mechanized Order (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Beatdown Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_159669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.Y.W.L. [00:01:20]
-02. Mark of the Betrayer [00:03:00]
-03. Forlorn Crest (feat. Maiko Newell of Rakefire) [00:03:43]
-04. Mechanized Order [00:03:43](   Читать дальше...   )Жанр: Metalcore, Beatdown HardcoreПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEF7D68BD388F64FE66F74A2624623D16AAA7CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599152   (159715) от 23.12.2022
-
-Iggy Pop - Apres (2012) 10th Anniversary Edition, 2022, GM Records [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz- Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_159715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Et Si Tu n'existais Pas [00:03:33]
-02. La Javanaise [00:02:30]
-03. Everybody's Talkin' [00:02:48]
-04. I'm Going Away Smiling [00:02:38](   Читать дальше...   )Жанр: Alternative, Jazz- Rock, PopПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB71238ACDA2F3BB1A60B0AE94181F2D2A7C3331
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598776   (162042) от 20.12.2022
-
-The Veer Union - Manifestations (2022) Deluxe edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Fire In You [00:03:33]
-02. Standing My Ground [00:02:48]
-03. When The World Awakens [00:03:17]
-04. Fade Into The Future [00:03:36](   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7460153399C6C2AC3DEF46BAD503C3900497FA57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433080   (162080) от 19.12.2020
-
-The Cure - Seventeen Seconds (1980) Fiction 825 354-2 [FLAC|Lossless|image + .cue]<Goth Rock, Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Reflection (2:09)
- 02. Play for Today (3:41)
- 03. Secrets (3:20)
- 04. In Your House (4:08)(   Читать дальше...   )Жанр: Goth Rock, Post-Punk, New WaveПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B87C99A7B4706A59C5CAAFBA0A0CD745A644F34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674022   (162208) от 04.11.2023
-
-Atreyu - A Torch In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (i) [00:03:03]
-02. Death or Glory (Feat. Sierra Deaton) [00:04:14]
-03. Forevermore [00:02:53]
-04. Come Down [00:03:56]Жанр: Alternative-Rock, Hardcore, Hard-Rock, Classic-RockПродолжительность: 3 CD, 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50552821B8757D2B7687C6279FE5651F4316D1C8
+нет
 ```
 
 

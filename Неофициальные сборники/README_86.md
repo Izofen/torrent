@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:5F7FDC893B5C1C0AA318572E9A51CC711E43953C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824123   (151687) от 
+###  Публикация: 1824123   (151687) от 17.10.2025
 
 VA - 60 minutes. Old School Dance Music vol.28 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Dancecore, Hard Trance, Euro Trance>
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:A29F2AE1E70200ECD0598688869C7A349CFED4C0
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825720   (151694) от 
+###  Публикация: 1825720   (151694) от 17.10.2025
 
 Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
 

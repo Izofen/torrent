@@ -1,3 +1,630 @@
+###  Публикация: 1649765   (227483) от 30.07.2023
+
+Billy Idol - Billy Idol (1982) 2CD, Expanded Edition, 2023, Capitol Catalog MKT (C92) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Talk (Live From The Roxy, West Hollywood, August 12, 1982) [00:03:12]
+02. Untouchables (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:01]
+03. Come On, Come On (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:50]
+04. Hot In The City (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:05](   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533D7A6039BD547C692499C72D896E1A367FB8CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341955   (227502) от 30.11.2019
+
+Balthazar - Thin Walls (2015) 2 CD Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oldest of Sisters (03:34)
+02. Leipzig (02:54)
+03. Boatman (04:54)
+04. Sinking Ship (04:34)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123CD0D7A01CE7DEDA7BCD9D7E5B9A1C58896DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341949   (227526) от 30.11.2019
+
+Heartless Bastards - Arrow (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marathon (06:10)
+02. Parted Ways (04:57)
+03. Got To Have Rock And Roll (03:55)
+04. Only For You (05:08)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D7510495B63DEE283A9AA080E0F6E0DA345961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342032   (227551) от 30.11.2019
+
+White Reaper - You Deserve Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Garage, Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headwind (02:38)
+02. Real Long Time (03:17)
+03. Saturday (02:57)
+04. 1F (03:00)(   Читать дальше...   )Жанр: Garage, Indie-RockПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9B38145F839BC01E1A3DD5F7095FFA5F2A5030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342029   (227577) от 30.11.2019
+
+!!! - Wallop (2019) Chk Chk Chk [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Change U (03:18)
+02. Couldn't Have Known (03:35)
+03. Off the Grid (feat. Meah Pace) (03:48)
+04. In the Grid (01:26)(   Читать дальше...   )Жанр: Electronic, Rock, Post-PunkПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E788A4AF00E9E14359688BD75B35969FF0DC5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649781   (227752) от 30.07.2023
+
+Gator, The Alligator - Laminar Flow (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Way [00:02:18]
+02. Can't You See? [00:05:11]
+03. Life You Dreamed [00:04:05]
+04. Morning Light [00:05:06](   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Psychedelic RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB1F8DB66C6B22B352A792CEB72B629C9434FAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650060   (227806) от 30.07.2023
+
+Not A Toy - Prblms (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Punk, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRBLMS [00:02:06]
+02. grown folk problems [00:02:47]
+03. Nervous [00:02:08]
+04. BAD MOOD [00:02:09](   Читать дальше...   )Жанр: Alternative Pop Punk, Indie PopПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EB169FD730082EA3D8626B31B07ECD89E459E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583849   (227860) от 16.10.2022
+
+Blue October - Spinning the Truth Around (Part I) (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinning the Truth Around (04:49)
+02. The Shape of Your Heart (04:29)
+03. How Can You Love Me If You Don't Even Like Me (04:20)
+04. Don't Say It Wasn’t Love (05:33)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D31A272DECD0DFD57D93BA9801F95E2C54BB8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649778   (227896) от 30.07.2023
+
+William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt Rock, Indie rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Puppet And The Puppeteer [00:06:01]
+02. The Bruises [00:04:04]
+03. Sheepskin Sleeve [00:04:47]
+04. L.W.Y. [00:03:59](   Читать дальше...   )Жанр: Alt Rock, Indie rockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4203894F8DAB550259FB8403AF878271F72E310E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583593   (228105) от 16.10.2022
+
+Hydra Vein - Unlamented (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khuylo [00:00:50]
+02. Does the End Justify the Means? [00:05:43]
+03. Unlamented [00:04:20]
+04. Eradication Zone [00:04:05](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CA4BA194B84CCACD6624507B576E7427DD2871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583592   (228121) от 16.10.2022
+
+Bilmuri - GOBLIN HOURS (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corn-Fed Yetis (feat. Knox) [00:03:08]
+02. The Void Approacheth (feat. Summer Hoop) [00:04:02]
+03. Fairy- Void Type (feat. Seneca) [00:00:49]
+04. Muscle Bound Denizen (희망 없다) (feat. Shorelle) [00:03:11](   Читать дальше...   )Жанр: Alternative, Post-HardcoreПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D632A3B94F8AAD8B21A14596218D24F9D8F2A200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649671   (228716) от 29.07.2023
+
+Sinking Season - The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idle Eyes [00:04:08]
+02. Left [00:03:31]
+03. Spiral [00:02:35]
+04. The Wolves [00:04:25](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719FA766CBBFD770695AA74FBD0EA4ED6DD56C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583488   (228742) от 15.10.2022
+
+Celldweller - Satellites (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Void (5:16)
+02. Blind Lead the Blind (5:59)
+03. A Matter of Time (6:02)
+04. My Disintegration (6:20)(   Читать дальше...   )Жанр: Alternative, Industrial MetalПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C3DE01BF29301821374D4ABD981770452C82E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583500   (228830) от 15.10.2022
+
+Nothing More - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_228830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It up Like (Stand in the Fire) (4:30)
+02. Tired of Winning (3:26)
+03. Ships in the Night (2:15)
+04. You Don't Know What Love Means (4:08)(   Читать дальше...   )Жанр: Alt.Metal, Progressive RockПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC63E801E5B7958F6DB4EBF8C39C08435ADA128
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583523   (228939) от 15.10.2022
+
+P.O.D. - When Angels & Serpents Dance (2008) 2022, Remixed & Remastered, Mascot Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_228939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted (3:33)
+02. Shine with Me (3:32)
+03. Condescending (4:02)
+04. It Can't Rain Everyday (4:43)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F59F6B957BD98F2E4FC3BB09797B626CE2D4AD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583361   (229005) от 15.10.2022
+
+Sleeping With Sirens - Complete Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyrants [00:03:25]
+02. Complete Collapse [00:03:12]
+03. Crosses [00:03:29]
+04. Family Tree [00:04:13](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EA2CE0678AF4F140D7F40C457BCE5889828243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586441   (229034) от 08.12.2012
+
+David Gilmour - About Face (1984) [CBS/USA-CK 39296] [FLAC|Lossless]<Alternative Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_229034.jpg" />
+</div>
+
+
+###  Подробнее
+
+About Face - второй сольный студийный альбом Дэвида Гилмора, вышедший в марте 1984 года. Альбом достиг 21-ой позиции в США и 32-ой в Великобритании. 19 апреля 1995 года Американская ассоциация звукозаписывающих компаний присвоила альбому золотой статус. Предположительно, некоторые композиции («Murder», «Out of the Blue», «Near the End», музыкальные зарисовки для (   Читать дальше...   )01. Until We Sleep :: 05:15
+02. Murder :: 04:59
+03. Love On The Air :: 04:19
+04. Blue Light :: 04:35(   Читать дальше...   )Жанр: Alternative Rock, Art RockФормат: CD, AlbumПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585641   (229182) от 08.12.2012
+
+Green Day - ¡Tré! (2012) [FLAC|Lossless]<Punk rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Brutal Love (4:55)
+02. Missing You (3:44)
+03. 8th Avenue Serenade (2:37)
+04. Drama Queen (3:08)
+05. X-Kid (3:42)
+06. Sex, Drugs And Violence (3:32)
+07. A Little Boy Named Train (3:37)
+08. Amanda (2:28)
+09. Walk Away (3:46)
+10. Dirty Rotten Bastards (6:26)(   Читать дальше...   )Жанр: Punk rockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583464   (229197) от 15.10.2022
+
+Traitors Among Us - Perceptions (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. These Hands
+2. Figure Eight
+3. Perceptions
+4. Stranded(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04193C98FE132289D6AA3FD18C3B8D5B75F7C867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649643   (229202) от 28.07.2023
+
+Sevendust - Truth Killer (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_229202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Might Let the Devil Win [00:04:27]
+02. Truth Killer [00:03:43]
+03. Won't Stop the Bleeding [00:04:04]
+04. Everything [00:04:18](   Читать дальше...   )Жанр: Alt. MetalПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E96023757D49782DA2274D2B8FBF1963D31374F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649479   (229259) от 28.07.2023
+
+Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_229259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Eye (Prolix Remix) [00:04:13]
+02. Baptized in Fire (Fight The Fade Remix) [00:04:50]
+03. My Disintegration (Joe Ford Remix) [00:05:26]
+04. Blind Lead the Blind (INHUMAN Remix) [00:03:32](   Читать дальше...   )Жанр: Industrial Metal, Electronic RockПродолжительность: 01:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B5AA352D019B1ED5037FABB38C05576F3CC101
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649470   (229341) от 28.07.2023
+
+Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_229341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superficial Drug [00:04:33]
+02. Holy Water [00:03:56]
+03. Everything [00:04:18]
+04. Fence [00:03:37]Жанр: Alt. MetalПродолжительность: 00:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417BEFF7D0DF36C6FB6A4689EED84913EC850F66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341503   (229985) от 28.11.2019
+
+Nirvana - Under The Covers (2019) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_229985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons In The Sun (3:01)
+02. Immigrant Song (1:57)
+03. Raunchola/Moby Dick (4:33)
+04. Jesus Doesn't Want Me For A Sunbeam (5:38)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E126C57C2164F0905917C3AE18686AE3D3C2C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583262   (230142) от 14.10.2022
 
 We Came As Romans - Darkbloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore,Alternative Rock>
@@ -74,627 +701,6 @@ Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7DEC76BDA55A68B2CE7EF2372149B8615E21609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648810   (230981) от 25.07.2023
-
-Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies in Utah [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_230981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supra [00:01:29]
-02. Below the Salt [00:03:30]
-03. Soul Eater [00:02:55]
-04. The Void, Pt. 1 [00:03:18](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D09CF38D07904FF360EB597DBBB9C935B54BCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647067   (231717) от 17.07.2023
-
-Sam Austins - Boy Toy (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_231717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretend Friend [00:02:22]
-02. Keep You Company [00:03:19]
-03. Oatmeal Pancakes [00:03:06]
-04. Sweet Tooth [00:03:35](   Читать дальше...   )Жанр: Alt RockПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6E65571BF1A20ADA5A6DA1E0914D0CE72C4919
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642051   (232090) от 25.06.2023
-
-Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Psychedelic, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Romeo Agent (GGG) [00:05:42]
-02. Aspirin (GGG) [00:05:00]
-03. Maria 63 (GGG) [00:06:54]
-04. Braindrops (GGG) [00:07:29](   Читать дальше...   )Жанр: Noise Rock, Psychedelic, Art PunkПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B41F9430F32C091B75CBDFB67590C61B2F6C838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621899   (232117) от 27.03.2023
-
-SayWeCanFly - Beneath The Roses (2023) [FLAC|Lossless|WEB-DL|tracks] <Emo, Pop Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_232117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knuckles [00:03:02]
-02. Bleeding Teeth [00:03:16]
-03. October [00:03:08]
-04. Marigold [00:02:16](   Читать дальше...   )Жанр: Emo, Pop Rock, AcousticПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87038C9F30000E0CC5D3AA2205310E1AFA697709
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580034   (232148) от 30.09.2022
-
-Darko US - Darko (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_232148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splinter Cell [00:03:50]
-02. Fiend Dream [00:03:27]
-03. Donna [00:04:41]
-04. Pretenders (feat. Ben Duerr) [00:03:00](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E99EF4D76E03AFAB488C783302B3C450B6753A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621906   (232214) от 27.03.2023
-
-Cave In - Until Your Heart Stops (1999) Deluxe Edition, 2023, Relapse Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Emo, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_232214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moral Eclipse (2023 Remaster) [00:02:05]
-02. Terminal Deity (2023 Remaster) [00:03:13]
-03. Juggernaut (2023 Remaster) [00:05:35]
-04. The End of Our Rope is a Noose (2023 Remaster) [00:08:09](   Читать дальше...   )Жанр: Metalcore, Emo, AvantgardeПродолжительность: 02:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECC3B1008C48117CB98097C7F5223C201E56E30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618757   (232299) от 12.03.2023
-
-Coridian - Hava (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_232299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Algorithm 02:18
-02. State Of Mind 04:26
-03. Dunes 04:08
-04. Rakshasa 03:53(   Читать дальше...   )Жанр: Alternative, Progressive-RockПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF9564D8C2D8A2F20D3C29F86D48106454A3929
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645530   (232621) от 10.07.2023
-
-Coma Waves - Coming To Your Senses (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Alt.Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming To Your senses (1:18)
-02. Dissolve (3:41)
-03. Shattered (4:06)
-04. Numb & Ache (3:50)(   Читать дальше...   )Жанр: Nu-Metal, Alt.Metal, Post-GrungeПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979FF16F846FB77DF67EBB92C12E872CB7653CD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644852   (232957) от 08.07.2023
-
-The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changing of the Guard (2:36)
-02. Parasite (3:58)
-03. Serpents Tongue (3:59)
-04. Essence of Time (4:42)(   Читать дальше...   )Жанр: Melodic-Groove-Metal, MetalcoreПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27F1C3C9EFB4FF87D0FBD3152CCB128579FF580
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645490   (233045) от 10.07.2023
-
-De Staat - red, yellow, blue (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Dutch Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look At Me [00:03:14]
-02. Head On The Block [00:02:28]
-03. Some Body [00:03:04]
-04. Paying Attention [00:02:45](   Читать дальше...   )Жанр: Dutch Alternative RockПродолжительность: 3 CD, 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6B8D3D01AD9CAF006B666F71178D291AC8D62E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580047   (233117) от 30.09.2022
-
-Reliqa - I Don't Know What I Am (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_233117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don’t Know What I Am [00:04:14]
-02. The Bearer of Bad News [00:03:25]
-03. Safety [00:04:43]
-04. Second Nature [00:03:59](   Читать дальше...   )Жанр: Progressive Metalcore, Female VocalПродолжительность: 00:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5475683D6DD5D0C9F443655A350E86C69058637
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642109   (233351) от 26.06.2023
-
-Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airhead [00:02:43]
-02. Seeing Negative (Disappointment) [00:03:15]
-03. Are You Impressed? [00:03:07]
-04. Favorite Song [00:02:42](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Female VocalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1DA8FDC18B672B4FEB46579965C9ADCB3FB617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642230   (233359) от 26.06.2023
-
-Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting on You (3:16)
-02. Gardens of Misery (3:22)
-03. Dreams (3:24)
-04. Dying For (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7634D5824DEAE7CA13396FB5F1CD794D2DB81FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642229   (233375) от 26.06.2023
-
-Harm - a song you can't feel anymore (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Female & Male Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. when i say it out loud, it all falls apart
-2. You're Obviously In The Wrong Place
-3. All My Life, My Heart Has Yearned for a Thing I Cannot Name
-4. let's take back what's dear to you.(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Female & Male VocalsПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF00185C4D5B0834F32318B26A99E415B4EDAC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627961   (233410) от 21.04.2023
-
-Lethal Injektion - Leaderz Of The Nu School (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Rap Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_233410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Within [00:02:41]
-02. I Dont Wanna Hear It [00:02:41]
-03. Broken Dreams [00:03:48]
-04. Jekyll & Hyde (feat. Adam Ramey of Dropout Kings) [00:03:15](   Читать дальше...   )Жанр: Alternative Metal, Rap RockПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A7A2F7E2A533AD0CF9A42EF4F0D9F58C714D87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644340   (233426) от 05.07.2023
-
-The Great Gray Funk - The Great Gray Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Dark Rock, Stoner Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cortisol [00:04:06]
-02. Vacuum Thoughts [00:03:45]
-03. Eritis Sicut Deus [00:03:44]
-04. Faceless [00:06:01](   Читать дальше...   )Жанр: Dark Rock / Alternative Rock / Stoner Rock / Female VocalsПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6015ED9C40EC208727647BF130F3116AC9CEC1D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549399   (233834) от 07.05.2022
-
-Simple Plan - Harder Than It Looks (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_233834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wake Me Up (When This Nightmare’s Over) (00:03:36)
-02 - Ruin My Life (00:03:19)
-03 - The Antidote (00:03:15)
-04 - Million Pictures of You (00:03:26)(   Читать дальше...   )Жанр: Pop Punk RockПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85DC766910810A622903A47CC6CC8738AAE5E02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549497   (233893) от 07.05.2022
-
-August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_233893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. X (Live)
-2. Empire (Live)
-3. Internal Cannon (Live)
-4. Divisions (Live)(   Читать дальше...   )Жанр: Alternative, Post-Hardcore, MetalcoreПродолжительность: 01:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CCE45474FAD8E8EC286C17D1E444002E0F69B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623370   (233982) от 01.04.2023
-
-The Southern Oracle - The Most Corruptible Souls (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_233982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preacher [00:03:37]
-02. Violencer [00:02:47]
-03. Terrorizer [00:03:36]
-04. Lawgiver [00:01:48](   Читать дальше...   )Жанр: hardcore punkПродолжительность: 00:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FF32F62F6C05C5BA9EA7632D09B6808DDD556C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640485   (234025) от 18.06.2023
-
-Billy Talent - Live at Festhalle Frankfurt (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop, Rock, Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_234025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil In a Midnight Mass (Live) [00:03:21]
-02. This Suffering (Live) [00:04:06]
-03. I Beg to Differ (This Will Get Better) (Live) [00:03:48]
-04. Afraid of Heights (Live) [00:04:55](   Читать дальше...   )Жанр: Alternative Rock, Pop, Rock, Punk, New WaveПродолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84AA879096465C4565AEB6AA792A198E62E3E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640472   (234031) от 18.06.2023
-
-Moodoid - Primadonna Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_234031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only One Man (with Melody's Echo Chamber) [00:03:10]
-02. Idéal (with Juliette Armanet) [00:02:54]
-03. Sentimental Lover (with Felicia Douglass) [00:03:19]
-04. French Boy (with Say Lou Lou) [00:04:43](   Читать дальше...   )Жанр: Alternative, Indie PopПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23A6E592A7EC5F59E08C65EA88D47B54A2794C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640502   (234069) от 18.06.2023
-
-American Grim - 1947 (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Rap Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_234069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Race [00:03:26]
-02. Wake Up [00:02:25]
-03. Life Is For The Living [00:03:52]
-04. Everything I Knew [00:02:37](   Читать дальше...   )Жанр: Industrial Rock, Rap RockПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77BCECD95CA6F83A71E96A6804DFEC8197900BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640505   (234082) от 18.06.2023
-
-The Soap Opera - Back On Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_234082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise And Fall Of A Teenaged Hooper [00:04:04]
-02. Who Ate The Last Phoney Oreo ? [00:03:26]
-03. Golden Springs S.A.S. [00:03:06]
-04. The Clouds Are Laughing At Me [00:02:10](   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E752DC9C571D1C70E60BBE5315968EE72DB13F
 ```
 
 

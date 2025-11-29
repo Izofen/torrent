@@ -1,3 +1,57 @@
+###  Публикация: 1773839   (71596) от 18.01.2025
+
+Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		I Smell Smoke	4:39
+02		Two Wrongs Don't Make A Right	4:00
+03		Neal And Pray	3:29
+04		Little Brother (Make A Way)	4:28(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F15CCBD0ECC927DACFC5560B56AAE140954CBEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773982   (71597) от 18.01.2025
+
+Caligula's Horse - Charcoal Grace (2024) [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The World Breathes With Me 10:00
+2. Golem 5:20
+Charcoal Grace (24:09)
+3.I Prey(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CD34693DB79E2BDBA04AC4CAD35958E60E35DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773846   (71598) от 18.01.2025
 
 The Watcher - Out of the Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
@@ -605,57 +659,6 @@ magnet:?xt=urn:btih:11EE7C3D8720EAE1801A3E0F26272A94EBDF8625
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196F1595C4359BA6E950C4352E53831CC1D5C1B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773973   (71622) от 18.01.2025
-
-Даниэль Дефо | Жизнь и пиратские приключения славного капитана Сингльтона (2024) [MP3, Булат Блинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге представлен один из его менее известных романов. Жизнь и приключения Боба Сингльтона написаны ярко и увлекательно. Перед нами история человека, с юных лет скитавшегося по свету, бороздившего моря, пешком пересекшего Африку, много грешившего и, наконец, раскаявшегосяЖанр: Зарубежная литература, классика, приключения, романИздательство: неофициальное изданиеПродолжительность: 09:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2EFE2B3D6A7911EADC67948A6222F3607F44D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773840   (71623) от 18.01.2025
-
-VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Lee - Blues Party [04:36]
-02. Bird Dogs - Bye Bye Baby [05:41]
-03. Rocky Shelton - Twist Of Fate [04:34]
-04. Mary-Ann Brandon - It's A Dirty Job [03:27](   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58A93176582C235D3E9989E80BCED6495ECEEAA
 ```
 
 

@@ -1,3 +1,392 @@
+###  Публикация: 481063   (99280) от 11.04.2012
+
+3 Quarters Dead - The Cycle Of Dust (2012) [MP3|320 кб/с]<Alt.Metal, Nu-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Exodusters
+02. Oblivion
+03. Plaything (Cut Version)
+04. Sometimes
+05. Divinity
+06. Pinebox
+07. Cutting Myself
+08. Tongue of Razors
+09. Arsenic
+10. Until We Feast(   Читать дальше...   )2012Жанр: Alt.Metal, Nu-MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25A8FC1DEE3BCEC8744D9872923DEE8883AF927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481308   (99281) от 11.04.2012
+
+VA - Звездный клубный драйв (2012) [MP3|160-256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99281.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ди Кей & Ural Djs - Love Story (4:31)
+2. Оксана Ковалевская - Ангел (Andry Makarov Remix) (5:55)
+3. Дискотека Авария - Нано техно (extended сlub mix) (5:19)
+4. Ради Славы - Слезы (4:03)
+5. Er-Action - Сколько можно (Flood Batoot Remix) (3:47)
+6. Китай - Мое сердце (Harisma remix) (4:09)
+7. DJ Sergio - Как звезда (extended mix) (3:59)
+8. Fontano - Облака (DUDKIN extended mix) (5:14)
+9. DJ Roman Grekov - In before behind dream (original mix) (3:48)
+10. Everything But The Girl - Missing (Fedde Le Grand Remix) (7:52)2012Жанр: Dance, ClubПродолжительность: 07:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD70FB350582EFDFDB0A23252ADB9851AE164058
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479095   (99284) от 11.04.2012
+
+Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto Vs Bastian - Dark Side of the Moon ({am} Extended Mix)
+ 02. Max Denoise - Sestrelia ({am} Extended Mix)
+ 03. Sunny Lax - Viva La Revolucion
+ 04. Faruk Sabanci feat. Antonia Lucas - No Way Out (Temple One Remix)
+ 05. Akira Kayosa & Hugh Tolland Feat Stine Grove - Always With You ({am} Extended Mix)
+ 06. Chakra - Love Shines Through ({am} Extended Mix)
+ 07. Federation - Innocent Desire (Phil Taylor Remix)
+ 08. Jordan Suckley - Flames (Sneijder 1AM Remix)
+ 09. Etasonic - One Thousand Miles To Moscow ({am} Extended Mix)
+ 10. DJ Dani & Luke Terry - Hope Is Gone(   Читать дальше...   )2011Жанр: Trance, Vocal TranceПродолжительность: 04:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91C67319043AAC00491FC859A08AB2FD952FC00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481521   (99290) от 11.04.2012
+
+The Book of Desires (P) [En] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая красивая игра от Big Fish Games и Meridian. Эшли приснился сон, в котором она очутилась в странном мире Книги Желаний. Проснувшись она понимает, что это был просто кошмар, но реальность оказывается не менее страшной. Путешествуйте по Книге желаний и помогите Эшли выйти из нее живой. Вас ожидают интригующие путешествия в другие миры, коварные головоломки и весьма увлекательный сюжет.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F779E45CB730C2D29B7B6BD8BB306D12ED900B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481346   (99293) от 11.04.2012
+
+VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Инфинити - Фотоальбом
+02 Linkin Park - Wretches And Kings
+03 Всё Включено - Девочка Столичная
+04 Dan Balan - Freedom
+05 Kamon! Ft Ричард Горн - Фотоаппарат
+06 Darren Hayes - Black Out The Sun
+07 Юрий Шатунов - Глупые Снежинки (Ремейк)
+08 Ray & Anita - Nothing 2 Lose
+09 Алишер - Море
+10 Jedward - Biggest Fan2012Жанр: PopПродолжительность: 06:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481682   (99295) от 11.04.2012
+
+Каникулы в Мексике - 2. Выпуск №28 (2012.04.11) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99295.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C676CE29E82D06763425908616A23979F0ECB776
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480219   (99298) от 11.04.2012
+
+Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Over
+02. Sin City
+03. Once Upon A Time In Mexico
+04. Texas Blood Money
+05. El Mariachi
+06. Desperado
+07. Mimic
+08. Predators
+09. From Dusk Till Dawn
+10. Planet Terror(   Читать дальше...   )2012Жанр: Metalcore / DeathcoreПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481699   (99299) от 11.04.2012
+
+Вопрос времени. Смена сустава (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальная улыбка - одна из несомненных составляющих успеха. Неудивительно, что в США здоровые зубы - это целая индустрия и сверхприбыльный бизнес. А между тем, американские ученые обещают в скором времени выращивать зубы во рту, как цветы в горшке! Да не только зубы, но и здоровые суставы на месте больных и изношенных! Как они собираются это делать? Попробуем узнать об этом уже сегодня.Жанр: ДокументальныйРежиссер: И. ПавловПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC4C48E2CEDA6A62E7C2DB3D6F99DC7EDD846AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478965   (99301) от 11.04.2012
+
+Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_99301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Snap Crackle 5:17
+2. Hayabusa 3:58
+3. Electric Glide 4:05
+4. Morning Father Joys 5:06
+5. Gaz 6:40
+6. It's Almost Light Again 4:17
+7. Grumble 2:34
+8. Brat No. 2 4:281993Жанр: Jazz-RockПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481580   (99302) от 11.04.2012
+
+Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Plenty [3:58]
+02. Honey Child [3:43]
+03. Outta Line [4:13]
+04. Ultraglide [4:26]
+05. Simple Man [6:23]
+06. Dirty Work [3:05]
+07. Never Was An Angel [3:55]
+08. What's Good For You [3:22]
+09. Long Time Comin' [3:15]
+10. Keep Me In Mind [4:05](   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F304FDCE09864CCFC58FDD70C6BF695930F2224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481586   (99303) от 11.04.2012
+
+St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, Sleaze Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Come The Prostitutes [3:59]
+02. Say When It's Over [3:48]
+03. I'm Not Falling [3:46]
+04. Dreaming Of You [3:39]
+05. The Highway Hitcher Murder Blues [3:05]
+06. Hell Yeah!! [4:10]
+07. Medicine [4:04]
+08. A Bitter Man's Lullaby [4:22]
+09. Schizophrenia [3:33]
+10. Crisis [3:45]2012Жанр: Hard Rock, Sleaze RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1E15482C4F7698833F33462B8DFFF8F51D1CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481106   (99304) от 11.04.2012
+
+iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Time (Original Mix) 07:54
+02. Salamander (Original Mix) 07:26
+03. Salamander (Alex Celler Spaced Out Dub) 07:20
+04. Getaway (Original Mix) 07:542012Жанр: Tech HouseПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481731   (99305) от 11.04.2012
+
+[Wallpapers] Full HD Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99305.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 11 
+Название:  Full HD Wallpapers Pack 11 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480835   (99306) от 11.04.2012
 
 Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient>
@@ -352,366 +741,6 @@ VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482088   (99330) от 12.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (13.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481036   (99333) от 12.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (11.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480498   (99335) от 12.04.2012
-
-Арс Ворошиловский - Паутина (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BAD трип
-02. Выше только небо
-03. Давай еще споем (при уч. Артём Татищевский)
-04. Далеко от дома
-05. Ищу тебя (при уч. Артём Татищевский)
-06. Как на войне
-07. Минувшие дни (при уч. Flexa)
-08. Моя улица
-09. Мусора (при уч. Никита Мутный)
-10. Поэту нужна тишина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0800A7C828E83C26AF821CCE18313F4B7BC0FC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481751   (99336) от 12.04.2012
-
-Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9th Wave [8:00]
-02. African Star [9:18]
-03. Energetic Particles [8:18]
-04. Super Groover [7:39]
-05. Universe [7:24]
-06. Ola Catuaba [7:41]
-07. Higher Dimensions [8:48]
-08. Deep Connections [9:04]
-09. Stereophonic Senses [8:21]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482068   (99340) от 12.04.2012
-
-[Wallpapers] HQ Wallpapers by KSV (12.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482091   (99342) от 12.04.2012
-
-[Wallpapers] Animals Wallpapers (13.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3950787873C84FF1C09BF1EE8DF623D8DE76EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481642   (99343) от 12.04.2012
-
-Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Side Winder - Liliacea 08:11
- 02 Side Winder - Faith 07:51
- 03 Side Winder - Homogeny I-Var 07:53
- 04 Side Winder - Inside LSD 08:28
- 05 Side Winder & Mayaxperience - The Art Of Flight 06:51
- 06 Zyce & Flegma - Reanimation (Side Winder Remix) 07:43
- 07 Sideform - Dropper (Side Winder Remix) 07:44
- 08 Side Winder - Emotional Endeavour 07:42
- 09 Side Winder - Plasma Gun 07:28
- 10 Side Winder - Eyes As Green As The Ocean 04:022012Жанр: Psychedelic / ProgressiveПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481625   (99348) от 12.04.2012
-
-VA - Best Of 2012 vol. 1 (2012) [MP3|320 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99348.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-01. Sean Paul - She Doesn't Mind
-02. Flo Rida feat. Sia - Wild Ones
-03. Katy Perry - The One That Got Away
-04. Olly Murs feat. Rizzle Kicks - Heart Skips A Beat
-05. Christina Perri - Jar Of Hearts
-06. Jason Derulo - Breathing
-07. Hallux feat. Marcus - Ai Se Eu Te Pego
-08. Lady Gaga - Marry The Night(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5940FF58BB811BF30A044A3DF2FDC32D700D05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482086   (99350) от 12.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (13.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482105   (99352) от 12.04.2012
-
-Каникулы в Мексике - 2. Выпуск №29 (2012.04.12) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99352.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480973   (99353) от 12.04.2012
-
-VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa feat Сat Martin-My way out (sonic element remix)
-02. Aksioma Project - In The Club (Extended Mix)
-03. Aksioma Project - Love Confession (Filipp Aniskin Remix)
-04. Aksioma Project - Love Confession (Radio Edit)
-05. Alex Sayz feat. Nadia Ali - Free To Go (Stefano Noferini Club Mix)
-06. Alex Sergius feat. Роман Гвоздев - Дежавю
-07. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix Edit)
-08. Armin Van Buuren Pres. Gaia - J'ai Envie De Toi (Original Mix)
-09. B&S Project - Meronz (Original Mix)
-10. Calvin Harris feat. Ne-Yo - Let's Go (Extended Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD146743A6D862E2F1D138A9C16EE73FA02ACE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482094   (99354) от 12.04.2012
-
-[Wallpapers] Abstract HD Wallpapers (13.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481780   (99355) от 12.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack 47
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99355.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 47 
-Название:  Desktop Wallpapers Pack 47 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1366х768 - 4562х2949
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0C49F1FFE509260679D5DA6EF9091AC8B6CC69
 ```
 
 

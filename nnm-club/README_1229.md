@@ -1,3 +1,57 @@
+###  Публикация: 1770540   (32305) от 01.01.2025
+
+Stranger Vision - FAUST Act I: Prelude To Darkness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue In Heaven [00:01:39]
+02. Strive [00:05:21]
+03. Nothing Really Matters [00:05:14]
+04. Look Into Your Eyes [00:04:45](   Читать дальше...   )Жанр: Melodic Heavy, Progressive MetalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A965900182B617AE8DEFECAE0075040F9A615299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770443   (32306) от 01.01.2025
+
+Matteo Lombardi, Vittorio Iannucci, Marty Zylstra - Warrior Anthems (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Roar (2:53)
+02. The Sparks (3:07)
+03. The Highway (3:18)
+04. Shock Of Electricity (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B09903CEDA49B344C100BB163339A281F2A9E7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770526   (32307) от 01.01.2025
 
 Шрифты - Lovely Font Bundle Vol.02 [OTF, TTF, SVG]
@@ -588,56 +642,6 @@ Andain - You Once Told Me (2012) Beatport Deluxe Version [MP3|320 kbps] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3743D0F2DFEF4A9E3581BD9BB4F87A621C65B1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726712   (32331) от 01.01.2025
-
-В погоне за счастьем / The Pursuit of Happyness (2006) WEB-DLRip [H.265/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_32331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Гарднер – отец-одиночка. Воспитывая пятилетнего сына, Крис изо всех сил старается сделать так, чтобы ребенок рос счастливым. Работая продавцом, он не может оплатить квартиру, и их выселяют.
-
-Оказавшись на улице, но не желая сдаваться, отец устраивается стажером в брокерскую компанию, рассчитывая получить должность специалиста. Только на протяжении стажировки (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Escape Artists, Overbrook Entertainment, Relativity MediaЖанр: драма, биографияРежиссер: Габриэле МуччиноАктеры: Уилл Смит, Джейден Смит, Тандиве Ньютон, Брайан Хау, Джеймс Карен, Дэн Кастелланета, Курт Фуллер, Такайо Фишер, Кевин Уэст, Джордж ЧунгПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CFAB25754559CB59899794A554AA04DCBC7A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770535   (32332) от 01.01.2025
-
-Charlie Boyle, Laura Bailey | Red Hat Enterprise Linux 7 Performance Tuning Guide (2021) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_32332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гайд предназначен для опытных системных администраторов Linux, ответственных за оптимизацию утилизации ресурсов, достигаемую посредством настройки производительности. Также гайд предназначен для специалистов уровня RHCE, заинтересованных в дальнейшем получении статусов Red Hat Certification of Expertise или Red Hat Certified Datacenter Specialist (RHCDS) или Red (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Red HatФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07149A043C4EEC02F2645DC238DF8B6FFEEB5C7
 ```
 
 

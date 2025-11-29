@@ -1,3 +1,57 @@
+###  Публикация: 1808420   (64992) от 24.07.2025
+
+Kuddel Renner and his Amazing Blues Orchestra - The 3rd Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cakewalk Into Town (2:56)
+02.  Ten Thousand Spoons (3:32)
+03.  Raining In My Heart (3:54)
+04.  Rockin' At Midnight (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503F8B9EA288B0709C97712264E14B101B733DE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808417   (64993) от 24.07.2025
+
+Harry Cassano - Coming to a Close (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Coming to a Close (3:49)
+02.  Cry Your Life Away (4:15)
+03.  Don't Leave Me Here (5:08)
+04.  Hookin' for Love (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC579E684F4C2BCC9DF9C82ACBEBA6551203BD60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808410   (64994) от 24.07.2025
 
 Big Martin - Sucker Punch Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -612,60 +666,6 @@ Fred and the Healers - No Escape (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19F900B7019B79C5667CC98352D606D9CEBCA603
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808026   (65018) от 22.07.2025
-
-Sculptured - The Liminal Phase (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressiveб Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Ordeal Of Undecidability (08:41)
-02 - Dead Wall Reveries (06:21)
-03 - State Of Exception (06:40)
-04 - At The Margins Of Light (09:49)(   Читать дальше...   )Жанр: Progressiveб Melodic Death MetalПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1927206BDECE44991ABE697FB9EA444196717EEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808030   (65019) от 22.07.2025
-
-Sculptured - The Liminal Phase (2021) [MP3|320 Kbps] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ordeal of Undecidability
-02. Dead Wall Reveries
-03. State of Exception
-04. At the Margins of Light(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C757AFF97BF4E1DB3B1D8204946DF11DFCD9A56D
 ```
 
 

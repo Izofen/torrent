@@ -1,3 +1,417 @@
+###  Публикация: 476236   (98276) от 31.03.2012
+
+Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, Synth, Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl Like Me
+02. Sunday Drive
+03. Black, White & Blue
+04. Vaccine
+05. Blue Eyes
+06. Vanity
+07. The Quick & the Dead
+08. Anxiety
+09. Cellophane
+10. Gone Gone GoneЖанр: Indie Rock, New Wave, Electronic, Synth, Female VocalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A36A09BA1CA8529C37A67295CB980FE360ABDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476173   (98278) от 31.03.2012
+
+Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Put On A Record (Intro)
+02 It's Time
+03 Now And Then
+04 Tonights Forecast (Interlude)
+05 Rainy Days
+06 Starlight
+07 Through The Storm
+08 Be Mine
+09 Genuinely
+10 Staying Home Tonight (with you)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476349   (98279) от 31.03.2012
+
+Прожекторперисхилтон. Сезон 4. Выпуск 24(124) (30.03.2012) DVBRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98279.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009553A4085F1F856F5172BE0ADB0DB617E5718B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476245   (98280) от 31.03.2012
+
+VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|320 kbps]<Chillout | Lounge | Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's the Way Love Goes - Yuliet Topaz
+02. Spacechild - Aries In Mars
+03. Wann ist es Liebe - Jazzamor feat. Publique
+04. The Mood Is Good - Vst
+05. 2 Becomes 3 (4.57m Edit) - Soulounge feat. Cultured Pearls
+06. A Joint After The Sex - Marcus Zelonka
+07. Femme fatale - Deeper Sublime & Eriq Johnson
+08. Mon coeur - Bloomfield
+09. Love Hungry - Weathertunes
+10. Bedtime - Naoki Kenji(   Читать дальше...   )2012Жанр: Chillout | Lounge | DowntempoПродолжительность: 02:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475500   (98284) от 31.03.2012
+
+Аloe Blacc - Good Things (2010) [MP3|320 кб/с]<Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need A Dollar
+02. Green Lights
+03. Hey Brother
+04. Miss Fortune
+05. Life So Hard
+06. Take Me Back
+07. Femme Fatale
+08. Loving You Is Killing Me
+09. Good Things
+10. You Make Me Smile(   Читать дальше...   )Жанр: SoulПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476610   (98285) от 01.04.2012
+
+VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98285.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - 20 Progressive House Tunes Vol.2 (2012)
+Год: 2012
+Жанр: House, Trance
+Продолжительность: 02:43:34Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. 16 Bit Lolitas - You Are An Astronaut (Original Mix) (07:29)
+02. Matisse & Sadko - Amulet (Original Mix) (07:07)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161AC159D9C65E8A64CDD02EF5B79BBE588D5774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476089   (98288) от 01.04.2012
+
+The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World Jazz / Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98288.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alma Hueca 09:47
+ 2. Cracks in the Mirror 05:46
+ 3. Pyrexia 07:10
+ 4. Dewdrops at Dusk 10:03
+ 5. The Art and the Equation 08:33
+ 6. Mia Rosa 05:58
+ 7. Menos Grande 06:01
+ 8. Esperanza 08:22
+ 9. Scratching at Clouds 06:40
+ 10. Amor y Decadencia 10:472011Жанр: Avant-Garde Metal / World Jazz / Post-MetalПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83447A05CCF0A0A685D9319087018F72FA406965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476648   (98289) от 01.04.2012
+
+DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dubsective - Sanskrit (Original Mix)
+02. Friction vs Camo & Krooked feat. Dynamite MC - Stand Up (Sigma Remix)
+03. Hallucinator - Suicide (Cooh Remix)
+04. Logistics - Beatbox Master (Original Mix)
+05. Noisia - Machine Gun (Original Mix)
+06. Noisia - Thursday (Black Sun Empire Remix)
+07. Noisia - Soul Purge (Current Value Remix)
+08. Hallucinator - Motherfucker (Original Mix)
+09. Emalkay - Flesh and Bone (Delta Heavy Remix)
+10. Oscillatorz - The Miles (Original Mix)(   Читать дальше...   )31.03.2012Жанр: Drum & BassПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D176E320C92D2709582BEDF48E97069BBAAA2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476627   (98292) от 01.04.2012
+
+VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98292.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Progressive Session #35 (2012)Год: 2012
+Жанр: Trance
+Продолжительность: 03:46:29
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Akira Kayosa & Hugh Tolland feat. Stine Grove - Always With You (Lee Canning Remix)
+02. 100MG - Amorphism(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA8F210B8A62DBEE3CD957A731954FE4BDCEAFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476549   (98294) от 01.04.2012
+
+VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Green Court - Inside Your Gates (Cosmic Gate remix) (7:50)
+2. Patrice Milan - Eternal Spirit (Wavetraxx remix) (7:06)
+3. Jake Nicholls - Decade (DJ Space Raven & Shokk remix) (7:19)
+4. S.Y.S. - Weiber (7:27)
+5. Antheya - High (original vocal mix) (7:32)
+6. Benya - Rhea (DJ Choose remix) (7:25)
+7. Crush - First Union (Riot 303, observer mix) (6:49)
+8. Junk Project - Beats Brings Silence (4:57)
+9. Silent Harmony - Save the Whales (Vincent De Moor mix) (6:38)
+10. Tectonic Shift - Silver Dusk (feat Andre Visior) (9:36)2012Жанр: Trance, Hard TranceПродолжительность: 02:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F109C7FB79AA18299CD622EE1D83B9B0BCC612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476223   (98295) от 01.04.2012
+
+VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Sayz feat. Christina Skaar - Falling
+02. Alex Valenso - Sky (Club Mix)
+03. Andeeno Damassy vs. Natalia Kills - Mirrors  (Club Mix)
+04. Andrey Dubovitskiy Vs Dj Bobo - Love Is All Around (k Club Mix)
+05. Bang Bang - Music Is My Girlfriend
+06. Christopher S feat. Lisa - There For You
+07. Cristian Marchi & Syke'n'Sugarstarr feat. Lisa Millett - U Got Me Rockin' (Cristian Marchi & Paolo Sandrini Prog Mix)
+08. Digital Mass - God Is A DJ (Original Mix)
+09. Dirty South feat. Andreas - Glorious (Daddy's Groove Mix)
+10. DJ-Relay & Kathleen Moore - Spiel Mit Mir(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C664652BB3BFD26E81FA809A50262DC6A9733DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474499   (98296) от 01.04.2012
+
+Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro House , House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012)
+Год: 27.03.2012
+Жанр: Electro House , House
+Продолжительность: 01:02:32Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+1. Rene Rodrigezz & DJ Antoine feat. MC Yankoo - Shake 3x (Original Mix)
+2. Michael Woods - Last Day On Earth (DJ Solovey Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6FDC235DD9B1351D3AAC1CACC1BC9130078662
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474757   (98297) от 01.04.2012
+
+VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ace Of Base - All For You (Critz & Lucas T. Remix) (5:26)
+ 2. Ann Winsborn - Je N'ai Pas Compris (DJ Arctic ' Pump' Remix) (5:01)
+ 3. Basshunter - Now You're Gone (Freaky DJs & Dima Project Remix) (4:48)
+ 4. Bobina & Betsie Larkin - You Be Long To Me (Menny Strong Remix) (6:51)
+ 5. Bodybangers feat. Gerald G! - Set The Night On Fire (Original Mix) (5:06)
+ 6. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs. Loverush Radio Edit) (3:24)
+ 7. Chris Brown with Rihanna - Turn Up The Music (Miami Life Remix) (5:15)
+ 8. Compact Disco - Sound Of Of Hearts (Stereo Palma Remix) (7:10)
+ 9. DJ Cargo vs. Locco Freakz - Reach Up (Freaky DJ's Mash Up 2k12) (3:48)
+ 10. Dubsective - Shara (Original Mix) (5:00)23.03.2012Жанр: Electro HouseПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474754   (98300) от 01.04.2012
 
 VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
@@ -386,359 +800,6 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475544   (98338) от 01.04.2012
-
-Галина Уланова (1963) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о творчестве великой русской балерины Галины УлановойЖанр: ДокументальныйПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1A6FDD411805DAE7ADD7E5BA969E35C185D3CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476578   (98339) от 01.04.2012
-
-VA - Trance Mutation Vol.1 (Best of Top Trance Killer) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Court- Inside Your Gates (Original Mix)
-02. Patrice Milan- Eternal Spirit (Wavetraxx Remix)
-03. Michael Dow- Emerald (Akira Kayosa Mix)
-04. Sequenza & Wag -This Feels Like Love (Axel Coon Remix)
-05. Xtranova -The Way We Were (Leon Bolier Remix)
-06. DJ Choose, Scificon -Unnamed Desire (Original Mix)
-07. DJ Centaury, Wavetraxx -Lazarus (Original Mix)
-08. Spaceplanet- Summer Rain 1 (DJ S.i.one, DJ Sky Remix)
-09. Human Force -Odyssey 3000 (Aquaplex Remix)
-10. Mainbrain, Somville – Euphoria (Dave Joy, Emphasysts Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF141DD1FCD3753628C3E02B577AD70A308A77F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474895   (98340) от 01.04.2012
-
-Дикий Юг. Бола - предсказуемое бедствие / Wild South. Bola-the predictable disaster (1990-1999) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F998DB222638520325C32A3F282FC629F491BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476141   (98341) от 01.04.2012
-
-Hammer Horde - Vinlander (2012) [MP3|320 кб/с]<Melodic Death Metal / Viking Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Warthirst [06:01]
- 02. Vinlander [05:59]
- 03. Hero's Heart [05:07]
- 04. Oathkeeper [05:22]
- 05. Hymn Of The Fjords [06:43]
- 06. Riders Of Annihilation [05:46]
- 07. Archaic Offerings [05:32]
- 08. Led By The Ancient Light [06:20]
- 09. Midgårdian Revelry [04:27]
- 10. Hoddmimir's Holt [02:26](   Читать дальше...   )2012Жанр: Melodic Death Metal / Viking MetalПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F24B9129B1E94389370E1686396CC723E37081
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476569   (98349) от 01.04.2012
-
-Журнал | Сад своими руками №3 [март 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98349.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад своими руками» – ведущее российское издание о саде. Со страниц журнала вы узнаете о том, как без помощи специалистов создать свой неповторимый сад. Как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для вашего сада.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC209666818410B26F9520331360267AD8B3437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475327   (98350) от 01.04.2012
-
-Osher - Twilight (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_98350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staring At The Moon [08:44]
-02. Twilight [07:29
-03. Age Of Love [08:46]
-04. Fight Club [07:05]
-05. The Music Of Yourself [08:43]
-06. Sweeping Up (Osher Remix Live Edit) [07:01]
-07. Miles & More [06:40]
-08. Beauty Free [07:27]
-09. Backspace [07:54]
-10. Alcohol A Buzz [07:27]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476588   (98353) от 01.04.2012
-
-VA - Mega Dance Spring 2012 Top 100 (2012) [MP3|217-281 kbps]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Studio Killers - Ode To The Bouncer (Radio Edit)
-002. Tiesto - Maximal Crazy (Video Edit)
-003. Bingo Players ft Heather Bright - Don't Blame The Party (Mode) (Radio Edit)
-004. Ian Carey & Rosette ftTimbaland & Brasco - Amnesia (Radio Edit)
-005. R.I.O. ft U-Jean - Turn This Club Around (Video Edit)
-006. Firebeatz - Funky Shit (Original Edit)
-007. Hardwell - Cobra
-008. Ferry Corsten vs Armin Van Buuren - Brute
-009. Bob Sinclar ft Pitbull, Dragonfly & Fatman Scoop - Rock The Boat (Radio Edit)
-010. Pitbull ft Chris Brown - International Love(   Читать дальше...   )2012Жанр: DanceПродолжительность: 05:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1CB4C6C4C960DD433408FA06D8797DD03BF6DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476681   (98355) от 01.04.2012
-
-[Wallpapers] Коллекция обоев для рабочего стола
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев для рабочего столаНазвание: Обои для рабочего стола
-Тип раздаваемого: JPЕG
-Разрешение файлов: 1600x1200 - 2560x1600
-Количество: 520Описание:
-Очередная коллекция обоев для рабочего стола!Время раздачи: С 13.00 до 23.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7686691FBAD15DDB0B071672ED532E0323543F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476574   (98358) от 01.04.2012
-
-Журнал | Техника - молодежи №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98358.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Техника молодежи» - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242264A4D25E1D91B669D0E5D9B818BDB3BB4FA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476701   (98362) от 01.04.2012
-
-Журнал | iGamer №4 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98362.jpg" />
-</div>
-
-
-###  Подробнее
-
-«iGamer» — новый ежемесячный игровой журнал в который входят следующие рубрики: Компьютерные игры, обзоры, рецензии, коды к играм, прохождения.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB0C3C05EEEC47BBC775D387EBAC81944A97A64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476282   (98365) от 01.04.2012
-
-WinISO Standard 6.1.0.4472 Portable by BALISTA [Русский/Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_98365.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinISO - лучшая программа из всех подобных для работы с образами CD и DVD дисков. Программа работает с форматами BIN и ISO, может редактировать эти форматы и конвертировать из одного в другой. С помощью WinISO вы сможете с легкостью добавлять / удалять / переименовывать / извлекать файлы из образов. Программа имеет очень удобный и понятный интерфейс, который еще сильнее облегчит и без того простую работу в этой программе. Предназначенная для работы с образами BIN и ISO программа WinISO является лидером в ряду софта, разработанного для клонирования и создания образов оптических носителей информации.Язык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476125   (98366) от 01.04.2012
-
-Юстейн Гордер | Рождественская мистерия (2006) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой книги, мальчик по имени Иоаким, живет в Норвегии. А в Норвегии, как и в других скандинавских странах, существует традиция покупать накануне праздника Рождества календари, которые называют рождественскими.
-Каждый день, начиная с 1 декабря, дети или их родители открывают маленькое окошка в календаре, за которым спрятаны шоколадки, фигурки или картинки. (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 07:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB2A16F003F272A4D25CE8A51999E7D01160267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476911   (98368) от 01.04.2012
-
-Одно безумное лето / One Crazy Summer (1986) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывает, что иногда хочется забыться и пожить хотя бы полчаса легкомысленной жизнью. Именно об этом фильм. Очаровательный Джон Кьюсак выступил в роли молодого человека, решившего отдохнуть… на полную катушку. Что ему и удалось… Танцы, красивые девушки, парусная регата - и море наслаждений.Производство: США / Warner Bros. Pictures, A&M FilmsЖанр: Мелодрама, комедияРежиссер: Сэвидж Стив ХолландАктеры: Джон Кьюсак, Деми Мур, Линда Уоррен, Джоэль Мюррей, Гренвилль Кайлер, Бобкэт Голдтуэйт, Кристен Гольц, Том Виллард, Кертис Армстронг, Sky, Лора УотербериПеревод: Профессиональный многоголосый / Авторский (А. Михалев)Субтитры: ОтсутствуютПродолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C0092EE84ECD0EB315CAC1C6A7CBCB56FB70D9
 ```
 
 

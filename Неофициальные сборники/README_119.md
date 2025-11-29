@@ -1,3 +1,219 @@
+###  Публикация: 1084913   (214318) от 21.12.2016
+
+VA - Pioneer Studio 33,5 - Disco Evolution (2016) [MP3|160 Kbps] <Italo Disco, New Age, Dance, New Italo Disco, Electronic, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Legacy - Lycan
+02. Amaya - Trapped
+03. Soulya Id - Vampirella's Song
+04. Vincent International - You're My Love (You're My Life)(   Читать дальше...   )Жанр: Italo Disco, New Age, Dance, New Italo Disco, Electronic, PopПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21004F3D94ED9F0368F12A6F63C2BD1B68744A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270322   (214341) от 18.12.2018
+
+VA - Club 2019-Hottest New Tracks (2018) [MP3|320 Kbps] <House, Handsup, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Parker feat. Elaine Winter - Dancing on My Own (Radio Version)
+02. Housefly - Be with You (Markus D'Ambrosi Remix)
+03. Felicia Uwaje - Strike It Up (Chris Excess Remix)
+04. G-Lati and Mellons feat. Damian Pipes - Hero (Adam Brown and Armand Van Henegouwen Mix)(   Читать дальше...   )Жанр: House, Handsup, DanceПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AFA24E2BDF071FA8807F2116C477F346827E0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344064   (214369) от 08.12.2019
+
+VA - не Громкие новинки недели 46 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214369.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Первый Снег (2:46)
+2.Andery Toronto - Euphoria (3:34)
+3.ANIKV - Женщина Плачет (2:59)
+4.Anna Petrash - Не Ну А Чё? (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7495EE11B7E4FB0B98B2C35D15F7C9FC8E097ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270404   (214381) от 18.12.2018
+
+VA - Empire Records - Mushrooms 2 (2018) [MP3|247-320 Kbps] <Big Room, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marasco & Dj Nessen Feat. Gian - Lighthouse (FluxStyle Radio Edit)
+02. Bulljay - Hands Up Party (Dancefloor Kingz Remix Edit)
+03. Dj Erre - Party People (Radio Edit)
+04. Giga Dance - Touched By The Sound (Original Edit)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 03:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF4D3F0DEAB8E1E821C9E1DD3F48CD49E7CAA6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243454   (214409) от 04.12.2021
+
+VA - Disco - The BIGGEST 80s Disco Dance Music (vol. 1-32) (1990) [MP3|192 kbps] <Disco, Pop, Dance, Electronics>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214409.jpg" />
+</div>
+
+
+###  Подробнее
+
+---------------------------------------------------------------------
+     VA - The BIGGEST 80s Disco Dance Music vol.20
+---------------------------------------------------------------------
+1. 01 - Okay - Okay! (5:42)(   Читать дальше...   )Жанр: Disco, Pop, Dance, ElectronicsПродолжительность: 32:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F756A2BBCE95DE5D54231A8363253FCB4C05BC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426349   (214448) от 24.11.2020
+
+VA - Merry Christmas, Baby! - Christmas Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angela Strehli - Boogie Woogie Santa Claus
+02. Daniela Andrade - The Perfect Christmas
+03. Louis Armstrong - When the Saints Go Marching in (Remastered)
+04. Elvis Presley - White Christmas (Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7C35E70BADC4D2E561B5978CE3EE2DC392FCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085417   (214477) от 21.12.2016
+
+VA - Музыкальные Новинки Интернета. Зимний Выпуск 50х50 (2016) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нодар Ревия - Ты Моя Любовь
+02. Fidel Wicked - No Flying From Fate
+03. Женя Вилль - Что Ты Наделал
+04. Роза Герц - Расстаться(   Читать дальше...   )Жанр: PopПродолжительность: 03:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310A309CD921D0D7B3E5DC5CF27434AE1E56F202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085481   (214516) от 21.12.2016
+
+VA - Songs Dreams: A Place Of Romance (2016) [MP3|251-320 Kbps] <Popular Lyric, Dream Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214516.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brothers3 - Brothers Never Part
+002. Anouk - Run Away Together
+003. Wu-Tang Clan - Gravel Pit (Radio Version)
+004. Physics - Don't Deny Me Love (Martinez Aquarium Jazz Dub)(   Читать дальше...   )Жанр: Popular Lyric, Dream RockПродолжительность: 06:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C8C7A68C4F1BEFAD1C91C525DF3C7E505D143F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269718   (214653) от 17.12.2018
 
 VA - Дискотека 2019 Dance Club Vol.186 [NNNB] (2018) [MP3|320 Kbps] <Club, Dance, Synth Pop>
@@ -491,231 +707,6 @@ VA - Winter Chillout Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C0AA5C032CCCDDF3CA6A05D74587A93101306EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586698   (215647) от 27.10.2022
-
-No Angels - Compilation Part 2 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_215647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance-Aholic
-02. Cold as Ice (Instrumental)
-03. Go Ahead and Take it (Instrumental)
-04. Too Old(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3520FA273D872422CA94ADF0F0E5CC6CBBB0CEA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588655   (215690) от 13.12.2012
-
-VA - DJ Beauty - Бигуди (2007) [MP3|320 кб/с]<Electro, Techno, Breakbeat>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_215690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beauty & Tapolsky - Rain [04:04]
-02. Finder & Folsky - Smile (Electro Dub Mix) [04:50]
-03. Chumahod - BDG [06:24]
-04. Access Denied - Irish Fary Tales [07:07]
-05. Fon'Enman - Valeri (Original Mix) [07:03]
-06. Max Creative - Mako [05:37]
-07. Reaver & D.Stuff - Mint Fog [07:24]
-08. Antoine Caesar - Losing My Feelings [08:23]
-09. Spartaque - Kira (Original Mix) [05:24]
-10. Reaver & D.Stuff - Milk Rain (Fon'Enman Remix) [06:17](   Читать дальше...   )Жанр: Electro, Techno, BreakbeatПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7D854B6EB064E1C40E08B95A09381944B551D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514110   (217056) от 03.12.2021
-
-VA - The Autumn Blues (2021) [MP3|320 Kbps] <Blues, Soul, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_217056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник, вышел в середине осени и у названия этого микса самая прямая отсылка к текущему времени года. Музыка этой подборки передаёт атмосферу осени, красоту лесного убранства, свежесть остывающего воздуха и меланхоличного настроения.001. Peter Martinsson Group - Beautiful
-002. Monkeyjunk - The Marrinator
-003. Steve Baker - Hey Buddy
-004. Aj Fullerton - Slippin' Away(   Читать дальше...   )Жанр: Blues, Soul, LyricПродолжительность: 08:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A616D9E907EF71F4472D74A9FE29E4B300CAA442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737424   (217116) от 22.12.2013
-
-VA - 100 Величайших Хитов Шансона (2013) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_217116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Круг - Владимирский централ
-002. Иван Кучин - В таверне
-003. Лесоповал - Я куплю тебе дом
-004. Голубые Береты - Синева(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261BA34930ADA1D1A49D8E84ECCD35DC6212E28B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425850   (217131) от 22.11.2020
-
-VA - Осенняя свежая 30-тка Vol 4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_217131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dabro - На Крыше (Vadim Adamov & Hardphol Remix) (2:24)
-02. GSPD - Электроклуб (2:48)
-03. Inur - Я Хочу Танцевать (2:07)
-04. Pakalena - Шпильки (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8146F9E8A4EE659B2E07461D26840EC76C932B0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343450   (217187) от 06.12.2019
-
-VA - Твоя любимая попса (Лучшее в Рунете) (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_217187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 104, Скриптонит, Lucaveros - Проблемы
-2. 10Age - Так нельзя
-3. 10Age - Туман
-4. 2Vina - Babe(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 28:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F8ABDC03057903E43A551BE335A8C16F1947FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269727   (217192) от 16.12.2018
-
-VA - Hits of My Soul Vol. 43 (2018) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_217192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Tiesto & The Chainsmokers - Split (Only U) (Original Mix) (05:06)
-02. Delerium feat. Sarah McLachlan - Silence (Michael Woods Mix) (08:05)
-03. Dark Matters feat. Jess Morgan - I Don't Believe In Miracles (Album Mix) (03:24)
-04. Markus Schulz feat. Ana Diaz - Nothing Without Me (Beat Service Remix) (07:12)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F809FA4B4F73E5DA06A4799E8F551FA1AAD5C11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343425   (217290) от 06.12.2019
-
-VA - World of Electronic Music Vol.1 (2019) [MP3|320 Kbps] <Synthpop, Futurepop, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_217290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3jean - Nfn9 (2015 Edit)
-002. State Of The Union - Evol Love
-003. Colony 5 - Black (DJ RAM Black & White Mix)
-004. Assemblage 23 - Barren(   Читать дальше...   )Жанр: Synthpop, Futurepop, ElectropopПродолжительность: 10:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6DD256FC2B00CE3883782B8815E249445A5B65
 ```
 
 

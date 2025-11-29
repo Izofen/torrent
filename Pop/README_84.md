@@ -1,3 +1,165 @@
+###  Публикация: 1589095   (190573) от 08.11.2022
+
+Various Artists - ZYX Italo Disco New Generation Vol. 20 (2022) [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190573.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Den Harrow Feat. Orlando Johnson– Shine On (Flemming Dalum Remix) 5:30
+02. Ken Laszlo– Leather Man (Swedish Remix) 5:56
+03. Flemming Dalum– Walking In The Neon (Special ZYX Remix) 6:52(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588822   (190873) от 07.11.2022
+
+Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_190873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Dieter Thomas Heck
+02. Sorry Little Sarah (Maxi Version)
+03. My Bed Is Too Big
+04. Under My Skin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658716   (190884) от 09.09.2023
+
+VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shania Twain - Man! I Feel Like A Woman! (3:53)
+02. R.E.M. - Losing My Religion (4:28)
+03. The Cranberries - Zombie (5:07)
+04. The Cardigans - Carnival (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22305D0BCB193EE3EC19DB85A3B5A76B17269FEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658541   (190949) от 09.09.2023
+
+Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Not To Do [00:05:02]
+02. CooCool [00:04:31]
+03. The Universe [00:04:05]
+04. Hurtz So Bad [00:04:37](   Читать дальше...   )Жанр: Electronic, Art PopПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588688   (190996) от 06.11.2022
+
+Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_190996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siffler sur la colline (2:36)
+02. Dans les yeux d'Emilie (3:43)
+03. Les Champs-Elysées (2:37)
+04. Et si tu n'existais pas (3:25)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588709   (191105) от 06.11.2022
+
+Blue System - When You Are Lonely (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_191105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Are Lonely
+02. Sorry Little Sarah
+03. Silent Water
+04. When Sarah Smiles(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8B405152525F59F6D24B75CA9E3E0342FAF00B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588624   (191392) от 05.11.2022
 
 Blue System - Seeds Of Heaven (1991) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -533,168 +695,6 @@ VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B22534F944E27BC01F99DAEAFBE3046C35E8FC44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587547   (192618) от 31.10.2022
-
-Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storie Di Tutti I Giorni (4:03)
-02. In Silenzio (2:48)
-03. Piccola Katy (2:38)
-04. Noi Due Nel Mondo E Nell'Anima (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FC46D9B6FB8AF4FCACC1B1C2BC83E32FFC89C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657425   (192741) от 03.09.2023
-
-Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_192741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Paloma Blue
-02 - Griechischer Sommer
-03 - Von Baden-Baden bis Berlin
-04 - Sonnenanbeter(   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587350   (192861) от 30.10.2022
-
-VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cappella - Move On Baby (Mike Candys Remix)
-02. Mauro Picotto - Komodo (Klaas Remix Extended)
-03. Niels Van Gogh - Tell Me Why (Extended Mix)
-04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587265   (192920) от 30.10.2022
-
-VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nico Gemba - Du bist der totale Wahnsinn (Lisa)
-02. Anna Valerian - Ich laufe dir nicht mehr hinterher (JLA FeierFoxxx Mix)
-03. Julian David - Alle zusammen
-04. Celina Mars - Jetzt und hier(   Читать дальше...   )Жанр: Pop, Dance, Schlager, DiscoПродолжительность: 02:16:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587371   (192929) от 30.10.2022
-
-VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Dance, Club, Future House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz, Pasc & Patricia Starlight - Toxic Love (extended mix)
-02. Stephan F & Tony T - Find A Way (extended mix)
-03. Dani Corbalan - My Life (extended mix)
-04. NaXwell, Tony T & Alba Kras - Never Alone (feat DJ Combo - extended mix)(   Читать дальше...   )Жанр: Electropop, Dance, Club, Future HouseПродолжительность: 01:51:46 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73DF3A1A39E89CDECB48888A251E344E5B8D2A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657192   (192935) от 02.09.2023
-
-Владимир Мулявин и ансамбль Песняры - Молодость моя... (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_192935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спадчына
-02. Марыся
-03. Беловежская пуща
-04. Чырвоная ружа(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
 ```
 
 

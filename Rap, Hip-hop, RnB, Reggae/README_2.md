@@ -1,3 +1,445 @@
+###  Публикация: 456036   (77606) от 21.02.2012
+
+Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Lion Zion (3:15)
+02. Could You Be loved (4:00)
+03. Is This Love (3:53)
+04. I Shot The Sheriff (4:43)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457009   (77940) от 23.02.2012
+
+Prodigy - H.N.I.C. 3 from AGR (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Unsaid
+02. Lay Low (Feat. French Montana) (Prod. By Harry Fraud)
+03. That's Nasty (Prod. By Sid Roams)
+04. Extreme (Prod. By Havoc)
+05. I'm From The Trap (Feat. French Montana) (Prod. By Havoc)
+06. Make A Hole (Feat. Havoc & Lady Luck) (Prod. By Havoc)
+07. Great Spitters (Feat. Cory Gunz) (Prod. By Havoc)
+08. They Scared (Feat. Havoc & Waka Flocka) (Prod. By Havoc)
+09. Slaughterhouse (Prod. By SC)
+10. Getting Closer (Feat. Havoc & Estelle) (Prod. By J.U.S.T.I.C.E. League)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456354   (78871) от 27.02.2012
+
+Влади (Каста) - Ясно! (2012) [FLAC|Lossless]<Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сочиняй мечты (feat. Уля Глушкова (Wow Band))
+02. Прощание
+03. Пусть пригодится
+04. Все лучше тебя(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466721   (81801) от 13.03.2012
+
+Мосты - Морозы (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление (0:28)
+02. Сутки (5:30)
+03. 2 На 3 (3:17)
+04. Морозы (2:59)
+05. Счётчик (3:03)
+06. неадекWHAT (3:41)
+07. Лёд (3:44)
+08. GTA (3:06)
+09. Цветы (3:41)
+10. Сергей Жуков (Скит) (1:04)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7453DE33C2D8E9DF5EDB1EC3BC3B83DCD148EC59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455279   (86241) от 03.04.2012
+
+Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternative>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+The Greatest Hits Vol.1 (2008)
+OST Розыгрыш (2009)
+The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:12:34 |
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479414   (87261) от 08.04.2012
+
+Каста - Можно Всё (2012) [MP3|320 кб/с]<Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Можно Всё (feat. Аnimal ДжаZ)
+02. Черновик
+03. Я Слышу Голоса (feat. 25/17)
+04. Ды-ды-дым (DJ Nik-One rmx)
+05. Звуки Фанка (feat. Маринесса Покарано)
+06. Истина Где-то Рядом (feat. Смоки Мо) (Simple rmx)
+07. Хочешь Мира – Готовься К Войне (feat. Фетис,Саграда)
+08. Двигай Вперёд (feat. Космокот)
+09. Встретимся У Холодильника (feat. DJ Хобот,Искра)
+10. Не Дышать(   Читать дальше...   )2012Жанр: RapПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F669E1F60DCDA098FA2876565B95DD7274522DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480632   (88443) от 14.04.2012
+
+Nicki Minaj - Pink Friday: Roman Reloaded (2012) (Deluxe Edition) [MP3|320 кб/с]<Hip-Hop, R&B, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Holiday
+02. Come On A Cone
+03. I Am Your Leader (feat. Cam'ron & Rick Ross)
+04. Beez In The Trap (feat. 2 Chainz)
+05. Hov Lane
+06. Roman Reloaded (feat. Lil Wayne)
+07. Champion (feat. Nas, Drake & Young Jeezy)
+08. Right By My Side (feat. Chris Brown)
+09. Sex In The Lounge (feat. Lil Wayne & Bobby V)
+10. Starships(   Читать дальше...   )Жанр: Hip-Hop, R&B, PopПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D114D5E81865BCDAC9810BAA80D1ED47AFB53529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462638   (95714) от 05.03.2012
+
+ВУТОНН - Зло (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Смотри (музыка - BSS BEATS, скрэтчи - Dj Pavlik Morozoff)
+02. Играем в мафию (вокал - Ksandra, музыка - MagDime Prod.)
+03. Это я написал (музыка - BSS BEATS, скрэтчи - Dj Pavlik Morozoff)
+04. Я тебя люблю (музыка - Crimer ASB)
+05. Летят далеко (музыка - Tady, вокал и гитара - Bobby Policeman)
+06. Будем привыкать (музыка - BSS BEATS)
+07. Дай мне пять (музыка - MagDime Prod.,гитара - Bobby Policeman)
+08. Ты не увидишь их (новая версия) (гитара - Bobby Policeman, вокал Ksandra)
+09. Псы (музыка - MagDime Prod.)
+10. Нет дел (музыка - 43 квартира)2012Жанр: Rap, Hip-HopПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABEBB70E8690300BF4E315AC55F2F2B834884CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482800   (99637) от 14.04.2012
+
+Кот Балу - Лучшее (2012) [MP3|128-320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Небесные сны (lachetto beats)
+02. Весна пу Банума (sietto beats)
+03. На велике (sietto beats)
+04. +30 (sietto beats)
+05. Давай изчезнем (sietto beats)
+06. Возле жумбактасика (sietto beats)
+07. Лето (lachetto beats)
+08. Простая пу Банума (sietto beats)
+09. Лепесток (chocobear beats)
+10. Новелла пу Slim, Костя Бес (sietto beats)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE24B57BEBFA355D829AB23F9BDE6876EC365BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765752   (101373) от 14.12.2024
+
+Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект стал возвращением к легендарному звуку Death Row Records и продолжением сотрудничества с продюсером, который дал старт его карьере, — Dr. Dre. Выпуск альбома приурочен к 30-летию дебютного альбома Snoop'а, "Doggystyle", и сочетает классическое звучание 90-х с новой энергетикой.
+На альбоме представлен внушительный список приглашенных артистов, (   Читать дальше...   )01. Fore Play (feat. BJ The Chicago Kid) (1:15)
+02. Shangri-La (1:37)
+03. Outta Da Blue (feat. Alus & Dr. Dre) (2:39)
+04. Hard Knocks (4:13)(   Читать дальше...   )Производство: Death Row/Aftermath/Interscope Records - 602475750024Жанр: Hip-HopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925A6FBB85ED13186436974D3ACCD1243A8935C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764701   (101492) от 08.12.2024
+
+Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This, Is Not That (0:44)
+02. Mercy (3:02)
+03. Superstitious (3:11)
+04. Wonderful Feelin' (feat. Willie The Kid) (3:51)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131FC46ADD1BBAD2F907209819FB9892673D1F7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764704   (101503) от 08.12.2024
+
+Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Instrumental Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got It Good (3:26)
+02. Time Lost (3:05)
+03. It Just Is (3:12)
+04. Flowers Die (3:24)(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B5EBEE0FC088F15D3781C1904C99BC029FFA49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764702   (101504) от 08.12.2024
+
+Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Food (0:52)
+02. Get The Dough Off (3:42)
+03. Panama Sun (feat. Marv Won) (3:29)
+04. Stones (3:46)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764703   (101505) от 08.12.2024
+
+Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consequences (1:17)
+02. Nice to Meet You (3:24)
+03. Keep Goin' (3:26)
+04. Day On The Ave (3:14)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12E74DD6EBFFCAD5C6AA923BBC89D88CAA52EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764705   (101506) от 08.12.2024
+
+Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden (1:08)
+02. Blacklight (3:51)
+03. Love Me, Love Me Not (feat. Skyzoo) (4:37)
+04. No Monsters (3:39)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B952FF9B47092ABFAD57175D81A7A9383CD99749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764624   (101510) от 08.12.2024
 
 Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
@@ -20,6 +462,39 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490442   (102410) от 01.05.2012
+
+Sweetbox - Sweetbox (1998) [FLAC|Lossless]<R'n'B, Hip-Hop, Downtempo, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. - Intro [1:08]
+02. - Don't Go Away [3:10]
+03. - Interlude [0:20]
+04. - He Loves Me [3:19]
+05. - Mama Papa [3:35]
+06. - Interlude [0:19]
+07. - Candygirl [2:52]
+08. - Everything's Gonna Be Alright [3:12]
+09. - Interlude [0:19]
+10. - Never Never [3:19](   Читать дальше...   )Жанр: R'n'B, Hip-Hop, Downtempo, ElectronicПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -263,438 +738,6 @@ magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741464   (105337) от 18.08.2024
-
-Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чужой (Intro)
- 02. Чужие
- 03. Спеши любить
- 04. На эстакаде(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741978   (105348) от 18.08.2024
-
-Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Rodriguez
-02. Mission Control (feat. T Man the Wizard)
-03. Deja Vu (feat. DJ Drama)
-04. Glorious Ultra Panavision (Skit)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741288   (105662) от 07.08.2024
-
-Многоточие - За Бесконечность Времени... (2007) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Кольца Спирали
- 03. Её Слёзы Пахнут Проявителем
- 04. Они Говорят(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740838   (105747) от 04.08.2024
-
-Лигалайз - XL (2006) [WavPack|Lossless|image + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Остаться
- 03. Почувствуй Силу
- 04. Будущие Мамы(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E019A5EB1E94802362F277692E739551776E7922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738293   (106216) от 25.07.2024
-
-Естественный Zагар - Солнечная Радиация (2008) [WavPack|Lossless|image + .cue] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Лето
-02		Ибицу Смыло
-03		Мало Солнца
-04		Ветер(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFBBBBE1D57F38401FF9115C56A1919874BB2CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739030   (106226) от 25.07.2024
-
-Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, Pop Rap, Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только Тебе
- 02. Мы Завели
- 03. На Первом
- 04. Skit(   Читать дальше...   )Жанр: Thug Rap, Gangsta, Pop Rap, Hardcore Hip-HopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7426D7BE9DFAC58C45BF390DAF2C60C8091A6462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734925   (106925) от 08.07.2024
-
-Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. По душе
- 03. Было
- 04. В прямом эфире(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5AA3BCFE4646DC8145308442E73EF5976E2F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732762   (107294) от 28.06.2024
-
-Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ein Leben im Rausch [00:04:17]
-02. Was geschieht mit mir? (Leben) [00:02:42]
-03. Negativ-Nein [00:02:15]
-04. Demokratie [00:04:32](   Читать дальше...   )Жанр: Hardcore Hip-HopПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085A9BE255B996B1880E8BDF6BC88DFC6C07DB73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726308   (108720) от 29.05.2024
-
-VA - Infiniti Night Club R&B Collection No. 1 (2006) [WavPack|Lossless|image + .cue] <Pop Rap, Jazzy Hip-Hop, Bounce, RnB/Swing>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC Dynamite* / N'Pans / Mili-JJ – Infiniti №1
- 02. Дато Feat. Лигалайз – Джаная
- 03. Лигалайз Feat. Богдан Титомир, N'Pans – Почувствуй Силу
- 04. tommy И Кнара – Посвящение(   Читать дальше...   )Жанр: Pop Rap, Jazzy Hip-Hop, Bounce, RnB/SwingПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4514FEAF9FBB5D80D19D75BBEEDDC583073F497B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724121   (109287) от 19.05.2024
-
-Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - She's Expecting You (00:01:08)
-02 - Marlanna (00:02:33)
-03 - Asteroids (00:02:35)
-04 - Look What You've Done (00:04:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1704FA9E2C682F71D15657477E3F0E7759DB6DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722781   (109402) от 17.05.2024
-
-Dino MC47 - Вне Номинаций (2008) [WavPack|Lossless|image + .cue] <Jazzy Hip-Hop, Hardcore Hip-Hop, Thug Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Вдохновение
-02		Клуб: Пусть Будет Шоу
-03		Жара
-04		Нет Невозможного(   Читать дальше...   )Жанр: Jazzy Hip-Hop, Hardcore Hip-Hop, Thug RapПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2535FC9B57630E7E49C5E9DC9DCA9A135255710F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721065   (109793) от 10.05.2024
-
-Бумбокс - Меломанія (2008) [WavPack|Lossless|image + .cue] <RnB, Swing, Pop Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бета-Каротин
- 02. День
- 03. Діагноз
- 04. E-mail(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721077   (109799) от 10.05.2024
-
-Бумбокс - III (2008) (Deluxe Issue) [WavPack|Lossless|image + .cue] <RnB, Swing, Pop Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Концерти
- 02. Стяги На Стяги
- 03. Поліна
- 04. Наодинці(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0C555191C5A1F244E05542A3EC46C46091831E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719532   (110596) от 29.04.2024
-
-UB40 - UB45 (2024) Ultimate Edition [FLAC|Lossless|WEB-DL|tracks] <Reggae, Ska>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home [00:03:47]
-02. Food For Thought [00:03:59]
-03. King [00:04:07]
-04. Champion (Birmingham 2022 Commonwealth Games: Official Anthem) [00:03:34](   Читать дальше...   )Жанр: Reggae, SkaПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC20DB71C7F4468BBCACD36087FC88D50A7D4D4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717991   (110782) от 27.04.2024
-
-Зараза - Вы попали на мой район (2024) [MP3|320 Kbps] <Rap/Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вы попали на мой район [00:02:10]
-02 - Улечу [00:04:05]
-03 - Мой район устал [00:04:25]
-04 - Дождевые [00:02:30](   Читать дальше...   )Жанр: Rap/Hip HopПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718663   (110877) от 26.04.2024
-
-Нигатив - Кризис среднего (2024) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110877.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Роки
-2. Нить
-3. Слово чушпана
-4. Дело молодых(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7A0F546FC36C70950FB57D7ABD888B3803AE05
 ```
 
 

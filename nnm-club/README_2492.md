@@ -1,3 +1,55 @@
+###  Публикация: 1804908   (65538) от 03.07.2025
+
+Щенки - Hоль один (2025) [MP3|320 Kbps] <Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я люблю до конца [00:03:22]
+02 - Ни тебя ни меня [00:02:38]
+03 - Рвется внутри [00:03:16]
+04 - Губная помада [00:02:31](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805032   (65539) от 03.07.2025
+
+Фрэнсис Элиза Ходжсон Бёрнетт | Как стать леди (2024) [MP3, Ирина Булекова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмили Фокс-Ситон родилась в знатной, но обедневшей семье. Она получила хорошее образование, но в Лондоне конца XIX века не так много возможностей его применить. Эмили вынуждена ютиться в тесной комнатушке и работать компаньонкой более успешных высокородных дам. О хорошей партии девушка не может и мечтать…
+Однако ее работодательница, умная, эгоистичная и острая на (   Читать дальше...   )Жанр: зарубежная классика, психологическая проза, социальная драмаПеревод: Светлана СелифоноваИздательство: АСТПродолжительность: 09:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5A199756F020C3204656C93C4A8A936B835C01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804921   (65540) от 03.07.2025
 
 Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
@@ -640,60 +692,6 @@ Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC11A69BEFD63B944ABA8EA3CF91381472BF61A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804755   (65564) от 01.07.2025
-
-Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal, Hardcore, Blackened>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Cult [00:03:09]
-02. Hammering the Sinners (Streaming Version) [00:02:17]
-03. "The Cælestial Beast is Rotten." (Streaming Version) [00:02:45]
-04. Que Minjam eths Nosti Mòrts [00:03:35](   Читать дальше...   )Жанр: Death Metal, Hardcore, BlackenedПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E970EDA492147292E2FB9A5B60E74E69ABD0DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804685   (65565) от 01.07.2025
-
-Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technical Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masquerade
-02. Mask Of Red Death
-03. Oathbreaker
-04. Mind Of Metal(   Читать дальше...   )Жанр: Neoclassical, Technical Thrash, Death MetalПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42A2BD392FAA5911CB5210D3BD2B567C0DD2170
 ```
 
 

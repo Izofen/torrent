@@ -1,3 +1,428 @@
+###  Публикация: 1737516   (106506) от 18.07.2024
+
+Photo Supreme 2024.2.1.6582 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D0F642C3E91F3BF582859B65AB3619F411803B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737622   (106507) от 18.07.2024
+
+Albert Castiglia - Righteous Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centerline (4:44)
+02. Get Down To The Nitty Gritty (4:10)
+03. Mama, I Love You (6:12)
+04. You Can't Judge A Book By The Cover (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323C74079AA36880947D21F95E2328294251B8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737644   (106508) от 18.07.2024
+
+Orange Goblin - Science, Not Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire At The Centre Of The Earth Is Mine (5:20)
+02. (Not) Rocket Science (4:21)
+03. Ascend The Negative (5:24)
+04. False Hope Diet (6:58)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A63665635EDB76E81F84F4BB2D8B5CF0873DAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737627   (106509) от 18.07.2024
+
+SkyEye - New Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Descenders (4:37)
+02. Fight! (4:22)
+03. Far Beyond (4:46)
+04. Railroad of Dreams (3:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C83E2D355E871E2B2D6975F6D2D2FE0DAB65E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737571   (106510) от 18.07.2024
+
+Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent, Math Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shokran — российская рок-группа, исполняющая прогрессивный метал и джент.
+Основана в 2012 году гитаристом Дмитрием Демьяненко.2014 - Supreme Truth
+2016 - Exodus
+2019 - Ethereal
+2024 - Duat(   Читать дальше...   )Жанр: Progressive Metal, Djent, Math MetalПродолжительность: 02:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC85FF1B7C284F0FBADE8D1A26E35EFF69222F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737563   (106511) от 18.07.2024
+
+David Moore and Westridge - Get The Led Out! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, classic rock, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paid My Dues [00:02:27]
+02. Mama Dance [00:01:58]
+03. Get The Led Out! [00:02:58]
+04. Hully Gully [00:03:35](   Читать дальше...   )Жанр: Rock, classic rock, Singer-SongwriterПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393F71AA53C9EFCE95F467617FAAFB4D19EDF037
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737527   (106512) от 18.07.2024
+
+Наталья Преображенская | Сам себе декоратор (2024) [MP3, Ирина Булекова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте магию рун, ощутите связь со Вселенной, почувствуйте её силу и получите секретные знания вместе с известным практиком рунной магии!
+Книга «Сам себе декоратор: секреты декора для крутого интерьера» поведает читателю, как зарождались и формировались топовые стили в интерьере, как развивать насмотренность и вкус, как создавать впечатляющие декораторские проекты (   Читать дальше...   )Жанр: Дизайн интерьераИздательство: АСТПродолжительность: 06:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9AF4B689BF99467BCA8A2EA80E9C2A32F1B489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737433   (106513) от 18.07.2024
+
+Liner Lou - Bluester (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steady Rollin' Gal (3:37)
+02. Do Right (3:41)
+03. Bumble Bee (4:12)
+04. My Buddy Blues (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1148FA96EDC3D02099E2C51FFA16BA32EBEA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737436   (106514) от 18.07.2024
+
+Will Jackson - Where There's a Will There's a Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River of Blues (2:48)
+02. R O B Aftermath (4:42)
+03. Shuffling Down to Memphis (5:36)
+04. Cupid Made Me Stupid (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2216192AB7A8516C0B75389F34FA10DC741C6DBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737420   (106515) от 17.07.2024
+
+Валерий Филимонов | Духовный отец преподобного Серафима Вырицкого – преподобный Варнава Гефсиманский (2002) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга рассказывает о путях восхождения к высотам христианского совершенства, о стяжании Духа Святаго Божия. В ней раскрыты истинные понятия о подлинных христианских добродетелях: смирении, кротости, любви, послушании, пастырстве, старчестве и духовной преемственности в их святоотеческом толковании. Есть надежда, что книга поможет читателю обрести духовный навык (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83022B72727D5B4224BB7BBDF5EDD2CCF6C93F6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737439   (106516) от 17.07.2024
+
+VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure and Pleasure (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Vanilla Twilight (5:51)
+02. Chillaxonic - Ineffable (5:22)
+03. Chillaxing Jazz Kollektion - Just Ones (4:20)
+04. Kool&Klean - Everything (4:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA738DDE4795FA6F9B1ACB78D3D3EC08CE2D3AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737443   (106517) от 17.07.2024
+
+VA - Idyllic Vacation Tranquil Vacation Getaway Instrumentals for Leisure and Pleasure (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Vanilla Twilight (5:51)
+02. Chillaxing Jazz Kollektion - Mornin' (4:30)
+03. Love Suggestions - The Way (4:13)
+04. Chillaxonic - Ineffable (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4241A6D4FE996B861419605A6F18F0C91E8920F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737408   (106518) от 17.07.2024
+
+Nemoreus - Orcunadoras (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Das Rote Tuch [3:31]
+02 - Give Us Rain [3:13]
+03 - Horns of War [3:36]
+04 - The Demon Inside [4:04](   Читать дальше...   )Жанр: Folk Metal, Black MetalПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1E1B7DE096660835C94F0074274C4C7C97BD5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737460   (106519) от 17.07.2024
+
+Cryptopsy - As Gomorrah Burns (2023) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lascivious Undivine
+2. In Abeyance
+3. Godless Deceiver
+4. Ill Ender(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674606C059E4CAAAD5D0B604912E55525DCDEBAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737362   (106520) от 17.07.2024
+
+Nat Adderley Quintet - The Old Country (1990) 1992, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Country [6:47]
+02. Bohemia After Dark [5:57]
+03. Jeannine [9:32]
+04. Almost Always [4:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1089D990331334E24A7A9FD2DBC54ED4F3535038
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737360   (106521) от 17.07.2024
+
+Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pictures (feat. Bob Mintzer) [6:18]
+02. New Year [5:13]
+03. Treasure [3:28]
+04. Butterfly Effect [7:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C9107A20A1719FBA27F35D59628F04A59E93D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737361   (106522) от 17.07.2024
 
 Nat Adderley - Introducing Nat Adderley (1955) 2001, Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -252,427 +677,6 @@ magnet:?xt=urn:btih:E2111C508790DF5EFD8127D81A7D3573C25F3D96
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB21A800B0B790B8242E20CDF2FCBA01DA946D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737188   (106532) от 17.07.2024
-
-Nouvelle Vague - 3 Albums (2004-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, New Wave, Bossa Nova>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2004 - Nouvelle Vague (Remastered Edition 2024)
-2006 - Bande a Part (Remastered Edition 2024)
-2024 - Should I Stay or Should I Go?Жанр: Lounge, New Wave, Bossa NovaПродолжительность: 3 CD, 03:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3248FFBE0A4091C9CE172A4C85F77CB29A9F452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737195   (106533) от 17.07.2024
-
-Remi Wolf - Big Ideas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinderella [00:04:03]
-02. Soup [00:03:33]
-03. Motorcycle [00:02:46]
-04. Toro [00:02:55](   Читать дальше...   )Жанр: PopПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7C25EDC397E998C3CDE82247B1ED59B2AD408E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737477   (106534) от 17.07.2024
-
-Sandboxie 5.69.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2BE9012C8879CBDC85BCABB2F59504364DD338
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737472   (106535) от 17.07.2024
-
-Alex Morning.Vibes - Acoustic Blues To Ease Your Soul (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Habits (3:36)
-02. Blues To Ease Your Soul (5:40)
-03. Celebrate the Night (3:14)
-04. Depart Ere Affection Fades (3:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C2CED3AA08CB5978C4C34916EF3DCBE363E7CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737390   (106536) от 17.07.2024
-
-Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanden Plas — немецкая рок-группа, играющая в стиле прогрессивный метал.
-Была образована в середине 80-х годов в немецком городе Кайзерслаутерн.1994 - Colour Temple
-1996 - Accult
-1997 - The God Thing
-1999 - Far Off GraceЖанр: Progressive MetalПродолжительность: 12:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737423   (106537) от 17.07.2024
-
-Сатисъ | Жемчуг духовный. Молитва. По учению святых отцов (2004) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богообщение должно быть всегдашним, непрерывным состоянием человека, так что, коль скоро нет общения с Богом, коль скоро оно не ощущается, человек должен сознаться, что стоит вне своей цели и своего назначения.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBEF8F4795A2FC4EAFA9E480B8AC230E593D10F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737422   (106538) от 17.07.2024
-
-Епископ Гермоген (Добронравин) | Утешение в смерти близких сердцу (2006) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеря близкого человека тяжелое испытание для любого из нас. Умный, добрый и умудренный жизненным опытом архипастырь, обращаясь к нашим душе, сердцу и разуму, помогает нам правильно осознать потерю и примириться с ней.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BEAF4B5F2C9E24049A21785868F324D86D2366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737053   (106539) от 16.07.2024
-
-Catfish John Tisdell - Ain't That the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Draggin' My Heart Around (4:09)
-02. I Loved Another Woman (3:53)
-03. Sharp Dressed Man (3:50)
-04. Texas Flood (7:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888A1DC9004B3B56183F7E142C36C1115C7DD827
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737274   (106540) от 16.07.2024
-
-Сумасшедший пансион / Det gale pensionat (1911) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Озорная и искренняя комедия. Мне понравилась. Они напоминают о том, что наши пра-пра-прадедушки были такие же люди как и мы. Или, точнее, это мы такие как они. История проста. Пансион, это раньше были такие съемные комнаты, и хозяйка жила там же и строго следила за порядком. Во всяком случае, неуклюжую горничную она уволила не раздумывая. И вот она уезжает в гости (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Карл Альструп, Фредерик Бух, Эрик Кроун, Дагмар Краруп, Ютта Ланд, Элит Пио, Оскар СтриболтПеревод: немой с интертитрамиСубтитры: испанские (интертитры), русскиеПродолжительность: 00:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF7E5DC9DA1821ADA890208023B4F3169A17BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737061   (106541) от 16.07.2024
-
-Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoodoo Man Blues (3:30)
-02. You're the Boss (2:48)
-03. Mean Old Frisco (5:21)
-04. The Moon Is Rising (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EA112D54F251B078B1D6CDF1E22EEB7DB01D60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737239   (106542) от 16.07.2024
-
-Charles Fauna - L I M B O (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Enjoy Your Stay (01:57)
- 02 - Shadow I (04:01)
- 03 - Midnight Magic (03:11)
- 04 - Sweet Dreams (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB60AE7AC7631E6982FB853B7F2CAD6A63F8FA40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737060   (106543) от 16.07.2024
-
-Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Condition Blue (4:07)
-02. Don't Stop (3:45)
-03. You're Killin' Me (3:48)
-04. Mother Earth (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10655E877CA5F70E4990ECF3CDBDFFE526AA6A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737044   (106544) от 16.07.2024
-
-Anthony Q - Rebirth of Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full of Dat Oil (2:58)
-02. Get in (2:36)
-03. Sound (3:09)
-04. Hard on these hoes (3:14)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E008E0D4EC2F8836D13D10A202E073DADB274915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737048   (106545) от 16.07.2024
-
-Bluesnake - New Chapter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Food for the Soul (3:31)
-02. Silence is Calling (3:30)
-03. Nighttime (4:48)
-04. Was it You? (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11CC1696F1B6D9E9D68970C597BE617CE8A9A98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737067   (106546) от 16.07.2024
-
-Dwayne Dopsie, Zydeco Hillraisers - Now Is The Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Funk, Zydeco>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Short and Sweet Do You Remember (2:55)
-02. Do You Rember (3:45)
-03. I'm Happy (Suis Heureux) (4:02)
-04. Bring It On Home (4:26)(   Читать дальше...   )Жанр: Blues, Funk, ZydecoПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CE18AB9C32211AD6D643F5E6D4CABF9D7164A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737057   (106547) от 16.07.2024
-
-Dave Alvin & Jimmie Dale Gilmore feat. The Guilty Ones - TexiCali (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borderland (5:03)
-02. Southwest Chief (5:35)
-03. Broke Down Engine (4:38)
-04. Trying To Be Free (3:49)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35503A554DA94C7E41EE5781918010E4B389C99
 ```
 
 

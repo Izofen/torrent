@@ -1,3 +1,57 @@
+###  Публикация: 1761610   (36569) от 21.11.2024
+
+Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmy Meli - Hello Stranger (0:35)
+02. Emmy Meli - Silence (2:15)
+03. Emmy Meli - Breakthrough (2:37)
+04. Emmy Meli - Happy Ending (2:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4289BAF7FC4F232BA47F6F45171C15BCB1202631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761593   (36570) от 21.11.2024
+
+Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Free (3:20)
+02. Somebody Just Like You (3:39)
+03. Deception for All (3:40)
+04. If You Remember (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B7B4910A2DBF036FB9F44B504CAA4FCCEB83C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761653   (36571) от 21.11.2024
 
 Анни Шмидт | Мурли (2011) [MP3, Ирина Воробьева]
@@ -612,60 +666,6 @@ VA - Autumn Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03FEECABAE2812A88C9E48B4F5FB9AE67888D01C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761631   (36595) от 21.11.2024
-
-Игорь Некрасов - Одноклассники (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_36595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Одноклассники [00:04:36]
-02 - Небеса [00:04:30]
-03 - Не спорь со мной [00:03:43]
-04 - Весна пришла [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C4B298BBC01EEF59D188362B5F3D0A87E1B21F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761581   (36596) от 21.11.2024
-
-Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_36596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:50)
-02. Live Life Now (2:53)
-03. It's About Time (3:49)
-04. Crazy Stupid Love (3:46)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCD2602F79CCE056C311D98218D4E861C29FDFE
 ```
 
 

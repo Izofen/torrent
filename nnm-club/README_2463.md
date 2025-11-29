@@ -1,3 +1,57 @@
+###  Публикация: 1808960   (64784) от 27.07.2025
+
+Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be Bop Baby (6:45)
+02.  Possession Over Judgement Day (8:34)
+03.  Diamond Man (3:55)
+04.  Mud Bucket (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5548DF80EB3460BB10FB9289F340A8C1C58DB07E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808956   (64785) от 27.07.2025
+
+Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  (Buddy's) Big Legged Woman (4:25)
+02.  Rock Me (3:27)
+03.  Blues for Mud (3:29)
+04.  You're So Fine (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808995   (64786) от 27.07.2025
 
 Военная тайна с Игорем Прокопенко (26.07.2025) WEBRip [H.264]
@@ -606,58 +660,6 @@ VA - Lounge Avenue, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AA79C6D30F08E7C2E40F79511690606ECC9AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808961   (64810) от 27.07.2025
-
-Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_64810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…
-Пришло время нового поколения отстаивать своё право на Землю.Производство: Великобритания, Китай, Япония, США, Мексика / Legendary EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Цзин ТяньПеревод: Дублированный, Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH, Commentary)Продолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D73D8092F3A4AC219C4C2281CF3595FDA763CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808979   (64811) от 27.07.2025
-
-VA - Lounge Avenue, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_64811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calmabohain - In My Mind (05:34)
- 02.  Velvet Dreamer; Tim Gelo - Cafe Latte Macchiato (05:28)
- 03.  Music Of The Earth - Golden Ride (Pearldiver Homegrown Mix) (03:29)
- 04.  Five Seasons - Walk Through the Day (Original Mix) (05:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2550297F9EBFB2D20F26B16B4B9629A33C988300
 ```
 
 

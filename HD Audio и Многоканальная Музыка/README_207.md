@@ -1,3 +1,57 @@
+###  Публикация: 1632482   (198677) от 10.05.2023
+
+Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunters Of The Night
+02. Some Hearts Are Diamonds
+03. Here Comes The Night
+04. Broken Heroes(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628375   (199452) от 23.04.2023
+
+Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Говорите тише (Н. Рота)
+02 Пассажир под дождем (Ф. Лэй)
+03 Мужчина и женщина (Ф. Лэй)
+04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627881   (199581) от 20.04.2023
 
 Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
@@ -647,60 +701,6 @@ Muse — британская рок-группа, образованная в 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152990   (203599) от 24.01.2023
-
-The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_203599.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Venus
-A2 Shocking You
-A3 Send Me A Postcard
-A4 Long And Lonesome Road(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656086   (203631) от 29.08.2023
-
-Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Music [FLAC|24/192|image + .cue|Viny-lRip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_203631.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Необыкновенная Женщина • Female Of The Species
-A2 Все, Что Я Могу, - Любить Тебя • Loving You Is All I Know
-A3 О Чем Ты Думаешь • What Goes On In Your Mind
-A4 Танцующие Туфельки • Dancing Shoes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6670368A67381097772F3523C9C683F473CF8AF2
 ```
 
 

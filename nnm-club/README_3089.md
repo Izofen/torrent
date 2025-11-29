@@ -1,3 +1,364 @@
+###  Публикация: 476317   (98239) от 31.03.2012
+
+Mythbuntu 12.04 LTS "Precise Pangolin" Beta 2 [i386 + x86_64] (2xCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mythbuntu - это основанный на Ubuntu дистрибутив, целью которого является создание самостоятельной системы основанной на программе MythTV (аналоги Knoppmyth и Mythdora). Представляет собой самодостаточную мультимедийную станцую, как для просмотра, так и для вещания. В качестве рабочего окружения используется XFCE4. По умолчанию нет никаких дополнительных приложений, типа OpenOffice или Evolution, но в любой момент Mythbuntu может быть легко превращен в Ubuntu, Kubuntu, Xubuntu или любую другую *buntu систему. Для управления используется Mythbuntu Control Center, которое позволяет настроить все необходимые параметры для нормально работы MythTV, “превратить” в другие *buntu системы (доустановив необходимые пакеты), установить проприетарные драйвера или кодеки, настроить ПДУ и многое другое.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474098   (98240) от 31.03.2012
+
+До свидания, дети / Au revoir les enfants (1987) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война, Франция оккупирована нацистами. Настоятель католического колледжа для мальчиков решается дать приют нескольким еврейским детям. Главный герой, мальчик-француз по имени Жюльен Кантен, подружился с одним из них. И когда гестапо по чьей-то наводке обнаруживает прегрешение настоятеля, и его вместе с еврейскими детьми увозят на верную смерть, это (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Луи МалльАктеры: Гаспар Манесс, Рафаэль Фейтё, Франсин Расетт, Станислас Карре Де Мальбер, Ирен Жакоб, Филипп Морье-Жану, Франсуа Берлеан, Франсуа Негре, Петер Фиц, Паскаль Риве, Бенуа АнриетПеревод: Многоголосый закадровый, Авторский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475176   (98242) от 31.03.2012
+
+Дикий Юг. Птицы без полёта / Wild South. Les oiseaux sans vol (1990-1999) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD33D48107070F566F119B1971E4FCD04F33F4FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475563   (98243) от 31.03.2012
+
+4Arm - Submission For Liberty (2012) [FLAC|Lossless]<Thrash Metal/Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinn Macht Frei (1:23)
+02. While I Lie Awake (7:33)
+03. Raise A Fist (4:27)
+04. Submission For Liberty (5:16)
+05. The Oppressed (4:13)
+06. I Will Not Bow (5:56)
+07. Taken Down (4:21)
+08. My Father's Eyes (5:06)
+09. The Warning (4:10)
+10. Blood Of Martyrs (7:06)Жанр: Thrash Metal/Groove MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475802   (98244) от 31.03.2012
+
+VA - Весенние Новинки Русского Радио (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Проект Настроение-Буги-вуги
+02. Размер Project - Люди Клоны
+03. Земфира - Webgirl (Alex Valenso Remix)
+04. Снежана Фирсова - Благодарю
+05. Джиган Feat. Жанна Фриске - Ты Рядом
+06. Валерия И Николай Басков - Сохранив Любовь
+07. DJ Onegin - Пуля
+08. Макsим - Это Же Я
+09. Блестящие - Любовь
+10. K. Melody - Беги2012Жанр: PopПродолжительность: 06:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB11DB54723CEC8A20D97791585A51498B1E9850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476029   (98245) от 31.03.2012
+
+Los Angeles Negros - 20 Grandes Exitos (1996) [MP3|320 кб/с]<Pop, Latin, Ballad>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y Volvere
+02. Como Quisiera Decirte
+03. A Tu Recuerdo
+04. Te Dejo La Ciudad Sin Mi
+05. Murio La Flor
+06. Debut y Despedida
+07. La Sirena De Mis Sueсos
+08. No Vivire
+09. Quiera A Dios
+10. No Morira Jamas(   Читать дальше...   )Жанр: Pop, Latin, BalladПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4F334F08F8AFEE183262A0214CDABB5E0B3FD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475329   (98246) от 31.03.2012
+
+Марк Олден | Гири [2000] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Мэнни Деккер / A Manny Decker thriller
+Оригинальное название:2000Жанр: Детектив, триллер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4108EE773DC833821364DEA278961BC00F81763
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475960   (98247) от 31.03.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 19
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98247.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 19 
+Название:  Girls Desktop Wallpapers Pack 19 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 5616х3744
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F4321CBA63AC1E1D20E5DB90B2E595C681A64F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475962   (98249) от 31.03.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98249.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 20 
+Название:  Girls Desktop Wallpapers Pack 20 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 5616х3744
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F533B9EE9B120EBAC91FB3699EEB377948B4D40C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476043   (98250) от 31.03.2012
+
+VA - Nassau Beach Palma de Mallorca pres. Balearic Moods Chopin In My Mind (2011) [MP3|320 кб/с]<Chill, Funky, Club, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98250.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. HP. Hoeger - Prelude Nr. 13, Opus 28
+2. Consoul Trainin - Beautiful - Kosmopolitans Remix
+3. Setsuna - Waterfall
+4. Michiko - Learning To Love
+5. James Bright - Little Things
+6. Merge of Equals - Heart & Mind - Sine Remix
+7. Thomas Lemmer - De Nuit
+8. Evgeny Emelyanov - Immense Passion
+9. Piano Chocolate - Forgotten Love
+10. HP. Hoeger - Nocturne Nr. 20(   Читать дальше...   )2011Жанр: Chill, Funky, Club, HouseПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2D3FA2EFB50A24C6604A99DDD52CA43B9592DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476244   (98251) от 31.03.2012
+
+Линда Фэйрстайн | Заживо погребенные [2006] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рядовой преступник атакует при первой возможности. Неважно, кто ему подвернется. Он нападает, стоит жертве оказаться одной в неудачном месте и в неудачное время. Но этот охотился на женщин определенного типа: высокого роста, стройные, за двадцать. Будьте всегда начеку. Мужчины, которых вы встречаете в гастрономе. Посудомойщики в ресторане на углу. Швейцар. Случайный попутчик в метро. Страшный мир рассказов Эдгара По. Жестокий мир современного Нью-Йорка. В новом захватывающем детективе Линды Фэйрстайн эти миры переплетаются так тесно, что порой невозможно понять, где заканчивается реальность и начинается литературная выдумка.2006Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113B7AC06CEDBC14430B4D75B43000238946CEE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473473   (98252) от 31.03.2012
+
+Маленький мир Дона Камилло / Le Petit monde de Don Camillo (1952) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся драматургия запутанных дружеско-вражеских отношений пастора с коммунистами основывается на том, что мэр Пеппоне и его соратники - простецы. Таковых же Господь любит - «блаженны чистые сердцем, ибо они Бога узрят»...Жанр: комедияРежиссер: Жюльен ДювивьеАктеры: Фернандель, Джино Черви, Вера Тальки, Франко Интерленги, Саро Урци, Чарльз Виссьер, Clara Auteri Pepe, Итало Клеричи, Пеппино Де Мартино, Карло ДузеПеревод: Многоголосый закадровыйПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476162   (98253) от 31.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 54
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98253.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 54
+Название: Sexy Girl Wallpapers Pack 54
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600/2138х1710
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476369   (98255) от 31.03.2012
 
 Лилия Малахова | Зачем нужны мужчины [2011] [FB2,RTF]
@@ -351,420 +712,6 @@ magnet:?xt=urn:btih:4E8F4C040F44335750B17AC439282E9AA9D111B0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48530D97BE22D17F5AC28163289F6EA43845E14A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476236   (98276) от 31.03.2012
-
-Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, Synth, Female Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl Like Me
-02. Sunday Drive
-03. Black, White & Blue
-04. Vaccine
-05. Blue Eyes
-06. Vanity
-07. The Quick & the Dead
-08. Anxiety
-09. Cellophane
-10. Gone Gone GoneЖанр: Indie Rock, New Wave, Electronic, Synth, Female VocalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A36A09BA1CA8529C37A67295CB980FE360ABDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476173   (98278) от 31.03.2012
-
-Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Put On A Record (Intro)
-02 It's Time
-03 Now And Then
-04 Tonights Forecast (Interlude)
-05 Rainy Days
-06 Starlight
-07 Through The Storm
-08 Be Mine
-09 Genuinely
-10 Staying Home Tonight (with you)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476349   (98279) от 31.03.2012
-
-Прожекторперисхилтон. Сезон 4. Выпуск 24(124) (30.03.2012) DVBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98279.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009553A4085F1F856F5172BE0ADB0DB617E5718B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476245   (98280) от 31.03.2012
-
-VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|320 kbps]<Chillout | Lounge | Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's the Way Love Goes - Yuliet Topaz
-02. Spacechild - Aries In Mars
-03. Wann ist es Liebe - Jazzamor feat. Publique
-04. The Mood Is Good - Vst
-05. 2 Becomes 3 (4.57m Edit) - Soulounge feat. Cultured Pearls
-06. A Joint After The Sex - Marcus Zelonka
-07. Femme fatale - Deeper Sublime & Eriq Johnson
-08. Mon coeur - Bloomfield
-09. Love Hungry - Weathertunes
-10. Bedtime - Naoki Kenji(   Читать дальше...   )2012Жанр: Chillout | Lounge | DowntempoПродолжительность: 02:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475500   (98284) от 31.03.2012
-
-Аloe Blacc - Good Things (2010) [MP3|320 кб/с]<Soul>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_98284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need A Dollar
-02. Green Lights
-03. Hey Brother
-04. Miss Fortune
-05. Life So Hard
-06. Take Me Back
-07. Femme Fatale
-08. Loving You Is Killing Me
-09. Good Things
-10. You Make Me Smile(   Читать дальше...   )Жанр: SoulПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476610   (98285) от 01.04.2012
-
-VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98285.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - 20 Progressive House Tunes Vol.2 (2012)
-Год: 2012
-Жанр: House, Trance
-Продолжительность: 02:43:34Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. 16 Bit Lolitas - You Are An Astronaut (Original Mix) (07:29)
-02. Matisse & Sadko - Amulet (Original Mix) (07:07)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161AC159D9C65E8A64CDD02EF5B79BBE588D5774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476089   (98288) от 01.04.2012
-
-The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World Jazz / Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98288.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alma Hueca 09:47
- 2. Cracks in the Mirror 05:46
- 3. Pyrexia 07:10
- 4. Dewdrops at Dusk 10:03
- 5. The Art and the Equation 08:33
- 6. Mia Rosa 05:58
- 7. Menos Grande 06:01
- 8. Esperanza 08:22
- 9. Scratching at Clouds 06:40
- 10. Amor y Decadencia 10:472011Жанр: Avant-Garde Metal / World Jazz / Post-MetalПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83447A05CCF0A0A685D9319087018F72FA406965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476648   (98289) от 01.04.2012
-
-DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dubsective - Sanskrit (Original Mix)
-02. Friction vs Camo & Krooked feat. Dynamite MC - Stand Up (Sigma Remix)
-03. Hallucinator - Suicide (Cooh Remix)
-04. Logistics - Beatbox Master (Original Mix)
-05. Noisia - Machine Gun (Original Mix)
-06. Noisia - Thursday (Black Sun Empire Remix)
-07. Noisia - Soul Purge (Current Value Remix)
-08. Hallucinator - Motherfucker (Original Mix)
-09. Emalkay - Flesh and Bone (Delta Heavy Remix)
-10. Oscillatorz - The Miles (Original Mix)(   Читать дальше...   )31.03.2012Жанр: Drum & BassПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D176E320C92D2709582BEDF48E97069BBAAA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476627   (98292) от 01.04.2012
-
-VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98292.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Progressive Session #35 (2012)Год: 2012
-Жанр: Trance
-Продолжительность: 03:46:29
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Akira Kayosa & Hugh Tolland feat. Stine Grove - Always With You (Lee Canning Remix)
-02. 100MG - Amorphism(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA8F210B8A62DBEE3CD957A731954FE4BDCEAFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476549   (98294) от 01.04.2012
-
-VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Green Court - Inside Your Gates (Cosmic Gate remix) (7:50)
-2. Patrice Milan - Eternal Spirit (Wavetraxx remix) (7:06)
-3. Jake Nicholls - Decade (DJ Space Raven & Shokk remix) (7:19)
-4. S.Y.S. - Weiber (7:27)
-5. Antheya - High (original vocal mix) (7:32)
-6. Benya - Rhea (DJ Choose remix) (7:25)
-7. Crush - First Union (Riot 303, observer mix) (6:49)
-8. Junk Project - Beats Brings Silence (4:57)
-9. Silent Harmony - Save the Whales (Vincent De Moor mix) (6:38)
-10. Tectonic Shift - Silver Dusk (feat Andre Visior) (9:36)2012Жанр: Trance, Hard TranceПродолжительность: 02:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F109C7FB79AA18299CD622EE1D83B9B0BCC612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476223   (98295) от 01.04.2012
-
-VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Sayz feat. Christina Skaar - Falling
-02. Alex Valenso - Sky (Club Mix)
-03. Andeeno Damassy vs. Natalia Kills - Mirrors  (Club Mix)
-04. Andrey Dubovitskiy Vs Dj Bobo - Love Is All Around (k Club Mix)
-05. Bang Bang - Music Is My Girlfriend
-06. Christopher S feat. Lisa - There For You
-07. Cristian Marchi & Syke'n'Sugarstarr feat. Lisa Millett - U Got Me Rockin' (Cristian Marchi & Paolo Sandrini Prog Mix)
-08. Digital Mass - God Is A DJ (Original Mix)
-09. Dirty South feat. Andreas - Glorious (Daddy's Groove Mix)
-10. DJ-Relay & Kathleen Moore - Spiel Mit Mir(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C664652BB3BFD26E81FA809A50262DC6A9733DF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474499   (98296) от 01.04.2012
-
-Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro House , House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012)
-Год: 27.03.2012
-Жанр: Electro House , House
-Продолжительность: 01:02:32Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1. Rene Rodrigezz & DJ Antoine feat. MC Yankoo - Shake 3x (Original Mix)
-2. Michael Woods - Last Day On Earth (DJ Solovey Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6FDC235DD9B1351D3AAC1CACC1BC9130078662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474757   (98297) от 01.04.2012
-
-VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_98297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ace Of Base - All For You (Critz & Lucas T. Remix) (5:26)
- 2. Ann Winsborn - Je N'ai Pas Compris (DJ Arctic ' Pump' Remix) (5:01)
- 3. Basshunter - Now You're Gone (Freaky DJs & Dima Project Remix) (4:48)
- 4. Bobina & Betsie Larkin - You Be Long To Me (Menny Strong Remix) (6:51)
- 5. Bodybangers feat. Gerald G! - Set The Night On Fire (Original Mix) (5:06)
- 6. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs. Loverush Radio Edit) (3:24)
- 7. Chris Brown with Rihanna - Turn Up The Music (Miami Life Remix) (5:15)
- 8. Compact Disco - Sound Of Of Hearts (Stereo Palma Remix) (7:10)
- 9. DJ Cargo vs. Locco Freakz - Reach Up (Freaky DJ's Mash Up 2k12) (3:48)
- 10. Dubsective - Shara (Original Mix) (5:00)23.03.2012Жанр: Electro HouseПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
 ```
 
 

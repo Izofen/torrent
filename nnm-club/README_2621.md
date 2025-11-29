@@ -1,3 +1,54 @@
+###  Публикация: 1786891   (68892) от 23.03.2025
+
+Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|320 Kbps] <Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – I Might Have Been Queen (2015 Remaster)
+02 – What’s Love Got to Do with It (2015 Remaster)
+03 – Show Some Respect (2015 Remaster)
+04 – I Can’t Stand the Rain (2015 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADAE20D67E543C75A973092A96C2304524AA68B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786949   (68893) от 23.03.2025
+
+Фоны - Dealjumbo.com - Deeezy - 45 Free Futuristic 3D Backgrounds - 96757 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные футуристические фоны.Формат: PNG, JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBFFAA2887C4C44A11118836DDC340C66122F9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787088   (68894) от 23.03.2025
 
 Елена Князева - Выбрала счастье (2024) [MP3|320 Kbps] <Pop>
@@ -617,60 +668,6 @@ Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C447AD831A515C6C1523B726790DF1B472CDD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786779   (68918) от 22.03.2025
-
-Jay Hoggard - The Fountain (1992) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Potato [9:11]
-02. Stompin' at the Savoy [7:29]
-03. Prelude to a Kiss [7:30]
-04. Starting Over [4:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6D69D927F9C9A4AE597A30AF0C89A09960F7EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786753   (68919) от 22.03.2025
-
-Дай Дарогу! - Под вой собак (2025) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_68919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Картоха
-2. Нет на вас ментов
-3. Помоги
-4. Дискотека(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F8D4EC8D4702A4FF4A4223F1E9BF06A1B7B6F2
 ```
 
 

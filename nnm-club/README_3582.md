@@ -1,3 +1,429 @@
+###  Публикация: 1709607   (112798) от 25.03.2024
+
+MotoGP. Этап 02 из 22. Гран-при Португалии. Гонка (24.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112798.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 марта 2024, воскресенье. 17:00 МСК. Этап 2, Портимау. Гран-при Португалии. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2E1E7E3B050DB0664C7A4DAAB98A00498F14DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709519   (112799) от 25.03.2024
+
+VA - Supreme Pure Pleasure Relaxing Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Whispers (4:54)
+02. eJazz Artistry - Colder Weather (3:59)
+03. Kool&Klean - Everything (4:04)
+04. Chillaxonic - Heartstrings (3:41)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E663F34F2843CDACD674D0A646F253E30FEE1ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709610   (112800) от 25.03.2024
+
+Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things I've Been Telling Myself for Years (3:34)
+02. Lovers' Leap (4:35)
+03. (Where Is It?) (0:27)
+04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C814C796BC6229252C1EAE8670721DCD3D03402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709748   (112801) от 25.03.2024
+
+Раймонд Паулс - Сестра Керри (1979) [FLAC 24/192|Lossless|tracks] <Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Сторона.
+01-Пролог
+02-Песенка Керри
+03-Тип-топ(   Читать дальше...   )Жанр: MusicalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709632   (112802) от 25.03.2024
+
+Чингиз Абдуллаев | Дронго (Книга 82). Полное каре (2024) [MP3, Чжан Евгений]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монте-Карло – игорная столица Франции. Здесь в крови игроков всегда кипит адреналин, здесь за один вечер можно стать богачом, а можно разориться в пух и прах, здесь за карточным столом рядом с игроками частенько сидит смерть, которая долгов не прощает и вершит свой суд быстро и жестоко. Апофеоз игорных страстей – «Большая игра», когда на кон ставятся безумно большие (   Читать дальше...   )Жанр: Боевик, триллерИздательство: ЛитРес: чтецПродолжительность: 07:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F85B44AD25C7DBE9224E522EF43A0E1D43EE89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709667   (112803) от 25.03.2024
+
+Oakfarm - Oakfarm (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What If
+02. Reason
+03. The Way
+04. Sombre Vita(   Читать дальше...   )Жанр: Psychedelic Rock, BluesПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDD8F257023217E2575D9512128F966474717A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709372   (112804) от 24.03.2024
+
+Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capstan (5:36)
+02. Smoke & Trash (5:25)
+03. Soothe My Soul (4:26)
+04. Braindead (10:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE484285BC978B77505A0E3700960D3E7D06FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709422   (112805) от 24.03.2024
+
+Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Year Of The Clown [00:03:37]
+02. Chivalry's Death [00:04:32]
+03. We Can't Lose What We Never Had [00:03:28]
+04. Wisdom From a Madame [00:03:33](   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D38DEB1A6495032C6D7A1E5FE8D86585101397
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709363   (112806) от 24.03.2024
+
+Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Everywhere I Go (4:50)
+02. I Never Really Thought About Evil (4:47)
+03. Raise Your Voice (7:18)
+04. Cool Down (2:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C9810BB517AF101B49C4155293C5A04E2CF77F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709297   (112807) от 24.03.2024
+
+Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice [5:30]
+02. Giant Steps [5:36]
+03. Buddy's Cherokee [7:31]
+04. Take the A Train [6:17](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC82696E37C0B5131D1879C70799B28F82AD759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709298   (112808) от 24.03.2024
+
+Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra: 21 Big Band Favourites (1989) Pickwick Compact Discs [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big B ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favourite Things [3:04]
+02. The Very Thought Of You [4:37]
+03. I'll Be Seeing You [3:17]
+04. There, I've Said It Again [3:07](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A98166353610DFABD1456F4DF975DD2BEF5943D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709296   (112809) от 24.03.2024
+
+Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD, 2000, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Jimmy's Bar [2:52]
+02. How High the Moon [2:23]
+03. If Dreams Came True [2:55]
+04. Hallelujah [3:01](   Читать дальше...   )Жанр: SwingПродолжительность: 05:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66A672F99CDCF175D96E86427A2CDE0671137B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709403   (112810) от 24.03.2024
+
+Bodyfarm - Malicious Ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Retaliate
+2. Pervitin
+3. Onward Doomsday
+4. Gates Of Malignancy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3F2DBDB6E781F7D5E2F3818973E012A946C114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709208   (112811) от 24.03.2024
+
+Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Repetition I [00:00:58]
+02. Through Chaos We Succeed [00:03:10]
+03. Sisyphus Wept [00:04:29]
+04. This Is the Water [00:04:36](   Читать дальше...   )Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2C85F3076B0144CB3E14236D097008422B1459
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709411   (112812) от 24.03.2024
+
+Necrosanct - Incarnate (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritual Act
+02. Inevitable Demise
+03. Undeath Dead Dying
+04. Abhorrence(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432A3DB3BD41DD659E11DFBB1A9700E03382C469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709336   (112813) от 24.03.2024
+
+Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Swirl
+02. Unrecognized Entity
+03. Inner Consciousness
+04. Essence Of Existence(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982DB0F265E177CE9D8BD85C700A7303A5E6B476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709338   (112814) от 24.03.2024
 
 Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
@@ -251,429 +677,6 @@ magnet:?xt=urn:btih:874A2CCFA0AC952DAF03386A0B4B9AA842093D4F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709385   (112824) от 24.03.2024
-
-TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shout It Out Loud (3:24)
-02. Hate Myself For Loving Life (3:02)
-03. Back Stabber My Friend (3:37)
-04. Going To Get Higher (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6E147AFB045F1265AB08E5C1F38B3691DC9BC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709391   (112825) от 24.03.2024
-
-The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hole Extinction (4:36)
-02. Silent Winter (5:45)
-03. Killer Of The Night (4:55)
-04. Hell or High Water (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FECDE36DBE3BABC8E87D5D9FB4CF60621AA2758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709423   (112826) от 24.03.2024
-
-Stormhunter - Best Before: Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morituri Te Salutant
-02. Reaper
-03. Altar Of Illusions
-04. Nightmare(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760FE961A96BB5A2BFAC5E6B0D37F2F0BDBA7812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709367   (112827) от 24.03.2024
-
-Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legends Of The Blues (3:49)
-02. Call On Me (2:58)
-03. Do You Remember (3:47)
-04. I Call My Johnson...Robert (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43D3197402F8A13C7A8AE5035FDEAB72B2C6975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709359   (112828) от 24.03.2024
-
-D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popstar (4:00)
-02. Day Off (3:36)
-03. Dance with the Devil (4:15)
-04. Letter To Women (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92053C60EC29EE95B27564FF7EE65C3DE4347054
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709366   (112829) от 24.03.2024
-
-Nils Lofgren Band - Spares (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Eyes Don't (5:11)
-02. Old Friends (3:46)
-03. Sun Comes Up (feat. Bonnie Bramlett) (3:58)
-04. Dance of Life (feat. Lou Gramm) (3:57)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, FolkПродолжительность: 01:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3F37C34E360673B7A3905C6BC8B4A5C3B81AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709356   (112830) от 24.03.2024
-
-3 Leaks, No Heat - Now and Never (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decidual (4:58)
-02. Will (3:33)
-03. Backtrack (3:20)
-04. Take Me in Your World (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E8CBF8FEE3EFE40518117299204A6904D36C8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709361   (112831) от 24.03.2024
-
-Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Should Be Glad (3:52)
-02. I Need Your Love (3:28)
-03. ¡ Huye ! (4:19)
-04. True Love (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E02A9C286761A9E9140AC5806889340EA52D62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709325   (112832) от 24.03.2024
-
-MotoGP. Этап 02 из 22. Гран-при Португалии. Квалификация (23.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112832.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 марта 2024, суббота. 13:50 МСК. Этап 2, Портимау. Гран-при Португалии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09033FA069167C72C33182B6BEA9153243100091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709446   (112833) от 24.03.2024
-
-Innocence Lost - Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Man's Fall
-02. Dark Forest
-03. The Trial
-04. The River(   Читать дальше...   )Жанр: Progressive, Symphonic MetalПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F2240EF6809F58E1BFD662F9A077102CEFE1A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709412   (112834) от 24.03.2024
-
-Собаки Табака - Чернь (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Какие планы? [00:03:16]
-02. Голод [00:03:36]
-03. Ногами вперёд [00:04:32]
-04. Новой чумы пробуждение [00:02:57](   Читать дальше...   )Жанр: Industrial Rock, ExperimentalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB98BA22D9F7899D12884ACDEDF69E0DA13E8F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709370   (112835) от 24.03.2024
-
-Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strong For Today (3:18)
-02. Soul Shade Mechanic (4:03)
-03. Welcome Back Eloise (3:38)
-04. Killing Floor (6:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93597F9E5A7B021B4C52C2AEFFAE379F61E5DDF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709378   (112836) от 24.03.2024
-
-Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Flames Bar B Que (2:45)
-02. Every Dog Has His Day (3:34)
-03. First Class Fool (2:56)
-04. Blues Comes A Callin' (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A152DE7543EAB973F113EE908E8D3B6ED8A365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709203   (112837) от 24.03.2024
-
-RJ TextEd 16.15 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112837.jpg" />
-</div>
-
-
-###  Подробнее
-
-RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A43B119C1DFDD3BF8632F9FF8F07D5A1EE8C47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709285   (112838) от 24.03.2024
-
-Эльвира Сарабьян | Научитесь говорить так, чтобы вас услышали! (2014) [MP3, Александр Маскалин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционно считается, что быть умелым оратором необходимо только людям «речевых» профессий – актерам, политикам, лекторам, преподавателям. Но умение понятно и доходчиво говорить необходимо и тем, кто просто хочет, чтобы его услышали и вняли его аргументам. Человека, желающего обрести это умение, не интересуют витиеватые построения академических пособий. Ему нужна (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 06:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82880DD5A2A3F9B11413DA114F2FA64F9C35C3D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709307   (112839) от 24.03.2024
-
-VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Out Boy - We Didn’t Start the Fire (3:35)
-02. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)
-03. Linkin Park - Lost (3:19)
-04. Green Day - The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0613AF88BA5A1015113EE5A4C2BC14116908FBEA
 ```
 
 

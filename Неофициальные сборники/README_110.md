@@ -1,3 +1,192 @@
+###  Публикация: 1628225   (199495) от 22.04.2023
+
+VA - В машине с музыкой Vol.331 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эллаи  - Я Приеду (03:06)
+02. Ани Лорак  - На Мели (03:00)
+03. Дмитрий Колдун  - Приду Без Повода (03:09)
+04. Натали  - Будут Танцы (03:21)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1AC627BA9EFD9F1B7CACF58BC11B8CF40D3F6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628128   (199526) от 21.04.2023
+
+VA - Rock Ballads (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seether - Broken (4:18)
+02. Metallica - Nothing Else Matters (Remastered 2021) (6:28)
+03. Five Finger Death Punch - Times Like These (3:29)
+04. Three Days Grace - Lifetime (2:56)(   Читать дальше...   )Жанр: RockПродолжительность: 05:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08109D66CF80AC0C9691E8BF4E4337494C72194C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627418   (199537) от 19.04.2023
+
+VA - Весна на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miley Cyrus - Flowers (3:20)
+02. Мари Краймбрери - Иначе Всё Это Зря (2:58)
+03. Lost Frequencies feat. Elley Duhe & X Ambassadors - Back To You (2:37)
+04. Звонкий - Простые Слова (2:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1755F71BDB43AE093A487E18A37017F60AC8BF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626888   (199666) от 16.04.2023
+
+Pawel-Wisniewski - Compilation (2023) [MP3|224 Kbps] <Electronic, Instrumental, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium • Space Music
+02. Mood • Romantic Music
+03. Movement • Space Music
+04. Aspiration • Romantic Music(   Читать дальше...   )Жанр: Electronic, Instrumental, RelaxПродолжительность: 07:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B44B96A6F0D0372E9CE12F444316D2374CA1A86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627341   (199675) от 18.04.2023
+
+VA - Retro Vintage Best Vibes (2023) [MP3|320 Kbps] <Synthpop, Disco, New Wave, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul McCartney - Coming Up (Live At Glasgow / 1979 / Remastered 2011)
+02. Bon Jovi - Livin' On A Prayer
+03. Patti LaBelle - On My Own
+04. Kenny Loggins - Footloose (From "Footloose" Soundtrack)(   Читать дальше...   )Жанр: Synthpop, Disco, New Wave, R&BПродолжительность: 02:35:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13D9C57C2F8A7F842B0EA44C79B34A79AB4629E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627030   (199705) от 17.04.2023
+
+VA - Крутые пушки Весна 2023 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Diddy Feat Keyshia Cole - Last Night (Max Flame & Dacks Remix) (2:52)
+02. Wongo - - The Preacher feat. Chuck Roberts (Sammy Porter Extended Remix) (2:59)
+03. Floral - Need To Feel Loved (MYRON x ZAN Remix) Radio Edit (3:48)
+04. Eminem Feat Nate Dogg - Shake That (Max Flame & Dacks Radio Remix) (4:04)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B91D3700381007CED9EBA4ABFC6B816ED449ECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626470   (199795) от 14.04.2023
+
+VA - Music News vol.257 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199795.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DASHI feat. Бьянка - Люли (02:37)
+ 002. 5 Seconds Of Summer - Amnesia (Live From The Royal Albert Hall) (04:15)
+ 003. 5УТРА - Билет в Никуда (02:48)
+ 004. 044 ROSE feat. KOOZA K2o - TANCUESH (03:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EFC74892A7264DAB75CEF1B68172F5F05A0B5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626027   (199869) от 13.04.2023
 
 VA - Rock Covers (2023) [MP3|320 Kbps] <Rock, Alternative>
@@ -506,195 +695,6 @@ RILTIM - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F379F555E162BCB3BE85D6825D9CD861F511B8BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621662   (200782) от 25.03.2023
-
-VA - Chill Out Electronic Music (2023) [MP3|320 Kbps] <Electronic, Synthwave, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_200782.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ahero - Made To Last
-002. Valance Drakes - The Man Who Trade Obediences
-003. Schormann - Always Home
-004. Luciano Mattioli - Wrong Turn(   Читать дальше...   )Жанр: Electronic, Synthwave, Relax, ChilloutПродолжительность: 11:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A42B9F5CEF22F248FF7E1DCA80711C9ABFFF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621671   (200783) от 25.03.2023
-
-VA - 90er Best Of (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_200783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smash Mouth - All Star
-02. Spice Girls - Wannabe
-03. Lenny Kravitz - Fly Away
-04. Aqua - Barbie Girl(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8CCC4198D801873B4064855C98F471822B35B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621416   (200787) от 25.03.2023
-
-VA - Movement In The Void (2022) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_200787.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Subdream - Gamma Cephei [10:20]
-002. Astropilot & Astronaut Ape - Ad Astra [03:32]
-003. Violeta Vicci - Butterfly Man [05:56]
-004. Unusual Cosmic Process - Gentle Sea Serenas [04:49](   Читать дальше...   )Жанр: ElectronicПродолжительность: 11:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DCF68C0EC53031EAC90A72FD20FD9C997D3F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621658   (200791) от 25.03.2023
-
-VA - Warm Time Trance Session (2023) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_200791.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sounemot - Your Eternal Smile
-002. Digital Nature & Manuel Le Saux - Pretender
-003. Origin - Limbo
-004. John Askew - The Door(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 11:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870601196F0F7D6736DCC7AE372D3BFD00290539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620829   (200915) от 22.03.2023
-
-VA - 30(18) Новые Песни (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_200915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ DimixeR, Денис Клявер - Половинка (2:40)
-02. Мари Краймбрери - Какая крутая жизнь (Silver Ace & Onix radio edit) (2:46)
-03. Кепоут - Луна любит землю по кругу (2:39)
-04. Гузель Хасанова feat. Ramirez - На память (AMOR Mash-Up mix) (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F42809721AB8E2DDE43556E0D8FEDDB1AF78AEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620166   (201018) от 19.03.2023
-
-VA - Organic Dance House (2023) [MP3|320 Kbps] <Deep, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_201018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldpast & Tuff Trax - Tripla
-002. Rumpistol Feat Ane Trolle - Eyes Open Wide
-003. Myself & The Band - West End Girls
-004. Deisen - Cinderella(   Читать дальше...   )Жанр: Deep, House, ElectroПродолжительность: 11:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624F9B4F0E25026E3FBB37F838733C03D4D04C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620157   (201026) от 19.03.2023
-
-VA - Winter Trance Session (2023) [MP3|320 Kbps] <Progressive, Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_201026.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Byrka - Unified Hearts
-002. Andromedha - Only Wide Open Space And Me
-003. Armin Van Buuren - Communication
-004. Crubbixz - Break Through(   Читать дальше...   )Жанр: Progressive, Trance, ElectroПродолжительность: 11:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB48C2B97AC3488A1EE342477C3D9965FC8672F8
 ```
 
 

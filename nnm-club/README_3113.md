@@ -1,3 +1,363 @@
+###  Публикация: 482088   (99330) от 12.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481036   (99333) от 12.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (11.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480498   (99335) от 12.04.2012
+
+Арс Ворошиловский - Паутина (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BAD трип
+02. Выше только небо
+03. Давай еще споем (при уч. Артём Татищевский)
+04. Далеко от дома
+05. Ищу тебя (при уч. Артём Татищевский)
+06. Как на войне
+07. Минувшие дни (при уч. Flexa)
+08. Моя улица
+09. Мусора (при уч. Никита Мутный)
+10. Поэту нужна тишина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0800A7C828E83C26AF821CCE18313F4B7BC0FC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481751   (99336) от 12.04.2012
+
+Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9th Wave [8:00]
+02. African Star [9:18]
+03. Energetic Particles [8:18]
+04. Super Groover [7:39]
+05. Universe [7:24]
+06. Ola Catuaba [7:41]
+07. Higher Dimensions [8:48]
+08. Deep Connections [9:04]
+09. Stereophonic Senses [8:21]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482068   (99340) от 12.04.2012
+
+[Wallpapers] HQ Wallpapers by KSV (12.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482091   (99342) от 12.04.2012
+
+[Wallpapers] Animals Wallpapers (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3950787873C84FF1C09BF1EE8DF623D8DE76EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481642   (99343) от 12.04.2012
+
+Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Side Winder - Liliacea 08:11
+ 02 Side Winder - Faith 07:51
+ 03 Side Winder - Homogeny I-Var 07:53
+ 04 Side Winder - Inside LSD 08:28
+ 05 Side Winder & Mayaxperience - The Art Of Flight 06:51
+ 06 Zyce & Flegma - Reanimation (Side Winder Remix) 07:43
+ 07 Sideform - Dropper (Side Winder Remix) 07:44
+ 08 Side Winder - Emotional Endeavour 07:42
+ 09 Side Winder - Plasma Gun 07:28
+ 10 Side Winder - Eyes As Green As The Ocean 04:022012Жанр: Psychedelic / ProgressiveПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481625   (99348) от 12.04.2012
+
+VA - Best Of 2012 vol. 1 (2012) [MP3|320 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99348.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+
+01. Sean Paul - She Doesn't Mind
+02. Flo Rida feat. Sia - Wild Ones
+03. Katy Perry - The One That Got Away
+04. Olly Murs feat. Rizzle Kicks - Heart Skips A Beat
+05. Christina Perri - Jar Of Hearts
+06. Jason Derulo - Breathing
+07. Hallux feat. Marcus - Ai Se Eu Te Pego
+08. Lady Gaga - Marry The Night(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5940FF58BB811BF30A044A3DF2FDC32D700D05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482086   (99350) от 12.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482105   (99352) от 12.04.2012
+
+Каникулы в Мексике - 2. Выпуск №29 (2012.04.12) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99352.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480973   (99353) от 12.04.2012
+
+VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa feat Сat Martin-My way out (sonic element remix)
+02. Aksioma Project - In The Club (Extended Mix)
+03. Aksioma Project - Love Confession (Filipp Aniskin Remix)
+04. Aksioma Project - Love Confession (Radio Edit)
+05. Alex Sayz feat. Nadia Ali - Free To Go (Stefano Noferini Club Mix)
+06. Alex Sergius feat. Роман Гвоздев - Дежавю
+07. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix Edit)
+08. Armin Van Buuren Pres. Gaia - J'ai Envie De Toi (Original Mix)
+09. B&S Project - Meronz (Original Mix)
+10. Calvin Harris feat. Ne-Yo - Let's Go (Extended Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD146743A6D862E2F1D138A9C16EE73FA02ACE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482094   (99354) от 12.04.2012
+
+[Wallpapers] Abstract HD Wallpapers (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481780   (99355) от 12.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 47
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99355.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 47 
+Название:  Desktop Wallpapers Pack 47 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1366х768 - 4562х2949
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C49F1FFE509260679D5DA6EF9091AC8B6CC69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481447   (99356) от 12.04.2012
 
 Synasthasia - Style Collector (2012) [MP3|320 кб/с]<Melodic Death/Thrash/Power Metal>
@@ -363,401 +723,6 @@ magnet:?xt=urn:btih:1D4280B5CB33C416F8712552972D2A8845CF5254
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ADE1F632C5501CA04179EF26BA0D2FC6646EDE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481914   (99386) от 12.04.2012
-
-Tritonal - Piercing The Quiet (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tritonal - Poem Of Angels
-02. Tritonal feat. Jeza - Cant Keep It In (Extended Mix)
-03. Tritonal - Ziziki (Extended Mix)
-04. Tritonal feat. Meredith Call - Broken Down (Extended Mix)
-05. Tritonal - Retake (Extended Mix)
-06. Tritonal feat. Cristina Soto - Piercing Quiet (Extended Mix)
-07. Tritonal feat. Bethany - Sometimes I Wish (Extended Mix)
-08. Tritonal feat. Jenry R - Something New (Extended Mix)
-09. Tritonal feat. Bethany - Everafter (Extended Mix)
-10. Tritonal feat. Jeza - I Can Breathe (Extended Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBB17C18E424E819D50CCFE95E1D48B6C98F8E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481813   (99388) от 12.04.2012
-
-Eleftheria Arvanitaki - Mirame (2009) [MP3|320 кб/с]<Pop, Ethnic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99388.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Gkrizo Ton Mation Sou
-2. To Telos Mas Des
-3. Ton Erota Rotao
-4. Sto Palati Tis Kardias Sou (Carcel de Oro)
-5. Pes Mou (Je T' Aime)
-6. Den Milo Gia Mia Nychta Ego
-7. Toso Megala Logia
-8. Ase Me Na Se Misiso
-9. Xeni Kardia
-10. Ta Mystika Tou Kosmou(   Читать дальше...   )Жанр: Pop, EthnicПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6D08F49E12D51893D01F0766529E8A8B19B704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482059   (99392) от 12.04.2012
-
-[Wallpapers] Weapon Wallpapers №1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99392.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Weapon Wallpapers №1
-Название: Weapon Wallpapers №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65B971EAEA03A74ECC4A8CEAAD20BE9E6FFC7A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481737   (99394) от 12.04.2012
-
-VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oksi - Любить За Двоих (3:31)
-2. Ильяна & Dj Slon - 12 Ночи (3:28)
-3. Vlad Bostan feat. Crystal & DJ Oleg Maximov - Ты Мне Больше Не Нужен (3:42)
-4. Dj Smash & Chinkong - Lifemission (Radio Edit) (3:48)
-5. Дмитрий Колдун - Маяк (4:09)
-6. Maxima - Ноль К Одному (3:51)
-7. Валерия - Я тебя отпустила (3:48)
-8. Света - Не новая игра (3:27)
-9. Юрий Федотов & A - Net - Волшебная Игра (3:12)
-10. Кристина Орбакайте - Птица-обида (3:07)2012Жанр: PopПродолжительность: 06:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5AA24387EC62389D3857D747A053B213307345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481847   (99396) от 12.04.2012
-
-Журнал | Золотые рецепты наших читателей №7 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99396.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Золотые рецепты наших читателей» - подробные и доступные рецепты, которыми делятся опытные хозяйки.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34A3E4F992DAB8A3230D5B3494153522271A862
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479965   (99400) от 12.04.2012
-
-Demon Hunter - True Defiance (2012) [MP3|320 кб/с]<Modern Metal / Melodic Metalcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crucifix (3:44)
-02. God Forsaken (5:40)
-03. My Destiny (4:15)
-04. Wake (4:13)
-05. Tomorrow Never Comes (4:54)
-06. Someone to Hate (5:25)
-07. This I Know (4:05)
-08. Means to an End (2:51)
-09. We Don't Care (3:37)
-10. Resistance (4:25)(   Читать дальше...   )2012Жанр: Modern Metal / Melodic MetalcoreПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482070   (99401) от 12.04.2012
-
-[Wallpapers] Super Girls Wallpapers (12.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64D83D96C7EBA492D4C2B749A60201849D0F44E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481809   (99404) от 12.04.2012
-
-Curtis Stigers - Let's Go Out Tonight (2012) [MP3|~245 кб/с (V0)]<Vocal Jazz, Blues, Male Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Things Have Changed
-2. Everyone Loves Losers
-3. Oh, How It Rained
-4. Goodbye
-5. Into Temptation
-6. This Bitter Earth
-7. Waltzing's For Dreamers
-8. Chances Are
-9. You Are Not Alone
-10. Let's Go Out TonightЖанр: Vocal Jazz, Blues, Male VocalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BE20F60ECDB47A5A3F626AAADBBCB0E6A86301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481467   (99406) от 12.04.2012
-
-VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poshout – Melorum (Original Mix)
- 02. DJ Feel feat. Melissa Loretta – 4 U 2 C (Original Mix)
- 03. Magic Sound – Infinity (Original Mix)
- 04. The Airstatic – Christle (Original Mix)
- 05. Sunbird – Tomorrow (Original Mix)
- 06. Timur Adagio – Escape (Original Mix)
- 07. Erick Strong – Forever Loved
- 08. DJ Feel, Matisse & Sadko – A Day To Remember (Vadim Shantor Remix)
- 09. D-Mad – No Pasaran (Original Mix)
- 10. Nianaro – Citadel (Original Mix)(   Читать дальше...   )29.03.2012Жанр: TranceПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF0F7B18045B897E558A55114517E05149FA402
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481808   (99410) от 12.04.2012
-
-Mindwave - Concept Of Freedom (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:10)
-02. Light Of Loss (7:49)
-03. Simple Moves (9:04)
-04. Guiding Voice (8:40)
-05. Within You (8:22)
-06. Levity (9:22)
-07. New Day (7:40)
-08. Underwater (8:46)
-09. Concept Of Freedom (7:47)
-10. Deepest Thoughts (5:38)2012Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481904   (99413) от 12.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 33
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99413.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 33 
-Название:  Girls Desktop Wallpapers Pack 33 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5120х3413
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481790   (99414) от 12.04.2012
-
-[Wallpapers] Full HD Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_99414.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 12 
-Название:  Full HD Wallpapers Pack 12 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E3D404B0FAF72E078780687009945B15645AB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481577   (99416) от 12.04.2012
-
-VA - Beach Atmosphere (2010) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_99416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Osher - Key In (8:24)
- 2. Naes - Deep Passion (6:52)
- 3. XShade - Everythng Can Change (8:21)
- 4. Klopfgeister - Instant Summer (8:14)
- 5. Motion Drive & Flowjob - Puppetmaster (9:31)
- 6. Normalize - Nostalgia (9:30)
- 7. Ritmo & Rocky - Floater (8:24)
- 8. Juiced - Mojo (6:35)
- 9. Reverse - End Of Line (8:35)2010Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 

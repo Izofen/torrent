@@ -1,3 +1,165 @@
+###  Публикация: 1587547   (192618) от 31.10.2022
+
+Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storie Di Tutti I Giorni (4:03)
+02. In Silenzio (2:48)
+03. Piccola Katy (2:38)
+04. Noi Due Nel Mondo E Nell'Anima (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FC46D9B6FB8AF4FCACC1B1C2BC83E32FFC89C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657425   (192741) от 03.09.2023
+
+Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Paloma Blue
+02 - Griechischer Sommer
+03 - Von Baden-Baden bis Berlin
+04 - Sonnenanbeter(   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587350   (192861) от 30.10.2022
+
+VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cappella - Move On Baby (Mike Candys Remix)
+02. Mauro Picotto - Komodo (Klaas Remix Extended)
+03. Niels Van Gogh - Tell Me Why (Extended Mix)
+04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587265   (192920) от 30.10.2022
+
+VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, Schlager, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nico Gemba - Du bist der totale Wahnsinn (Lisa)
+02. Anna Valerian - Ich laufe dir nicht mehr hinterher (JLA FeierFoxxx Mix)
+03. Julian David - Alle zusammen
+04. Celina Mars - Jetzt und hier(   Читать дальше...   )Жанр: Pop, Dance, Schlager, DiscoПродолжительность: 02:16:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587371   (192929) от 30.10.2022
+
+VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Dance, Club, Future House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Rodrigezz, Pasc & Patricia Starlight - Toxic Love (extended mix)
+02. Stephan F & Tony T - Find A Way (extended mix)
+03. Dani Corbalan - My Life (extended mix)
+04. NaXwell, Tony T & Alba Kras - Never Alone (feat DJ Combo - extended mix)(   Читать дальше...   )Жанр: Electropop, Dance, Club, Future HouseПродолжительность: 01:51:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73DF3A1A39E89CDECB48888A251E344E5B8D2A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657192   (192935) от 02.09.2023
+
+Владимир Мулявин и ансамбль Песняры - Молодость моя... (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спадчына
+02. Марыся
+03. Беловежская пуща
+04. Чырвоная ружа(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587424   (192942) от 30.10.2022
 
 Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-pop, Pop Rock, Disco>
@@ -533,168 +695,6 @@ Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617128   (197963) от 24.05.2023
-
-VA - Лучшие песни русского радио 21 Альбом (2000 - 2007) 23 CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_197963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гости из будущего - Самый любимый враг
-02. Л. Агутин, А.Варум - Две дороги, два пути
-03. С. Лобода - Мишка, гадкий мальчишка
-04. С. Зверев - Цыганочка(   Читать дальше...   )Жанр: PopПродолжительность: 27:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E5AE8DF3A67942B81BACC880C2D8EE810B69F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635603   (197979) от 26.05.2023
-
-Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_197979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lavender Haze
-02. Maroon
-03. Anti-Hero
-04. Snow On The Beach(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634745   (198157) от 22.05.2023
-
-VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198157.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Alexander O'Neal - Criticize (4:07)
-02. Womack & Womack - Teardrops (3:50)
-03. The S.O.S. Band - Just Be Good to Me (4:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D8B2894C72CF9C2C03F57B21A6A075FCC84515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633276   (198491) от 14.05.2023
-
-Radiorama - Four Years After (1989) ZYX Edit Remastered 2023 [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boy You (ZYX Edit Remastered 2023)
-02. Baciami (Kiss Me) (ZYX Edit Remastered 2023)
-03. Daddy Daddy (ZYX Edit Remastered 2023)
-04. Flight Of Fantasy(ZYX Edit Remastered 2023)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2938EEAC1371802311B921FB974B8F36EE8F481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632739   (198651) от 11.05.2023
-
-Silent Circle - ZEITLOS - Silent Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Your Believer
-02. Forget the Stranger
-03. What a Shame
-04. Is It LoveЖанр: Eurodance, Italo-DiscoПродолжительность: 00:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9284C5EA79D94D9E31AB2BB28411C07F0853BA4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632326   (198661) от 09.05.2023
-
-Глюк’oZa (Глюкоза) - Лучшие Песни (2008) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шуга (3:44)
- 02. Снег идёт (3:58)
- 03. Невеста (4:08)
- 04. Ненавижу (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA28A69782222F2B7FA645AB817D92D605F2A69
 ```
 
 

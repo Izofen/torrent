@@ -1,3 +1,137 @@
+###  Публикация: 1633099   (234631) от 13.05.2023
+
+Веселые Ребята - Любовь - огромная страна (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234631.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Любовь - Огромная Страна
+A2 Я К Тебе Не Подойду
+A3 Отчего
+A4 Вечная Весна(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632635   (235260) от 11.05.2023
+
+Наташа Королёва + Тарзан - Веришь или Нет (2003) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_235260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Мне Веришь Или Нет
+02. Не Забуду
+03. Твой Мир
+04. Капелька(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E70CEC8684CFB9578E8EFB4986205D36C7DA8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642322   (235348) от 28.06.2023
+
+The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235348.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sins of Thy Beloved — музыкальный коллектив из Норвегии, исполняющий свою музыку в направлении симфонического готик/дум-метала. Название группы переводится как «Грехи твоей возлюбленной/Грехи твоего возлюбленного». По словам участников коллектива они выбрали именно это название, так как оно наиболее полно отображает музыку, концепцию и лирику группы (лирика песен (   Читать дальше...   )1997 - All Alone (EP)
+1998 - Lake of Sorrow
+2002 - Perpetual DesolutionЖанр: Symphonic Gothic/Doom MetalПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632161   (235630) от 09.05.2023
+
+VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Funk, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_235630.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Шейла – Волшебники
+A2 Элвис Пресли – Беззаботный
+A3 Мак Кэйти Киссун – Я Нашла Его
+A4 Ринго Вилли Кэт – Ты Слишком Красива(   Читать дальше...   )Жанр: Rock, Funk, PopПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640972   (235659) от 20.06.2023
+
+Поют Екатерина Шаврина и Михаил Котляр (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235659.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Соловьи поют, заливаются
+А2 Река моя
+А3 Подари мне признание
+А4 Женщины(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559084019D1B11B1F3B6B9DE1AF515BF7D240B68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642113   (235786) от 26.06.2023
 
 A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
@@ -560,141 +694,6 @@ A4 Need You Tonight 3:04(   Читать дальше...   )Жанр: RockПро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627804D2529AD31D1B074DDBD732F69B3E7B325E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848648   (237318) от 05.05.2022
-
-The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing (1972) [FLAC 2.0|192/24|Vinyl Rip]<Jazz, Latin, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_237318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Nagila
-02. Kalinka
-03. Wenn Ich Komm (Wooden Heart)
-04. Oh! Happy Day(   Читать дальше...   )Жанр: Jazz, Latin, Pop, ClassicalПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208540   (237374) от 05.05.2022
-
-VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_237374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano & Romina Power – Sempre, Sempre
-02. Loretta Goggi – Io Nascero
-03. Adriano Celentano – Lunedi
-04. Marcella Bella – La Verita(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640300   (237412) от 17.06.2023
-
-Helloween - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_237412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Dr. Stein
-02. Number One
-03. Steel Tormentor(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F81B2C9C5C16D8A44EF9E081F5B9B67361A40AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630238   (237451) от 30.04.2023
-
-Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_237451.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Automatic Lover 4:08
-A2 Red Flight 4:10
-A3 Galaxy Of Love 4:48
-A4 Meteor Man 4:47(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630250   (237534) от 30.04.2023
-
-Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_237534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		S.O.S. (Love To The Rescue)	4:21
-A2		Which Way Is Up	4:26
-A3		Living In A Dream	4:56
-A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
 ```
 
 

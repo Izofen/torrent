@@ -1,3 +1,54 @@
+###  Публикация: 1808464   (64966) от 25.07.2025
+
+VA - The Voice Of Jazz: Vocal Essence (2024) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samara Joy - Warm In December (04:14)
+002. Anduze - Bad Side (03:18)
+003. Fred Hersch & Esperanza Spalding - But Not For Me (09:32)
+004. Kassa Overall & Theo Croker - Make My Way Back Home (03:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 07:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82CF745DE2A68B3014D91E711DBF68D4E4E69C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808483   (64967) от 25.07.2025
+
+Оливер Ло, Андрей Ткачев | Безоблачное Небо (Книга 11). Рассвет Души Повелителя. Том 11 (2025) [MP3, Вадим Ерофеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый континент, на котором живут такие же практики, как и на моем, но все же здесь все несколько иначе. Мне необходимо привыкать к новым условиям, но благо фундамент у меня уже есть, значит, я и дальше смогу делать шаги на пути Возвышения. Осталось лишь понять тайну моего клана и разобраться с новыми проблемами.Жанр: фэнтези, боевикИздательство: ЛитРесПродолжительность: 08:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B557BA610A1071722CDA833D51269FD0DF58AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808445   (64968) от 25.07.2025
 
 Шрифты - Behance - descult - Karlo Cham - 220843531 [OTF]
@@ -624,60 +675,6 @@ Mercedes Nicole - Too High A Price to Pay (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D25F8659EFBFB81B094AE931631CD7785EEB631
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808420   (64992) от 24.07.2025
-
-Kuddel Renner and his Amazing Blues Orchestra - The 3rd Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_64992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cakewalk Into Town (2:56)
-02.  Ten Thousand Spoons (3:32)
-03.  Raining In My Heart (3:54)
-04.  Rockin' At Midnight (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503F8B9EA288B0709C97712264E14B101B733DE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808417   (64993) от 24.07.2025
-
-Harry Cassano - Coming to a Close (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_64993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Coming to a Close (3:49)
-02.  Cry Your Life Away (4:15)
-03.  Don't Leave Me Here (5:08)
-04.  Hookin' for Love (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC579E684F4C2BCC9DF9C82ACBEBA6551203BD60
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1794534   (67254) от 29.04.2025
+
+Ellen Lebowitz - Invitation to Yesterdays (1998) Rockmoss Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays [4:16]
+02. Dindi [6:09]
+03. Lush Life [5:50]
+04. Water to Drink (Agua de Beber) [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77D9DEDC1678153EAB0CD38B6F36C7B88848BA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794561   (67255) от 29.04.2025
+
+Lightnin' G-Bird - I Was Fool About You (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Fool About You (5:02)
+02. Straight To Hell (2:39)
+03. I Got You (2:42)
+04. No Money Down (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5FA2379A9455DE0127E9B802D14D3D7229D2FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794427   (67256) от 29.04.2025
 
 Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
@@ -616,54 +670,6 @@ Blues2Men - Helleluyah (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17C0B863365CC9125DED28973FF8DFF75BDCD3BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794198   (67280) от 28.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Pastel Rainbow Feathers Mug Wrap Sublimation Design [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения для сублимационного дизайна с перьями в пастельных тонах.Формат: PNGРазрешение файлов: 2925 x 1425
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CE3060F3B988678896DACEDE1EA3876E543470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794206   (67281) от 28.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Pastel Aqua Dream Snowflakes Mug Wrap Sublimation Design [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения для сублимационного дизайна со снежинками в пастельных тонах.Формат: PNGРазрешение файлов: 2925×1425
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B887FB2EC9B8E30B4948882AC213A12CAEEF323D
 ```
 
 

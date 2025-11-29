@@ -1,3 +1,165 @@
+###  Публикация: 1268854   (223061) от 13.12.2018
+
+VA - ''Не люблю прощания'' - Песни на музыку Игоря Якушенко (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223061.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Т. Анциферова - Портрет
+A2 ВИА ''Пламя'' - Вчера, еще вчера
+A3 А. Герман - Сумерки
+A4 Ж. Рождественская - Запомни(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268574   (223122) от 13.12.2018
+
+Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Acid Jazz, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Feels So Good
+A2 Little L
+A3 You Give Me Something
+A4 Corner Of The Earth(   Читать дальше...   )Жанр: House, Acid Jazz, DiscoПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648998   (224575) от 03.08.2023
+
+Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aerosmith — музыкальная группа, вероятно, самый важный представитель американского хард-рока. Группа черпала своё вдохновение в британском блюз-роке, доминировавшем на рок-сцене в конце 1960-х и начале 1970-х, как, например, Cream, Led Zeppelin, Jeff Beck Group, а также the Rolling Stones.1993 - Get A Grip
+1997 - Nine Lives
+2001 - Just Push Play
+2006 - Honkin On Bobo(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 10:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649563   (224804) от 03.08.2023
+
+The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224804.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Don't Stop, Get Off
+A2 Love Changes
+A3 Forever Yours
+A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649382   (224838) от 03.08.2023
+
+Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224838.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood On The Bricks {04:53}
+A2. Medicine Man {04:47}
+A3. Bang Bang {04:27}
+A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964605   (227333) от 13.12.2015
+
+Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_227333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Nightflight To Venus - Ночной полет на Венеру  4:42
+2. Hooray, Hooray - Ура, каникулы  3:56
+3. He Was A Steppenwolf - Он был степным волком  6:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267991   (227654) от 10.12.2018
 
 Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
@@ -534,168 +696,6 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580206   (232099) от 30.09.2022
-
-Moby – Reprise (Box Set, Special Edition) (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Funk / Soul, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_232099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Reprise композитора Ричарда Мелвилла Холла, больше известного как Moby, с оркестровыми аранжировками 14-ти наиболее известных его произведений, созданных за 30-летнюю карьеру. Идея проекта родилась после симфонического концерта Moby с Лос-Анджелесским оркестром под управлением знаменитого дирижера Густаво Дудамеля (Gustavo Dudamel) в 2018 году в зале Walt (   Читать дальше...   )01. Everloving
-02. Natural Blues
-03. Go
-04. Porcelain(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437005EDDED4F3FDA4BDC26B43F0FAA9335653E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643848   (232419) от 03.07.2023
-
-Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UFO (2:34)
-02. Dive (3:21)
-03. Ladies Room (3:40)
-04. No Man (2:59)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6B9C7140176FD5DB5B52ECD943588690BF58B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634583   (232878) от 23.05.2023
-
-Е. Могилевский, ф-но и симф. орк Мосгосфилармонии, дир. К. Кондрашин - С. Рахманинов – Концерт №3 для ф-но с оркестром, соч. 30 (1964) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical, Neo-Roman ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_232878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт №3 Для Фортепиано С Оркестром Ре Минор, Соч. 30
-A  1. Allegro ma non tanto
-B1 2. Intermezzo. Adagio
-B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634983   (232952) от 23.05.2023
-
-Давид Ойстрах - К. Дебюсси, С. Прокофьев, М. Равель, Э. Изаи – Сонаты для ф-но и скрипки (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_232952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соната Для Скрипки И Ф-но Соль Минор, Соч. 1917 г. = Violin Sonata In G Minor (1917)
-А1 Allegro Vivo
-А2 Intermede. Fantasteque Et Leger
-А3 Finale. Tres Anime(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642992   (232991) от 30.06.2023
-
-Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor (EP)
-1994 - As The Shadows Rise (EP)
-1994 - In the Nightside Eclipse
-1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635042   (233007) от 23.05.2023
-
-Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_233007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moonspell — португальская метал-группа, основанная в 1992 году. На первых порах группа играла фолк/блэк-метал, позднее творчество группы обычно характеризуют как готик-дум-метал.1995 - Wolfheart
-1996 - Irreligious
-1998 - Sin Pecado
-1999 - The Butterfly EffectЖанр: Gothic MetalПродолжительность: 13:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 ```
 
 

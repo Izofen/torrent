@@ -1,3 +1,135 @@
+###  Публикация: 1621149   (245044) от 23.03.2023
+
+VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245044.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 «Червоны гитары» - Не Задирай Носа
+(С. Краевский – М. Гашинский)
+A2 Марыля Родович - Баллада О Поезде
+(А. Зелинский - А. Осецка)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631112   (245169) от 04.05.2023
+
+Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Romantic, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+Concerto no.2 in B minor
+Composed By – Giovanni Bottesini
+01. 1 I. Allegro moderato(   Читать дальше...   )Жанр: Classical, Romantic, BaroqueПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624222   (245188) от 05.04.2023
+
+The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245188.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hold On To Your Dreams (Rock Version) 4:16
+A2 Love Can Change It All 3:40
+A3 Time Will Tell 3:47
+A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620710   (245485) от 21.03.2023
+
+Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245485.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Не Променяй Съдбата Ми • Don't Change My Luck • Не меняй мою судьбу
+A2 Изморен От Чакане • Tired Of Waiting • Уставшая от ожидания
+A3 Самоубийство • Suicide
+A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623839   (245564) от 03.04.2023
+
+Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Funk / Soul, PopПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620006   (245766) от 20.03.2023
 
 Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
@@ -213,7 +345,7 @@ magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834720   (250468) от 
+###  Публикация: 1834720   (250468) от 04.11.2025
 
 Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 
@@ -560,141 +692,6 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628877   (254819) от 25.04.2023
-
-Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_254819.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Glory! Glory! 4:50
-A2 Call Me No. 1 3:57
-A3 Rubber Ball (Space Kitchen) 3:38
-A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628677   (254852) от 24.04.2023
-
-Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_254852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy In The Night (Barking At Airplanes) 3:39
-02. One Kiss 3:32
-03. Begging For Favors (Learning How Things Work) 4:53
-04. He Makes The Sun Rise (Orpheus) 4:30(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628322   (254888) от 23.04.2023
-
-Раймондc Паулс - Мой Путь (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Smooth Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_254888.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Увеселитель - The Entertainer (S. Joplin)
-А2 Как Велика Твоя Любовь - How Deep Is Your Love (В., M., R. Gibb)
-АЗ Здравствуй! - Salut! (C. Pallavicini)
-А4 Мой Путь - My Way (P. Anka)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 30:4:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627632   (254994) от 20.04.2023
-
-Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_254994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Беспокойный Пульс = Restless Beat	4:10
-A2		Печаль = Sadness	4:20
-A3		Испанский Мотив = Spanish Theme	3:40
-A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626965   (255126) от 16.04.2023
-
-Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & I
-02. This Is The World
-03. Jerusalem
-04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
 ```
 
 

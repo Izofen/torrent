@@ -1,3 +1,430 @@
+###  Публикация: 1751625   (104061) от 26.09.2024
+
+Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Ак Барс (Казань) (25.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Ак Барс (Казань) (25.09.2024)
+СУДЬИ Морозов Сергей (Электросталь, Россия) Степучёв Александр (Нефтекамск, Россия)
+СТАДИОН «Лада-Арена» (Тольятти) Зрителей: 5476Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22C179908124FBE4275F05382D3167DD0AA0D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751444   (104062) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - ХК Сочи (Сочи) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - ХК Сочи (Сочи) (24.09.2024)
+СУДЬИ Гофман Антон (Россия) Мочалов Владимир (Москва, Россия)
+СТАДИОН «Сибирь-Арена» (Новосибирск) Зрителей: 10283Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62421644CE019132DB4A15BFF92D2BA77462A2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751455   (104063) от 25.09.2024
+
+Rockin' Dopsie, Jr. & The Zydeco Twisters - More Fun With Rockin' Dopsie Jr. & The Zydeco Twisters (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Zydeco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dopsie Zydeco (1:29)
+02. Ooh Woo Woo (2:58)
+03. I Found A New Love (3:20)
+04. No Good Woman (3:26)(   Читать дальше...   )Жанр: Blues, Soul, ZydecoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41044599B58614A3A1760505BE4697DBD31EC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751451   (104064) от 25.09.2024
+
+Nim - NOW (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svijet gdje nismo sami (4:49)
+02. Do You Think I'm Happy (5:52)
+03. I Still Live (3:04)
+04. There Is Something in Your Eyes (5:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7084CCA251BBFEE819287F5669B065FC5FC111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751453   (104065) от 25.09.2024
+
+Robert Jon & The Wreck - Red Moon Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Cold Killer (3:55)
+02. Trouble (3:29)
+03. Ballad Of A Broken Hearted Man (5:24)
+04. Red Moon Rising (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE3A3A75ED54ED71529B5A16749B470C73F4D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751437   (104066) от 25.09.2024
+
+Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Loving Woman (4:16)
+02. Faith (3:44)
+03. It's About Time (4:00)
+04. Again (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5133A40C3480320406A73B8B74B625C080B2813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751447   (104067) от 25.09.2024
+
+Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forty Days and Forty Nights (5:01)
+02. When I'm With You (3:32)
+03. The Wind Cries Mary (3:17)
+04. Someone Tell the World It's Burnin' (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109B65979328D92C81B5ABAFBE59B860639C0530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751440   (104068) от 25.09.2024
+
+Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crème Caramel (3:35)
+02. Cocktail Di Gamberi (3:20)
+03. Salsa Rossa (2:48)
+04. Cotoletta Alla Milanese (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFDD9AC1ECE64A24A582F34C5A5A4CA3031EF40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751456   (104069) от 25.09.2024
+
+Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' Turnstiles (3:25)
+02. Goin' Down Slow (3:41)
+03. Big Wave (3:51)
+04. The Tombs (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40103D3EF8CB178AC976EC7781FECB36D29F2B86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751436   (104070) от 25.09.2024
+
+Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Bright (5:00)
+02. Bomp (4:56)
+03. Big 3 (6:10)
+04. Dirt Cake (6:39)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3164E58238D4DC00BEAC4B869A5CC0B24654C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751443   (104071) от 25.09.2024
+
+Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Ersten Sonnenstrahlen Nach Dem Sturm (4:01)
+02. Not My Mountain (4:23)
+03. Tanz Auf Der Falltüre (6:17)
+04. Beautiful Melodie (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B633E840519AFCB2000F22C2B0DBEC3022050238
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751434   (104072) от 25.09.2024
+
+Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skipping Stone (3:43)
+02. PAX (4:43)
+03. Baba (2:08)
+04. Tokyo Moon (3:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A53B4456E145EC5C876586B2EF31CAF9F6B591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751445   (104073) от 25.09.2024
+
+Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Rain (4:27)
+02. Broken Flower (7:21)
+03. Sun Dance (5:00)
+04. Still Blooming (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751441   (104074) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024)
+СУДЬИ Васильев Алексей (Санкт-Петербург, Россия) Гашилов Виктор (Пермь, Россия)
+СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C657833DADA823CA966610E73DDAA181BE237892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751452   (104075) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин) - Торпедо (Нижний Новгород) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин)  - Торпедо (Нижний Новгород) (24.09.2024)
+СУДЬИ Бирин Виктор (Москва, Россия) Сидоренко Максим (Белоруссия)
+СТАДИОН «Арена Мытищи» (Мытищи) Зрителей: 1386Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751448   (104076) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024)
+СУДЬИ Наумов Денис (Тольятти, Россия) Фатеев Иван (Россия)
+СТАДИОН «Барыс Арена» (Астана) Зрителей: 5310Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BD0FC14C66F4A567FE495C25780A9B9CF2628E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751442   (104077) от 25.09.2024
 
 Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024) WEBRip [H.264/720p]
@@ -259,436 +686,6 @@ Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3674980C6FD30EF1D3A7AB61136EA3AB84666038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751058   (104087) от 23.09.2024
-
-Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Ahead On (2:37)
-02. Untrue (2:42)
-03. Here On Ice (5:48)
-04. Lies Of Omission (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81915F1E6FAEA46E6B47D1DA905C5DC365701E02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751062   (104088) от 23.09.2024
-
-Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Down 50th Street (2:19)
-02. Sh-Boom (2:17)
-03. Are You Lonesome Tonight? (4:27)
-04. Baubles, Bangles And Beads (3:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A884C63C787BDE630CD8633B9978A3579C0990
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751132   (104089) от 23.09.2024
-
-Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until I'm Done (3:37)
-02. Remember My Name (2:50)
-03. You And I (2:55)
-04. Goin' Back For More (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EEAD30AD30F250D703C9E50D80AF67DCCD673A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751043   (104090) от 23.09.2024
-
-Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times (4:46)
-02. Timebound (4:14)
-03. Flower (5:26)
-04. Breakout (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50978BDF63C154A6799FC2CD53D9E5E824166639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751130   (104091) от 23.09.2024
-
-Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Chose Me (3:37)
-02. Borrow My Pans (2:55)
-03. Traveling Woman (3:34)
-04. Good Girl Gone Bad (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751218   (104092) от 23.09.2024
-
-Джон Банни. Алмаз режет алмаз / Diamond Cut Diamond (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ревнивая женушка постоянно подозревает благоверного в изменах. Тем более он частенько задерживается на работе. Она решила разоблачить его, придумав целый сценарий с переодеванием. Муж обо всем догадался, но решил подыграть ревнивице...
-В кадре имеется логотип киноархива.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Вилфрид НортАктеры: Джон Банни, Флора Финч, Мэй Костильо, Уоллес Рид, Ричард Россон, Рэй Форд, Кейт ПрайсПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75611358B52DF0C2C5C4BD2DCCC08DE935C5F3A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751053   (104093) от 23.09.2024
-
-Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OneEmo (6:28)
-02. Anatomie Equilibriste (6:24)
-03. Lee's Dance (4:42)
-04. A La Guy Lombardo - More Blues - A La Guy Le Querrec (4:43)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39A89303F1AE6719B501192C8F31D4496873F17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751049   (104094) от 23.09.2024
-
-Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocky Raccoon (5:58)
-02. Try A Little Tenderness (7:33)
-03. Black Dog (6:48)
-04. The Last Great American Dynasty (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1E71C80624961B6F4D5EA347F747487C535AB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751129   (104095) от 23.09.2024
-
-Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby, What Do You Want Me To Do? (3:26)
-02. I Want To Go (2:36)
-03. Candy Man (3:20)
-04. The Sky Is Crying (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD710740585F7F722373C03DD73E3EAB6219BB8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751041   (104096) от 23.09.2024
-
-Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wind (4:51)
-02. Illinois Blues (4:49)
-03. Wild Ox Moan (4:29)
-04. Two Trains Running (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E3D48D839D53BA78D4ECE64BC95222DE049660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751032   (104097) от 23.09.2024
-
-Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love out of Lemons (3:32)
-02. Devil Gonna Getcha (2:36)
-03. For Keeps (2:45)
-04. Get It On (2:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E152CBE7F64015ED4B5396FD88E116EE21DAF935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751045   (104098) от 23.09.2024
-
-Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Te Amo (4:17)
-02. Vou Morar no Rio (3:53)
-03. Corpo Coração (5:05)
-04. Águas Passadas (3:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5404A045D3133DE9969E8EF33D663B6CB4F92B7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750810   (104099) от 22.09.2024
-
-LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push Back The Horizon (5:19)
-02. Under The Stars (4:53)
-03. Fireflies (5:00)
-04. You Are The World (5:33)(   Читать дальше...   )Жанр: Progressive-RockПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0016CCA0719DF91BEAA285EADD2E49E495901AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750811   (104100) от 22.09.2024
-
-Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narrow Path (4:33)
-02. Nothin' Ain't (4:00)
-03. Road Trippin' (4:20)
-04. Gratitude (4:01)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, Latin JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96263EA1528EAECE565B676812DF4F3073DBB372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751065   (104101) от 22.09.2024
-
-Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond The Shadow's Void
-02. Drown In Chaos
-03. When The Shooting Begins
-04. Kill Cloud(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5624CF0F3B0A135A1A005A5823827F2411202F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750796   (104102) от 22.09.2024
-
-Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aetherwind Prelude (3:29)
-02. Ethereal Wind Interlude (5:59)
-03. Ethereal Wind Postlude (4:01)
-04. Dark Skies (5:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1801617   (66188) от 12.06.2025
+
+Д.А. Артеменков, А.В. Дюндин, Е.В. Кислякова и др. | Физика. Сборник задач для 10 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задачник является составной частью учебно-методического комплекса «Физика» для 10 класса линии УМК «Сферы». В нём содержатся задачи по всем темам учебника 10 класса. Порядок задач соответствует структуре учебника. Задачи имеют три уровня сложности. Использование задачника позволит отработать навыки решения задач.Жанр: Учебное пособиеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6628A5BD5D2423BC55A9990757BEBA90752A10B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801695   (66189) от 12.06.2025
+
+VA - National Pop Dance Music Vol.108 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66189.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hugel - I Adore You (03:34)
+ 002. Mc Menor Jp - Menina De Vermelho (02:31)
+ 003. Bac - Rosaroter Tee (02:43)
+ 004. Jazeek - Tell Me (02:35)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C6A5F5368E42A786A25F4110608B678A33C172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801689   (66190) от 12.06.2025
 
 V.A. - Cafe del Mar Ibiza Chillout Mix V (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
@@ -615,60 +666,6 @@ magnet:?xt=urn:btih:9AE71B2F1A4CC2994A2B81F60EA8BF9BDB24834D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A6E627F43C1340202F1A2046A05518F4049970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801034   (66214) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chopin: Fantaisie Impromptu in C sharp minor Op.66 [4:11]
-02. Chopin: Nocturne No.2 in E flat major Op.9-2 [4:13]
-03. Chopin: Etude 'Chanson de l'adieu' in E major Op.10-3 [4:56]
-04. Chopin: Prelude 'Raindrop' in D flat major Op.28-15 [4:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CF508F9A9D8BFCAFFBEDE9FE14E6CA7765AC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801189   (66215) от 08.06.2025
-
-Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I’m Tore Down (3:04)
-02.  All Your Love (3:29)
-03.  Let the Good Times Roll (3:33)
-04.  Lonely Boy (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15B01EE22FC8B2D6E88EC53314E55E3B5374C56
 ```
 
 

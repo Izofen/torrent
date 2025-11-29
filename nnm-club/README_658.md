@@ -1,3 +1,57 @@
+###  Публикация: 1810315   (17423) от 03.08.2025
+
+Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can't Hold on Forever (3:29)
+02.  Heartache (4:25)
+03.  Everywhere I Go (3:23)
+04.  No One's Business (3:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B8757FB2477325676FE081DD57152AF3A10302
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810318   (17424) от 03.08.2025
+
+Sepultura - Roots (1996) 2 x CD, Compilation, Reissue, Remastered, 2017, Roadrunner Records [FLAC|Lossless|image + .cue] <Thrash, Nu Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17424.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 2017 Remaster:
+ 1-1 Roots Bloody Roots 3:33
+1-2 Attitude 4:15
+1-3 Cut-Throat 2:45(   Читать дальше...   )Жанр: Thrash, Nu Metal, ExperimentalПродолжительность: 02:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB7DD11338F055D6CEE32EB13FF44CB26662F77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798253   (17425) от 22.05.2025
 
 Total Commander 11.55 RC3 [Multi/Ru]
@@ -588,60 +642,6 @@ Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:424D269D50C344E0820276B509387A07BC78BBEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810308   (17449) от 03.08.2025
-
-Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_17449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Electric Hex (3:54)
-02.  The Syndicate (2:58)
-03.  Make a stand (3:32)
-04.  Time to rise (4:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58435A934408672691C6D78485CC7D9B97C4E3AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810306   (17450) от 03.08.2025
-
-Extreme Tinnitus - Darlene - Extreme Tinnitus - Darlene (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/001/save_picture_17450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Concepts of a plan (3:31)
-02.  Sociopathy (3:04)
-03.  Goodbye, Narccisus (3:59)
-04.  Screen Door Interlude (2:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4CAA183CFF57114FC4E04BC969EB3EE537FF3D
 ```
 
 

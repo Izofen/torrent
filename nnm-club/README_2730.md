@@ -1,3 +1,57 @@
+###  Публикация: 1773043   (71726) от 13.01.2025
+
+Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Singularity (4:14)
+02.  Jupiter Brain (4:56)
+03.  Demon Core (1:15)
+04.  Drowning Machine (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4FD94324A1DB08DCD00DB7C134574286B10796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773019   (71727) от 13.01.2025
+
+Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing in a Ring [3:41]
+02. Soft [6:49]
+03. Le Sue Ali [4:23]
+04. African Flowers [6:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773078   (71728) от 13.01.2025
 
 НХЛ 2024-2025. Тампа-Бэй Лайтнинг - Питтсбург Пингвинз (12.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
@@ -619,57 +673,6 @@ Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3541F5FDD892FCCD9BB0AF3E06E184C47F9664F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772686   (71752) от 12.01.2025
-
-The Halo Effect - March of the Unheard (2025) (Limited Edition) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Conspire to Deceive [3:58]
-02 - Detonate [3:59]
-03 - Our Channel to the Darkness [3:29]
-04 - Cruel Perception [4:05](   Читать дальше...   )Жанр: Melodic Death Metal, Metal, Death MetalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27907E92F158C3A9772EF8DCEC3F6973D953F9D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772917   (71753) от 12.01.2025
-
-Смешанные единоборства. UFC Fight Night 249: Dern vs. Ribas 2 (11.01.2025) HDTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Main card турнира "UFC Fight Night 249", прошедшего в UFC Apex in Enterprise, Nevada, part of the Las Vegas Valley, United States.Телекомпания: Матч! БоецЖанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9227828E6340529E10242DCA5E3BDF7B01C099
 ```
 
 

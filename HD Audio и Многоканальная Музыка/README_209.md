@@ -1,3 +1,58 @@
+###  Публикация: 1616772   (207230) от 03.08.2023
+
+Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Immortal — блэк-метал-группа из Норвегии. Коллектив образовался после распада дэт-метал-группы Amputation в 1991 году.
+Ранние полноформатные релизы Immortal были выполнены в традиционном для блэк-метала стиле, но альбом At the Heart of Winter показал, что группа начала экспериментировать на стыке блэк-метала и немецкой школы трэш-метала. Immortal оказали большое (   Читать дальше...   )1995 - Battles In The North
+1997 - Blizzard Beasts
+1999 - At the Heart of Winter
+2000 - Damned in BlackЖанр: Black MetalПродолжительность: 05:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612256   (207268) от 15.02.2023
+
+Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records Ltd. [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207268.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bohemian Rhapsody
+A2 Another One Bites The Dust
+A3 Killer Queen
+A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578638   (207429) от 24.09.2022
 
 Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [DSD64(DST64) 2.0, 5.1|2822,4/1|SACD-R] <Psychedelic Rock, Progressive Rock>
@@ -635,57 +690,6 @@ A4 Сцена прощания(   Читать дальше...   )Жанр: Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601748   (211014) от 02.01.2023
-
-Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_211014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1984 году Глория Эстефан стала солисткой группы Miami Sound Machine. К 1987 году, после того, как их первый альбом в США стал хитовым, они стали называться Gloria Estefan и Miami Sound Machine, а к 1989 году, после еще большего успеха, все это стало просто Gloria Estefan. Сборник хитов охватывает период с 1985 по 1992 год и включает в себя большинство композиций, (   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703EAE6D0E8F69C68F70A2DAEB72042F532148DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640518   (211108) от 18.06.2023
-
-Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_211108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Poison
-02. Hey Stupid
-03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ```
 
 

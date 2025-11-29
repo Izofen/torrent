@@ -1,3 +1,430 @@
+###  Публикация: 1726139   (108794) от 27.05.2024
+
+Paula Atherton - Dancin' Shoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baila (4:11)
+02. Inside Out and Backwards (4:14)
+03. Keep It Comin' (4:05)
+04. Give Me a Reason (5:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33880E38AEE180459438A8727D08C00E8190AFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726146   (108795) от 27.05.2024
+
+Randy Scott - Oasis (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fixation (4:10)
+02. Twilight (4:34)
+03. Glow (4:56)
+04. Oasis (3:40)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A759ECA354ADC99866F653FE70C02C2EFDFFCF75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726021   (108796) от 27.05.2024
+
+VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Speed Metal, Heavy Metal, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108796.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Heretic - Impulse
+A2 - Sentinel Beast - Sentinel Beast
+A3 - Flotsam And Jetsam - I Live, You Die
+A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Speed Metal, Heavy Metal, HardcoreПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726217   (108797) от 27.05.2024
+
+Pau Casares - Sobretaula a casa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Grow Too Old To Dream (5:17)
+02. Status Quo (5:19)
+03. Goin' On (4:48)
+04. Ain't Misbehavin' (4:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D394E5CEB235576D8F3C362E943592496FBA320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726154   (108798) от 27.05.2024
+
+dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do you need a ring (3:01)
+02. Laissez le bon temps rouler (3:33)
+03. Too fast (2:32)
+04. Show me Suzanne (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F930958DDF56EF2B92A4CA73DE3DF77CC3C28FAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725813   (108799) от 27.05.2024
+
+Roy Eldridge - Little Jazz & The Jimmy Ryan All-Stars (1975) 2001, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between the Devil and the Deep Blue Sea [2:51]
+02. St. James Infirmary [5:20]
+03. Beale Street Blues [5:11]
+04. Black and Blue [4:55](   Читать дальше...   )Жанр: SwingПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CDDE0E335BEC181C853944556D66341CBFC0F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726240   (108800) от 27.05.2024
+
+Spike Wilner Trio - Contrafactus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At First Blush (7:44)
+02. Contrafactus (5:12)
+03. Kinetic Neurosis (3:27)
+04. Ants Go Marching (6:37)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F5FC8AB2BB0EAEE7276F2E201190155F13B020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726019   (108801) от 27.05.2024
+
+Cypecore - The Alliance (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. The Alliance
+03. Dissatisfactory
+04. Dreamsmasher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D13690B42EC45891626E7B50B7C593F5940F177
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726114   (108802) от 27.05.2024
+
+Andralls - Universal Collapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross Of Shame
+02. How Many Lives I Need To Die
+03. Escape From The Traps
+04. Dead Consumers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE57230E530B0001848D32225EB21D3AB450167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726189   (108803) от 27.05.2024
+
+Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock, Heavy Metal, Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemmy & The Upsetters – Paradise (The Brains Mix) 02:46
+02. Motörhead – Keep Us On The Road (Live) (The Brains Mix) 03:14
+03. Larry Wallis – Police Car ( Re-Recorded) (2023 Mix) 03:25
+04. Pink Fairies – Lone Wolf 03:06(   Читать дальше...   )Жанр: Hard Rock, Rock, Heavy Metal, Rock and RollПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F8E2FBE1E38DF87D31448BBCF073C132849849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726124   (108804) от 27.05.2024
+
+НХЛ. Кубок Стэнли 2024. Восток - Финал. 3-й матч. Нью-Йорк Рейнджерс - Флорида Пантерз (26.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108804.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 мая 2024, воскресенье. 22:00 МСК. Финал - Восток. 3-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 780 зрителей (102% при вместимости 19 434)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E49BB5C43C3E59512025101DAE4E92441565B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726260   (108805) от 27.05.2024
+
+Sequoia Grove - Tales from Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Folk, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dragon and the Farmer [00:10:54]
+02. Ice Giant Gierrod, Pt. 1: Gierrod Is My Name [00:04:36]
+03. Ice Giant Gierrod, Pt. 2: Gierrod's Revenge [00:06:28]
+04. Ice Giant Gierrod, Pt. 3: Gierrod's Demise [00:06:26](   Читать дальше...   )Жанр: Pagan, Folk, Symphonic MetalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65CC44B6E3A227785D9FB5820B673D1862263D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726246   (108806) от 27.05.2024
+
+VA - Love Making Music (Sensual Saxophone Jazz) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Neve - Pretty Woman (4:56)
+02. Jan Henlich - Night in Montreal (4:31)
+03. Charlie Neve - Unforgettable (4:14)
+04. Tom Cray - April in Paris (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60A601FA851E07034E81D41CF42D6097E810DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726080   (108807) от 27.05.2024
+
+Митрополит Стефан (Яворский) | Камень веры Православно-Кафолической Восточной Церкви (2010) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108807.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Камень веры» – полное систематическое изложение Православного вероучения. Книга была написана в 1718 году выдающимся церковным и государственным деятелем Петровских времен Митрополитом Стефаном Яворским (1658–1722) в защиту Православия, «Православным сынам Святой Церкви на утверждение и духовное созидание, претыкающимся же о камень – на восстание и исправление» (   Читать дальше...   )Жанр: ПравославиеИздательство: Общество памяти игумении ТаисииФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C53056D1BED1890A21AE926E8DE3DC1C10CD01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726242   (108808) от 27.05.2024
+
+Studying Music Group, Instrumental Music Ensemble - 2024 Relaxing Saxophone for Studying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlit Pages (3:42)
+02. Fireside Reflections (3:36)
+03. Literary Groove (4:16)
+04. Candlelit Conversations (3:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61A01EC4EA3DFB89A328F4B114B754D0D3FE4AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726228   (108809) от 27.05.2024
+
+Smooth Jazz Music Ensemble, Jazz Sax Lounge Collection, Restaurant Jazz Music Collection - Night Saxophone Jazz in The City: Cozy Bar Ambience for Relax, Good Mood (2024) [FLAC 24/48|Lossless|WEB-D ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Lights Lullaby (3:08)
+02. Restaurant Jazz Music Collection - Downtown Dreaming (3:24)
+03. Jazz Sax Lounge Collection - Jazz Club Comfort (2:59)
+04. Saxophone Street Serenade (3:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD63CAB5E10ABA9183DDF2587387EFA855CA37FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726167   (108810) от 27.05.2024
 
 John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -260,423 +687,6 @@ Luca Pasqua - My Jazz Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46FB0AD9C73A85DC688180032FD5121C05DDDE71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726135   (108820) от 27.05.2024
-
-Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Only Live Twice (Album Version) (4:14)
-02. Sexy Beast (Album Version) (4:03)
-03. Throb! (Bass Godz Remix) (4:58)
-04. Arrival (New York Mix) (3:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD7FDF52975D025800AB3F1E356605B4CF7F24E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726248   (108821) от 27.05.2024
-
-Darkthrone - It Beckons Us All (2024) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howling Primitive Colonies (6:31)
-02. Eon 3 (5:43)
-03. Black Dawn Affiliation (6:11)
-04. And In That Moment I Knew the Answer (3:18)(   Читать дальше...   )Жанр: Black Metal, Doom Metal, Heavy MetalПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144DF8A38BC4BEDD75CD100618E551B4F9F68A53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726175   (108822) от 27.05.2024
-
-John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Ain't Through With Us Yet (3:49)
-02. The Coast Road (5:00)
-03. Three More Trains (3:52)
-04. Chasing Down a Hurricane (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDA0DD86922DF4AA1C3C57F6F88131CF7B6C00A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726232   (108823) от 27.05.2024
-
-VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ago - You Make Me Do It (Dr. Packer & Mark Lower Remix) (6:24)
-02. Kano - It's A War (Re-Tide Remix) (6:56)
-03. B.B. and Band - All Night Long (Massimo Berardi Remix) (6:20)
-04. Rainbow Team - Let' Em Be (Villanis Dub Edit) (6:08)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4177C7143CA2F2D61167B2AB0874E7ABA01391
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726107   (108824) от 27.05.2024
-
-БИО - 1987 556 25 7 (2024) [FLAC|Lossless|tracks + .cue] <Synth-Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Рельсы, шпалы
-02.Тоннели метро
-03.Наша славная страна
-04.Электроток(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E118EA3B356062CBFE7D826E4692AE3F410CEC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726238   (108825) от 27.05.2024
-
-VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kano - It's a War (Purple Disco Machine & Lorenz Rhode Remix) (6:42)
-02. Maxero - Silenced By You (Mind Enterprises Remix) (5:15)
-03. Alex Party - Don't Give Me Your Life (Classic Alex Party Mix) (5:33)
-04. Kano - Unconditional Lover (Dr. Packer Remix) (6:12)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A2938954EAC442ECA49D29EA49957AD56ACA43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726072   (108826) от 27.05.2024
-
-VA - Trance In Motion Vol.376 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davey Asprey - Let Me Dream (Extended Mix)
-02. Last Soldier & Hypersia Music Feat. NELLY TGM - Allianz (Extended Mix)
-03. Exolight & Suncatcher - Coral Blue (Extended Mix)
-04. Jon Mangan - Heartache (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37417023A92788D4933AD77EF8CDD27700E8762B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726190   (108827) от 27.05.2024
-
-Телепрограмма TVGuide / TV Program TVGuide 4.5.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108827.jpg" />
-</div>
-
-
-###  Подробнее
-
-TVGuide - Простое и удобное приложение для мониторинга расписания телеканалов. Приложение обеспечит и актуальной информацией о ближайших выпусках того или иного, и всем необходимым для того, чтобы успешно настроить процесс так, как это нужно зрителю. Впечатляющий своими возможностями функционал, разнообразие каналов и источников, оповещения и многое другое и сделали (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.05.2024Разработчик: Molokov DmitryПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5AAA81BA1331D923A334F11B436E77F9269DBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726131   (108828) от 27.05.2024
-
-Сама любовь / She Is Love (2022) WEB-DLRip [H.264] [звук с TS]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись лицом к лицу после более чем десятилетней разлуки, разведенные супруги Идрис и Патрисия решают вернуться к прошлому и вместе пройти по этому коварному пути, открываясь для новых начинаний.Производство: США / Signature FilmsЖанр: драма, мелодрама, комедияРежиссер: Джэми АдамсАктеры: Хейли Беннетт, Сэм Райли, Мариса Абела, Роза Робсон, Крэйг РасселлПеревод: Дублированный (Баритон) звук с TSЯзык озвучки: РусскийСубтитры: Английские (Full, SDH)Продолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5939E1E567377FDD1B75B8313C7E278D273327D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725888   (108829) от 27.05.2024
-
-Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Teaching (2011) [PDF] [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108829.jpg" />
-</div>
-
-
-###  Подробнее
-
-This is an third edition of our popular introduction to language teaching methodology, which describes different methods and approaches in language teaching. Clear and jargon-free, it provides practical step-by-step guidance for new teachers, and introduces more experienced teachers to new approaches and teaching ideas. Includes a new chapter on the use of digital (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726036   (108830) от 27.05.2024
-
-С. Бенсон | Термохимическая кинетика (1971) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского кинетика С. Бенсона посвящена проблемам, лежащим в пограничной области между химической кинетикой и термохимией, - направлению, интенсивно развивающемуся как в нашей стране, так и за рубежом. В книге рассматривается разработанный автором новый оригинальный метод, позволяющий рассчитывать кинетические параметры элементарных химических (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD3CB647C5ECC14475A5DA50028F6BA39EC0755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726237   (108831) от 27.05.2024
-
-VA - Fulltime, Vol. 4 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie & Iury Lech - Spacer Woman (Valentino Kanzyani) (11:07)
-02. 4 M International - Space Operator (Donato Dozzy Remix) (5:53)
-03. Joe Smooth - He'll Lift You Up (Mike Dunn Remix) (5:44)
-04. DFX - Relax Your Body (Richie Rich Remix) (6:15)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1D69CB6994874B8B04A40F0A9125B0AC7ED0EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726234   (108832) от 27.05.2024
-
-VA - Fulltime, Vol. 2 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainbow Team - Dreaming (Birdee Remix) (6:53)
-02. Orlando Johnson - Turn The Music On (Re Tide Remix) (6:53)
-03. Steel Mind - Bad Passion (Tiger & Woods Speetalo Remix) (6:44)
-04. Rainbow Team - Bite the apple (Massimo Berardi Dub Edit) (6:26)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B90FCA9734E5D8B0FE36C3BCDA4107E76DB340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726073   (108833) от 27.05.2024
-
-Bob Recchione - Don't Get Me Started (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Way Out of Here Blues (5:00)
-02. Keepin' On (6:00)
-03. Like the Wind (5:22)
-04. Has it Been That Long (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66356260A6522F0849E2168418635B91B4F9577F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726065   (108834) от 27.05.2024
-
-Ксения Власова | Василиса (Книга 1). Избушка на костях (2024) [MP3, Любовь Конева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты пришла в избушку на костях за ответами. Ты еще не знаешь, что костяные стены таят в себе кровавые секреты, а их хозяйка Яга сплетает нити судьбы в путеводный клубок. И ты, конечно, не догадываешься, что день моей смерти станет началом твоей жизни…Жанр: фантастика, фэнтезиИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 12:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11A6E10B1FB3EB4080B057D6B7A2D9B70EBC55E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726247   (108835) от 27.05.2024
-
-VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levi Kreis - Tell Me Twice (Jared Jones Remixes) (Jared Jones Radio Mix) (03:23)
- 02. Onur Aktemur - Look At My Eye (02:45)
- 03. Jarah Damiel, Tara Louise - Tired Of Being In Love (02:03)
- 04. Ben Neeson - Movin' On Up (Radio Edit) (03:30)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E2B47E91459782CEE7B79776EC213FB60661EC
 ```
 
 

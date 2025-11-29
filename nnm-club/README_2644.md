@@ -1,3 +1,57 @@
+###  Публикация: 1784932   (69490) от 13.03.2025
+
+The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Final Call (Intro) (0:33)
+02.  Stratus (5:06)
+03.  Shooting Velvet (3:58)
+04.  Like The Beating Of A Heart (4:45)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE60080D3C72D36DD5DBFEDF528367F40A072D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784796   (69491) от 13.03.2025
+
+David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Good Catch (2:42)
+02.  You Might Be the One (2:24)
+03.  As a Parrot Might (3:48)
+04.  Back Pocket (2:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1487E3BE68544C3898D7E6A709177B1AD68A292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784933   (69492) от 13.03.2025
 
 Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -614,60 +668,6 @@ Mancol - First Look (2024) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABC478E5843B3399D0EFAAF3C8CAAD03A66F0A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784875   (69516) от 13.03.2025
-
-VA - 25 Years Of Anjuna Mixed By Darren Tate (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:00:08) (mix cut)
-01. Darren Tate - 5AM To Lima (12" Intro Mix (Mixed)) (06:13)
-02. grum – Price Of Love (Mixed) (02:47)
-03. Ilan Bluestone – Mama Africa (feat. EL Waves) (Mixed) (04:17)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9270459874E4D632F9E62ECC19118D5B107572A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784934   (69517) от 13.03.2025
-
-ТУ-134 - Ненаглядная (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_69517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ненаглядная [00:03:28]
-02 - Без любви твоей [00:03:10]
-03 - Замело [00:03:35]
-04 - Даже если на небе [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81F45D292A6C5A0EE0A7A110696FB166FCC1A80
 ```
 
 

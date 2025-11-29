@@ -1,3 +1,111 @@
+###  Публикация: 1270030   (216132) от 17.12.2018
+
+VA - German Top 100 Single Charts 17.12.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216132.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Mero - Baller los
+003. Sido - Tausend Tattoos
+004. Capital Bra - Feuer(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BC05AC66B2F2DA49EE69CDA97367097EE5EE60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343560   (216974) от 07.12.2019
+
+VA - German Top 100 Single Charts 06.12.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capital Bra - Der Bratan bleibt der gleiche
+02. Tones and I - Dance Monkey
+03. Apache 207 - Roller
+04. The Cratez - Skifahren (mit Bausa, Maxwell, Joshi Mizu)(   Читать дальше...   )Жанр: PopПродолжительность: 05:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3287E05A6EFA3E988A3A123F1F40534371B52778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966792   (217566) от 18.12.2015
+
+VA - Горячие зимние хиты праздничный сборник (2015) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_217566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fenix feat. Маша Кольцова - Зимняя
+02. Лера Туманова - Покажи Мне Любовь
+03. Жасмин - Дождь
+04. Анастасия Приходько - Ника(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3183C7433259406659AFC02401BA79BF3FA51823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425637   (218469) от 22.11.2020
+
+VA - National Pop Dance Music Vol.09 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218469.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Irama - Mediterranea
+002. Ava Max - Who's Laughing Now
+003. Chocolate Spoon - Sunglasses At Night
+004. Karol G & Nicki Minaj - Tusa(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DE8311E304917BD08507E130C74BEF8E376E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084624   (218818) от 19.12.2016
 
 VA - Попсовая соточка на Hit fm. Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
@@ -605,114 +713,6 @@ VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268282   (228146) от 10.12.2018
-
-VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|320 Kbps] <Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-02. Michelle feat. Matthias Reim - Nicht Verdient
-03. Maite Kelly - Die Liebe Siegt Sowieso
-04. Andrea Berg - Ja Ich Will (DJ Edition)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0DE81B1CDDD638136DB60DFC0CEA54FDE2300C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424297   (229091) от 16.11.2020
-
-VA - Romantic Feelings (2020) [MP3|320 Kbps] <Pop, Lyric, Romantic Songs>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229091.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hugo Helmig - Curtains Of My Life
-002. Pete Tong & Jules Buckley - At The River
-003. Stories - Don't Start Now
-004. Dj7urbo - Change My Mind(   Читать дальше...   )Жанр: Pop, Lyric, Romantic SongsПродолжительность: 08:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1F0B28620F875721A9B87E21A848291D62EBC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424295   (229149) от 16.11.2020
-
-VA - Grand Disco Mixer (2020) [MP3|320 Kbps] <Disco, Dance, Remix, Nu Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monsieur Van Pratt - Mild Drug
-002. Audio Jacker - Out Of My Hands
-003. Roman Reiss - Lights Out
-004. Dave Lindbergh - Omg(   Читать дальше...   )Жанр: Disco, Dance, Remix, Nu DiscoПродолжительность: 09:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F530555FB2AB1426595A1C5D64EF5B0B71CB35FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341459   (229507) от 28.11.2019
-
-VA - New Dance Musical Releases (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229507.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hospital Pavlova - Dysontopia (Original Mix)
-002. Jax Jones - All Day And Night
-003. Alle Farben Feat. James Blunt - Walk Away
-004. Tony Delta - Bang Bang (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD856C029E7322D91D5544A939C52DBD7D470451
 ```
 
 

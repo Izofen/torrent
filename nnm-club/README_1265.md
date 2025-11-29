@@ -1,3 +1,57 @@
+###  Публикация: 1768075   (33241) от 23.12.2024
+
+Randy Lee Riviere - Concrete Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mania (4:00)
+02.  The Wayside (3:14)
+03.  Change Is Strange (4:29)
+04.  Just Trying to Get Back Home (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B831A427EBBD1C719683AE95528DFB4E55D0650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768074   (33242) от 23.12.2024
+
+Paweł Szymanski - Good Morning Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  How Much More (2:51)
+02.  Long Distance Call (3:50)
+03.  Take A Little Walk With Me (3:13)
+04.  John The Revelator (2:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BC7B85E73510E88C80B27C7EB0058AAFB4E79C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768079   (33243) от 23.12.2024
 
 Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -609,57 +663,6 @@ Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:588D575EF0111525819E9BA899365DC5A5D85BBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767920   (33267) от 23.12.2024
-
-Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensual Lounge Music Universe - Silk Sheets: Sensual Sax Jazz Lounge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_33267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Erotic Jazz Music Ensemble - Bedtime Jazzy Bliss (3:20)
-02.  Tango Temptation (3:41)
-03.  Jazz Erotic Lounge Collective - Love & Lust (3:15)
-04.  Erotic Jazz Music Ensemble - Midnight Confessions (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0259163A218748EFDF821EE0A496F4E7F39DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767986   (33268) от 23.12.2024
-
-Летающий шкаф / L'armoire volante (1948) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_33268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альфред Пюк, добросовестный налоговый инспектор, живёт в одной квартире со своей пожилой тётей. Когда в одно зимнее утро мадам Лоближуа отправляется на грузовике в Клермон-Ферран, чтобы забрать оставшуюся мебель из проданного дома. На обратном пути тётя внезапно умирает, и водители грузовика, чтобы избежать проблем с полицией, помещают её тело в платяной шкаф. По (   Читать дальше...   )Производство: Франция / Compagnie Industrielle et Commerciale Cinématographique (CICC)Жанр: комедия, криминалРежиссер: Карло РимАктеры: Фернандель, Берт Бови, Жермен Кержан, Альбер Динан, Максимильен, Поль Деманж, Луи Флоранси, Жан Тулу, Полин Картон, Андре БервильПеревод: профессиональный многоголосый (ТРК - Петербург, 2006 г.)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BB4CAE20139F211472D4762277ACFE5CE5C96C
 ```
 
 

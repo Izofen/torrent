@@ -1,3 +1,422 @@
+###  Публикация: 1734613   (107078) от 04.07.2024
+
+Народ | Сказки народов мира. Японские сказки. Счастливые несчастья (2008) [MP3, Любовь Поволоцкая]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Сказки народов мира. Лучшее – детям.
+Красивые и мудрые сказки далекой Японии, поэтичные, оригинальные и всегда – разнообразные. Издавна они передавались из уст в уста как бесценное наследие предков, как важнейшая реликвия.
+Смешные и грустные, лукавые и назидательные, они были душой народа и источником его вдохновения. Японские сказки учат нас тому же, что (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Аудиокнига (АСТ)Продолжительность: 03:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958291F1176DCDBEF432973201B5A71BB05D73B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734684   (107079) от 04.07.2024
+
+Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Return [00:05:01]
+02. Blackheart [00:04:50]
+03. Sorrowforger [00:04:21]
+04. Gravedigger [00:05:08](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE79125177BCDD69E75912EF6A0494204B399864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734683   (107080) от 04.07.2024
+
+Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke [00:03:39]
+02. Tunisian Nights [00:04:09]
+03. One Night Stand [00:04:16]
+04. Cloudy With A Chance Of ...Real [00:04:51](   Читать дальше...   )Жанр: R&BПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2B0F8477E8E5E8015E9CCC69A6D02829AD5B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734150   (107081) от 04.07.2024
+
+Nothing More - Carnal (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternative Metal / Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. | Carnal |
+02. House On Sand (feat. Eric Vanlerberghe of I Prevail)
+03. If It Doesn’t Hurt
+04. Angel Song (feat. David Draiman)(   Читать дальше...   )Жанр: Alternative Metal / ProgressiveПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42BE7F49F4B7C4252039107E49B1268113D89C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734196   (107082) от 04.07.2024
+
+Roberto Ottaviano, Danilo Gallo & Ferdinando Farao - Lacy in the Sky With Diamonds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esteem (6:11)
+02. Deadline (5:56)
+03. Napping (5:38)
+04. And the Sky Weeps (3:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FD7BD6BDFF9D406E4A25087229036B5476BC29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734011   (107083) от 04.07.2024
+
+Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <House, Garage House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We All Move Together (Kevin Saunderson x Latroit Extended Remix) [00:04:21]
+02. SoundwaveZ (Mark Broom Extended Remix) [00:04:52]
+03. Stop & Stare (Cinthie Extended Remix) [00:05:53]
+04. Your Love On Me (SYREETA Extended Remix) [00:04:32](   Читать дальше...   )Жанр: House, Garage HouseПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC47334B4E5E89F87E7661FB59F6C44E6FCF46C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734173   (107084) от 04.07.2024
+
+amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Love [00:00:43]
+02. Angels in Tibet [00:02:22]
+03. Co-Star [00:02:46]
+04. Princess Going Digital [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483298A8898907BF614B799754890FA8FA51F92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734192   (107085) от 04.07.2024
+
+Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's To Tomorrow (4:32)
+02. Goodbye To Yesterday (4:33)
+03. December (7:59)
+04. Message From Mars (4:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EC7A1E149A44DAE0927BDAFF3FD015159DD537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734687   (107086) от 04.07.2024
+
+Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheep - Live at The Salt Shed, December 2023 [00:04:06]
+02. I'm Your Wreck - Live at The Salt Shed, December 2023 [00:05:34]
+03. Bigfoot - Live at The Salt Shed, December 2023 [00:04:52]
+04. Let Loose - Live at The Salt Shed, December 2023 [00:06:58](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89555167F8A322274BB09E2D6459A414444D355C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734685   (107087) от 04.07.2024
+
+Ботинки полковника / Les Bottines du colonel (1910) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем коротенькая романтическая комедия. Кавалер влюблен в барышню живущую по соседству. Но у нее очень строгий папаша, ясно дело - полковник. Кавалер его изрядно побаивается и ухаживания держит в секрете. И надо же было такому случиться, что любовная записка, предназначавшаяся барышне, волей случая попала в ... ботинок папаши-полковника! Теперь во что бы то ни (   Читать дальше...   )Производство: Франция / Société Française des Films ÉclairЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Grécoire, Tramont, Mademoiselle Maia, Monsieur BussyПеревод: немой с интертитрамиСубтитры: французские (интертитры), русскиеПродолжительность: 00:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B2B26DFE7B31F529DA16BD873DE88681E60104
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734162   (107088) от 04.07.2024
+
+jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock / Pop Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LOST ANGEL [00:01:11]
+02. CANDLES [00:03:32]
+03. STRAY [00:02:33]
+04. SAD OCTOBER [00:02:33](   Читать дальше...   )Жанр: Pop Rock / Pop PunkПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548A8C06D45768718F2C4C8AE6A12CCDE3DBFED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734195   (107089) от 04.07.2024
+
+Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanoid (8:54)
+02. Mind (8:48)
+03. Lawns (7:43)
+04. Under a Fig Tree (8:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB53120A60E393CCF147A7373DECA062B50B226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734564   (107090) от 04.07.2024
+
+R-Wipe & Clean 20.0.2463 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107090.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E3FB59C0C4A4D7FA0AEFCD4307C7EA502E40C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734586   (107091) от 04.07.2024
+
+Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stimulate (3:59)
+02. Erotic Lounge Obsession (4:53)
+03. Pulse of Desire (3:46)
+04. You and I (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C9CF1CFC3F460C3032E675091DE5F9CB05F242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734585   (107092) от 04.07.2024
+
+Fort Firewall 3.13.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDAE22547D8DB800301FBD86F2DA75DD5E53505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734638   (107093) от 04.07.2024
+
+Болеро. Душа Парижа / Bolero (2024) WEB-DL [H.264/1080p] [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734709   (107094) от 04.07.2024
 
 Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -249,431 +668,6 @@ Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF52CFBA75B47B2631DC12D463C2F8D3ED8DF0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734494   (107104) от 04.07.2024
-
-Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day & Night (StarGate Mix) [00:03:15]
-02. Something Deep Inside [00:03:22]
-03. Walk Of Life [00:03:49]
-04. Safe With Me [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734496   (107105) от 03.07.2024
-
-Plugin Boutique - DC Snares 1.0.1 VSTi 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появился идеальный комплект для создания малого барабана. DC Snares разработан для того, чтобы упростить ваш рабочий процесс и оказать серьезное влияние на ваше творчество.
-Независимо от того, изучаете ли вы сотни специально созданных встроенных звуков, экспериментируете ли со специальным синтезаторным движком, встроенным рандомизатором или просто накладываете свои (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4CA4C721A147CD6CE54E20A4DA49BD3D650B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734419   (107106) от 03.07.2024
-
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Румыния - Нидерланды (02.07.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Румыния - Нидерланды (02.07.2024)
-СУДЬЯ Цвайер Феликс (Берлин, Германия)
-Судья на линии 1: Лупп Штефан (Германия)
-Судья на линии 2: Ахмюллер Марко (Германия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE7E46BF0AC48C6A92835A60AEC738BFAF9366B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734282   (107107) от 03.07.2024
-
-Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light My Way (4:12)
-02. Born on the Bayou (4:59)
-03. Say It's True (4:41)
-04. Change (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1F8A6F2BF12D44B67003A0DF2F8323A4E7CF77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734289   (107108) от 03.07.2024
-
-Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reminds Me of Me (3:08)
-02. Blue Planet (3:11)
-03. Where to Begin (3:14)
-04. Miami (Blues Remix) (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB9ADFCF28F912BC63BE072AA51B9BF67162E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734423   (107109) от 03.07.2024
-
-Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еditors) | Night Sky (2018) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Explore Nature with Fun Facts and Activities. Age Range: 6 - 8 years.
-A fantastic first book on our universe. Explore the world of stars, planets, and astronomy. Discover what a star is, how the moon looks close up, and what tools astronomers use to look at space. With exciting activities, like how to look at the sun safely, and plenty of fun facts, this book is (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734320   (107110) от 03.07.2024
-
-Чай Вдвоем - Вечернее Чаепитие (2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А Ты Все Ждешь
- 02. Камчатка
- 03. Не Родная
- 04. Белая Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BD222BB2C69996158037C26E6AF44D4E9A3EDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734481   (107111) от 03.07.2024
-
-Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Independent [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My Heartbeat) [00:02:17]
-02. State of Me [00:03:14]
-03. Are You Listening [00:04:07]
-04. The Decree [00:04:14](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDFFC43A0AC6CF03A93DEAB9AEB38F8ACE011C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734285   (107112) от 03.07.2024
-
-Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy (3:02)
-02. Castaway (5:40)
-03. Get outta here (3:26)
-04. It is what it is (6:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BB730EB862E32AAE5EA1554450D68DFBB1F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734435   (107113) от 03.07.2024
-
-John Woodward | Horses (2014) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107113.jpg" />
-</div>
-
-
-###  Подробнее
-
-For every young horse fan who's ever dreamed of having his or her own pony, comes Horses: The Ultimate Treasury. Age Range: 8 - 12 years
-From wild horses and zebras to working horses like the Clydesdale, Shire, Percheron, and the American Saddlebred, Hackney, and Missouri Fox Trotter, learn about horses from around the world and throughout history. Discover how horses (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734287   (107114) от 03.07.2024
-
-John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't That I Don't Love You (3:52)
-02. What Do You Do When You Love Somebody (5:10)
-03. Ain't No Big Deal On You (3:28)
-04. Love Her With A Feeling (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C01CCD55EAF068B7AC2CB04EC67F3646FE780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734444   (107115) от 03.07.2024
-
-Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Age Range: 5 - 8 years
-Grade Level: Kindergarten - 3
-Follow a Swallowtail butterfly from egg to caterpillar to pupa and then on to becoming a beautiful butterfly.
-Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up into the fascinating world of animal development. Close-up photographs give children an animal's eye-view of growing up, while (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley PreschoolФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734355   (107116) от 03.07.2024
-
-Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Jive An' Wail [3:27]
-02. Allright, Okay, You Win [2:22]
-03. Sentimental Journey [2:23]
-04. Just One Of These Things [2:34](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740989F8D55A49145A2D38DE5CEFF6E2B07E9E1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734280   (107117) от 03.07.2024
-
-James McKinley - Working Class Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movin' (3:27)
-02. Get To My Baby (3:04)
-03. Always on My Mind (2:58)
-04. Just a Little Bit (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712840BD75D84010889C92EC39FCE6C6279802A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734284   (107118) от 03.07.2024
-
-Jasper & Jade - The Copper God (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Bang (4:26)
-02. Wildfire (5:16)
-03. Dangerous Love (6:30)
-04. Anymore (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE1487C19C3D84B6475B2196E9E0C929BE5799A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734431   (107119) от 03.07.2024
-
-Народ | Сказки народов мира. Сказки народов тайги и тундры. Война щук с куропатками (1981) [MP3, Ростислав Плятт]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Сказки народов мира. Сказки народов тайги и тундры.
-Литературно обработанные сказки народов Дальнего Востока и Крайнего Севера.
-В аудиокниге собраны лучшие образцы сказочного творчества народов Дальнего Востока и Крайнего Севера, проживающего в Сибири, на Крайнем Севере, по берегам рек Обь и Иртыш. Из этих сказок ты узнаешь, как люди живут в тайге и тундре: (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE16A60CC07115CF8F1C64D07932BD7712AB1273
 ```
 
 

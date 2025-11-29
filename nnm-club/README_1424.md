@@ -1,3 +1,57 @@
+###  Публикация: 1760381   (37375) от 13.11.2024
+
+Rob Moore the Wild Boar - Chicago Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicago Dog (3:45)
+02. Cloverleaf Blues (4:34)
+03. Dogs Everywhere (4:41)
+04. A Nice Day (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC32E661AE16E2A2498AC5865E58A8FCC661235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760373   (37376) от 13.11.2024
+
+Michigan Mick - Big Leg Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Leg Woman (3:26)
+02. Tell Me Baby (3:10)
+03. I'm Coming Home (2:49)
+04. My Baby Said (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FBDDA300453B2B2F9A4A63BBD1DB44A31FBAD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760382   (37377) от 13.11.2024
 
 The Mysterious Wheels - Bare Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -596,57 +650,6 @@ VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7DFACCFB0A4455D0DE798F8036694DE953393A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759638   (37401) от 13.11.2024
-
-Градусы - Голая (2011) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_37401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Кто Ты?
-02		Бледные Поганки
-03		Лох
-04		Режиссёр(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDA2E027E0AE00DC324A560024F9A5939006752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760312   (37402) от 13.11.2024
-
-Google Chrome 131.0.6778.70 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_37402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B0387ED687D2642B5772CB5998F156292E61D2
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1803689   (65824) от 24.06.2025
+
+Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Miracle [00:05:38]
+02. Stormy [00:04:26]
+03. Chandelier [00:04:58]
+04. Don't Fool Me [00:04:39](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562177693562F70CA2D90ED7006D3AC8ABA83D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803510   (65825) от 24.06.2025
+
+Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YUNGBLUD - Hello Heaven, Hello (9:06)
+02. YUNGBLUD - Idols Pt. I (3:35)
+03. YUNGBLUD - Lovesick Lullaby (2:55)
+04. YUNGBLUD - Zombie (4:07)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803683   (65826) от 24.06.2025
 
 Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
@@ -623,54 +677,6 @@ magnet:?xt=urn:btih:0C3B80C08BF0045D04F58334298DB6BEEE6B5988
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E930EAA3E113F534FD397ABFBB9123AD445A13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803231   (65850) от 22.06.2025
-
-Текстуры - sagesmask - Envato - Gold Glitter Textures - R74HZSY [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотые блестящие текстуры.Формат: JPGРазрешение файлов: 3000 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC9B43141A31D8330F6815D3636AA65D17C976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803236   (65851) от 22.06.2025
-
-Текстуры - CCpreset - Envato - 30 Sand Texture HQ - 9A8WMXX [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор песчаных текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
 ```
 
 

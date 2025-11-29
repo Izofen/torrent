@@ -1,3 +1,54 @@
+###  Публикация: 1764847   (34697) от 09.12.2024
+
+VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Music Of The Earth - Slow Jam (Original Mix) (02:31)
+ 02 - Charly'n Black - Today (Original Mix) (03:10)
+ 03 - Abraxas - Just a Warm Feeling (Original Mix) (05:43)
+ 04 - Peter Pearson - Cool as a Mountain Stream (Original Mix) (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1C073D196C5AC17BD5AD2F9FB85B1E973EF59A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764826   (34698) от 09.12.2024
+
+TSA - Soft Noir Jazz for Winter Evenings (2024) [MP3|320 Kbps] <Jazz, Electro, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Noir Jazz for Winter Evenings [01:22:51]Жанр: Jazz, Electro, Nu JazzПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9F92817D0EA4473E6C91A604E48FB38BF8F459
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764943   (34699) от 09.12.2024
 
 OsmAnd+  Карты & GPS Офлайн v4.9.9 Mod by Balatan [Ru/Multi]
@@ -589,57 +640,6 @@ VA - Intellectual Lounge Music (2024) [MP3|320 Kbps] <Lounge, Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F0924F8F02347D9F20CE0B7C48A77A350E73F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764912   (34723) от 09.12.2024
-
-Movavi Video Editor 25.1.0 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_34723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Editor - универсальный инструмент для работы с видео. Этот простой и функциональный видеоредактор позволяет монтировать, улучшать качество видео, применять спецэффекты, добавлять титры и музыку, настраивать переходы между видеофрагментами, создавать слайд-шоу, разрезать и объединять файлы, озвучивать проекты в режиме реального времени, сохранять ролики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578F5C7ADC30D6C4C504DE842832215CF87B6178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764913   (34724) от 09.12.2024
-
-Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock, Soft Rock, Post punk>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_34724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Три Хита (Оркестровая Увертюра) (Атлантида 1997)
-02. Эпиграф (Разлука 1986)
-03. Эта Музыка Будет Вечной (Разлука 1986)
-04. Отход На Север (Наугад 1994)(   Читать дальше...   )Жанр: New wave, Art rock, Soft Rock, Post punkПродолжительность: 05:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9DA6A5012644D35224F14C30CDFA99DBDB7EF9
 ```
 
 

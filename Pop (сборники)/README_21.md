@@ -1,3 +1,168 @@
+###  Публикация: 494794   (251117) от 11.05.2012
+
+VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. KET - U feat. DJ Space One Project - Равнодушна (Remix Radio Edit) (3:24)
+2. Катя Чехова - Я Тебя Люблю (3:22)
+3. T - Killah Feat. Настя Кочеткова - Над Землей (Anna Muza Radio Mix) (3:44)
+4. Настя Ясная - Река (3:05)
+5. Татьяна Котова - Вампирица (3:12)
+6. Винтаж - Деревья (Ural Djs Dance Remix) (5:02)
+7. Andry Makarov & Ирина Кулькова - Между Двух Огней (4:02)
+8. Анна Седокова - Космос (3:14)
+9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
+10. Modern Tracking - Верь В Мечту (Believe In Dream) (Gold Version) (4:01)2012Жанр: PopПродолжительность: 06:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494754   (251135) от 11.05.2012
+
+VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Haenni - Don't Think About Me [03:45]
+ 02. Alex Clare - Too Close [04:16]
+ 03. Die Toten Hosen - Tag Wie Diesen [04:28]
+ 04. Daniele Negroni - Don't Think About Me [03:43]
+ 05. Taio Cruz - There She Goes [03:30]
+ 06. Train - Drive by [03:16]
+ 07. Of Monsters and Men - Little Talks [04:26]
+ 08. DJ Antoine Feat. The Beat Shakers - Ma Cherie [03:48]
+ 09. Cro - Easy [02:52]
+ 10. Caligola - Forgive Forget [02:51](   Читать дальше...   )10.05.2012Жанр: Pop, DanceПродолжительность: 06:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494795   (251145) от 11.05.2012
+
+VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251145.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
+2. Любовь Фоменко - Знаешь Сам (Dance Version) (3:17)
+3. Катя Чехова - Птица (3:47)
+4. Светлана Разина - Радио НАХ (3:33)
+5. Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased) (7:13)
+6. Валерий Меладзе - Потерян И Не Найден (4:02)
+7. Тамерлан И Алена Омаргалиева - Не Смотри Назад (3:23)
+8. Арина Перчик - Шторм (3:33)
+9. DJ Сателлит & Marlena ft. PolCox - Почему (Tonada Radio Mix) (3:14)
+10. Женя Тополь - Осколки (3:20)2012Жанр: PopПродолжительность: 06:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677E2B36336FB44F7DBF2CF84BE6346D5AC29B3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494834   (251170) от 11.05.2012
+
+VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Потап и Настя - Прилелето
+002 Don Omar - Zumba
+003 Авраам Руссо - Нелюбимая
+004 Javi Reina & Alex Guerrero & Syntheticsax - Oig 2011 (DJ V1t & Fast Food remix)
+005 G-Nise & Алексей Кабанов feat. DJ Half - Наше Лето
+006 Chris Parker - Space
+007 Ксения Малинка - 5 Минут
+008 Inna - Alright
+009 NikitA - Авокадо
+010 Fidel Wicked - Enjoy your life (Radio mix)2012Жанр: PopПродолжительность: 05:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495631   (252624) от 13.05.2012
+
+VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_252624.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5sta Family - Spring Summer (2:50)
+2. НеАнгелы - Твоя (3:37)
+3. Глюкоза - Кошка (3:23)
+4. Катя Чехова - Сердце Тебе В Ответ (3:46)
+5. Алишер - Море (3:58)
+6. 5sta Family - Дождь Плачет (2:50)
+7. Mixi - Текила (DJ Val Remix) (4:37)
+8. DJ Сателлит & Marlena ft. PolCox - Почему (Tonada Radio Mix) (3:14)
+9. Настя Задорожная - Воздух (3:47)
+10. Алисия - Улетаю (Dj Fisun Remix) (2:34)2012Жанр: PopПродолжительность: 06:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009F25857CDA485F7E72437118ABCF215D092BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495767   (252676) от 13.05.2012
 
 VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
@@ -572,6 +737,66 @@ VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F399606FBA455C987AE7F83FB2E9573EDD579E85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504965   (260828) от 03.06.2012
+
+VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Rynno feat. Sylvia - Bring Me Back (Original Radio Edit)
+002. Чай Вдвоем - Время вода
+003. The Disco Boys - Around The World (Radio Mix)
+004. Светлана Лобода - Облака
+005. Taio Cruz - Troublemaker (Radio Edit)
+006. Тимати и Григорий Лепс - Реквием по любви
+007. Sheikh feat. Nicco - Hold Tight (Radio Mix)
+008. Вика Дайнеко - Уезжай
+009. Melanie C - Too Soon
+010. Алсу - Утро надежд(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838891   (261472) от 25.11.2025
+
+Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_261472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Turn To Ice (3:29)
+02. Dreams Are Made To Last Forever (4:16)
+03. Forever In Your Eyes (3:42)
+04. Heaven Is Calling (4:33)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
 ```
 
 

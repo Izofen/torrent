@@ -1,3 +1,424 @@
+###  Публикация: 1719620   (110458) от 01.05.2024
+
+Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Does Your Garden Grow? [5:57]
+02. Festival Hall [5:59]
+03. Easy as You Go [3:19]
+04. Blue Rondo a la Turk [7:36](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD8AFD2F95631CADD57C715D95D55AB5585D220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719888   (110459) от 01.05.2024
+
+Niels van Gogh - The Rebel (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Hard House, Hard Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels van Gogh – The Rebel (3:04)
+02. Niels van Gogh – The Rebel (extended mix) (4:46)Жанр: Club House, Hard House, Hard TranceПродолжительность: 00:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FE3EEAA3E5689BFE2848E544ABA223C334C704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719490   (110460) от 01.05.2024
+
+Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Entertainment [2:31]
+02. Who Cares (As Long as You Care for Me) [1:32]
+03. I've Confessed to the Breeze (I Love You) [3:08]
+04. If I Love Again [2:42](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047CB38AEA6EE4F5809A8C4E1B3E59C9F7A5D54E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719823   (110461) от 01.05.2024
+
+In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Electric (3:56)
+02. Contagious (4:26)
+03. Lemon Amigos (4:12)
+04. The Fire I Play With (4:23)(   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0033BA4217A6F1B57D56DF6813853CB4A15273F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719836   (110462) от 01.05.2024
+
+Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dog on a Chain (3:44)
+02. If I Knew Then (3:59)
+03. Isn't It So (2:26)
+04. This Wall Between Us (2:49)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9281AD167A19FABA1F8BAF7FD4D529D1F1F5B9D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719674   (110463) от 01.05.2024
+
+Exiled on Earth - Vertenbra (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revived Entity [00:04:48]
+02. Constellations Collapse [00:04:38]
+03. The Messenger From The Red Aeon [00:04:17]
+04. The Dying Sun of Sarnath [00:05:18](   Читать дальше...   )Жанр: Progressive Power, Thrash MetalПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CC85F1C2BF975080811A7C0E558E5BE4C06332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719703   (110464) от 01.05.2024
+
+Double Horse - Diablerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Occult, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last House on the Left [00:07:47]
+02. Blind Dead [00:04:58]
+03. Castle Crypt [00:06:58]
+04. Lady Bathory [00:05:52](   Читать дальше...   )Жанр: Stoner Doom, Occult, 70'sПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4EC0235180A6EB631AB8254C5169F6E9F8E31D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719876   (110465) от 01.05.2024
+
+Tanshuman Das - Progress Report (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Battle theme
+02 - Machine
+03 - Scarlet
+04 - Fearless leader(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60C30B9D035FB7C3DB70BFE4846D4552C6DADA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719854   (110466) от 01.05.2024
+
+Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadroj [5:54]
+02. Hotline [5:46]
+03. Under the Moon [6:24]
+04. Yellsker Bellsker [5:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719996   (110467) от 01.05.2024
+
+Годзилла: Минус один / Godzilla: Minus One / Gojira -1.0 (2023) WEB-DLRip [H.264] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послевоенная Япония подвергается нападению Годзиллы.Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевикРежиссер: Такаси ЯмадзакиАктеры: Сакура Андо, Минами Хамабэ, Рюносукэ Камики, Рикако Миура, Юки Ямада, Мунэтака Аоки, Такато Ёнэмото, Юки Такао, Майкл Ариас, Кураносукэ СасакиПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:36Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719930   (110468) от 01.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Нэшвилл Предаторз - Ванкувер Кэнакс (30.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110468.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 мая 2024, среда. 05:00 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 19 036 зрителей (101% при вместимости 18 910)
+Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02C55BCE50261B4E13BB6458A8AF5FF307A6779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719626   (110469) от 01.05.2024
+
+Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of Sound [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump Down, Spin Around [11:35]
+02. Big Sky [10:11]
+03. Waltz Medium [7:43]
+04. Thought Trains [6:38](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382411CB2A21791B1040B8809A897D0425DB5349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719912   (110470) от 01.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Торонто Мэйпл Лифс - Бостон Брюинз (30.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 мая 2024, среда. 02:00 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Эндрю Смит (Китченер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D2979A753632A4128348882AC1A2A6CA48B84B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719926   (110471) от 01.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Колорадо Эвеланш - Виннипег Джетс (30.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 мая 2024, среда. 04:30 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Канада Лайф-центр (Виннипег, Канада), 15 225 зрителей (99% при вместимости 15 325)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Марк Шевчук (Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8362ADEDC40605665A3BE125E702AEA0FE2B9937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719694   (110472) от 01.05.2024
+
+Ascia - The Wandering Warrior (2024) [MP3|320 Kbps] <Stoner Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Greenland [00:05:42]
+02 Blood bridge battle [00:06:32]
+03 Ruins of war [00:04:01]
+04 Dhul Qarnayn [00:02:39](   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D555336FF291DF7428E210CEA10238C2159B614C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719487   (110473) от 01.05.2024
+
+The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, Columbia [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria [3:17]
+02. I Feel Pretty [5:11]
+03. Somewhere [4:16]
+04. A Quiet Girl [2:23](   Читать дальше...   )Жанр: CoolПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AF0F99AEA2D968A952ABB0D26E706A90012FC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719858   (110474) от 01.05.2024
 
 Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024) HDTVRip [H.264/1080p]
@@ -253,427 +674,6 @@ Moonsorrow — финская фолк/викинг/блэк-метал-груп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719880   (110484) от 01.05.2024
-
-Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locked and Loaded (3:44)
-02. Immortal (3:25)
-03. Bender (3:22)
-04. Straightjacket Supermodel (3:38)(   Читать дальше...   )Жанр: Hard Rock, Post GrungeПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC26F735D6D2AADA3C8B0967FFFEE8AFE6B0F3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719679   (110485) от 01.05.2024
-
-Apenheart - Realizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gift of the Dawn [00:05:23]
-02. Backed by the Wind [00:05:50]
-03. Better [00:04:52]
-04. Changing of the Guard [00:04:25](   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E314F9C6997F05421B18B1A0FE087B90C57A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719473   (110486) от 01.05.2024
-
-Sleazy Town - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Six Minutes Before I Go [00:04:47]
-02. Sweet Old Memory [00:04:20]
-03. Bad Brains [00:04:38]
-04. Too Late To Remake [00:04:25](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 2 CD, 01:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1492F951374A7D69E403F94342B5E784D1E7537A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719873   (110487) от 01.05.2024
-
-Amon Duul II - Yeti (1970) Japanese Edition, Reissue, Remastered, 2005, Belle Antique [FLAC|Lossless|image + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soap Shop Rock: A. Burning Sister
-02. Soap Shop Rock: B. Halluzination Guillotine
-03. Soap Shop Rock: C. Gulp a Sonata
-04. Soap Shop Rock: D. Flesh-Coloured Anti-Aircraft Alarm(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1904BA50363A58F4ADE3487066CB8F35208D082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719458   (110488) от 30.04.2024
-
-Легион - Отзвуки прошлого (Live in Studio) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Легион [00:04:07]
-02. S.O.S. [00:03:55]
-03. Топор над миром [00:04:56]
-04. Не убивай [00:03:26](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD641C06038765043A88891416F102A0151582E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719671   (110489) от 30.04.2024
-
-Burning Black - Resilience of a Broken Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Skin Is Fire [00:04:51]
-02. Resilience Of A Broken Heart [00:05:01]
-03. Last Band On The Earth [00:05:37]
-04. Trust Me [00:04:39](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB870398F8B668B2F5357BD371F2CEA2829D198E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719733   (110490) от 30.04.2024
-
-ACOD - Versets Noirs (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110490.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Habentis Maleficia 20:21
-2. The Son of a God (The Heir of Divine Blood) 06:22
-3. A Thousand Lives in a Second 04:33
-4. May This World Burn 07:15(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BBE1CA362C38771B7AC0BAEFC6FB8DF88E2E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719621   (110491) от 30.04.2024
-
-Vesperian Sorrow - Awaken The Greylight (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As The Pillars Were Raised 06:26
-02. Antediluvian - Proceeding The Unshaping 05:51
-03. An Epistle To The Prime Vivified 05:06
-04. Traverse The Vorthonian Passage 05:14(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8ED4884DCFCB3756487CBC7CCE445B21E7C307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719668   (110492) от 30.04.2024
-
-Alchemist - Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium [00:05:02]
-02. Heavy is the Cross [00:04:12]
-03. Man without Face [00:04:46]
-04. Missing Muses (Song for YYJ) [00:04:50](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8DD0BFD0286D38EDAA4B266ADC09C589117B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719686   (110493) от 30.04.2024
-
-Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hard Life Phd (00:04:19)
-02 - My, My, My (00:04:18)
-03 - It Ain't as Easy as It Looks (00:03:08)
-04 - 'Til We Meet Again (00:04:31)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7BEAAC185B303F3D2E0AF6DF1B4667CF2DC714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719710   (110494) от 30.04.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Даллас Старз - Вегас Голден Найтс (29.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110494.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 апреля 2024, вторник. 04:30 МСК. 1/4 финала - Запад. 4-й матч. Стадион: Ти-Мобайл Арена (Парадайс, США), 18 333 зрителя (98% при вместимости 18 702)
-Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Дэвин Берг (Китченер, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537F22DCBBD582D7AEA5364324B37E0011E7533B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719705   (110495) от 30.04.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Флорида Пантерз - Тампа-Бэй Лайтнинг (29.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110495.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 апреля 2024, вторник. 02:00 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 750 зрителей (102% при вместимости 19 434)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Биван Миллс (Суррэй, Канада); Линейный: Мишель Кормье (Трой-Риверес, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80EFC3A7CC842CFEBFF6611BD249DB3C7868ECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719682   (110496) от 30.04.2024
-
-VA - Ibiza Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grape - Demons (Radio Edit) (02:52)
-02. Fly & Deep Strips - Deep in Your Love (05:01)
-03. DeepTurco - Summer Trip (05:21)
-04. Nikita Marasey - Dirty Game, Sorry (04:19)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD380DA80357897E993BC9768BD9095C0BDAC4BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719797   (110497) от 30.04.2024
-
-Майкл Коуни | Погонщики айсбергов (2022) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110497.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Прибывшие на  Кантек земляне могли бы остановить экологические и военные катастрофы, происходящие на планете. Но это бы означало отсутствие возможности хорошо заработать. В итоге на Кантеке происходят глобальные войны каждые несколько десятилетий, а экология на грани краха. Местный житель по имени Скандер, помогает двум землянам перегнать айсберг до южных широт, (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B5E57D0AA1E827BE1CF8D87F04F9448C7E1917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719745   (110498) от 30.04.2024
-
-Opera GX 109.0.5097.70 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549B57EDE1A25A2361B8D119BC4DA729A9674D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719581   (110499) от 30.04.2024
-
-Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7A18339D39593BD48C8678BC86B45D3EBB9BFC
 ```
 
 

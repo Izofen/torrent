@@ -1,3 +1,163 @@
+###  Публикация: 1542330   (243610) от 06.04.2022
+
+VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Propinan De Melyor (02:00) - New London Consort
+02. The Blackwood (02:42) - Emily Barker & The Red Clay Halo
+03. Looking For You (04:26) - Allan Taylor
+04. Ancient Air ~ Chopin: Krakowiak, Op. 14 In F Major (02:12) - John Di Martino's Romantic Jazz Trio(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B3E020726A7F6877B076B1DBADB06842FADEC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542187   (243620) от 06.04.2022
+
+Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lindemann — метал-проект, образованный 4 января 2015 года Тиллем Линдеманном и Петером Тэгтгреном.2015 - Skills in Pills
+2019 - F & MЖанр: Industrial MetalПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623202   (243651) от 01.04.2023
+
+Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243651.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Touch Me (I Want Your Body) 3:44
+A2 I'm All You Need 4:25
+A3 Suzie, Don't Leave Me With Your Boyfriend 3:54
+A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632846   (243695) от 12.05.2023
+
+Симф. Орк. Лен. Гос. Филармонии, дир. Е. Мравинский - Beethoven - Symphony No. 5 in C minor, Op. 67/Бетховен – 5-я Симфония До Минор, Соч. 67 (1961) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Class ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_243695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Л. Бетховен
+A1 1 Ч. – Allegro Con Brio
+A2 2 Ч. – Andante Con Moto
+B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626634   (243704) от 15.04.2023
+
+Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243704.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Hymn - 5:05
+A2 - Love Is Like A Violin - 4:00
+A3 - Friend Of Mine - 3:33
+A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626412   (243825) от 14.04.2023
+
+Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243825.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 New Beginning
+A2 You And Your Heart So Blue
+A3 Soul Motion
+A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271662   (243948) от 03.08.2022
 
 The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
@@ -530,167 +690,6 @@ magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5503D66E7ED0D997E73755C03638A82CBEF06703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565417   (249436) от 23.07.2022
-
-Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_249436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ка́йли Энн Мино́уг (англ. Kylie Ann Minogue (ˈkaɪli ˈæn mɪˈnoʊɡ), также известная под мононимом Ка́йли; род. 28 мая 1968, Мельбурн) — австралийская поп-певица, автор песен и актриса. Наиболее коммерчески успешная австралийская исполнительница, известная частыми сменами сценического образа. СМИ называют её «поп-принцессой» (   Читать дальше...   )1988 - Kylie
-1989 - Enjoy Yourself
-1990 - Rhythm of Love
-1991 - Let's Get to ItЖанр: Dance-Pop, DiscoПродолжительность: 18:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538612   (249634) от 22.03.2022
-
-Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Records  [DST64 2.0, 5.1|1bit/2822,4kHz |SACD-R] <Art Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_249634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Signs Of Life
-02. Learning To Fly
-03. The Dogs Of War
-04. One Slip(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEC5523689E3DEA68C98D53499EBB051EC45E67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618995   (249796) от 14.03.2023
-
-Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_249796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
-2013 - Synchronicity
-2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618707   (249886) от 13.03.2023
-
-Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_249886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterplan — немецкая пауэр-метал-группа. Основана гитаристом Роландом Граповым и барабанщиком Ули Кушем после их увольнения из Helloween в 2001 году.2003 - Masterplan
-2005 - Aeronautics
-2007 - MK II
-2010 - Time To Be King(   Читать дальше...   )Жанр: Power MetalПродолжительность: 06:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586632   (250027) от 11.03.2023
-
-Группа Las Vegas - Imported From... (1998) Unofficial Release [FLAC 2.0|64/24|image+.cue|MC-Rip] <Glam Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_250027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexual Might
-02. Hard Golden Chains
-03. Crying In The Silence
-04. Bestseller Gun(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617966   (250117) от 09.03.2023
-
-Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_250117.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Пробуй
-A2 Високосный Год
-A3 Мы Почти Позабыли
-A4 Испорченный Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
 ```
 
 

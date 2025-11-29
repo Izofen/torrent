@@ -1,3 +1,55 @@
+###  Публикация: 1774150   (71570) от 19.01.2025
+
+Оноре де Бальзак | Шагреневая кожа (2023) [MP3, Александр Воробьев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71570.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шагреневая кожа» – философский роман знаменитого французского писателя Оноре де Бальзака из цикла "Человеческая комедия".
+Главный герой, молодой аристократ Рафаэль де Валантен, оставшись без единого су в кармане, решает свести счёты с жизнью. Бесцельно блуждая по улицам Парижа, он забредает в лавку древностей, где старик-хозяин предлагает ему магический (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 12:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF46AC7930BD3098D90B7C4844793987D1BF0A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774047   (71571) от 19.01.2025
+
+VA - Italo Disco - The Lost Legends Vol. 16 (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiki Gaida - Virginal Mystery
+02. Parsifal - Carillon (English Version)
+03. Tenere - Moon Destination (Vocal English Version)
+04. Zener - New Generation(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6970003804819E02B4866A48FA9EDA850D03E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774144   (71572) от 19.01.2025
 
 Дудочка и кувшинчик. Сборник мультфильмов (1950-1954) DVDRip
@@ -600,60 +652,6 @@ Odyssey - Reinventing The Past (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23A137C95AB6AB6F7C044767B829D0CEF602A6AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773839   (71596) от 18.01.2025
-
-Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		I Smell Smoke	4:39
-02		Two Wrongs Don't Make A Right	4:00
-03		Neal And Pray	3:29
-04		Little Brother (Make A Way)	4:28(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F15CCBD0ECC927DACFC5560B56AAE140954CBEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773982   (71597) от 18.01.2025
-
-Caligula's Horse - Charcoal Grace (2024) [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_71597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The World Breathes With Me 10:00
-2. Golem 5:20
-Charcoal Grace (24:09)
-3.I Prey(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CD34693DB79E2BDBA04AC4CAD35958E60E35DC
 ```
 
 

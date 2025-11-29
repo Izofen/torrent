@@ -645,6 +645,33 @@ magnet:?xt=urn:btih:A9C1339532950F9129EE50884C07EBC5A1248021
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589342   (190232) от 09.11.2022
+
+Moonspell - From Down Below: Live 80 Meters Deep (2022) [FLAC|Lossless|image + .cue] <Gothic Metal, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Greater Good
+02. Common Prayers
+03. All Or Nothing
+04. Hermitage(   Читать дальше...   )Жанр: Gothic Metal, Dark MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F78DF525A2B0285A8612A7D0A0DB4B96EEA7082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659838   (190236) от 11.09.2023
 
 (EchO) - Witnesses (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
@@ -667,33 +694,6 @@ magnet:?xt=urn:btih:A9C1339532950F9129EE50884C07EBC5A1248021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:364B58A5E364B27BB898FFA328A39BB0BAB74A6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589265   (190408) от 09.11.2022
-
-Faetooth - Remnants of the Vessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_190408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (i) naissance [00:00:41]
-02. Echolalia [00:05:06]
-03. La Sorcière [00:06:05]
-04. She Cast a Shadow [00:04:11](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Stoner MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41ECEF5A88323AC15A67080FE4A202850251EB5
 ```
 
 

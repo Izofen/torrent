@@ -1,3 +1,54 @@
+###  Публикация: 1601748   (211014) от 02.01.2023
+
+Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Latin, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211014.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1984 году Глория Эстефан стала солисткой группы Miami Sound Machine. К 1987 году, после того, как их первый альбом в США стал хитовым, они стали называться Gloria Estefan и Miami Sound Machine, а к 1989 году, после еще большего успеха, все это стало просто Gloria Estefan. Сборник хитов охватывает период с 1985 по 1992 год и включает в себя большинство композиций, (   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703EAE6D0E8F69C68F70A2DAEB72042F532148DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640518   (211108) от 18.06.2023
+
+Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Poison
+02. Hey Stupid
+03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301237   (211271) от 03.08.2022
 
 Григорий Лепс - Баллада о борьбе (2008) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Chanson>
@@ -639,60 +690,6 @@ Bullet For My Valentine — британская металкор-группа. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586124   (214672) от 28.10.2022
-
-Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Rock, Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214672.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Warriors Of The Wasteland
-A2 Rage Hard
-A3 Kill The Pain
-A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586355   (214753) от 28.10.2022
-
-Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Never Know
-02. If Only
-03. This Time Around
-04. Runaway Run(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
 ```
 
 

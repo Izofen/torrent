@@ -1,3 +1,192 @@
+###  Публикация: 1636635   (240633) от 31.05.2023
+
+Elena Volkova And Alex K. Strangel - Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (07:05)
+02. We Are Here (05:13)
+03. Circle Of Life (04:28)
+04. Guardian Angel (04:42)(   Читать дальше...   )Жанр: Symphonic Metal, Male Female VocalПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099CC632F0279BA15BA7E8C77989BBCD9A80F81B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598943   (240655) от 13.04.2023
+
+ГештальТ - 7 Realises (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Ural Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Noir (Часть I)(LP)
+2022 - Noir (Часть II)(LP)
+2022 - В эфире снов (EP)(   Читать дальше...   )Жанр: Gothic Rock, Ural RockПродолжительность: 7 CD, 02:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CB72B215F172EF6214CF4AE18C65A3A3186F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620456   (240659) от 20.03.2023
+
+Дезоморфин - Капуста (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дурка [00:02:06]
+02. Феминитив [00:02:31]
+03. Ипотека [00:02:32]
+04. Наплевать [00:02:09](   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C648B5D1C7A92F4B037C2F9C46EE23B3EEF18FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620126   (240842) от 19.03.2023
+
+PensiOi!ners - Капсаицин (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Oi, Rac>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Из Бара в Бар [00:03:48]
+02. Street Magic [00:02:48]
+03. Пандемия [00:03:48]
+04. 25.10.1854 (Атака легкой бригады) [00:03:25](   Читать дальше...   )Жанр: Punk Rock, Oi, RacПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308D8F0748F72CC1D3F3A940C91F3B5115E209B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632048   (240858) от 08.05.2023
+
+Dark Princess - Phoenix (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix
+02. Taste of Freedom
+03. The Void
+04. Worth Waiting For(   Читать дальше...   )Жанр: Goth Rock, Gothic MetalПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B56F97C68FC0DBD63144DD83A3A2F1B3F9A0203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619957   (240951) от 18.03.2023
+
+Nовая Zямля - Вечно живой (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Антигламурная [00:02:28]
+02. Новая жизнь [00:03:06]
+03. Нарисуй мне дом [00:04:40]
+04. Про добро [00:02:51](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540E62F3EB0D6F73138EDBBA132EBB840348734B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619948   (241011) от 18.03.2023
+
+ЭльТруски - Эфир Первобытных Рукописей (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прямой эфир [00:03:55]
+02. Первобытные истины [00:05:19]
+03. Рукописи не горят! [00:05:50]
+04. Я верю [00:04:17](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96134FA25015D4C346B27E22D55B8868772E67E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619953   (241035) от 18.03.2023
 
 Чёрная Гитара (Антон Морозов) - Чёрная Гитара (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -506,195 +695,6 @@ EVO (Eternal Voice of Orbits) - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C7CC3FB4B8C34C9DA0E9B872DE8557C9CA8FD81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627258   (243191) от 18.04.2023
-
-Джанни Родари - Game Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шаг из рая [00:05:08]
-02. Нечего терять [00:04:20]
-03. Саранча [00:04:15]
-04. Справедливость [00:04:08](   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96CBBA0E7D8677865C5BB1B0160B17C119CB281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613730   (243255) от 19.02.2023
-
-Твари (ex -дваразашакур) - Повезло (2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Метаноя [00:03:58]
-02. Раны [00:03:35]
-03. Найду [00:03:47]
-04. Повезло [00:04:07](   Читать дальше...   )Жанр: GrungeПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C94BE5D55857EDC8C729A32482053A124DE8FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627071   (243304) от 17.04.2023
-
-The Korea - Яд (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тварь [00:02:32]
-02. Тьма [00:03:15]
-03. Изгой [00:03:22]
-04. В пепел [00:03:10](   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CEE26D6C3C9930255D8278282624156BD5C016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613184   (243328) от 18.02.2023
-
-Карабас и НесуРазности - Изобретатели (2022) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Табуретка, верёвка и мыло
-02. Хотя бы две
-03. Иван Иваныч
-04. Придрочился(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D40F64D78560FE020CE39BC617D87A5726DCD04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627073   (243392) от 17.04.2023
-
-Audiobulldozzer - Pandemonium Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandemonium Blues [00:03:57]
-02. Deathibrillator [00:03:24]
-03. Коси и забивай [00:03:52]
-04. Мегалодон [00:06:04](   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C4E4840D4CD4F4B4747F825F1304BFC462183F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613086   (243397) от 18.02.2023
-
-Nabokova - Кувшинки (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:28]
-02. Жить [00:03:17]
-03. Дом [00:02:19]
-04. Кувшинки [00:02:15](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF7FAF39FFDECD9A9A06ECF907088206B1F15AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537876   (243564) от 19.03.2022
-
-Алексеевская площадь - Оставить след (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь
-02. Не забывай
-03. Выше
-04. Всё намного проще(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B49CAFDF7B5902CD728C97B0AF0D4D9A8AC4367
 ```
 
 

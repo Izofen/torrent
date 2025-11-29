@@ -1,3 +1,57 @@
+###  Публикация: 1755225   (40366) от 14.10.2024
+
+Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Heartbeats (2:10)
+02. A Fast Lane Melody (2:11)
+03. A Fast-Paced Love Affair (2:09)
+04. Chasing the Breeze (2:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1551988CB3B34739CE3F829F22241C82B2780CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755131   (40367) от 14.10.2024
+
+Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthrise (4:09)
+02. Morning Samba (4:49)
+03. Walking On The Yellow Line (6:20)
+04. Beyond The Horizon (4:05)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716AE1503B026DAA6106AD246BB97AF16357FDC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755128   (40368) от 14.10.2024
 
 Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -599,57 +653,6 @@ magnet:?xt=urn:btih:8AA8D2090EBB02C7CAC568D3FD4A229FD65DCC2A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A323E562B6986AF37E943586F734A5B02EC23431
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755305   (40392) от 14.10.2024
-
-Океан Ельзи (Okean Elzy) - Lighthouse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_40392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices Are Rising [00:03:13]
-02. Lighthouse (feat. John Rzeznik) [00:03:15]
-03. Might Have Been a Dream [00:03:16]
-04. Love on Fire [00:03:39](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D25D389D0E2E0978A7822AC141F2238F67E27F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755313   (40393) от 14.10.2024
-
-Magic Eraser / Магический ластик v2.10.11 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_40393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.10.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF1E81469A03DD917FE358C96FF19898FAE5668
 ```
 
 

@@ -318,6 +318,33 @@ magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059507   (190749) от 07.11.2022
+
+George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190749.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Soul Limbo
+A2 Are You Happy?
+A3 Tell It Like It Is
+A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658727   (190968) от 09.09.2023
 
 Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
@@ -665,33 +692,6 @@ A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy Liste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587390   (192877) от 30.10.2022
-
-Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tankard — немецкая трэш-метал-группа из Франкфурта, основанная в 1982 году. Начиная со своего первого альбома, группа не изменяла взятому в самом начале направлению — создавать быстрые метал-песни, прославляющие алкоголь. В связи с этим получило распространённое мнение, что они изобрели жанр «алкоголик-метал». Сами себя Tankard называют «королями пива». Наряду с (   Читать дальше...   )1986 - Zombie Attack
-1987 - Chemical Invasion
-1988 - The Morning After
-1990 - The Meaning Of LifeЖанр: Thrash MetalПродолжительность: 14:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
 ```
 
 

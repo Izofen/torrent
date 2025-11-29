@@ -1,3 +1,430 @@
+###  Публикация: 1709103   (112902) от 23.03.2024
+
+Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ведьма (М. Рябинин) — 3.56
+02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
+03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708790   (112903) от 22.03.2024
+
+Duff McKagan - Lighthouse (Expanded Edition)(2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse (3:20)
+02. Longfeather (4:12)
+03. Holy Water (4:32)
+04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8277892D3A016BE9BD452EE3F0FA15E58A5ED01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708797   (112904) от 22.03.2024
+
+Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse (3:20)
+02. Longfeather (4:12)
+03. Holy Water (4:32)
+04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B07E4BEDB30CCE7392CB3FFE0E7DD920601CF68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708844   (112905) от 22.03.2024
+
+Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Sent (4:11)
+02. Yo (Excuse Me Miss) (3:32)
+03. Calm Down (3:56)
+04. Me & U (3:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A279BB4505B408B078950D79A0B48059070FF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708718   (112906) от 22.03.2024
+
+Steel Rath - Steel Rath (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Battlecry [3:49]
+02 - The Revenger [2:56]
+03 - Soulchasers [3:59]
+04 - Warriors of the Sea [3:17](   Читать дальше...   )Жанр: Heavy Metal, MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630B00BF3F6EB59BC18DC8D5E0F90BFCF36BF6F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708784   (112907) от 22.03.2024
+
+Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Dangerzone" (Paul Samson, Chris Aylmer, Nicky Moore)
+02. "Stealing Away" (Samson, Aylmer, Moore)
+03. "Red Skies" (Samson, Bruce Dickinson, Aylmer, Thunderstick)
+04. "I'll Be 'Round" (Samson, Aylmer, Moore, Pete Jupp)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 40:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D83ECF6FD7CFD859B0228D23AE51318C9E6D6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708740   (112908) от 22.03.2024
+
+Aktarum - Gang Of Trolls (2010) [FLAC|Lossless|image + .cue] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Troll Story [1:09]
+02 - Fight to death [4:16]
+03 - Black Troll [3:54]
+04 - Jurassik Troll [4:23](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50453DBCD30B588F926D3DDB137D89DADF82DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708813   (112909) от 22.03.2024
+
+Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BBQ (4:36)
+02. Sweet Thing (4:34)
+03. Please Stop (4:52)
+04. In Your Arms (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB15EE42AE590D8EDF89422611F5A5B849589B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708817   (112910) от 22.03.2024
+
+I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold Wolf (3:54)
+02. Moanin' At Midnight (2:44)
+03. Contemplation Blues (4:34)
+04. Desert Room (4:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0A602984716877B67205258A14F832B0653A3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708848   (112911) от 22.03.2024
+
+Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready?
+02. Love Hungry
+03. Burning Up
+04. The Fight Goes On(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25F32133441C14161B96E23F78C7A37EB878476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708935   (112912) от 22.03.2024
+
+Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112912.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Weakling Avenger
+A2 Raining Murder
+A3 Sin Origin
+B1 Command(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DFD1F23E84D899651C9087B7FFCD79906F3681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708699   (112913) от 22.03.2024
+
+Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112913.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lifeless
+A2 The Beast
+A3 The Claws Of Time
+B1 Across The Vacuum(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE5232675FD56D4512611FFD5A3418E6FDB0590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708779   (112914) от 22.03.2024
+
+Lords Of Black - Mechanics Of Predacity (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For What Is Owed To Us
+02. Let The Nightmare Come
+03. I Want The Darkness To Stop
+04. Let It Burn(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC1DAEDC25E34FC592748BEFC2913945FB388A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708929   (112915) от 22.03.2024
+
+AMD Radeon Software Adrenalin Edition 24.1.1 WHQL (GCN 4/5 - Polaris/Vega) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112915.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMD Radeon Software Adrenalin Edition представляет собой новое, современное и полностью переработанное приложение, предоставляющее пользователям полный контроль над графикой Radeon, игровыми функциями и настройками, стриминговыми сервисами и многим другим. Геймеры могут получить доступ ко всем функциям ПО прямо в игре, пользуясь таким же интерфейсом, который доступен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F425E53E6CEB21624EA2CBF35BC4EA423721CDC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708775   (112916) от 22.03.2024
+
+Codepoint for Mac 1.16 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
+Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8893BD265CA27760A0E47B98A5D02218002ECF1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708849   (112917) от 22.03.2024
+
+Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering Moonlight Groove (3:42)
+02. Good Mood Music Academy - Smooth Velvet Serenade (3:17)
+03. Twilight Tranquility Tune (3:33)
+04. Good Mood Music Academy - Evening Bliss Melody (3:13)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6B12079ACDAA6577350D899B633A5ED9037850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708999   (112918) от 22.03.2024
 
 Soultrace - Born Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -262,420 +689,6 @@ Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:641AAF879A0740C7F2F0DBE784D8508ECE102B63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708846   (112928) от 22.03.2024
-
-Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Old Days (3:33)
-02. The Clincher (4:14)
-03. Faraway Love (3:55)
-04. Magazine Street (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8466D2B303A4AE7B2B24ADD42AE411C9F2CEC474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708814   (112929) от 22.03.2024
-
-Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Nights (3:12)
-02. Sentimental Dreaming (3:20)
-03. Breath of the Moon (2:51)
-04. Waterfall (2:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0B21027D4074D720718A4FAAD9EC4374C846C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708959   (112930) от 22.03.2024
-
-Magic Disk Cleaner 2.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2022-2024 Sascha SimonПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2275022E2C29F231FD6928FCBE29CA56DB309195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708871   (112931) от 22.03.2024
-
-Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Brother
-02. Take It Like A Man
-03. Nice Girl
-04. Earth Mother(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B167F93C1506393414E24B4126D7AE601D80630
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708824   (112932) от 22.03.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Призрак в опере (2023) [MP3, Галина Горыня]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот ведь как бывает! Пойдешь в оперу смотреть модную постановку, а окажешься… в КПЗ по подозрению в убийстве! Именно такая, мягко говоря, неприятность произошла с частным детективом Татьяной Ивановой. Но сидеть за решеткой – это не для нее. Там должен оказаться настоящий убийца примадонны оперной труппы, так неудачно приехавшей на гастроли. И Татьяна Иванова начинает (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427B33489E036569CD4B36D0EACE6A9902FE72A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708921   (112933) от 22.03.2024
-
-Inner Axis - Midnight Forces (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Storm
-02. Strike Of The Cobra
-03. Midnight Hunter (2023 Master)
-04. This Is The Way(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065FEA022C25DA4F3C088164D19A7DD7559AC175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708803   (112934) от 22.03.2024
-
-VA - Miami Hits 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Christina Novelli - Fireflies (Extended Full Fire Mix) [7:22]
-02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
-03. SMR LVE & Jennifer Rene - Stay (Christopher Corrigan Extended Remix) [7:35]
-04. Michael Milov & Josie Sandfeld - Free (Extended Mix) [4:46](   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF763D151C55FD0E69DD6E62EF17CF66ACEE588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708984   (112935) от 22.03.2024
-
-Firefox Browser 124.0.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE592973040A74A64BBAFCBB82D605BE483E208
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708818   (112936) от 22.03.2024
-
-Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Bullet (3:25)
-02. Freewheelin' (3:01)
-03. Class Of '84 (3:48)
-04. Shining Heart (3:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA785C8B65D5B2B3EEE1AA70B54BC8E78760B947
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708786   (112937) от 22.03.2024
-
-VA - Gym Beast Mode Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail The Villain - Runaway (3:11)
-02. Billy Talent - Try Honesty (4:15)
-03. Linkin Park - Numb (3:07)
-04. Green Day - The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B34CBAC36B04C813872335A261174F67054C2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708830   (112938) от 22.03.2024
-
-Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Act of God
-02 – Real Power
-03 – Don’t Be Afraid
-04 – Crazy Again(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD90E37DCEE003E899660282B06BB8780036B2D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708973   (112939) от 22.03.2024
-
-О. Генри | Короли и капуста (2004) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Антология юмора и сатиры.
-О. Генри (O. Henry) (настоящее имя Уильям Сидни Портер, Porter) (1862–1910) – американский писатель юморист, непревзойденный мастер короткого рассказа.
-«Короли и капуста» (1904) – сатирическая притча об авантюрах американской жизни. Книга поражает занимательным сюжетом и парадоксально неожиданной развязкой. В ней есть всё – «...и (   Читать дальше...   )Жанр: Зарубежная литература, классика, юмор, притчаИздательство: Студия «АРДИС»Продолжительность: 08:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF986A8488200ABD5CC962B2631548D1A493118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708857   (112940) от 22.03.2024
-
-Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café de Luxe (4:11)
-02. Soft and Slow (3:33)
-03. Midnight Easy Listening (3:35)
-04. I Love Sax (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD8C313E091487E972B2EFD2F757F625B7FEF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708961   (112941) от 22.03.2024
-
-RAW Power 3.4.20 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C351F6974D1AE4A1F0A5BDAB369DCAFDE3C0C61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708723   (112942) от 22.03.2024
-
-QOwnNotes 24.3.4 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112942.jpg" />
-</div>
-
-
-###  Подробнее
-
-QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2B24C0ABC322E197A371C59D134D72331019E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708850   (112943) от 22.03.2024
-
-Анна Киса | Мы не специально (2024) [MP3, Жанна Дементьева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда моя беременная подруга попросила прийти на работу пораньше, чтобы она смогла сходить к врачу, я и не думала, что нас затащит в портал, да не одних, а с чужим ребёнком. Теперь придётся осваиваться и искать путь назад, ведь мальчика надо вернуть родителям, а вот хочу ли я вернуться сама, уже не уверена. Как я объясню полиции, что мы не специально похитили ребёнка, (   Читать дальше...   )Жанр: Любовное фэнтези,юмористическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993C46E84417029010018DD24BE490F8CCBFA64F
 ```
 
 

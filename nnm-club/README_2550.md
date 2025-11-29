@@ -1,3 +1,57 @@
+###  Публикация: 1795545   (67046) от 05.05.2025
+
+Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foeman's Flesh
+02. Desolation Hexx
+03. Total Bicep
+04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795564   (67047) от 05.05.2025
+
+Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maniac Attack
+02. Eye of the Night
+03. Call of the Void
+04. KIA(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795552   (67048) от 05.05.2025
 
 Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
@@ -628,60 +682,6 @@ magnet:?xt=urn:btih:B834BFA02CAC90C84DBB640F47DC935083580049
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1B1A32296BA8959743B280CB681996872D23DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795481   (67072) от 04.05.2025
-
-She Brought Me Gasoline - Songs from the Cliff (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swirling Leaves (3:40)
-02.  The Last Rocket (3:36)
-03.  Sugar (3:43)
-04.  Sister (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02069CCDDCE5FAB4BD6278D5364EF8172DF8D0C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795478   (67073) от 04.05.2025
-
-Ricky Byrd - NYC Made (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  (Ya Get) 1 Life (3:09)
-02.  Glamdemic Blues (3:19)
-03.  Rhapsody in Blues (One for Jeff) (3:05)
-04.  Sweet Byrd of Youte (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C307F0E633F1029CDA898E09FD0222C3DFFEEA09
 ```
 
 

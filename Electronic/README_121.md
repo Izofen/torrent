@@ -1,3 +1,57 @@
+###  Публикация: 1589140   (190363) от 09.11.2022
+
+Cyber Space - In The Beginning (2007) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning
+02. Theme From Cyber Space
+03. Space Fly
+04. Space Rangers(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08266D8A892C68F2705F9B62D0D377E7A5958EBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658754   (190394) от 10.09.2023
+
+The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Beat, Electropop>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Live Again [00:05:09]
+03. No Reason [00:04:52]
+04. Goodbye [00:05:49](   Читать дальше...   )Жанр: Big Beat, ElectropopПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849A125B51165F4198106B01D690C669A012C1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658865   (190439) от 10.09.2023
 
 Alien Vampires - Return Me To Hell (2023) 2CD, Uncensored version [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Experimental>
@@ -152,6 +206,33 @@ Classic Essential Mix - это еженедельное радиошоу, где
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589202   (190631) от 08.11.2022
+
+VA - SkyTop Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deep Lark, Makosh -  Sentimental Crying (Cosmonaut Dub)  (5:38)
+02.  QDream -  Ritual  (7:17)
+03.  Dowden -  Paladin  (7:00)
+04.  Envotion -  Aero  (7:37)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6FD4CC608864A83189B7E66291B7AC708A5CBF
 ```
 
 
@@ -611,87 +692,6 @@ Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657610   (192436) от 04.09.2023
-
-The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Dream Wave, Electronic, Songwriter, Synth Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_192436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes (Live) [00:06:11]
-02. Change Your Heart or Die (Live) [00:03:13]
-03. Brooklyn. Friday. Love. (Live) [00:04:08]
-04. Gloria (Live) [00:04:39](   Читать дальше...   )Жанр: Dream Wave, Electronic, Songwriter, Synth PopПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEA008B26A168B94666712FBD60F3B09ADC1657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587548   (192669) от 31.10.2022
-
-about : river - 24 Years Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Cats (7:00)
- 02. Frozen (5:16)
- 03. Snowing Inside (7:17)
- 04. Two Birds (5:22)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B8ABA9C8D2442F8F65114D2CEBAC6CDA85ED17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587261   (192811) от 30.10.2022
-
-VA - Wonderful Days - Best of 90s Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Techno, Hard Trance, Progressive, Euro House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marusha - It Takes Me Away
-02. RMB - Redemption (1994 Original)
-03. JL - The Future
-04. Andre Visior - Speed Up (Luvstruck 2002) (Radio Edit)(   Читать дальше...   )Жанр: Techno, Hard Trance, Progressive, Euro HouseПродолжительность: 03:15:40 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315666731FF37C18737BFD8E1E54E4345370F4FC
 ```
 
 

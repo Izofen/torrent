@@ -1,3 +1,84 @@
+###  Публикация: 1639097   (197265) от 11.06.2023
+
+Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Rain (4:22)
+02. Super VHS (4:00)
+03. Metropolis (4:12)
+04. Reconnect (3:27)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB1225F06451D3A5D056A69FCFD9257F2BBE770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632463   (198673) от 10.05.2023
+
+Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image + .cue] <Synthpop, Eurodisco, Europop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop For A Minute (Extended Version)
+02. Maria Magdalena (Extended Version)
+03. In The Heart Of The Night (Extended Version)
+04. Little Girl (Extended Version)(   Читать дальше...   )Жанр: Synthpop, Eurodisco, EuropopПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F1AE221EBA9278903B060C91CA768EB9DB7FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632495   (198705) от 10.05.2023
+
+VA - Car Music 2023: Best Road Trip Songs [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Stand By Me (2:47)
+02. Rinat Bibikov - Beautiful Life (3:09)
+03. Lorenz Koin - A Million Times (2:27)
+04. Awstin Shanu - Satellites (2:18)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB7F4D7898D3E589569AFAED0830FBE64F45EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629929   (199241) от 28.04.2023
 
 Armin van Buuren - Feel Again (2023) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive House, Dance>
@@ -611,87 +692,6 @@ Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68117C3A13DF9951E86868427178601AC06B9E07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655699   (203522) от 29.08.2023
-
-VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_203522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr House - Ibiza Dreams (Original Mix) [5:51]
-02. Andy Jornee & Trance Girl - The World Is Your Home (V2Edit) [8:00]
-03. Claus Backslash - Spiritual Elements (Original Mix) [3:21]
-04. Diego Morrill - Rhenium (Original Mix) [3:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D20B1DD7200A41CFE66768C17BD175CE116132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655772   (203580) от 29.08.2023
-
-VA - Trance Travel Hits 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_203580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Meretskiy - Late At Night (Extended Mix) [6:48]
-02. Reborn Sound System - PROJECT 7 (Original Mix) [6:39]
-03. Cristanodj - Revolution (Extended Mix) [5:45]
-04. Vahid Ghandizadeh - Cosmos (Original Mix) [6:35](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD00DFBA63C41C1D90195F2A9055151E7C358F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656220   (203592) от 29.08.2023
-
-Faro - Mosaic Of Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_203592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primal [00:05:00]
-02. Passion [00:05:36]
-03. Surya [00:05:12]
-04. Across the Ocean [00:06:30](   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0A324D2D47C6C42FD9F23A86776A050426731A
 ```
 
 

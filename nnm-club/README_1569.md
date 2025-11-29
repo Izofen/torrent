@@ -1,3 +1,53 @@
+###  Публикация: 1754052   (41147) от 08.10.2024
+
+KMSoffline 2.4.5 Portable by Ratiborus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё один активатор от Ratiborus, который поможет Вам активировать :
+Windows Vista, 7, Windows 8, 8.1, 10, 11 Server 2008, 2008 R2, 2012, 2012 R2, 2016, 2019, Office 2010/2013/2016/2019/2021.
+Активация выполняется или от встроенного KMS-Service, или от сервера в сети.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387BAFB66FA6696DB4FA6E661616D7E620F8461E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753949   (41148) от 08.10.2024
+
+Фюрер и растлитель / Fuhrer und Verfuhrer / Goebbels and the Fuhrer (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министр пропаганды Третьего Рейха Йозеф Геббельс отвечает за формирование общественного мнения, которое должно одобрять Холокост, и войну, которую вот-вот начнет Гитлер. Он вынужден пожертвовать личными интересами ради идеологии.Производство: Германия, Словакия / Act HeadQuarter Media, Maya, Südwestrundfunk (SWR)Жанр: драма, военный, биография, историяРежиссер: Йоахим ЛангАктеры: Роберт Штадлобер, Фриц Карл, Франциска Вайс, Доминик Марингер, Мориц Фюрманн, Till Firit, Кристоф Франкен, Михаэль Гланшних, Катя Феллин, Оливер ФляйшерПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: Русский, НемецкийСубтитры: Английские (Full, SDH)Продолжительность: 02:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E64658415D416F1079109F9E6D50621019A2F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752073   (41149) от 08.10.2024
 
 Тени исчезают в полдень (1971) DVDRip [H.264/1080p] (серии 1-7 из 7) [Handmade Upscale AI]
@@ -605,60 +655,6 @@ magnet:?xt=urn:btih:D6D11CA99A71A723DE3D61D2857885C2E5EAE5F1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB07C4865CCE7746E88614A2B66CA34A5C6CE1AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753609   (41173) от 07.10.2024
-
-VA - Trance In Motion Vol.381 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_41173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miyuki feat. Jennifer Rene - Our Song (Orchestral vs. Extended Mix)
-02. Petereese feat. Jodie Poye - Bed Of Roses (Artena Extended Remix)
-03. Johan Gielen pres. @Airscape - Piano Del Sol (Extended After Summer Mix)
-04. Robin Aristo - Trancemission (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EB59C64CAD737F4B3A21EB8847816CA63080B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753876   (41174) от 07.10.2024
-
-Romantic Piano Music Masters - Jazz Music for Sex & Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_41174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexual Piano Jazz Collection (3:15)
-02. Nostalgy Chill Out Jazz Piano (3:16)
-03. Smooth Jazz for Lovers Piano Sexual (3:46)
-04. Burning Desire Relax Your Body (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CF88B39AF1394FB3E9CA41A12740B7CAD78A5A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1806732   (65330) от 14.07.2025
+
+The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Rock, Gothic, Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Dusk(Part 1) [00:03:14]
+02. Solo Yo [00:04:30]
+03. Vampiro [00:03:19]
+04. Es Halloween [00:04:08](   Читать дальше...   )Жанр: Alt. Rock / Gothic / DarkwaveПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10082DDE80690801E1EBF190FB923CE7B88DC5EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806693   (65331) от 14.07.2025
+
+D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Little Taste (4:04)
+02.  Grown Now (3:52)
+03.  Talkin' Heavy (5:02)
+04.  PTLD (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154B3A099A4D3487DFB7F853FF8FEDE3442A7FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806752   (65332) от 14.07.2025
 
 Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending Towards Damnation [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
@@ -621,60 +675,6 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Квалифик�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFDF9EF49081B628FC5F2061DA3DAA19D521CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806538   (65356) от 13.07.2025
-
-Formless - Eon (2016) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eon
-02. Sins
-03. Salvation
-04. Vitality(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0FDC961082AF5A7C9EC07C0CAF319C3D83509D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806540   (65357) от 13.07.2025
-
-Gruesome - Fragments of Psyche (2017) (EP) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragments of Psyche
-02. Choke on It '91 (Death cover)
-03. Closed Casket (Demo Version)
-04. Gangrene (Demo Version)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B13E02069B4164135304C2342B9144DE0D8812
 ```
 
 

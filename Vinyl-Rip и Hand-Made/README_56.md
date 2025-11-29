@@ -1,3 +1,56 @@
+###  Публикация: 1639009   (211804) от 11.06.2023
+
+Janis Joplin - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half Moon
+02. Me And Bobby McGee
+03. Piece Of My Heart
+04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626297   (211882) от 09.06.2023
+
+Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gloryhammer — шотландская пауэр-метал-группа, основанная клавишником Кристофером Боузом, ведущим вокалистом группы Alestorm. Каждый участник группы представляет персонажа в сюжетной концепции. Группа появляется на сцене в доспехах и костюмах, чтобы представить своих персонажей.2013 - Tales From The Kingdom of Fife
+2015 - Space 1992: Rise of the Chaos Wizards
+2019 - Legends From Beyond The Galactic TerrorvortexЖанр: Symphonic Power MetalПродолжительность: 03:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638614   (211934) от 09.06.2023
 
 Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
@@ -619,83 +672,28 @@ magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597935   (218363) от 10.08.2023
+###  Публикация: 966329   (217951) от 18.12.2015
 
-Supermax - Full LPs Discography (1977-1992) 11LP [FLAC 2.0 24/192|image (Vinyl-Rip)]<Rock, Reggae, Funk, Synth-pop, Disco>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_218363.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Supermax» возникла в прекрасную эпоху «диско» и сразу же громко заявила о себе альбомом «Don’t Stop The Music». Их неординарность состояла в том, что они одни из первых смогли профессионально адаптировать различные мировые жанры - «соул», «фанк», «джаз», «регги» и африканские ритмы растоманов - на европейской почве, во время господства «поп-дэнса» и «диско». Огромная (   Читать дальше...   )A1. Dance Dance Dance :: 03:44
-A2. Push Push (Sexy Chocolate Girl) :: 03:08
-A3. Watch Out South Africa, Here We Come :: 03:59
-A4. Don't Stop The Music :: 06:05(   Читать дальше...   )Жанр: Rock, Reggae, Funk, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 07:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D71B7134D3CD9715CE8D997A43FAC4DA0BDDA34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585684   (218906) от 24.10.2022
-
-Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Glam Metal>
+Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Blues, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_218906.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_217951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Slaughter (Сло́тер) — американская хард-рок группа. Название группы переводится как "бойня". Марк Слотер был поклонником творчества Льва Толстого, который говорил: "Не было бы боен, не было бы войн". Но Марк Слотер решил, что "одна бойня всё-таки будет. И это будем мы!"
-Группа Slaughter была сформирована в 1988 году бывшими участниками (   Читать дальше...   )1990 - Stick It To Ya
-1992 - The Wild Life
-1995 - Fear No Evil
-1997 - Revolution(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 07:08:58
+Сторона 1
+1. Le Jardin Du Luxembourg - Люксембургский Сад  11:52
+2. Il Etait Une Fois Nous Deux - Однажды мы были вдвоем  3:52
+Сторона 2(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:32:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611370   (219213) от 09.08.2023
-
-Scorpions - 11 альбомов (1979-1993, 2004, 2007) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Hard Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_219213.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Hour I 3:27
-A2. The Game Of Life 4:06
-A3. We Were Born To Fly 4:00
-A4. The Future Never Dies 4:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FED0FD723DB627313ACDA098D448025FFD28E9
+magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
 ```
 
 

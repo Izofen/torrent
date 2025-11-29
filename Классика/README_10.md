@@ -1,3 +1,111 @@
+###  Публикация: 1635186   (242141) от 24.05.2023
+
+Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_242141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto in Istrian Style - Overture (7:49)
+02. Concerto in Istrian Style - Intermezzo (10:07)
+03. Concerto in Istrian Style - Cadenza ad libitum (9:18)
+04. Concerto in Istrian Style - Canone e Rondo (7:22)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B042E7734A5644BB56A6F182AB321176A48E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622729   (242682) от 03.04.2023
+
+Steven Ang, Tatiana Konovalova, Francesca Lee - Highlights from Verdi's Macbeth (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_242682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macbeth: Overture (Excerpt) (Live) [00:00:48]
+02. Macbeth, Act I: "Vieni, t'affretta" (Lady Macbeth) (Live) [00:07:05]
+03. Macbeth, Act I: "Sappia la sposa mia... Mi sì affaccia un pugnal" (Dagger Aria, Macbeth) (Live) [00:03:35]
+04. Macbeth, Act I: "Tutto è finito... Fatal mia donna un murmure" (Duet) (Live) [00:06:29](   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10055FF186D479A5EBBA443B04755F8C4D53FBBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623903   (242727) от 05.04.2023
+
+Autumn Tears - Guardian Of The Pale (2023) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Darkwave>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_242727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Tree [00:02:24]
+02. Of Wind, Water and Sand [00:04:59]
+03. A Requiem For Each New Day [00:04:34]
+04. Daydreaming In Ash Fields [00:05:17](   Читать дальше...   )Жанр: Neoclassical DarkwaveПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F43F0E3A5504EFAFD0296CCD21AC652DB27937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623214   (242777) от 03.04.2023
+
+VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_242777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+03. Katya Kramer-Lapin - Emily (3:00)
+04. Misha Fomin - Suite Bergamasque, L. 75 Clair de Lune (5:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427F42B2A12035E8A71306C9E36BD9578C0FACE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622963   (244009) от 30.03.2023
 
 Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De Vienne (2022) [FLAC|Lossless|image + .cue] <Classical, piano>
@@ -587,6 +695,39 @@ magnet:?xt=urn:btih:A914B4200805807B78532F557E79C6B9A214F584
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500758   (257435) от 24.05.2012
+
+Grabesmond - 2 albums (1997-1999) [FLAC/APE|Lossless] <Medieval, Neoclassical, Ethereal, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_257435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screams Of The Past (01:40)
+02. Multiscum Lacrimis (03:46)
+03. Night's Dominion (04:23)
+04. Isis Noreja (01:26)
+05. Min Svart Angel (03:57)
+06. D'Helle Phat Wirt Im Entrant (01:19)
+07. Spectacle Of Death (03:49)
+08. Blodstrцm (03:57)
+09. Fabula (01:24)
+10. Vom Wolfe (01:40)(   Читать дальше...   )1997-1999Жанр: Medieval, Neoclassical, Ethereal, AmbientПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501421   (258619) от 26.05.2012
 
 Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumental Guitar Rock>
@@ -615,145 +756,6 @@ Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83CC5100397A33998F9B385817DF0285DFF31F6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501697   (258824) от 27.05.2012
-
-Мишель Плассон, Дрезденский Филармонический Оркестр - Ференц Лист, Симфонические Поэмы (2010) (Диск 2)[FLAC|Lossless]<Classical Music>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_258824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прометей (Симфоническая поэма № 5)
-2. Что слышно на горе (Симфоническая поэма № 5)
-3. Праздничные звучания (Симфоническая поэма № 7)2010Жанр: Classical MusicПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501907   (258955) от 27.05.2012
-
-VA - Золотая классика. Популярные версии (5CD) (2003) [FLAC|Lossless]<Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_258955.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003Жанр: ClassicalПродолжительность: 05:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99343724C4DA7A80B1721984915D5F8C5EC5016B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503230   (259384) от 29.05.2012
-
-Dargaard - 4 albums (1998-2004) [FLAC|Lossless] <Darkwave, Ethereal, Neoclassical, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_259384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise And Fall (10:47)
-02. Bearer Of The Flame (04:50)
-03. Niobe (04:40)
-04. Takhisis Dance (03:58)
-05. Winter (07:01)
-06. Ave Atque Vale (06:12)
-07. Queen Of The Woods (06:42)
-08. Ancestors Of Stone (06:02)1998-2004Жанр: Darkwave, Ethereal, Neoclassical, AmbientПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838253   (259868) от 
-
-Víkingur Ólafsson, Beethoven, Bach, Schubert - Opus 109 (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_259868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bach - The Well-Tempered Clavier, Book I
-01. Prelude No. 9 in E Major, BWV 854 (1:44)Жанр: ClassicalПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA887CBDA6632089AFE081D66BFFC4ED10F0DAA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503484   (259870) от 31.05.2012
-
-Ophelia's Dream - 3 albums (1997-2004) [FLAC|Lossless] <Neoclassical, Ethereal, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_259870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Magdalen (06:57)
-02. Egredimini (03:05)
-03. Exsolutio (04:05)
-04. Saltarno (03:41)
-05. De Torrente (05:29)
-06. Amica Mea (05:13)
-07. All Beauty Is Lost (02:40)
-08. Il Vecchio Castello (05:01)
-09. Interlude I (01:09)
-10. Ladonna Wosh (04:10)(   Читать дальше...   )1997-2004Жанр: Neoclassical, Ethereal, AmbientПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 

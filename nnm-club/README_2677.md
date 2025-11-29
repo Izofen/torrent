@@ -1,3 +1,57 @@
+###  Публикация: 1780836   (70348) от 20.02.2025
+
+Nick Brignola - Like Old Times (1994) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Old Times [7:59]
+02. When Lights Are Low [10:16]
+03. Lambari [6:55]
+04. More Than You Know [7:56](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CC476AA0B78649F6BD799A645C36BBC0172521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780841   (70349) от 20.02.2025
+
+Ralph Peterson - V (1988) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy Within [7:38]
+02. Monief [6:52]
+03. The Short End of the Stick [6:45]
+04. Soweto 6 [5:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FC6ECED96E0C24C2247AAE8F94582024BE50A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780854   (70350) от 20.02.2025
 
 Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСЖ (Франция) - Брест (Франция) (19.02.2025) HDTVRip [H.264/1080p]
@@ -632,60 +686,6 @@ Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:721637B1985F02AA8CE95D7044EDF77C1F3B10A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780650   (70374) от 19.02.2025
-
-New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Hang [00:03:28]
-02. Rat People [00:03:57]
-03. Vacation [00:04:52]
-04. TV at Home [00:03:49](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4978F674BDB3EF9326C554D95C1B659DA713787D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780738   (70375) от 19.02.2025
-
-Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fools Gold (3:19)
-02.  Black Crow (3:54)
-03.  Same as Before (2:33)
-04.  Empty Tank (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCEDBF6F57D5A41173A1DC85D40ED8F2B50BF85
 ```
 
 

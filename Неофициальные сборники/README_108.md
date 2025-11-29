@@ -1,3 +1,30 @@
+###  Публикация: 1647493   (195543) от 19.07.2023
+
+VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lake Street Dive - Rich Girl (5:24)
+02. Ed Sheeran - Thinking out Loud (4:56)
+03. Aly & AJ - Slow Dancing (4:27)
+04. Luke Combs - Fast Car (4:25)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AA02E1A7C5223084F4B7041E9A4B220C0F68D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647486   (195549) от 19.07.2023
 
 VA - Heavy Blues (2023) 2CD [MP3|320 Kbps] <Blues, Heavy Blues, Dark Blues>
@@ -668,33 +695,6 @@ VA - The Only Way (Trance 2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606BA6091E66CD67E9F62C9EFD5D866AED259055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632997   (198419) от 16.05.2023
-
-VA - A State Of Trance 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Mixed) [3:59]
-02. BetweenUs - Escape (Mixed) [3:18]
-03. KASIA (ofc) - Universal Nation (Mixed) [3:45]
-04. Sonicvibe & Tachyean - Deep Dive (Mixed) [3:12](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047F62A98CCBC4ED36577614F327EC481CD7E464
 ```
 
 

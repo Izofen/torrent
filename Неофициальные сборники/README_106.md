@@ -1,3 +1,30 @@
+###  Публикация: 1658572   (191227) от 08.09.2023
+
+VA - Music News vol.295 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Icona Pop - Loving You Ain't Easy (02:35)
+ 002. Alan Walker feat. Sophie Stray & Zena Emad - Land Of The Heroes (Arabic Version) (02:53)
+ 003. Alexander Popov feat. Chester Young & Whiteout - Overtaking (VIP Mix) (02:43)
+ 004. Alma - Chasing Highs (LIZOT Remix) (02:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0C235513C3D4669BD94A0B03F4999E14E2AA39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658128   (191248) от 08.09.2023
 
 Malaya Blue - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
@@ -667,33 +694,6 @@ VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827766   (193273) от 23.10.2025
-
-VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_193273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Umar Keyn - My Love From the Past
-02 - D-Beats - Don't Сry
-03 - Dova Music - Without You
-04 - Xezzo - I Miss You(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202E5AF84E477CD6A12D2CF482C81C46D8FFDB95
 ```
 
 

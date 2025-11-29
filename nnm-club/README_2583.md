@@ -1,3 +1,57 @@
+###  Публикация: 1790954   (67904) от 12.04.2025
+
+VA - Zero Dancefloor [mixed by DJ Юrkanik] (2013) [MP3|320 Kbps] <Disco, Synth-pop, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Jock Hattle Band - To Be Or Not To Be (12'' Version)
+02. Kool And The Gang - Fresh
+03. Alphabeat - 10000 Nights (Bimbo Jones Remix)
+04. Neil Smith - Help Me Through The Summer (Vocal)(   Читать дальше...   )Жанр: Synth Pop MixПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEF2E1F92BE4BA85E3AABE416D148C40492E0D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791194   (67905) от 12.04.2025
+
+VA - Ibiza Lounge Hits (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly - Night Pulse (05:12)
+02. Sandro Marini - Dingindaya (03:46)
+03. N.E.O.N & Di Mora - Run To Me (03:30)
+04. N.E.O.N & Di Mora - Where I Wanna Go (Radio Edit) (02:46)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B04F44F499542353955BA8E6F98E8062492FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791092   (67906) от 12.04.2025
 
 Газета | Загадки истории №13 (639) (2025) [PDF]
@@ -578,57 +632,6 @@ magnet:?xt=urn:btih:02237A543B9EF6BAA5398BE26E3D403EF91AA245
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30B6FB68D74B335C26BD550FA061278C4E0CF45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791066   (67930) от 12.04.2025
-
-Фоны - STCrafts - Creative Fabrica - Aztec Fabric Digital Paper Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровые бумажные фоны на тему ацтекской ткани.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4612E6A00F502BB5E5992674C7D2D45808846501
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789770   (67931) от 12.04.2025
-
-Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил в ночном клубе «Green Valley» 14 ноября 2010 года (Бразилия). Запись ТВ трансляции была взята с Австрийского ТВ канала «ServusTV».01. PvD ft. Vega 4 - Time of our lives (UK club mix)
-02. Mike Shiver vs. Fandy - Sique (Ronski speed rmx)
-03. Tritonal - Sky nights (David Forbes rmx)
-04. John O'Callaghan ft. Sarah Howells - Find yourself (Heatbeat rmx)(   Читать дальше...   )Производство: Бразилия / Red Bull Media HouseЖанр: Trance, Progressive TranceСубтитры: Русские, английские (hardsub)Продолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
 ```
 
 

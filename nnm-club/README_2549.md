@@ -1,3 +1,55 @@
+###  Публикация: 1795702   (67020) от 06.05.2025
+
+Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undead Nightmare (07:27)
+ 02. To Neverland (04:31)
+ 03. Outstretched Arms (03:20)
+ 04. No Way Out (03:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795762   (67021) от 06.05.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 1-й матч) Флорида Пантерз - Торонто Мэйпл Лифс (05.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67021.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 мая 2025, вторник. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 031 зритель (94% при вместимости 20 270)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: setanta sportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60963C5110715B35B70AD62DAD1B7D04A0E209F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795755   (67022) от 06.05.2025
 
 Леонид Андреев | Иностранец (1996) [MP3, Сергей Бехтерев]
@@ -636,60 +688,6 @@ Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A8F8276417FF172B6EDEC3E9B553828F3FA60D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795545   (67046) от 05.05.2025
-
-Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foeman's Flesh
-02. Desolation Hexx
-03. Total Bicep
-04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795564   (67047) от 05.05.2025
-
-Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac Attack
-02. Eye of the Night
-03. Call of the Void
-04. KIA(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
 ```
 
 

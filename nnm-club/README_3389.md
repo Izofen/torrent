@@ -1,3 +1,435 @@
+###  Публикация: 1731007   (107780) от 19.06.2024
+
+VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Mercy - Where do you go (club mix)
+02. Justine Earp - Ooo la la la (voodoo club radio 1)
+03. Ally & Jo - The lion sleeps tonight (remix)
+04. Captain Hollywood Project - Love & Pain(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3734184AAC1F04B42E6E5D97B4568B7D2EDB446B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731121   (107781) от 19.06.2024
+
+Marco Gluhmann - A Fragile Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hear Our Voice (05:20)
+02 - Never Say Goodbye (05:12)
+03 - Reach Out (05:29)
+04 - Faceless (04:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C26D6F504130E780123994ABD875EBD46AB811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731096   (107782) от 19.06.2024
+
+Saidian - Evercircle (2009) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Shadows (4:32)
+02. Tokyo (3:56)
+03. Solomon's Dance (5:28)
+04. Once In My Dreams (7:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BC84066CAE3A21E4A4CDE4D60E6182076DA772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730896   (107783) от 19.06.2024
+
+Pimps of Joytime & Sophia Urista - Don't Belong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl On Girl (2:29)
+02. Drowning in Your Love (2:47)
+03. Fighter (2:51)
+04. Joy Peace (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A22D0A8D6E844D8B29E1696E4C27FE8D3291D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731206   (107784) от 19.06.2024
+
+Voraath - Vol. 1: Hymn of the Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into Perdition
+02 - The Road to Samm Hill
+03 - Waypoint Orion
+04 - Terminus Rift(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1B83981B9AA82056FC629685879F5212E4499A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731115   (107785) от 19.06.2024
+
+Bloodorn - Let The Fury Rise (2024) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture χιϛ
+02. Fear The Coming Wave
+03. Under The Secret Sign
+04. Rise Up Again(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A010E6D2584F16641376B17339254348EAD4DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731066   (107786) от 19.06.2024
+
+Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 1990, Emarcy [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Man River [6:54]
+02. I'll Get By [4:24]
+03. Medley: April in Paris/The Last Time I Saw Paris [5:06]
+04. Sleepy Lagoon [5:09](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B435DF74C4A9356C759E414E1C32F393A15EC58C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730872   (107787) от 19.06.2024
+
+Iris Official - Heart Of An Artist: Resurrection (2023) Relived Edition, 2024, DAGames Records [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descending (Relived) [00:00:15]
+02. S.O.S (Relived) [00:04:09]
+03. Draw The Line (Relived) [00:03:49]
+04. As The Lights Go Out  (Relived) [00:05:10](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C102A41EF15A08F6DA1964034844200FA7E7422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731094   (107788) от 19.06.2024
+
+Threshold - Subsurface (2004) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107788.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mission Profile 8:15
+2. Ground Control 7:10
+3. Opium 6:47
+4. Stop Dead 4:18(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ABE423C96283CD66396707E6FAEE328D6D62BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731039   (107789) от 19.06.2024
+
+Loch Vostok - Strife (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylonian Groove
+02. Summer
+03. The Apologists Are the Enablers
+04. Cadence(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F0AC6C783E6C8456F261A21EE9A55D6DEFB5E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730961   (107790) от 18.06.2024
+
+VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Long
+02. Beat System - Fresh
+03. Ice MC - Give me the Light
+04. Grandmaster Flash - If U wanna party(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D561445E3C7DC24D02DC0A8481F0357C0E50F62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730874   (107791) от 18.06.2024
+
+The Hollywood Stars - Starstruck (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't Do It Right
+02 - Taxi Driver
+03 - Bad, Bad Man
+04 - I Had a Girlfriend, Now She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCA3B6DDFDB3D8EF1129F51D02EA3796A2DA917
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730953   (107792) от 18.06.2024
+
+Shades of Thunder - Big Break (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - School's Out (00:02:55)
+02 - Airborne (00:04:00)
+03 - Shoreline (00:03:17)
+04 - Meltemi Club (00:02:44)(   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B892DA971D02FEC5BFA6531226218CD078E5792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730831   (107793) от 18.06.2024
+
+VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fools Garden - Leemon Tree
+02. R.Miles - Children
+03. Culture Beat - Crying In The Rain
+04. Scooter - Let Me Be Your Valentine(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4564E6FE0EA85FAA3B267BFCAC9AF8FCD5EBA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730900   (107794) от 18.06.2024
+
+VA - DJ Hits Vol. 61 (1996) [OGG Vobis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. President - Coco Jamboo (Extended)
+02. Backstreet Boys - Get Down (Ho Rap Edit)
+03. Carol Bailey + Alex Party - I Can't Make You Love Me (Alex Party Short Mix)
+04. Neuronic - Heaven (Motiv 8 Club Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2A550B305EB6E74272168F30384646B6A6624F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730830   (107795) от 18.06.2024
+
+VA - DJ Hits Vol. 59 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Vision - All Right (Extended Version)
+02. 740 Boyz - Bump Bump Booty Shake (Radio Version)
+03. Blumchen - Herz An Herz (Herz In Der Luft Radio Mix)
+04. Fun Factory - Doh Wah Diddy (Dee Dee Radio)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A2C8FF82F1348A7D7FD093F80F7890499FA4D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730735   (107796) от 18.06.2024
 
 Brother Chunky - Dig Deeper (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -257,421 +689,6 @@ Loch Vostok - Reveal No Secrets (2009) [FLAC|Lossless|image + .cue] <Extreme Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E5EFCB220589D9D982E9C489284C8708656973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730813   (107806) от 18.06.2024
-
-Loch Vostok - V: The Doctrine Decoded (2012) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker
-02. A Tale Of Two Kings
-03. Syndrome Of Self
-04. Citizen Cain(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E161E0BBB4DFCF3462BD98133D415E9CBD39EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730785   (107807) от 18.06.2024
-
-Loch Vostok - Dystopium (2011) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Mission Undivine
-02. Repeat Offender
-03. World Trade Dissenter
-04. Sacred Structure(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25742972EB4595CCC649E7603FB435DCF9456CF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730946   (107808) от 18.06.2024
-
-Прах моей плоти словно огромная галактика / Kudakechiru tokoro o misete ageru (2021) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107808.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Такэмия Юкико... У Хамада Киёсуми есть мечта стать героем, но до третьего класса старшей школы ему так и не выпала возможность, пока он не встретил Хурамото Хари. Она настоящий изгой, полностью не принимаемый одноклассниками, а постоянные тычки и унижения только усугубляют ситуацию. Теперь у Хамада Киёсуми есть шанс, спасти чью-то невинную (   Читать дальше...   )Производство: Япония / LDH Japan, Post Republic, The, Rapid Eye Movies, Robot CommunicationsЖанр: драма, мелодрамаРежиссер: СабуАктеры: Тайси Накагава, Анна Исии, Каи Иноваки, Кая Киёхара, Аири Мацуи, Такуми Китамура, Акико Яда, Хана Кино, Томоё Харада, Синъити ЦуцумиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (Cheshire Cat), английскиеПродолжительность: 02:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE3537158E26D6E9C32D63FB9D2283F760D7DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730947   (107809) от 18.06.2024
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 1-й тур. Группа D. Австрия - Франция (17.06.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 1-й тур. Группа D. Австрия - Франция (17.06.2024)
-СУДЬЯ Хиль Мансано (Дон-Бенито, Испания)
-Судья на линии 1: Барберо Диего (Испания)
-Судья на линии 2: Родригес Анхель Невадо (Испания)(   Читать дальше...   )Телекомпания: Матч Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3594C0E0F7B3D3D1F6B037B0CAA949E7EE96338
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730939   (107810) от 18.06.2024
-
-Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemm - Be My Lover (3:06)Жанр: Euro House, Deep HouseПродолжительность: 00:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF94F1F58E4BFAF6B5C64E6C4C52F83EE5C9608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730934   (107811) от 18.06.2024
-
-Google Chrome 126.0.6478.62 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C100C8A83B33D8BFD87FE4E49E12C052DE004364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730945   (107812) от 18.06.2024
-
-PrivaZer 4.0.87 Free + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107812.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633D43C102BDF1A3BD0E8B9F369591887CCC9686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730906   (107813) от 18.06.2024
-
-BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107813.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-6-ть песен, выпущенные на бонусном Blu-Ray диске к лимитированному изданию сингла "Sense", с онлайн концерта группы "The Day of Maid", состоявшегося 10 мая 2021.01. I Still Seek Revenge.
-02. Youth
-03. Why Why Why
-04. H-G-K(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730916   (107814) от 18.06.2024
-
-Прах моей плоти словно огромная галактика / Kudakechiru tokoro o misete ageru (2021) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107814.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Такэмия Юкико... У Хамада Киёсуми есть мечта стать героем, но до третьего класса старшей школы ему так и не выпала возможность, пока он не встретил Хурамото Хари. Она настоящий изгой, полностью не принимаемый одноклассниками, а постоянные тычки и унижения только усугубляют ситуацию. Теперь у Хамада Киёсуми есть шанс, спасти чью-то невинную (   Читать дальше...   )Производство: Япония / LDH Japan, Post Republic, The, Rapid Eye Movies, Robot CommunicationsЖанр: драма, мелодрамаРежиссер: СабуАктеры: Тайси Накагава, Анна Исии, Каи Иноваки, Кая Киёхара, Аири Мацуи, Такуми Китамура, Акико Яда, Хана Кино, Томоё Харада, Синъити ЦуцумиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (Cheshire Cat), английскиеПродолжительность: 02:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30874A3023144178B57C39F0DC94CEA478FE8FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730942   (107815) от 18.06.2024
-
-Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|tracks] <Deep House, Disco House, Future House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillymouse - Only You (Bootmasters & Visioneight remix) (4:53)Жанр: Deep House, Disco House, Future HouseПродолжительность: 00:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BFEDE46E56CF6E5713AFE13DD520FC2565BFD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730901   (107816) от 18.06.2024
-
-BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107816.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Онлайн концерт группы, состоявшийся 11 февраля 2021 и выпущенный на Blu-Ray диске 26 мая 2021.01. Intro
-02. Warning!
-03. DICE
-04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730877   (107817) от 18.06.2024
-
-Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <Disco, Nu-Disco, House, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dutch Rhythm Combo Ft. Isa GT - Alerta (Lipelis and Simple Symmetry remix) (6:30)
-02. Dutch Rhythm Combo Ft. Isa GT - Alerta (Paul Marmota remix) (4:10)
-03. Dutch Rhythm Combo with Jan Willems Ft. Isa GT – Alerta (Turntable Dubbers redub) (6:00)Жанр: Disco, Nu-Disco, House, ElectroПродолжительность: 00:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22B5D4A7A4F335ED0748A7FC572E13053DB4251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730919   (107818) от 18.06.2024
-
-Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Yo (00:03:45)
-02 - İllallah (00:03:39)
-03 - Olay (00:02:58)
-04 - Şerbetli (00:03:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5CFC7BDA180CB3500089D86B0A7D02FEFDF905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730859   (107819) от 18.06.2024
-
-VA - Валентинка для тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Евгений Коновалов - Я люблю твои глаза (3:46)
-02. Стас Михайлов - Золотое сердце (3:47)
-03. Сергей Дубровин - Сказочная женщина (4:05)
-04. Андрей Бандера - Любимая (3:52)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6946339958D820C3F18E07E1C588D821298CFE2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730861   (107820) от 18.06.2024
-
-VA - Весеннеее настроение - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Голд - Ты моя вселенная (3:50)
-02. Мила - Ты помни (3:50)
-03. Игорь Ашуров - Без тебя (3:06)
-04. Сергей Одинцов - Будь со мной (3:41)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8A9E1F0DD951C092D54790C6A2FD5001493343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731000   (107821) от 18.06.2024
-
-VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - My Love (Album Version)
-02. Fool's Garden - Wild Days (Radio Version)
-03. Deep Blue Something - Breakfast At Tiffany's
-04. Just Friends - Anytime Anyplace(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6978BCF8EF190A9313EE07D992AC905EB8A3FF
 ```
 
 

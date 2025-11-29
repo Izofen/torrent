@@ -133,6 +133,33 @@ magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059507   (190749) от 07.11.2022
+
+George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190749.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Soul Limbo
+A2 Are You Happy?
+A3 Tell It Like It Is
+A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658727   (190968) от 09.09.2023
 
 Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
@@ -668,33 +695,6 @@ A-ha  -  норвежская музыкальная группа, создан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657298   (193101) от 02.09.2023
-
-Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_193101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
-2002 - Dreamtower
-2004 - Lapse Of Reality
-2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
 ```
 
 

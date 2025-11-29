@@ -1,3 +1,423 @@
+###  Публикация: 1684585   (127545) от 16.12.2023
+
+Bill Evans Quintet - Interplay (1962) 1996, Riverside [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You and the Night and the Music [7:07]
+02. When You Wish Upon a Star [5:46]
+03. I'll Never Smile Again [6:36]
+04. Interplay [8:14](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D01CC675EFD32029FCF8D4B5AD89170F629A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684786   (127546) от 16.12.2023
+
+Nawabs Of Destruction - Rising Vengeance (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning Of The End
+02. Rising Vengeance
+03. Reincarnation
+04. Sleep Paralysis(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA5322BCAB16031CF87FD695C59C24EA6EBC672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682822   (127547) от 16.12.2023
+
+Юрий Третьяков | Рачье место (2023) [MP3, Дмитрий Гугуев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о том, как простая прогулка за раками превратилась в приключение с преодолением трудностей и неожиданными встречами.Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0119D0B8D26523AE93B269859C12CB4271E0B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684559   (127548) от 16.12.2023
+
+Ольга Ангеловская | Счастье здесь (2023) [MP3, Ольга Ангеловская]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сердце человека, его разум, сознание и подсознание – это аккумуляторы, хранители энергии счастья. В каждом человеке энергии счастья настолько много, что оно могло бы наполнить светом всех из семи миллиардов человек. Так в чем же причина того, что многие люди в современном мире не чувствуют себя счастливыми? Как открыть в себе источник этой энергии и силы? Как научиться (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: ИГ "Весь"Продолжительность: 05:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1782AABB2F6671A48AAEB4AD75270BB2D68954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684581   (127549) от 16.12.2023
+
+Пятеро на одного (16.12.2023) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBAF2729597ACE6AF94E805E6C9511FD258CEF0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684723   (127550) от 16.12.2023
+
+Sigyn - Dehumanized (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflection 00:29
+02. Dehumanized 04:04
+03. Pain Before the Void 04:46
+04. The Raven 04:25(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64837DF029A6C555ECE678B2EACE1FE9D9D2F1BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684681   (127551) от 16.12.2023
+
+Wake Arkane - Awakenings (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pathway (00:01:48)
+02 - The Eternal Return (00:05:30)
+03 - Puppets Know the Tears (00:05:27)
+04 - Venere (00:05:08)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD05CD818545CDB353836DC93A09FAE48A15C8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684597   (127552) от 16.12.2023
+
+Steel Rhino - In Rhino We Trust (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Up And Shout (4:08)
+02. Strike (4:04)
+03. Blades (4:09)
+04. We Rise (4:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA486956C5864BE09F2D6CC9B26AE45BD0DA4A78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684730   (127553) от 16.12.2023
+
+Наша банда. Куриный корм / Our Gang. Chicken Feed (1927) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершенно удивительное, магическое шоу. Волшебник с помощью заклинаний и магического порошка превращает людей в различных животных. По настоящему! Взаправду! Предприимчевые мальчишки тщательно записали все действия и заклинания мага. И стащили позаимствовали на время немного волшебного порошка. И попробовали повторить превращения. И получилось. Но в какой-то момент (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт А. МакГоун, Charles OelzeАктеры: Джо Кобб, Джеки Кондон, Аллен ’Фарина’ Хоскинс, Джэнни Хоскинс, Скутер Лоури, Джей Р. Смит, Клифтон Янг, Jimmy Boudwin, Джин Дарлинг, Джонни ДаунсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42434B7CB5C9E510BB848672A31DC04D4648C28B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684689   (127554) от 16.12.2023
+
+Solitary Sabred - Temple of the Serpent (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echoes from the Tomb (00:01:49)
+02 - The Skeleton King (00:02:53)
+03 - Spectral Domain (00:04:20)
+04 - Bound by the Lich (00:03:21)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE151F08D202E1A5A9D8F9462B5750A7F8F1457B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684670   (127555) от 16.12.2023
+
+Colliding Worlds - Colliding Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - As The Sun Turns Cold (00:08:40)
+02 - Broken Memories (00:06:03)
+03 - The Undying Yearning (00:08:12)
+04 - Colliding Worlds (00:10:42)(   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFDFBC58ED24F5DB11702383D9C8BCE51A93FA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684642   (127556) от 16.12.2023
+
+Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Susan [4:48]
+02. Mango Song [4:25]
+03. My One and Only Love [4:12]
+04. Tricotism [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2433988695D7EF09E18FA81B89DDB2F1380DDCFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684522   (127557) от 16.12.2023
+
+The Raven Age - Darkness Will Rise (2017) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Darkness Will Rise
+02. Promised Land
+03. Age Of The Raven
+04. The Death March(   Читать дальше...   )Жанр: Melodic Groove Metal, MetalcoreПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5C9569E4C3EEEE952D4D5FF888FAB399CD486B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684576   (127558) от 16.12.2023
+
+The Raven Age - Exile (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man's Land (05:10)
+02. Wait For Me (04:30)
+03. Fireflies (07:42)
+04. As The World Stood Still (05:10)(   Читать дальше...   )Жанр: Melodic Groove Metal, MetalcoreПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35094ED780B94FEB43A0B18EC6F8DAC5A4E2F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684507   (127559) от 16.12.2023
+
+Imago Imperii - A Tale Of Darkness And Hope (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Memories From Hell (Instrumental)
+02 Look At The Stars
+03 Forbidden Love
+04 The Accusation(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85D45D0B74790F1B728145D3974F35B6D66A95A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684656   (127560) от 16.12.2023
+
+Swarm Chain - Looming Darkness (2022) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Hunters
+02 Worms
+03 Witch Of The Wood
+04 Looming Darkness(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38796F5F88ACACF3AA40A6AF1995B620EC72B242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684685   (127561) от 16.12.2023
 
 Журнал | ТН звёзды №50 (Декабрь 2023) [PDF]
@@ -254,429 +674,6 @@ magnet:?xt=urn:btih:95852CF71B279C17184BEE994A1F3C758915E923
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47FD9A5856C5E3CEC485859599030EC642C5B467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684686   (127571) от 16.12.2023
-
-Благовест | Акафист святой блаженной Матроне Московской (2012) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127571.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюру вошел акафист святой блаженной Матроне Московской и ее краткая биография.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220A73541992D434F86F5E86783753CDAD8F11E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684746   (127572) от 16.12.2023
-
-Unicorn - You Are (2023) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Prog Pop, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are [00:04:46]
-02. Fear [00:02:22]
-03. Original Sin [00:03:00]
-04. 12 Days [00:03:12](   Читать дальше...   )Жанр: Crossover Prog, Prog Pop, Female VocalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E42F11100B8C915AC6F98BAEB78076D48442C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684476   (127573) от 16.12.2023
-
-Зимовье зверей | Русская народная сказка (2021) [MP3, Надежда Шмидт]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка учит быть дружными, все дела делать сообща, учит быть предусмотрительными и осторожными. Учит прощать ошибки своим друзьям.Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 00:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A3E59338390D145CE27E59B66932F7CF83DC4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684664   (127574) от 16.12.2023
-
-Lamori - Ave Valkyria (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ave Valkyria
-02 - Insomnia
-03 - Valley of Great Dismay
-04 - Requiem(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5524A7C07723C1444DA5541A20FBF267DFD4767A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684710   (127575) от 16.12.2023
-
-Lee Gallagher - The Falcon Ate the Flower (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Planes (00:06:29)
-02 - Peregrine Fly (00:03:40)
-03 - Something Better (00:06:05)
-04 - Half Lit (The Future's Ours) (00:03:13)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A998E88A54A0A3A0F06F9162A1B1D369CFF1E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684805   (127576) от 16.12.2023
-
-Stuka Squadron - Zeppelin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Totenmarsch (Anthem Of The Subterranea)
-02. Pit Of Fire
-03. The Last Valkyrie
-04. Tiger II(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C6AAC3BB9A2495E0DAC45FAF1F39C43CD500AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684506   (127577) от 16.12.2023
-
-Икотка - Распад (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Немирье (Притча)
-02. Бурю Утешают (Заклятие I)
-03. Грязь и Хмель (Заклятие II)
-04. Оттерпеться от Пытки (Покаяние)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA20B7A94C7A59350A3E93BDB71794AD3CDA164B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684613   (127578) от 16.12.2023
-
-Moongates Guardian - Broken Sword (2022) Compilation [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Winter Without A Spring 6:32
-02 For Those About To Rock (AC/DC cover) 5:38
-03 Broken Sword 5:02
-04 Tulkas 2:06(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C71168E078211C3DC1CEEB626F77ADCA2B05AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684611   (127579) от 16.12.2023
-
-In Vision - Manuscript (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Insainity Side
-02 Manuscript
-03 Somebody Love
-04 Pray(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50DE41E1A89B0E2CB0006563389AC7C857096DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684732   (127580) от 16.12.2023
-
-Штыкнож - Гекатомбиум (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Industrial Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро исконное [00:01:30]
-02. Тащите всё с чего прёт [00:06:04]
-03. Настоящий фейк [00:03:54]
-04. Девочка без головы [00:07:14](   Читать дальше...   )Жанр: Alternative Rock, Industrial Rock, Post-PunkПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6291D424E8401961E26FBFCB04E47707EA0428F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684635   (127581) от 16.12.2023
-
-V.A. - Lounge Freebeat, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightview - Cafe Bar (Lounge Mix)
-02. Soundset City - You Are My Angel (Smooth Instrumental Lounge Mix)
-03. Nightbar Jazz - Deep Drip
-04. Jazzy System - Apple Tree(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DB2FA455C833A112E81F3CDA481638A276C6C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684336   (127582) от 16.12.2023
-
-VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate - The Truth 2.0 (Extended Mix) [6:07]
-02. Dennis Sheperd & Gid Sedgwick - Happier Than Now (Extended Mix) [5:01]
-03. Markus Schulz & Emma Hewitt - Till We Fade (Extended Mix) [6:43]
-04. Greg Oakland feat. Jaime Deraz - Ethereal (Extended Mix) [5:19](   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA6D4FF1FAFBEAD191E3AC0AB726447831132E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684596   (127583) от 16.12.2023
-
-Photo Lab PRO v3.12.83 Mod by Mixroot, LEEAPK [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 15.12.2023Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88620C480137447C517BD4CEA6F45E0A892DF0D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684675   (127584) от 16.12.2023
-
-Palace Of The King - Friends In Low Places (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Children Of The Evolution (00:02:08)
-02 - A Run For Your Money (00:03:55)
-03 - Friends In Low Places (00:02:29)
-04 - Get Right With Your Maker (00:04:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CDB07CD6D064266E0867A69128A5F926CFA828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684668   (127585) от 16.12.2023
-
-Мэйби Бэйби - SHAWTY (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, My Name Is Baby (00:02:20)
-02. DURAGA (00:02:22)
-03. Принцесса Диана (00:03:20)
-04. Ice Baby (00:02:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECFC67FE9109AA38FD207CC404B7A1E2AE8CE54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684639   (127586) от 16.12.2023
-
-The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Deluxe, 2023, American Recordings Catalog P&D [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Rock & Roll, Sou ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Speak No Slave (Live In Houston, TX. 2/6/1993) (5:14)
-02. Sting Me (Live In Houston, TX. 2/6/1993) (5:02)
-03. My Morning Song (Live In Houston, TX. 2/6/1993) (8:53)
-04. Jam (Live In Houston, TX. 2/6/1993) (7:41)(   Читать дальше...   )Жанр: Blues rock, Rock & Roll, Southern Rock, Hard RockПродолжительность: 3CD, 02:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
 ```
 
 

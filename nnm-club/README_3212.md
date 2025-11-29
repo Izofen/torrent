@@ -1,3 +1,423 @@
+###  Публикация: 1760371   (103177) от 13.11.2024
+
+Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sittin' Here Writing This Song (3:49)
+02. Darling You Soothe My Soul (3:17)
+03. Honey Blues (5:54)
+04. Lady of the Sea (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F88E228B9177C90758DC5717BAB110A0021E515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760311   (103178) от 13.11.2024
+
+Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Defender
+03. Never Surrender
+04. Dirge(   Читать дальше...   )Жанр: Heavy Epic, Doom MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D655B94FAB692439B314E88698FBE7AF90A621F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760362   (103179) от 13.11.2024
+
+Jim Keays - Caledonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting For The Big One (5:34)
+02. Can't Find My Way Home (3:04)
+03. When Your Ship Is Sinking (3:43)
+04. Our Kingdom Gone (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8074332B83A9435E339FFE918695BDE8AAD4C6F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760360   (103180) от 13.11.2024
+
+Jersey Julie Band - Multiball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Days Alone (4:17)
+02. Go Go Power (3:26)
+03. Effingham (4:51)
+04. Tears on My Face (5:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECA17FD78A78CD8AC6E3A377063031617AA9258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760356   (103181) от 13.11.2024
+
+Bubba Coon - Tthe Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pirates Lament (2:43)
+02. I Dont Like People (3:50)
+03. Might Be a Good Day (3:54)
+04. Hard Road (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB4275D5744C5BD3CA5633F709A857AD339C5E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760328   (103182) от 13.11.2024
+
+Heathensun - Murda Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:31]
+02. Life Is Sweet [00:03:22]
+03. Get A Grip [00:03:54]
+04. No Ragrets [00:03:18](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813FF1E48E4B039BB18C44C0E14B84D4C40B874F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760260   (103183) от 13.11.2024
+
+Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [5:15]
+02. United Blues [3:38]
+03. Prelude to a Kiss [5:15]
+04. C Jam Blues [4:25](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12AE4BD29F6D8E934714DA7B3504865D4FDEB42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760372   (103184) от 13.11.2024
+
+Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicken Shack (3:25)
+02. Shake Your Hips (3:15)
+03. Who Do You Think You Are? (3:42)
+04. What's Shakin' (2:07)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE13E878D971DDC79FFBC61D27A58C520084010
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760261   (103185) от 13.11.2024
+
+Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets of the City [6:28]
+02. Just a Little While to Stay Here [7:38]
+03. Old Rugged Cross [8:54]
+04. Precious Lord, Lead Me On [6:54](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AEF5EDF550A8AA3E50968E3DDFD7F8449011DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760173   (103186) от 12.11.2024
+
+Журнал | Сваты. Заготовки №11 (115) (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103186.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B68C8FDFD184190FAD49A3668F713AF53059F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760124   (103187) от 12.11.2024
+
+Журнал | Живу с диабетом №11 (71) (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8620799F1E95AECC194E61B207CF8D3F8DA2325C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760153   (103188) от 12.11.2024
+
+PeaZip 10.1.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103188.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C74EBD41FD9AE6629A1D5C79DF4C1CCDC69CEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758788   (103189) от 12.11.2024
+
+Никто никого не знает / Nadie conoce a nadie (1999) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симон - начинающий писатель, зарабатывающий составлением кроссвордов для газет. Однажды кто-то оставляет ему сообщение на автоответчик: в ближайшем кроссворде должно содержаться слово “враг”... Так начинается серия кошмарных событий, в результате которых Симон начинает сомневаться в себе, в своём таланте, в своих друзьях. Теперь всё не так, как кажется, и никто никого (   Читать дальше...   )Производство: Испания / Canal Sur Televisión S.A., Canal+ España, D.M.V.B. Films...Жанр: драма, триллерРежиссер: Матео ХильАктеры: Эдуардо Норьега, Хорди Молья, Наталия Вербеке, Пас Вега, Педро Альварес-Оссорио, Мауро Рибера, Хесус Ольмедо, Криспуло Кабесас, Хосерра Кадиньянос, Хосе Мануэль СедаПеревод: Профессиональный одноголосыйЯзык озвучки: русский, испанскийСубтитры: английскиеПродолжительность: 01:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07A5AB04C5A2A95B9FC7B3EFA47D595337045D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759950   (103190) от 12.11.2024
+
+Julien Dore - Imposteur (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Pourvu qu’elles soient douces
+02 – Mourir sur scŠne
+03 – Toutes les femmes de ta vie
+04 – Les d‚mons de minuit(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CE307872E60A8BC00AE586DFFDD60F128F4BC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759676   (103191) от 12.11.2024
+
+VA - Девчонки R'n'B (2007) [WavPack|Lossless|image + .cue] <Pop Rap, RnB/Swing>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лигалайз И гр. "Бархат"–Я Хочу Быть С Тобой
+ 02. Настя Задорожная-Бесконечность
+ 03. Vektra–Воплощение Любви
+ 04. Сью–Привет От Сюзи(   Читать дальше...   )Жанр: Pop Rap, RnB/SwingПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63034CD6CE54CDC7761860F9CC33763C6C39B81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760208   (103192) от 12.11.2024
+
+Karfagen - Mysterious Forest: The Working Tapes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture 1124 [00:01:26]
+02. Mysterious Forest (Part 4) [00:07:12]
+03. Gold Dust [00:01:07]
+04. Mysterious Forest Intermezzo [00:01:39](   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, Art RockПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272B2588F016DA60DC596FFAED3117C5F1981874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759948   (103193) от 12.11.2024
 
 Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [MP3|320 Kbps] <Soul, Soulful House, Deep House>
@@ -258,435 +678,6 @@ Kingfisher Sky - Feeding The Wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88845489D3FA83AE881D143C6EB929527E346C98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759631   (103203) от 10.11.2024
-
-The Tragically Hip - Up To Here (1989) Deluxe Edition, Remastered, 2024, Universal Music Canada[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hailstone Hands Of God (1988 Demo) (4:00)
-02. When The Weight Comes Down (1988 Demo) (4:25)
-03. I'll Believe In You (Or I'll Be Leaving You Tonight) (1988 Demo) (4:04)
-04. New Orleans Is Sinking (1988 Demo) (3:35)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 3CD, 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C7A2E34C4D1337B2084234F0D5EE9759DF0329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759772   (103204) от 10.11.2024
-
-Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [FLAC 24/192|Lossless|WEB-DL|tracks] <Gospel rock, country, roots music>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Death Song (5:02)
-02. I Hear The Rain (1:32)
-03. Never Tell (7:09)
-04. Jesus Walking On The Water (3:08)(   Читать дальше...   )Жанр: Gospel rock, country, roots musicПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFAE98D59589C2814A528C00988DA7D528DEBE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759763   (103205) от 10.11.2024
-
-Timothy Drury - Timothy Drury (1996) [FLAC|Lossless|image + .cue] <West Coast, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Kind Of Love (3:54)
-02. Can't Help Ourselves (5:30)
-03. I Know You (4:42)
-04. Kiss You Like This (4:38)(   Читать дальше...   )Жанр: West Coast, Soft RockПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38C432D400080C751092FD70977AE019AEBB7A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759753   (103206) от 10.11.2024
-
-Captain Black Beard - Sonic Forces (2020) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mission | A
-01. Headlights (3:32)
-02. Lights & Shadows (3:10)
-03. Disco Volante (3:37)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8578BEA0AB917149DD7EF1219A854DCEC9283DAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759768   (103207) от 10.11.2024
-
-Первая передача на НТВ. Автомобильная передача (10.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прабабушка питерского такси: что она делает с кидалами — теми, кто не хочет за поездку платить?
-  Непревзойденный немецкий автопром: капут подкрался незаметно? Неужели «Поло» и «Пассаты» с «Гольфами» скоро в мясных лавках будут продавать?
- Автонедвижимость: что делать с брошенными машинами во дворах.
- Дробилка, измельчитель, ножницы и даже бетономешалка для автомобиля: (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFBEA5A80140B369678AC6AF4135927E26A5BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759739   (103208) от 10.11.2024
-
-Alice in Chains - Los Angeles 1990 (1990) HQ Remaster, 2024, TimeLine [MP3|320 Kbps] <Alternative Rock, Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Radio Intro (Live) [00:00:34]
-02 - It Ain't Like That (Live) [00:04:28]
-03 - Man in the Box (Live) [00:04:37]
-04 - Sea of Sorrow (Live) [00:05:19](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F46F63C7164B8EFB3AB6DDD291D1E2C57D38E83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759855   (103209) от 10.11.2024
-
-1349 - The Wolf And The King (2024) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The God Devourer (5:10)
-02. Ash of Ages (5:27)
-03. Shadow Point (3:40)
-04. Inferior Pathways (4:29)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124133C0A420D4BDD422D77A9F0D505B900055C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759873   (103210) от 10.11.2024
-
-Impellitteri - War Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Machine (3:34)
-02. Out Of My Mind (Heavy Metal) (4:21)
-03. Superkingdom (4:03)
-04. Wrathchild (3:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FD3EB708B9F207ECFA7E1DA3E6B29545F7D1D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759883   (103211) от 10.11.2024
-
-Wormed - Omegon (2024) [FLAC|Lossless|image + .cue] <Death Metal, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automaton Virtulague (4:13)
-02. Pareidolia Robotica (4:56)
-03. Protogod (4:49)
-04. Pleoverse Omninertia (3:45)(   Читать дальше...   )Жанр: Death Metal, Technical Death MetalПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC932B47E50682654C7C85463E73E710DCF04043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759847   (103212) от 10.11.2024
-
-Своя игра (10.11.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103212.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D20368798BB51DB5F9D9911E2EB0C021AF495A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759782   (103213) от 10.11.2024
-
-Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Йога или спирт
-02. Гоа
-03. Зелена фея
-04. Качели летящие вверх (Сообщение)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606212EDBDE8F4A8B6E42C3572ED62374153DB00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759780   (103214) от 10.11.2024
-
-Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [MP3|320 Kbps] <Gospel rock, country, roots music>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Death Song (5:02)
-02. I Hear The Rain (1:32)
-03. Never Tell (7:09)
-04. Jesus Walking On The Water (3:08)(   Читать дальше...   )Жанр: Gospel rock, country, roots musicПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA9EE628EA755A194CEE441A7C2000A6A5286F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759904   (103215) от 10.11.2024
-
-Skinny Hightower - THE MAN (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THE MAN (3:20)
-02. FREE INDEED (4:04)
-03. THAT'S ALRIGHT (5:31)
-04. THE GREATEST IS LOVE (4:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C55BF7C9AB7E80593F023CC28A84725DDD3BC6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759744   (103216) от 10.11.2024
-
-Dane Donohue - L.A. Rainbow (2024) Japanese Edition [FLAC|Lossless|image + .cue] <West Coast, Yacht Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. High Life Dream (5:18)
-2. Lonely Day In Paradise (3:52)
-3. Going Down (3:49)
-4. Chinatown (4:47)(   Читать дальше...   )Жанр: West Coast, Yacht Rock, AORПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D472F312527313611236647DF1C1DE4FE8E53FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759760   (103217) от 10.11.2024
-
-Pinnacle Point - Symphony Of Mind (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent To The Point (3:18)
-02. So Alive (6:57)
-03. Weight Of The World (4:11)
-04. Hero (6:32)(   Читать дальше...   )Жанр: Progressive Rock, AORПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CDA7B1232E2FC0F837EB58122DEC612FE873AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759886   (103218) от 10.11.2024
-
-Seventh Crystal - Entity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_103218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oathbreaker (4:16)
-02. Thirteen to One (3:53)
-03. 404 (3:39)
-04. Path of the Absurd (3:39)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB119264391EF0F8DAC2D5D65EB4DA2D0E1ABFF9
 ```
 
 

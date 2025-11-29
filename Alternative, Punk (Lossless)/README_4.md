@@ -1,3 +1,300 @@
+###  Публикация: 1753990   (103747) от 08.10.2024
+
+Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103747.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1:
+01 - MOON MUSiC [4:37]
+02 - feelslikeimfallinginlove [3:57]
+03 - WE PRAY [3:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822797   (104497) от 08.10.2025
+
+AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bird of Prey [00:03:08]
+02. Behind the Clock [00:03:57]
+03. Holy Visions [00:03:30]
+04. Blasphemy & Excess [00:03:04](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A176C8D9C9DABFCAAD8615AA6616B91A680FCC7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748261   (104563) от 09.09.2024
+
+Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore / Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation [00:04:13]
+02. Future Proof [00:03:30]
+03. Mystic Cord [00:03:01]
+04. Third [00:03:12](   Читать дальше...   )Жанр: Chaotic Hardcore / Southern RockПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44248F806AD5317F287D3DA5B61CC88DEE16BE6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747666   (104608) от 07.09.2024
+
+Conner Youngblood - Cascades, Cascading, Cascadingly (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From an Ocean, to a Lake [00:04:02]
+02. Reveille! [00:05:15]
+03. Running Through the Tøyen Arboretum in the Spring [00:04:12]
+04. All They Want Is Violence [00:03:18](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C678DA39B6A9966B5364B6BEE3B93CEB4E941390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747661   (104609) от 07.09.2024
+
+Rex Orange County - The Alexander Technique (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander [00:04:44]
+02. Guitar Song [00:03:57]
+03. 2008 [00:02:33]
+04. Therapy [00:04:05](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62296C72565AAF44C89C638C75DCB908F2421CBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746938   (104791) от 03.09.2024
+
+Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Normal Life [00:06:51]
+02. Lightning and Thunder [00:03:25]
+03. I’m Not Getting Better [00:02:47]
+04. Down To You [00:02:27](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD296AAA7608710CE3477ADCA367444A377D0972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745925   (104979) от 28.08.2024
+
+Rising Insane - Wildfires (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reign [00:03:49]
+02. Monster [00:02:52]
+03. Lighthouse [00:03:34]
+04. Malicious [00:02:56](   Читать дальше...   )Жанр: Alt.Metal, Post-Hardcore, MetalcoreПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CB3EC63EA344BCFD283EC2DA2F6618E6CB2CC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743578   (105368) от 17.08.2024
+
+Royal Blood - Royal Blood (2014) 10th Anniversary Edition, 2024, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Black [00:04:00]
+02. Come on Over [00:02:53]
+03. Figure It Out [00:03:03]
+04. You Can Be So Cruel [00:02:44](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8578CCD5149275A99FCC6157CBBEB5C35A7A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743597   (105374) от 17.08.2024
+
+SunSay - Дайвер (2010) Digipack [WavPack|Lossless|image + .cue] <Alternative Rock, Leftfield, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Будь Слабей Меня
+ 02. Брат (Feat.Fame)
+ 03. Сонин Сон
+ 04. Дайвер(   Читать дальше...   )Жанр: Alternative Rock, Leftfield, Indie RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE90C01A89785C396AA246883D427B8E5CCCF489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743596   (105379) от 17.08.2024
+
+Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pieces [00:04:30]
+02. I Want You To Know [00:04:30]
+03. Ocean In The Way [00:04:19]
+04. Plans [00:06:40](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF92F000C1E08C11B6ABB8CD415487C8D7A92035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743591   (105405) от 16.08.2024
+
+Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready? (Remastered 2024) [00:04:45]
+02. What If (Remastered 2024) [00:05:18]
+03. Beautiful (Remastered 2024) [00:04:19]
+04. Say I (Remastered 2024) [00:05:15](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3608EB2DFFF0399A0792B20D78C3222FED1BE7D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739900   (105917) от 31.07.2024
 
 James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -398,303 +695,6 @@ Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D08723FE6D69EE37CC69E321D9390D34F3A548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557726   (108581) от 01.06.2024
-
-Bolu2 Death - OBRAVIVA, Vol. 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal, Flamencore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flores (4:12)
-02. Dystopia (3:53)
-03. Donde Acaba El Mar (3:46)
-04. Go Away (3:57)(   Читать дальше...   )Жанр: Metalcore, Nu-Metal, FlamencoreПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C49EC5E1B6F0BD193919FDC182874E64AF380C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726500   (108701) от 29.05.2024
-
-Night Sins - A Silver Blade In The Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, new wave, post punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lowest Places You'll Go [00:03:47]
-02. Silver Blade [00:03:36]
-03. Burn Away [00:03:57]
-04. Like A Stranger [00:03:57](   Читать дальше...   )Жанр: industrial, new wave, post punkПродолжительность: 00:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BD0BF8E0AFDFA179F2A23E08964E10E664C9F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726465   (108708) от 29.05.2024
-
-twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. room for one [00:03:12]
-02. garden [00:03:43]
-03. cardboard boxes [00:03:22]
-04. learn yourself [00:02:49](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC00DC499119CBFD6CE0CE61AF4F210AD72AD079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726020   (108785) от 27.05.2024
-
-Stellar Circuits - Ways We Haunt (2018) Remaster, 2024, Stellar Circuits [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Visitor (2024 Remastered) [00:04:30]
-02. Skylights (2024 Remastered) [00:03:57]
-03. Fell Under a Spell (2024 Remastered) [00:04:04]
-04. Sleepless Goddess (2024 Remastered) [00:05:22](   Читать дальше...   )Жанр: Alt. Metal, Progressive RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2A65E76CA996B4810F5364881F23C0AFBEA1EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724845   (109100) от 22.05.2024
-
-Reach - Prophecy (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophecy [00:04:09]
-02. Little Dreams [00:03:05]
-03. A Beautiful Life [00:04:02]
-04. Save The World [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1ECAA804C30AA942A55D6641E6D874DA20142B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724306   (109219) от 20.05.2024
-
-Boys of Fall - Boys of Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Pop-Punk, Alternative Rock, Easycore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams [00:03:47]
-02. Chemicals [00:03:24]
-03. Lying to Myself [00:03:38]
-04. Almost Happy [00:03:47](   Читать дальше...   )Жанр: Post-Hardcore, Pop-Punk, Alternative Rock, EasycoreПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765F9C363EEDA27CC07A724DED03BE124E1732F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724298   (109283) от 19.05.2024
-
-Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Function: Intro) [00:00:25]
-02. Lightning in a Body [00:03:28]
-03. izzit [00:03:38]
-04. 151 [00:03:49](   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, MetalcoreПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E665718D0B0C29FDAC206036085557C27FB93D83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723680   (109400) от 17.05.2024
-
-Eat Defeat - My Money's On Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Coming Back [00:03:35]
-02. Slip Through The Cracks [00:03:17]
-03. Much More Than I Wanted [00:02:13]
-04. Chance Would Be A Fine Thing [00:03:51](   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6598C977FB9399E74B30639CCE5944B814F046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723076   (109580) от 14.05.2024
-
-Haunting Ghosts - Shadow Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Punk, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanitarium [00:01:12]
-02. Falling [00:04:29]
-03. Blue Iris [00:00:24]
-04. Tamsa [00:04:04](   Читать дальше...   )Жанр: Alternative Rock, Pop-Punk, Post-HardcoreПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB6FA3AB62E9C8A9DDBAF3FA302240E8FB639A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722697   (109627) от 13.05.2024
-
-Cats And Cats And Cats - Sweet Drunk Everyone (2006) ReMaster, 2024, Robot Needs Home [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post Rock, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Handshake Is a Wolf (2024 Re-Master) [00:04:25]
-02. Fight Fight With Fight (2024 Re-Master) [00:05:51]
-03. Kites (2024 Re-Master) [00:09:16]
-04. Hotel At the End of Youth (2024 Re-Master) [00:07:15](   Читать дальше...   )Жанр: Alternative, Post Rock, Math RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634171F22AB174D9BA8B773D5B541B439231ACE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722739   (109633) от 13.05.2024
-
-Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice to Know You [00:06:33]
-02. Circles [00:04:58]
-03. Wish You Were Here [00:03:32]
-04. Just a Phase [00:05:15](   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5DD81545DBEFFA216C3DED2FE563963921285E
 ```
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1627568   (242870) от 19.04.2023
+
+Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_242870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+01. Electric Delight 5:10
+02. Astral World 4:26(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381353635F50F0CE9630D9E2A81AA95AC0C0A7B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623196   (243057) от 01.04.2023
+
+Space - Magic Fly (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ambient, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_243057.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1  Пристегните Ремни 5:59
+A2  Баллада 2:17
+A3  Танго В Космосе 4:28
+A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambient, DiscoПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627156   (243080) от 18.04.2023
+
+Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243080.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tabu 1:53
+A2 Demand 4:58
+A3 Sexy Girl (LP Version) 4:57
+A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539789   (243174) от 27.03.2022
+
+The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243174.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Start Me Up
+A2 Hang Fire
+A3 Slave
+A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623884   (243215) от 03.04.2023
+
+Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539354   (243251) от 27.03.2022
 
 Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
@@ -557,138 +689,6 @@ A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621149   (245044) от 23.03.2023
-
-VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245044.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 «Червоны гитары» - Не Задирай Носа
-(С. Краевский – М. Гашинский)
-A2 Марыля Родович - Баллада О Поезде
-(А. Зелинский - А. Осецка)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631112   (245169) от 04.05.2023
-
-Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Romantic, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-Concerto no.2 in B minor
-Composed By – Giovanni Bottesini
-01. 1 I. Allegro moderato(   Читать дальше...   )Жанр: Classical, Romantic, BaroqueПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624222   (245188) от 05.04.2023
-
-The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245188.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hold On To Your Dreams (Rock Version) 4:16
-A2 Love Can Change It All 3:40
-A3 Time Will Tell 3:47
-A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620710   (245485) от 21.03.2023
-
-Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245485.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Не Променяй Съдбата Ми • Don't Change My Luck • Не меняй мою судьбу
-A2 Изморен От Чакане • Tired Of Waiting • Уставшая от ожидания
-A3 Самоубийство • Suicide
-A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623839   (245564) от 03.04.2023
-
-Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Funk / Soul, PopПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
 ```
 
 

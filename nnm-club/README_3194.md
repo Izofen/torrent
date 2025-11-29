@@ -1,3 +1,418 @@
+###  Публикация: 1764508   (102709) от 07.12.2024
+
+VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Mamacita (02:45)
+02. JLUIS - Si Te Vas (03:31)
+03. Deep Emotion - With Me (02:53)
+04. TEKTRONIC - Oldskool Vibe (02:53)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764589   (102710) от 07.12.2024
+
+Валерий Кравец | Розовая чайка (2005) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга действительного члена Русского географического общества, почетного полярника Валерия Кравца рассказывает о реальных людях и событиях, которые происходили в Арктической и Заполярной части Таймырского полуострова в 70-90-х годах прошлого столетия. Непосредственным участником этих событий был автор этих воспоминаний.
+Книга сформирована в виде серии репортажей, (   Читать дальше...   )Жанр: Путешествия, исследования АрктикиИздательство: Студия "Полярная звезда"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14EA0EED7FB46E9C45C31373280124A1196F634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764553   (102711) от 07.12.2024
+
+Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Music Collection - Saxual Bliss Nights (4:21)
+02. Sensual Lounge Music Universe - Intimate Sax Serenade (3:42)
+03. Jazzed-Up Romance (3:43)
+04. Sexual Music Collection - Saxophone Seduction (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FA3A755BDA926E207DB33224CA5A66FF85785B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764436   (102712) от 07.12.2024
+
+SnapEdit - AI photo editor v7.2.4 Mod by Oflarm [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102712.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 06.12.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A4BAB6065AC8A75C6E34182EED6FCC82635394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764385   (102713) от 07.12.2024
+
+Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102713.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Stay» — песня барбадосской певицы Рианны, записанная при участии Микки Экко, для её седьмого студийного альбома Unapologetic (2012). Музыкальное видео, сопровождающее песню показывает то, как Рианна сидит в ванне, которая заполнена мутной водой, в то время, как Микки Экко поет в отдельной ванной комнате. Видео было выпущено на официальном Vevo-аккаунте артистки (   Читать дальше...   )Жанр: Поп, R&BПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764584   (102714) от 07.12.2024
+
+Следствие вели... (07.12.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102714.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Взрыв на дороге». Это расследование вошло в историю. По нему учили не только советских, но и зарубежных сыщиков.
+1961 год. В Ярославской области ищут бандитов, взорвавших почтовую телегу. В тот день почтовая служба везла 6900 рублей… Что удалось выяснить легендарному детективу? Какую роль в этом деле сыграл театральный бинокль? И как следователям помогла знаменитая (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7E8B13E85A90C91A87BCB11EDDFE5274423082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764596   (102715) от 07.12.2024
+
+Любимые мультфильмы кота Леопольда. Выпуск 1. Мама для мамонтенка (1974-1993) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые мультфильмы кота Леопольда. Выпуск № 1: Мама для мамонтенка (Крошка Енот, Сказка о старом Эхо, Земляничный дождик, Мотылек, Еловое яблоко, Марусина карусель, В зоопарке ремонт, Кубик-рубик, Кто ж такие птички)Производство: СССР /  Союзтелефильм, ТО "Экран"Жанр: мультфильм, детский, короткометражкаРежиссер: Юлиан Калишер, Натан Лернер, Борис Тузанович, Александр Татарский, Олег ЧуркинАктеры: Зиновий Гердт, Зинаида Нарышкина, Клара Румянова, Григорий Толчинский, Рина Зеленая, Мария Виноградова, Игорь Ясулович, Людмила Гнилова, Татьяна Божок, Евгений Герчаков, Наталья Ромашенко, А. Крюков и другиеСубтитры: отсутствуютПродолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A30BF8FE2FA2793417D77F8FC6F9510447C55D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764291   (102716) от 06.12.2024
+
+Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The World
+02. Colours Of Life
+03. Burning Souls
+04. Night Demon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1B54FFC5C1899AD6CCE9DCED72F661173F01A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764287   (102717) от 06.12.2024
+
+White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood
+02. Total Evil
+03. Night Hunters
+04. Knife In The Back(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9199963400F396470E7FA952F2B34BF237D1572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764373   (102718) от 06.12.2024
+
+High Parasite - Forever We Burn (2024) [FLAC|Lossless|image + .cue] <Gothic Metal, Black Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever We Burn 3:57
+02. My Syndrome 5:33
+03. Grave Intentions 3:25
+04. Wasn't Human 3:54(   Читать дальше...   )Жанр: Gothic Metal, Black Metal, IndustrialПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C99EFEE2D8FA3E4552FF6EC5413691965608B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764279   (102719) от 06.12.2024
+
+Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [3:34]
+02. The Christmas Song (Chestnuts Roasting on an Open Fire) [4:59]
+03. Silent Night/A Child Is Born [4:30]
+04. Baby, It's Cold Outside [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19C7A5B6C76DABFA5F61060369EE2A6C8B9D920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764368   (102720) от 06.12.2024
+
+Von Panzer - Iron and Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorched Earth 04:16
+02. Iron And Steel 05:00
+03. Monte Cassino 03:49
+04. Rode Orm 03:48(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C10DF317C9041A94C74724D2341E9DFB54858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764304   (102721) от 06.12.2024
+
+My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal; Dark Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102721.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Silent Wake - группа из Северного Сомерсета, Великобритания. Образована в 2005 году.2006 - Shadow Of Sorrow
+2007 - The Anatomy Of Melancholy
+2008 - A Garland Of TearsЖанр: Gothic/Death/Doom Metal; Dark AmbientПродолжительность: 13:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF6D4F5C3B0363AE2BAAC6A8813793B441936A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764280   (102722) от 06.12.2024
+
+The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [7:03]
+02. Glad to Be Unhappy [6:54]
+03. Gee Baby, Ain't I Good to You [6:48]
+04. Secret Love [6:10](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E313CAC5839A92C16A83BD5ACA318D4BA64B1551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764277   (102723) от 06.12.2024
+
+The L.A.4 - The L.A.4 (1976) 1987, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dindi [5:56]
+02. Rainbows [6:46]
+03. Rondo Espressivo [4:45]
+04. Manteca [7:46](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB634ED188A0CEDC34490EF627258340A2391E13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764326   (102724) от 06.12.2024
+
+Врач / The Doctor (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нравоучительная история о том, что врач обязан исполнять свой долг помощи больным в любом случае, даже если приходится жертвовать для этого своими интересами.  Все достаточно прямолинейно и очевидно.Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дж. Сирл ДоулиАктеры: Чарльз Огл, Мэйбл Труннелль, Херберт Прайор, Лаура Сойер, Edna May WeickПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F9EFD9050405A77A27B62C669C5867CFED3DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764239   (102725) от 06.12.2024
 
 The Vazeline - Панк для молодых (2024) [MP3|320 Kbps] <Punk Rock>
@@ -254,435 +669,6 @@ magnet:?xt=urn:btih:B23D2ED180EA22BDD31E2215BEF8931F00CF73A3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764366   (102735) от 06.12.2024
-
-Ты супер! (2024) WEBRip [H.264/720p] (сезон 8, выпуск 1-9 из 9)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102735.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ — восьмой сезон международного детского вокального конкурса «Ты супер!». Каждую неделю на сцене проекта удивлять зрителей и жюри своими невероятными способностями будут талантливые ребята в возрасте от 7 до 18 лет, оставшиеся без попечения родителей и проживающие в детских домах, школах-интернатах, приемных и опекунских семьях. Всего в шоу принимают участие (   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~02:20:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE4C587189ED631803AD9709234087BACD60618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764196   (102736) от 06.12.2024
-
-Wynonna Judd - Wynonna (1992) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What It Takes (4:18)
-02. She Is His Only Need (4:28)
-03. I Saw the Light (3:55)
-04. My Strongest Weakness (4:21)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E77B7D48BF35A3EE3E73D780683A5512AC55484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764364   (102737) от 06.12.2024
-
-VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafo - Loud Enough (04:38)
-02. Ballester & M.SIID - Good to Me (03:37)
-03. Melih Aydogan - Between (06:28)
-04. Sharapov - Candy (Deepsan Remix) (04:44)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C462A41936E141AA257663E06C5F3521B0B265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764328   (102738) от 06.12.2024
-
-Cemetery Skyline - Nordic Gothic (2024) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torn Away 03:57
-02. In Darkness 04:46
-03. Violent Storm 04:08
-04. Behind the Lie 05:02(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00069EC54B25067E196CEA3EBCA2F216B0B76B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764230   (102739) от 06.12.2024
-
-VA - Armin van Buuren - A State Of Trance 1202 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Chasing Highs
-02. Simon Gregory – Finding Faith (nümind Remix)
-03. UUFO – Ignite (U In My Mind)
-04. AVIRA ft. Azyla – DisconnectedЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED56F9E9336E505AFA2FCB20180CB23536BE2B7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764057   (102740) от 05.12.2024
-
-Fabrizio Poggi - Healing Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shar White - I Want Jesus To Walk With Me (3:40)
-02. Pilgrim (4:04)
-03. Guy Davis - Song For Angelina (3:20)
-04. You Gotta Move Take 2 (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646F547C7C8D634927D9B587FB26A75A70D5BCC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764122   (102741) от 05.12.2024
-
-Jimmy Heath - Love And Understanding (1973) 1995, Xanadu Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Juan [7:06]
-02. In a Sentimental Mood [5:09]
-03. Heads Up! Feet Down! [7:12]
-04. Far Away Lands [5:04](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5F9DC2ACB1EC47B345A7B99785EB244E2FC798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764070   (102742) от 05.12.2024
-
-Rens Newland & Fuse Bluezz - Still Waiting for Better Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Days' Blues (3:57)
-02. Ric Toldon - Got the Blues in My Shoes (4:05)
-03. Peter Duke - Still Waiting for Better Days (3:44)
-04. The Bright Side of the Blues (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D826EDF88721E3D223244D4CECC049F22B53D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763345   (102743) от 05.12.2024
-
-Игорь Ашуров - 3 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сложная такая [00:03:52]
-02. Первая любовь [00:03:34]
-03. Обманула [00:03:42]
-04. Не отводи любимых глаз [00:04:30](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 3 CD, 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACA2BD2812AD994011AEB4B52CAC18D66337745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764078   (102744) от 05.12.2024
-
-Vinyl Paradise - Vinyl Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howlin' Pain (3:11)
-02. Same Old Mistakes (3:39)
-03. Sold My Soul (2:37)
-04. Makin' It Worse (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14052A9C06D86094A800882A39F3B96A33096B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764170   (102745) от 05.12.2024
-
-Asterise - Tale of a Wandering Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (01:09)
- 02 - Twisted Ferryman (05:26)
- 03 - Into Fantasy (05:33)
- 04 - Raven (06:27)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5C610B36321BE5FD926C510C0E32E86A1F1D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764053   (102746) от 05.12.2024
-
-BBR - Boogie Blues and Rock n Roll 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock & Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rubberneckin (2:54)
-02. Every Little Things (3:15)
-03. You Never Can Tell (3:58)
-04. Bird on a Wire (4:22)(   Читать дальше...   )Жанр: Blues, Rock & RollПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA384A429241F080E5CF9469D613CCA1E3753A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764132   (102747) от 05.12.2024
-
-Lizzie Thomas - Lizzie Thomas - This Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Christmas (4:10)
-02. Christmas Time Is Here (3:38)
-03. Wonderful Christmastime (4:03)
-04. It's Magic (5:16)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061B3C34D38CEC32003C6D61B6A965A3A6C98EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764081   (102748) от 05.12.2024
-
-Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Training Season (Instrumental) (3:08)
-02. Houdini (Instrumental) (2:26)
-03. One Kiss (Instrumental) (3:29)
-04. New Rules (Instrumental) (3:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976109725706834F3253E198A3BD86EFCE7E3CF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764065   (102749) от 05.12.2024
-
-Nick Evans Mowery - From the Top Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Peace a Try (2:51)
-02. Headed for the Break (3:22)
-03. From the Top Down (3:45)
-04. The Night I Met John Prine (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EB0A5C4B6F63BCE33AA3E32088F964605F2E75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764075   (102750) от 05.12.2024
-
-The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Old Thing (3:51)
-02. Checking in at Midnight (3:25)
-03. Joy and Pain (3:26)
-04. My Pride, Your Shame (4:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DCD47FC63C7137F092E5138097FDFC49C0044C
 ```
 
 

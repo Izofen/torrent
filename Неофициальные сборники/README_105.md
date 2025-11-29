@@ -454,6 +454,33 @@ magnet:?xt=urn:btih:C4EE81C9C12C8CE54A76C0A304A5B4A726314063
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588947   (190780) от 07.11.2022
+
+VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
+02. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+03. Dj Quba, Sandra K - Eins Zwei Polizei (2:14)
+04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588779   (190957) от 06.11.2022
 
 VA - Club&Dance Осенние Треки Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -665,33 +692,6 @@ VA - Music News vol.296 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95B2245D6AAB9F04F9F29F9A9A9B133181D99301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658572   (191227) от 08.09.2023
-
-VA - Music News vol.295 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_191227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Icona Pop - Loving You Ain't Easy (02:35)
- 002. Alan Walker feat. Sophie Stray & Zena Emad - Land Of The Heroes (Arabic Version) (02:53)
- 003. Alexander Popov feat. Chester Young & Whiteout - Overtaking (VIP Mix) (02:43)
- 004. Alma - Chasing Highs (LIZOT Remix) (02:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0C235513C3D4669BD94A0B03F4999E14E2AA39
 ```
 
 

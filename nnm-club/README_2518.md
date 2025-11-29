@@ -1,3 +1,57 @@
+###  Публикация: 1801034   (66214) от 08.06.2025
+
+Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chopin: Fantaisie Impromptu in C sharp minor Op.66 [4:11]
+02. Chopin: Nocturne No.2 in E flat major Op.9-2 [4:13]
+03. Chopin: Etude 'Chanson de l'adieu' in E major Op.10-3 [4:56]
+04. Chopin: Prelude 'Raindrop' in D flat major Op.28-15 [4:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CF508F9A9D8BFCAFFBEDE9FE14E6CA7765AC02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801189   (66215) от 08.06.2025
+
+Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I’m Tore Down (3:04)
+02.  All Your Love (3:29)
+03.  Let the Good Times Roll (3:33)
+04.  Lonely Boy (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15B01EE22FC8B2D6E88EC53314E55E3B5374C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801040   (66216) от 08.06.2025
 
 Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
@@ -602,59 +656,6 @@ Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65AAAF3480D38FC1C69AA84A2B962035848B11A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801088   (66240) от 08.06.2025
-
-Brian Owens - Compilation (2025) [MP3|320 Kbps] <Soul, Jazz, R&B>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Knows (Ain't Personal) [04:03]
-02. Looking for a Daddy (feat. Theresa Payne) [04:41]
-03. Soul Anthem (Bring It Back) [01:49]
-04. Got to Give It Up (Japan Bonus Track) [11:00](   Читать дальше...   )Жанр: Soul, Jazz, R&BПродолжительность: 04:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41EE941BA7C677B128CC3F24D2370DC869CD29D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801135   (66241) от 08.06.2025
-
-Первая передача на НТВ. Автомобильная передача (08.06.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Силовое задержание в подземном паркинге элитной высотки: у юноши нет водительских прав, зато есть трехлитровый GLE и талант решать вопросы. Неужели все могут короли?
- Гужевая повозка в потоке: с какой стороны от нее лучше держаться и бывает ли у кобылы страховка ОСАГО — транспорт все-таки?
- Отзывная кампания корейской марки машин: кто устранит неисправность, ведь автопроизводитель (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAA817949A15E1B81DD54D02DF8697B5872D594
 ```
 
 

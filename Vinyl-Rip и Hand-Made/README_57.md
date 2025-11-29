@@ -1,3 +1,109 @@
+###  Публикация: 665289   (218308) от 10.08.2023
+
+Deep Purple - 29 альбомов (1968-2020) [FLAC 2.0 24/96-24/192, APE2.0 24/96, WV2.0 24/192|image+.cue, tracks (Vinyl-Rip)] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_218308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple - британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в «тяжёлой музыке» 1970-х годов. Музыкальные критики называют Deep Purple в числе основателей хард-рока и высоко оценивают их вклад в развитие прогрессивного рока и хеви-метала. Музыканты «классического» состава Deep Purple (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:39:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597935   (218363) от 10.08.2023
+
+Supermax - Full LPs Discography (1977-1992) 11LP [FLAC 2.0 24/192|image (Vinyl-Rip)]<Rock, Reggae, Funk, Synth-pop, Disco>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218363.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Supermax» возникла в прекрасную эпоху «диско» и сразу же громко заявила о себе альбомом «Don’t Stop The Music». Их неординарность состояла в том, что они одни из первых смогли профессионально адаптировать различные мировые жанры - «соул», «фанк», «джаз», «регги» и африканские ритмы растоманов - на европейской почве, во время господства «поп-дэнса» и «диско». Огромная (   Читать дальше...   )A1. Dance Dance Dance :: 03:44
+A2. Push Push (Sexy Chocolate Girl) :: 03:08
+A3. Watch Out South Africa, Here We Come :: 03:59
+A4. Don't Stop The Music :: 06:05(   Читать дальше...   )Жанр: Rock, Reggae, Funk, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 07:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D71B7134D3CD9715CE8D997A43FAC4DA0BDDA34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585684   (218906) от 24.10.2022
+
+Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slaughter (Сло́тер) — американская хард-рок группа. Название группы переводится как "бойня". Марк Слотер был поклонником творчества Льва Толстого, который говорил: "Не было бы боен, не было бы войн". Но Марк Слотер решил, что "одна бойня всё-таки будет. И это будем мы!"
+Группа Slaughter была сформирована в 1988 году бывшими участниками (   Читать дальше...   )1990 - Stick It To Ya
+1992 - The Wild Life
+1995 - Fear No Evil
+1997 - Revolution(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 07:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611370   (219213) от 09.08.2023
+
+Scorpions - 11 альбомов (1979-1993, 2004, 2007) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Hard Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219213.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Hour I 3:27
+A2. The Game Of Life 4:06
+A3. We Were Born To Fly 4:00
+A4. The Future Never Dies 4:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FED0FD723DB627313ACDA098D448025FFD28E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103675   (219309) от 09.08.2023
 
 Rammstein - XXI (1995-2015) 7 x Double LP, The Vinyl Box Set, Remastered, 2015  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Industrial Metal>
@@ -530,6 +636,33 @@ magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964605   (227333) от 13.12.2015
+
+Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_227333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Nightflight To Venus - Ночной полет на Венеру  4:42
+2. Hooray, Hooray - Ура, каникулы  3:56
+3. He Was A Steppenwolf - Он был степным волком  6:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267991   (227654) от 10.12.2018
 
 Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
@@ -552,141 +685,6 @@ magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965009   (227704) от 13.12.2015
-
-Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. I Can't Stand The Rain  6:30
-2. Movin'  4:24
-3. I'll Take You There  2:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583598   (227970) от 16.10.2022
-
-VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227970.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Dooley Family – Hands Across The Sea
-A2 The Dooley Family – Sha La La Lullaby
-A3 The Dooley Family – Oo-Pa-Pa-Doo
-A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648182   (228434) от 29.07.2023
-
-VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FLAC|24/192|image + .cue|Vinyl-Rip]] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_228434.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Edward Van Halen - Donut City
-A2 Hanover Fist - Metal Of The Night
-A3 Charlie Sexton With Ron Wood - It's Not Easy
-A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648898   (228561) от 29.07.2023
-
-VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image + .cue|Vinyl-Rip] <Euro House, Swingbeat, Italodance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_228561.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Londonbeat - You Bring On The Sun
-A2 Ce Ce Peniston - We Got A Love Thang
-A3 Got To Be - Lucy
-A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дальше...   )Жанр: Euro House, Swingbeat, ItalodanceПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341440   (228845) от 29.11.2019
-
-Эмиль Горовец - Поет Эмиль Горовец II (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_228845.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Двадцатый Век
-A2 Твоя Любовь
-A3 Смоленский Мальчишка
-A4 Белая Береза(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
 ```
 
 

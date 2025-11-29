@@ -1,3 +1,30 @@
+###  Публикация: 1657298   (193101) от 02.09.2023
+
+Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
+2002 - Dreamtower
+2004 - Lapse Of Reality
+2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313506   (193138) от 29.10.2022
 
 Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
@@ -646,55 +673,28 @@ magnet:?xt=urn:btih:A11E7372CCDD148AA3F440945F3F4712DC9356CD
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632482   (198677) от 10.05.2023
+###  Публикация: 1221378   (198612) от 10.05.2023
 
-Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunters Of The Night
-02. Some Hearts Are Diamonds
-03. Here Comes The Night
-04. Broken Heroes(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628375   (199452) от 23.04.2023
-
-Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_199452.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_198612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Говорите тише (Н. Рота)
-02 Пассажир под дождем (Ф. Лэй)
-03 Мужчина и женщина (Ф. Лэй)
-04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
+A1 В Спокойствии Ночи (In The Still Of The Night)
+A2 Я Мог Танцевать Всю Ночь (I Could Have Danced All Night)
+A3 Это - Великолепно (C'est Magnifique)
+A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
+magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
 ```
 
 

@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825700   (152128) от 
+###  Публикация: 1825700   (152128) от 17.10.2025
 
 Imperial Triumphant - Spirit Of Ecstasy (2022) [FLAC|Lossless|image + .cue] <Black Metal, Technical Death Metal, Avantgarde>
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:190BD89C9654382A59DA9DE18EA60D06C4279E54
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825679   (152259) от 
+###  Публикация: 1825679   (152259) от 17.10.2025
 
 Amorphis - Borderland (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodic Death Metal, Progressive Metal>
 

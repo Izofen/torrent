@@ -1,3 +1,84 @@
+###  Публикация: 1632974   (234803) от 13.05.2023
+
+Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_234803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Time Low
+02. I Know I Ain't Been So Perfect
+03. I Know What Love Can Do
+04. Here In Babylon(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632425   (234920) от 12.05.2023
+
+VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_234920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Black Dog (Remaster) [04:55]
+02. Megadeth - Symphony Of Destruction [04:07]
+03. Slayer - South Of Heaven [04:59]
+04. Black Sabbath - Paranoid (2012 - Remaster) [02:48](   Читать дальше...   )Жанр: RockПродолжительность: 06:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632541   (234935) от 12.05.2023
+
+VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_234935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - Coffee and TV (Radio Edit)
+02. Red Hot Chili Peppers - Under the Bridge
+03. Coldplay - High Speed
+04. New Order - Regret(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 02:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631924   (235903) от 08.05.2023
 
 VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
@@ -436,7 +517,7 @@ magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833996   (250603) от 
+###  Публикация: 1833996   (250603) от 04.11.2025
 
 VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <Alternative, Screamo>
 
@@ -644,93 +725,6 @@ VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498851   (256199) от 20.05.2012
-
-Алиса - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_256199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эй ты там на том берегу
-02. Моё Поколение
-03. Энергия
-04. Армия жизни
-05. Танец на палубе тонущего корабля
-06. Стерх
-07. Лодка
-08. Шабаш
-09. Бес Паники
-10. Белая невеста(   Читать дальше...   )2012Жанр: RockПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C11B9008EC8D07A5DCEACAF2EA7E737214BF82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837330   (256721) от 16.11.2025
-
-VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_256721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (You're So Square) Baby I Don't Care ❂ Live At Wembley Stadium 1986
-02. A Human Body (B-Side) ❂ The Game 1980
-03. Big Spender ❂ Live At Wembley Stadium 1986
-04. Bohemian Rhapsody-Radio Ga Ga ❂ Queen At Live Aid 1985(   Читать дальше...   )Жанр: RockПродолжительность: 27:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A428B6E7C1E209F727221166251ED05DD478A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838228   (257990) от 21.11.2025
-
-VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_257990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кровавый Риф - Tequila Pasaran
-02. Жамки - Аццкий Цырк
-03. Обух & Сарма - Рыбак и Князь
-04. Nagart - Игла(   Читать дальше...   )Жанр: Folk rock, Post punkПродолжительность: 05:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE494EBDC0D8442FEC9454862BD6766789ADDF6
 ```
 
 

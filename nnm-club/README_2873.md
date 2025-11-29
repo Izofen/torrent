@@ -1,3 +1,182 @@
+###  Публикация: 472776   (84031) от 24.03.2012
+
+VA - Electro Life 16 (by ZiP) (2012) [MP3|256-320 kbps] <Electro House, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alex Predator - Space In The House (Original Mix)
+02 - Avicii - Levels (Skrillex Remix)
+03 - Daniel Slam - Dance (Bigroom Mix)
+04 - DJ JIM & DJ Tarantino - Arabian Theme (Original Mix)
+05 - Feed Me - One Click Headshot (Original Mix)
+06 - IDMIDI - Не прикасаюсь (Vissmut Remix)
+07 - Klaas - Engelstrommeln (Original Mix)
+08 - Special vs. Virus ft. Syntheticsax - The Sign Of Jupiter (Z-Team Mix)
+09 - Spencer & Hill - All I Need (Pallada Remix)
+10 - Ugroza Project - Sheikh (Electro Mix)2012Жанр: Electro House, DubstepПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10A7B5898041023D9D4A8D4C579F36E098F8DA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472019   (84034) от 24.03.2012
+
+VA - Seventy Dubstep - Electronic Essentials (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 CD:
+Продолжительность: 01:16:51
+
+1. Rusko - Woo Boost
+2. Nero - Bad Trip
+3. The Anix - Glass (Night Brawl Remix)
+4. Blackburner - Dust Eater
+5. LuckyTall (feat. Mad'am I) - BassWaves
+6. Flex & The Bully - Dance Of The Sugar Plum Fairy
+7. Space Temple (feat. Helios Creed of Chrome) - Spinal Chord(   Читать дальше...   )Жанр: DubstepПродолжительность: 05:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4B4517D1C78C36EF1B9101042F9A91782CED9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472835   (84040) от 24.03.2012
+
+VA - Trance Top 100 Vol 12 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84040.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Top 100 Vol 12 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 07:57:30Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Dash Berlin ft Jonathan Mendelsohn - World Falls Apart (Airplay Mix)
+02. Planet Perfecto Knights - ResuRection (Paul Oakenfold Full On Fluoro Radio Edit)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472385   (84041) от 24.03.2012
+
+Прекрасное воскресенье / Beautiful Sunday (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мин У был обычным парнем, готовился к сдаче экзаменов. Однажды он случайно столкнулся с Су Ён и, потеряв над собой контроль, изнасиловал ее. Два года спустя Су Ён, не зная о прошлом Мин У, выходит за него замуж. А когда узнает правду, Мин У случайно наносит ей удар, после чего Су Ён впадает в кому...Жанр: Боевик, Драма, ТриллерРежиссер: Джин Кван Гё / Jin Kwang GyoАктеры: Пак Ён У, Нам Кун Мин, О Чжон Се, Ким Ён СуПеревод: Одноголосый закадровыйПродолжительность: 1:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7549A5FA951DD5E45E53A4BC1A41BE960F895A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472476   (84043) от 24.03.2012
+
+VA - Progressive House. The Best World Club Music (2012) [MP3|192 кб/с]<Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 - Where My Keys (original mix)
+02. Amarou - Narungo (original mix)
+03. David Guetta & Avicii - Sunshine (original mix)
+04. Franbeats - Old Summer (original mix)
+05. Inpetto feat. Max C - Move (Pauls Paris remix)
+06. Goodwill & Hook N Sling - Take You Higher (Simon Sh-Out remix)
+07. I Am Sam - Touch The Sky (Fabian Gray & Emmanuel remix)
+08. 3rd Planet feat. Ange - I.M.S (original mix)
+09. Josh The Funky 1, Christian Vila - Hey Everybody (Mehrbod & Darren Correa remix)
+10. Lissat & Voltaxx feat. The Funklorettes - Rock My Body (DJ Exodus & Ryan Riback remix)2012Жанр: Progressive HouseПродолжительность: 07:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472733   (84044) от 24.03.2012
+
+Жорж Сименон | В подвалах отеля "Мажестик" [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите прочитать отличный детектив? Тогда обратите внимание на книги Жоржа Сименона. Его произведения очень популярны и интересны. Каждый его роман, это новая история о комиссаре Мегрэ, он путешествует и расследует преступления.
+Роман отличается невероятно сложной интригой, загадочностью преступлений, для раскрытия которых неизбежно выходящий победителем из интеллектуальной (   Читать дальше...   )Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2D32CFA50A60F7D3A297A20DDFB7EA650B8855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472469   (84046) от 24.03.2012
 
 Джеймс Грейди | Шесть дней Кондора [2009] [MP3]
@@ -512,161 +691,6 @@ magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E627B636B950E8A0497976FD87CEDF49EA1B4B13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472607   (84089) от 24.03.2012
-
-Николай Звонарев | 500 полезных советов рачительному хозяину [2009] [pdf epub rtf]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_84089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите стать рачительным хозяином, для которого нет проблем самостоятельно сделать мелкий бытовой ремонт и выполнить любую мужскую работу по дому: будь то окраска пола или заточка ножниц? Тогда эта книга - для вас!
-В ней Михалыч делится секретами о том, как отремонтировать мягкую мебель, сварить столярный клей, построить ледяной склад и даже сделать в домашних условиях надувной матрас!
-Следуя приведенным в ней простым рекомендациям, вы сэкономите кучу денег и получите удовлетворение от хорошо выполненной работы.2009Формат: pdf epub rtf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE32CC7F9A7938CB6AE1169015ABF0D84FD20D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472684   (84090) от 24.03.2012
-
-Индийская гробница / Das Indische Grabmal (1959) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_84090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следуя традициям, приключения героев «Бенгальского тигра» продолжаются. «Индийская гробница» начинается с финальной сцены предыдущего фильма. На пути Гарольда и Ситы встают песчаные бури, непроходимые джунгли, пещера прокаженных и кровавое дворцовое восстание.Производство: Германия (ФРГ), Франция, Италия / CCC Filmkunst GmbH, Critérion Film, Regina Production, Rizzoli Film S.p.a.Жанр: Мелодрама, ПриключенияРежиссер: Фриц ЛангАктеры: Дебра Пейджит, Пауль Хубшмид, Вальтер Райер, Клаус Хольм, Сабина Бетман, Рене Делтген, Валерий Инкижинов, Йохен Брокманн, Рихард Лауфен, Йохен БлюмеПеревод: Профессиональный, многоголосый, закадровыйПродолжительность: 01:41:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472730   (84092) от 24.03.2012
-
-Andrea Bocelli - Concerto One Night in Central Park (2011) [FLAC|Lossless]<Classical, Vocal, Crossover>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_84092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Donna E Mobile - Verdi / Rigoletto [02:15]
-02. Di Quella Pira - Verdi / ll Trovatore [02:16]
-03. Ave Maria Central Park Version [04:46]
-04. Vicino A Te S'Acqueta - Giordano / Andrea Chenier duet with Ana Maria Martinez [08:15]
-05. Au Fond Du Temple Saint - Bizet / Les Pecheurs de perles duet with Bryn Terfel [05:56]
-06. O Soave Fanciulla - Puccini / La Boheme duet with Pretty Yende [04:06]
-07. Libiamo Ne' Lieti Calici - Verdi / La Traviata with P.Yende, B.Terfel, A.M.Martinez [03:11]
-08. Amazing Grace [04:22]
-09. New York New York duet with Tony Bennett [03:28]
-10. The Prayer duet with Celine Dion , David Foster on piano [04:30](   Читать дальше...   )2011  |Жанр: Classical, Vocal, Crossover  |Продолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F56C203F93171749A418DBC305D5A1355AA46C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472603   (84093) от 24.03.2012
-
-VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_84093.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010Жанр: JazzПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472894   (84101) от 24.03.2012
-
-Глухие стены / Medianeras / Sidewalls (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_84101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мартин и Мариана живут в соседних домах. У них одинаковые привычки и они одинаково одиноки.Жанр: ДрамаРежиссер: Густаво ТареттоАктеры: Хавьер Дролас, Пилар Лопес де Айяла, Инес Эфрон, Адриан Наварро, Рафаэль ФерроПеревод: Любительский одноголосый закадровыйПродолжительность: 01:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2B74197834A3E07448A500854EAB13422AB956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472703   (84102) от 24.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (25.03.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_84102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B481258BBAC4F8239BD4B9026C9189539D0A8636
 ```
 
 

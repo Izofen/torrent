@@ -1,3 +1,54 @@
+###  Публикация: 1798916   (66526) от 25.05.2025
+
+The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock / AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adecence
+02. Patient Zero
+03. Late Night Talking
+04. Make Me Feel(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F84B3F99A60CCC0B92AF15E2B8C8C963AC4812
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799074   (66527) от 25.05.2025
+
+MotoGP. Этап 07 из 22. Гран-при Великобритании. Спринт (24.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66527.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 мая 2025 суббота. 18:00 МСК. Этап 7 Сильверстоун. Гран-при Великобритании. Спринт (10 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0BCC96B81FF0D00381E1DB71FA0B206452EBA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799050   (66528) от 25.05.2025
 
 MotoGP. Этап 07 из 22. Гран-при Великобритании. Квалификация (24.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -613,60 +664,6 @@ magnet:?xt=urn:btih:E271A9FC9B83B8CCEC7944B68B316CF5E3E9BF62
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FBCC2DEF51DF570BD8955EE3937D5F62921A77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798188   (66552) от 24.05.2025
-
-Shining - X - Varg Utan Flock (2018) Deluxe Digibox Edition [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svart Ostoppbar Eld
-02. Gyllene Portarnas Bro
-03. Jag Är Din Fiende
-04. Han Som Lurar Inom(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC54BE24183D62FB083C394DA159AD97F34E005D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798792   (66553) от 24.05.2025
-
-Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66553.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blood Fire War Hate
-A2. Unleash
-A3. Paranoia
-B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
 ```
 
 

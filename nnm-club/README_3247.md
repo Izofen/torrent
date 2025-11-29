@@ -1,3 +1,433 @@
+###  Публикация: 1751058   (104087) от 23.09.2024
+
+Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Ahead On (2:37)
+02. Untrue (2:42)
+03. Here On Ice (5:48)
+04. Lies Of Omission (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81915F1E6FAEA46E6B47D1DA905C5DC365701E02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751062   (104088) от 23.09.2024
+
+Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Down 50th Street (2:19)
+02. Sh-Boom (2:17)
+03. Are You Lonesome Tonight? (4:27)
+04. Baubles, Bangles And Beads (3:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A884C63C787BDE630CD8633B9978A3579C0990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751132   (104089) от 23.09.2024
+
+Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until I'm Done (3:37)
+02. Remember My Name (2:50)
+03. You And I (2:55)
+04. Goin' Back For More (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EEAD30AD30F250D703C9E50D80AF67DCCD673A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751043   (104090) от 23.09.2024
+
+Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times (4:46)
+02. Timebound (4:14)
+03. Flower (5:26)
+04. Breakout (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50978BDF63C154A6799FC2CD53D9E5E824166639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751130   (104091) от 23.09.2024
+
+Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Chose Me (3:37)
+02. Borrow My Pans (2:55)
+03. Traveling Woman (3:34)
+04. Good Girl Gone Bad (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751218   (104092) от 23.09.2024
+
+Джон Банни. Алмаз режет алмаз / Diamond Cut Diamond (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ревнивая женушка постоянно подозревает благоверного в изменах. Тем более он частенько задерживается на работе. Она решила разоблачить его, придумав целый сценарий с переодеванием. Муж обо всем догадался, но решил подыграть ревнивице...
+В кадре имеется логотип киноархива.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Вилфрид НортАктеры: Джон Банни, Флора Финч, Мэй Костильо, Уоллес Рид, Ричард Россон, Рэй Форд, Кейт ПрайсПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75611358B52DF0C2C5C4BD2DCCC08DE935C5F3A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751053   (104093) от 23.09.2024
+
+Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OneEmo (6:28)
+02. Anatomie Equilibriste (6:24)
+03. Lee's Dance (4:42)
+04. A La Guy Lombardo - More Blues - A La Guy Le Querrec (4:43)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39A89303F1AE6719B501192C8F31D4496873F17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751049   (104094) от 23.09.2024
+
+Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocky Raccoon (5:58)
+02. Try A Little Tenderness (7:33)
+03. Black Dog (6:48)
+04. The Last Great American Dynasty (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1E71C80624961B6F4D5EA347F747487C535AB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751129   (104095) от 23.09.2024
+
+Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby, What Do You Want Me To Do? (3:26)
+02. I Want To Go (2:36)
+03. Candy Man (3:20)
+04. The Sky Is Crying (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD710740585F7F722373C03DD73E3EAB6219BB8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751041   (104096) от 23.09.2024
+
+Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wind (4:51)
+02. Illinois Blues (4:49)
+03. Wild Ox Moan (4:29)
+04. Two Trains Running (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E3D48D839D53BA78D4ECE64BC95222DE049660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751032   (104097) от 23.09.2024
+
+Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love out of Lemons (3:32)
+02. Devil Gonna Getcha (2:36)
+03. For Keeps (2:45)
+04. Get It On (2:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E152CBE7F64015ED4B5396FD88E116EE21DAF935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751045   (104098) от 23.09.2024
+
+Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Amo (4:17)
+02. Vou Morar no Rio (3:53)
+03. Corpo Coração (5:05)
+04. Águas Passadas (3:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5404A045D3133DE9969E8EF33D663B6CB4F92B7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750810   (104099) от 22.09.2024
+
+LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push Back The Horizon (5:19)
+02. Under The Stars (4:53)
+03. Fireflies (5:00)
+04. You Are The World (5:33)(   Читать дальше...   )Жанр: Progressive-RockПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0016CCA0719DF91BEAA285EADD2E49E495901AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750811   (104100) от 22.09.2024
+
+Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Latin Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narrow Path (4:33)
+02. Nothin' Ain't (4:00)
+03. Road Trippin' (4:20)
+04. Gratitude (4:01)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, Latin JazzПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96263EA1528EAECE565B676812DF4F3073DBB372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751065   (104101) от 22.09.2024
+
+Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond The Shadow's Void
+02. Drown In Chaos
+03. When The Shooting Begins
+04. Kill Cloud(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5624CF0F3B0A135A1A005A5823827F2411202F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750796   (104102) от 22.09.2024
+
+Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aetherwind Prelude (3:29)
+02. Ethereal Wind Interlude (5:59)
+03. Ethereal Wind Postlude (4:01)
+04. Dark Skies (5:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750798   (104103) от 22.09.2024
 
 Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -259,426 +689,6 @@ Airstrike - S*x Sells (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DDD75EB780F87AAD0B01BAB36071842903A79E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751059   (104113) от 22.09.2024
-
-Fighter V - Heart Of The Young (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye To Eye
-02. Heart Of The Young
-03. Run N' Hide Away
-04. How Long(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BA48AC75152724666FCEE1296E9EE9F5172B55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751034   (104114) от 22.09.2024
-
-Wizard - Studio Albums (12 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizard — пауэр-метал-группа из Германии, сформированная в 1989 году. Группу часто называют «немецким ответом Manowar».1995 - Son Of Darkness
-1997 - Battle Of Metal
-1999 - Bound By Metal
-2001 - Head of the DeceiverЖанр: Power MetalПродолжительность: 10:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3B5A3F747182C624A04A9D171F668A2F3279C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751073   (104115) от 22.09.2024
-
-Massacration - Metal Is My Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massacration Apocalypse
-02. Revenge of the Bull
-03. November Gay
-04. Metal Milf(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328482B0D5317A400E06DB253E787C21BE6FA530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751039   (104116) от 22.09.2024
-
-Своя игра (22.09.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104116.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32606776CE2AF4158AD059A4FD5134D9BF9EAA3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750785   (104117) от 22.09.2024
-
-Своя игра (21.09.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104117.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486D287E94ED0DF26B59467A4C60E59A435DA372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750984   (104118) от 22.09.2024
-
-Stryper - To Hell With The Amps (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Know What to Do 04:56
-02. Soldiers Under Command 04:49
-03. No More Hell to Pay 04:53
-04. Make You Mine 03:49(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, AcousticПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312CAA8DADA9FE7128EC5345598AC2C68A5396B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750766   (104119) от 22.09.2024
-
-Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are The Sunshine Of My Life [2:37]
-02. What Now My Love [2:41]
-03. My Heart Stood Still [3:29]
-04. What's New [2:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9B8D956B3AB626781D0697CD079A8D394363F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750924   (104120) от 22.09.2024
-
-Первая передача на НТВ. Автомобильная передача (22.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погремушки для больших мальчиков — прямоточный выхлоп: как заткнуть истеричную трубу на улицах? Неужели только девушкам этот рев ласкает слух?
- Четыре лапы и два колеса: история добермана-байкера.
- Автомобилисты и самокатчики, которые не могут держать себя в руках на дороге.
- Водитель встретился на дороге с любопытным медведем и остался без стеклоочистителя.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03F3DAC067BE6E0DBFB801EB48CAE8F9DE5E5E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750806   (104121) от 22.09.2024
-
-Bloodest Saxophone feat. Crystal Thomas - Extreme Heat (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mailman's Sack (2:12)
-02. I Don't Need You No More (3:00)
-03. Undercover Of The Night (3:56)
-04. Dinah (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7713142767C85C440EF3B265ECA31F8F598F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750805   (104122) от 22.09.2024
-
-Dreadsight - Conspiracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conspiracy (4:30)
-02. One of the Damned (4:23)
-03. End of Days (3:43)
-04. Cross the Line (4:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C105ECF72B309B51CC3D75C9D8E5883E9B8474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750935   (104123) от 22.09.2024
-
-Stryper - When We Were Kings (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of Days
-02. Unforgivable
-03. When We Were Kings
-04. Betrayed By Love(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5B1D659E009A30D9EE95B9C36F464ABA3F4718
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750966   (104124) от 22.09.2024
-
-Екатерина Боронина | Рассказы звериного доктора (2012) [MP3, Александр Котов, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Про детского писателя Екатерину Боронину известно не так много. Родилась в Ленинграде в 1907 году, училась в Ленинградском Государственном Университете, сотрудничала с детским журналом «Ёж», а также с молодежной газетой «Смена». Автор нескольких повестей и сборников рассказов для детей. Вот, пожалуй, и все. Но, наверное, самое главное, это не сухие факты биографии, (   Читать дальше...   )Жанр: Детская литератураИздательство: СОЮЗПродолжительность: 02:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02FE55817281CDF207F741BB74512D493608D12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750898   (104125) от 22.09.2024
-
-MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Спринт (21.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104125.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 сентября 2024, суббота. 16:00 МСК. Этап 14 Мизано-Адриатико. Гран-при Эмилии-Романьи. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A575043741CAE860E912327501F00C4151A5ABBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751031   (104126) от 22.09.2024
-
-Joan As Police Woman - Lemons, Limes and Orchids (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <alternative-rock, indie-pop, singer-songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Dream 03:32
-02 Full-Time Heist 03:57
-03 Back Again 03:54
-04 With Hope In My Breath 03:50(   Читать дальше...   )Жанр: alternative-rock, indie-pop, singer-songwriterПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0307D8C93015D2B9CC96987CBF867255294E0E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750998   (104127) от 22.09.2024
-
-Asia Monet Ray - Asia Monet (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last to Know (2:57)
-02. Oh Boys (2:53)
-03. The One. (4:22)
-04. Scene (3:07)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 00:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1E8CC0F915547A84BAEF3491E15141D2F848B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750979   (104128) от 22.09.2024
-
-Atlas Genius - End Of The Tunnel (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling So Hard (3:47)
-02. Nobody Loves Like You (3:21)
-03. Elegant Strangers (3:53)
-04. Romans (3:09)(   Читать дальше...   )Жанр: Indie Rock, ElectronicПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42B1BE1BECE19F6576A78C1814B0A360516693E
 ```
 
 

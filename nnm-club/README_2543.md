@@ -1,3 +1,57 @@
+###  Публикация: 1797001   (66864) от 13.05.2025
+
+JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aint It Good (4:24)
+02.  Blues In My Hometown (3:44)
+03.  My Comfy Chair (3:41)
+04.  Ole Fessor Lindgreen - Blues House Party ("The Big One") (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068AD1405D6C421C358FA939D6A5D7F943D994C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796997   (66865) от 13.05.2025
+
+Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  And I Love Her (5:50)
+02.  King and Queen (5:47)
+03.  Every Now and Then (5:31)
+04.  Make My Bed (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FFB738BAD32BCA394297674EBE2CDACC13D715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797009   (66866) от 13.05.2025
 
 Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -615,57 +669,6 @@ Little Feat - Strike Up The Band (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:338810857570CBB678DA803741C7D18DF107503F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795839   (66890) от 13.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Tropical Bloom Burst Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с тропическими цветами.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70C1CE34EFCF75520E71E8A56F9D76024EBAA04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796741   (66891) от 13.05.2025
-
-The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Rock, Indie-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Know (2:55)
-02. Sunny Baby (3:19)
-03. All Over The World (3:37)
-04. If They Could Only Know (3:13)(   Читать дальше...   )Жанр: Alt. Rock, Indie-RockПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
 ```
 
 

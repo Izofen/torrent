@@ -1,3 +1,57 @@
+###  Публикация: 1794753   (67202) от 01.05.2025
+
+Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -1997 Repress, Cinram, Richmond Pressing [FLAC|Lossless|tracks + .cue] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy To The World    [0:03:38.50]
+02. One    [0:03:05.20]
+03. Sure As I'm Sitting Here    [0:03:08.07]
+04. Old Fashioned Love Song    [0:03:24.45](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9044040CDA1A687B6CEA00906BFF612EF1E272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794893   (67203) от 01.05.2025
+
+VA - Interplay 2024 (Selected By Alexander Popov) (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & Otnicka - Sunset Rays (Mixed) (04:16)
+02. Alexander Popov & LTN & Kyler England & Abstract Vision - Yet To Come (Mixed) (Abstract Vision Remix) (03:44)
+03. LTN - A Strange Time (Mixed) (03:40)
+04. Alexander Popov & Harddope & Timmy Commerford - Think About You (Mixed) (01:48)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCD6D3AD42917388D28C587A0C5ED735AF90437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794724   (67204) от 01.05.2025
 
 Автопрогулка Геби / Gaby's Gasoline Glide (1916) WEBRip
@@ -606,54 +660,6 @@ Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Dark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794831   (67228) от 01.05.2025
-
-Газета | Загадки истории №18 (644) (2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67228.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794841   (67229) от 01.05.2025
-
-Журнал | Тайны ХХ века №13 (1159) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_67229.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
 ```
 
 

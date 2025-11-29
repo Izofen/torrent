@@ -1,3 +1,433 @@
+###  Публикация: 1723593   (109418) от 16.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 5-й матч) Колорадо Эвеланш - Даллас Старз (15.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109418.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2024, четверг. 03:00 МСК. 1/2 финала - Запад. 5-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD63C1378F92A2A868BC163A93A611722D242D1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723641   (109419) от 16.05.2024
+
+VA - Dance Anthems Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basic Stuff - I Know (02:43)
+02. Sonya Bexter - My Move (02:51)
+03. AC Scamp - Upside (02:29)
+04. Liza Jones - No Choice (03:22)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DAF1C7EDA181996EF67FB2F3330C41246D2EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723614   (109420) от 16.05.2024
+
+The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vitamin U [00:03:01]
+02. Got Me Good [00:02:47]
+03. Do You Like Me [00:02:44]
+04. Baby Doll [00:03:22](   Читать дальше...   )Жанр: Power-Pop, RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7343241531784D299828F44E94B4C85C01EBE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723339   (109421) от 16.05.2024
+
+VA - Nothing But... Trancetopia Vol. 14 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vokoglok - Night Flight (Extended Mix) [7:01]
+02. Masaru Hinaiji - May 1st, Fine (Intro Mix) [6:19]
+03. Forbidden Mind - Wanderer (Extended Mix) [6:23]
+04. Fros7novA - Renegade (Extended Mix) [6:28](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F5D8FA727E6FDC062F83CEB019048C78500436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723544   (109422) от 16.05.2024
+
+Night Hearth - La noche de los sueños perdidos (2024) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Hora de las Sombras [00:01:38]
+02 - La Noche de los Sueños Perdidos [00:06:59]
+03 - La Senda de la Revolución [00:04:52]
+04 - Donde Llegue el Viento [00:06:02](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D319E6E0084A7832E7558C090BC0A7BB58E27C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723463   (109423) от 16.05.2024
+
+The Neal Morse Band - Innocence & Danger (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109423.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Innocence:
+1. Do It All Again - 8:53
+2. Bird On A Wire - 7:23
+3. Your Place In The Sun - 4:13(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2FEC41D8790CEAD5AD2152F1CF3961431CDB37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723517   (109424) от 16.05.2024
+
+Рассвет - Воин (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воин [00:03:26]
+02. Шторм [00:04:03]
+03. Рассвет [00:04:13]
+04. Осколки [00:04:22](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA040539613EC4C5544BF4C6D5134921D2D41518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723587   (109425) от 16.05.2024
+
+VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109425.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Armored Saint - Lesson Well Learned
+A2 - 3rd Stage Alert - Mind Invader
+A3 - Surgical Steel - Rivit Head
+A4 - Obsession - Shadows Of Steel(   Читать дальше...   )Жанр: Thrash, Glam, Heavy MetalПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C1617AB2EE576FD0036BA5EF3A22255F71FF36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723675   (109426) от 16.05.2024
+
+Demon - Invincible (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. In My Blood (4:40)
+03. Face The Master (4:26)
+04. Ghost From The Past (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FD570D23EFFD31E30B2F421C884F9D445FA090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723532   (109427) от 16.05.2024
+
+Stonehand - Алхимия (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дикий пёс [00:03:28]
+02. Без тормозов [00:03:51]
+03. У Времени нет времени [00:04:15]
+04. Долгий путь домой [00:05:04](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3318E6807BEA3ECC224027B864B37727CC21C131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723655   (109428) от 16.05.2024
+
+Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At The Winery (1980) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [5:44]
+02. Air Mail Special [4:54]
+03. Body and Soul [4:51]
+04. You Took Advantage of Me [2:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380ACA0DA3CFEE80E86CCC4BD5E3EF9E84BDE2E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723653   (109429) от 16.05.2024
+
+Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At Charlie's Georgetown (1982) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When [4:37]
+02. New Orleans [6:47]
+03. When the Saints Go Marching In [3:14]
+04. Change Partners [3:59](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E479B792287BB113D02BE63B9A5B4DF0DDC92A42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723374   (109430) от 16.05.2024
+
+Winifred Atwell - The Best of Winifred Atwell (1999) Spectrum Music [FLAC|Lossless|tracks + .cue] <Ragtime, Boogie-Woogie, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Poor People of Paris [2:01]
+02. Britannia Rag [2:13]
+03. The Black and White Rag [2:37]
+04. Flirtation Waltz [2:16](   Читать дальше...   )Жанр: Ragtime, Boogie-Woogie, Piano JazzПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B61F5EA433D74938F1492F8107FA641FD7BC5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723650   (109431) от 16.05.2024
+
+Wayne Shorter - The Soothsayer (1965) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost [7:16]
+02. Angola [4:51]
+03. Angola (alternate take) [6:43]
+04. The Big Push [8:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E590E3A18A2AF9572A6B9F6B25E4E8F894AB4C84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723535   (109432) от 16.05.2024
+
+Shokran - Duat (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khonsu: The Traveler from Thebes [00:03:54]
+02. Set: The Shark in the Womb [00:05:01]
+03. Thoth: The Silent Witness [00:04:41]
+04. Amon-Ra: The Battle for Tomorrow [00:04:00](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC3473C49BEA3DAAC799DA0D2090DB3D9D41438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723701   (109433) от 16.05.2024
+
+Luther Vandross - Luther (1976) Remaster, 2024, Legacy Recordings [MP3|320 Kbps] <R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Funky Music (Is A Part Of Me) [00:05:29]
+02 - The 2nd Time Around [00:06:25]
+03 - I'll Get Along Fine [00:04:09]
+04 - Everybody Rejoice (From the Tony Award Winning Musical, _The Wiz_) [00:03:24](   Читать дальше...   )Жанр: R&BПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48F8149BD8E0AA755B4E218D76A06B8233E21D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723563   (109434) от 16.05.2024
 
 Kalac - Odyssee (2024) [FLAC|Lossless|WEB-DL|tracks] <space rock, fuzz, kraut>
@@ -253,416 +683,6 @@ Elvellon - Ascending in Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55EA452F12EA3B563E2CD0E8E790BDE11490C0E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723513   (109444) от 16.05.2024
-
-Журнал | Народный доктор №9 (655) (май 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDC0BCD5304D6DDA50D9EFFA14B52D8BA836CBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722966   (109445) от 16.05.2024
-
-VA - Deep Trance Showcase III (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pico Boulevard - Society (Nomas Remix) [7:07]
-02. Ovnimoon & Hedustma - Escitalotrance (Original Mix) [10:12]
-03. Dreamcast - Reversed Signals (Original Mix) [7:07]
-04. Enlusion & Subtara - Norscent (Heads-down Mix) [8:03](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6EC71CE47529933B600B18B023E8F4BB797C12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723644   (109446) от 16.05.2024
-
-Иван Тургенев | Дым. Новь (2013) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
-В эту аудиокнигу вошли два последних романа Ивана Сергеевича Тургенева – «Дым» (1867) и «Новь» (1877), объединенные темой трагедии русского интеллигента, честного, умного, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 19:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74A0D3E409DCAEC252ACD11B3B100ADED4E4B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723683   (109447) от 16.05.2024
-
-QuickEdit Text Editor Pro 1.11.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109447.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuickEdit Text Editor Pro - полноценный и многофункциональный текстовый редактор в котором вы сможете хранить свои записи. Так же он поддерживает функцию автозаполнения, и будет предлагать варианты для вставки. Его скорость работы и время реакции гораздо лучше, чем у имеющихся в настоящее время в Google Play приложений для редактирования текстов. Он может использоваться (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.05.2024Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DF1C4FE2BE41F73C04F14525F24CD35439CAF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723210   (109448) от 16.05.2024
-
-VA - Levitated - Trance Essentials Vol. 4 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VeenTyler & Damian Sulewski - Whisper (Original Mix) [7:14]
-02. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) [6:18]
-03. InnerSync - Formless Void (Original Mix) [7:09]
-04. Nago - Subsonic (Blue5even Remix) [6:09](   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB227C7AA199E58EDA21B438D216D553BDBB3039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723685   (109449) от 16.05.2024
-
-Demon - Invincible (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:27)
- 02. In My Blood (04:40)
- 03. Face The Master (04:26)
- 04. Ghost From The Past (05:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869A0C9727C10B68EED96EFF415ACA4475B34E87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723567   (109450) от 16.05.2024
-
-Jonathan Young - Sea Shanty Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Pirate Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellerman [00:02:51]
-02. Santiana [00:04:06]
-03. Hoist The Colours [00:04:05]
-04. Northwest Passage [00:04:27](   Читать дальше...   )Жанр: Power Metal, Pirate MetalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5065D75214298F6554ABCE6087C190323953309D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723761   (109451) от 16.05.2024
-
-Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am (4:35)
-02. To Serve And Protect (5:35)
-03. Casa De Los Pollos (4:38)
-04. Why (5:40)(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD5535E5A2963B6F4DBD07D278BBE87E3CD11B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723646   (109452) от 16.05.2024
-
-PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D53AE3CA1221C97D50604393CF3CCCE52E21BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723735   (109453) от 16.05.2024
-
-Collective Soul - Here To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother's Love (2:46)
-02. Bluer Than So Blue (3:17)
-03. Let It Flow (3:18)
-04. Not The Same (3:25)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-GrungeПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFD65C8A9846E060B41713EE40DD1F23645192F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723616   (109454) от 16.05.2024
-
-Господа из Санте / Ces messieurs de la Sante / These Gentlemen of Health (1934) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённой пьесе Поля Армона и Леопольда Маршана (1931)... Хитрый финансист, заключённый в тюрьму по обвинению в мошенничестве, сбегает оттуда, берёт вымышленное имя и работает разнорабочим в магазине корсетов. Преуспев в бизнесе своей покровительницы, он быстро оказывается во главе экономической империи...Производство: Франция / Pathé-NatanЖанр: комедияРежиссер: Пьер КоломбьеАктеры: Ремю, Люсьен Бару, Поль Амио, Жорж Молау, Пьер Стефан, Полин Картон, Ивонн Эбер, Моника Роллан, Эдвиж ФёйерПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E68634004616212F25F99BFC79345A6BBF22EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723486   (109455) от 16.05.2024
-
-Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109455.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Beat Patrol
-A2 Nothing's Gonna Stop Us Now
-A3 It's Not Over ('Til It's Over)
-A4 Girls Like You)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723725   (109456) от 16.05.2024
-
-Клаус и Баррузу / Klaus and Barroso (2024) WEB-DLRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрязнув в долгах, румынский бармен Клаус придумывает, как раздобыть денег. Он на ночь сдаёт в аренду бар, не поставив хозяина в известность. В эту свою «хитрую» схему он втягивает и своего брата, добродушного вышибалу Баррузу. В арендованном баре они устраивают мальчишник для наивного юноши, собравшегося жениться на зрелой тётке. И, разумеется, попойка по случаю (   Читать дальше...   )Производство: Румыния / Bold Film Studio, Grupa B, Tangaj ProductionЖанр: комедияРежиссер: Cosmin Nedelcu, Адриан НиколаеАктеры: Cosmin Nedelcu, Адриан Николае, Шербан Павлу, Виктория Раилеану, Мадалина Край, Александру Ион, Чезар Анталь, Codrin Boldea, Влад Брумару, Vlad Dragulin и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:52Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EDA222FC9A5A8AA3FED819275ABE146322E2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723545   (109457) от 16.05.2024
-
-Журнал | Кухонька Михалыча №5 (225) (май 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E94FB37C97E40B65F369A75A1C84F5954B16B7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723695   (109458) от 16.05.2024
-
-Slash - Orgy of the Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pusher (7:08)
-02. Crossroads (5:35)
-03. Hoochie Coochie Man (6:43)
-04. Oh Well (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE423C7AC82AF293F3375F76030F326B5082001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723508   (109459) от 16.05.2024
-
-Журнал | Делаем сами №9 (558) (май 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109459.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3C42189D643004E00FA08E355026108CE26A5E
 ```
 
 

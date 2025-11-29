@@ -1,3 +1,164 @@
+###  Публикация: 1565417   (249436) от 23.07.2022
+
+Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ка́йли Энн Мино́уг (англ. Kylie Ann Minogue (ˈkaɪli ˈæn mɪˈnoʊɡ), также известная под мононимом Ка́йли; род. 28 мая 1968, Мельбурн) — австралийская поп-певица, автор песен и актриса. Наиболее коммерчески успешная австралийская исполнительница, известная частыми сменами сценического образа. СМИ называют её «поп-принцессой» (   Читать дальше...   )1988 - Kylie
+1989 - Enjoy Yourself
+1990 - Rhythm of Love
+1991 - Let's Get to ItЖанр: Dance-Pop, DiscoПродолжительность: 18:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538612   (249634) от 22.03.2022
+
+Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Records  [DST64 2.0, 5.1|1bit/2822,4kHz |SACD-R] <Art Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signs Of Life
+02. Learning To Fly
+03. The Dogs Of War
+04. One Slip(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEC5523689E3DEA68C98D53499EBB051EC45E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618995   (249796) от 14.03.2023
+
+Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
+2013 - Synchronicity
+2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618707   (249886) от 13.03.2023
+
+Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masterplan — немецкая пауэр-метал-группа. Основана гитаристом Роландом Граповым и барабанщиком Ули Кушем после их увольнения из Helloween в 2001 году.2003 - Masterplan
+2005 - Aeronautics
+2007 - MK II
+2010 - Time To Be King(   Читать дальше...   )Жанр: Power MetalПродолжительность: 06:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586632   (250027) от 11.03.2023
+
+Группа Las Vegas - Imported From... (1998) Unofficial Release [FLAC 2.0|64/24|image+.cue|MC-Rip] <Glam Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Might
+02. Hard Golden Chains
+03. Crying In The Silence
+04. Bestseller Gun(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617966   (250117) от 09.03.2023
+
+Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250117.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Пробуй
+A2 Високосный Год
+A3 Мы Почти Позабыли
+A4 Испорченный Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617214   (250260) от 07.03.2023
 
 Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
@@ -25,7 +186,7 @@ magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834720   (250468) от 
+###  Публикация: 1834720   (250468) от 04.11.2025
 
 Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 
@@ -534,168 +695,6 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626464   (255201) от 14.04.2023
-
-Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Piece Of The Action 3:37
-A2 Midnight Reservation 3:42
-A3 It's Got To Be Love 3:08
-A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625981   (255266) от 12.04.2023
-
-Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255266.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Run For Your Life 4:08
-A2 10, 9, 8, 7, 6, 5, 4  4:24
-A3 I Do It All For You 4:04
-A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625644   (255296) от 11.04.2023
-
-Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
-2015 - Major / Bye Julia (Triptych EP)
-2017 - Burst
-2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625760   (255300) от 11.04.2023
-
-Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255300.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Waiting On The Border Line (3:46)
-A2. How Do You Feel Now (4:51)
-A3. Back To The Wall (5:12)
-A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625753   (255302) от 11.04.2023
-
-Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-
-1. I hear talk 4:34
-2. Indebted to you 4:29(   Читать дальше...   )Жанр: BritPopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625837   (255306) от 11.04.2023
-
-Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Camera Never Lies
-A2 Easy Love
-A3 Love Dies Hard
-A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
 ```
 
 

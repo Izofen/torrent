@@ -1,3 +1,84 @@
+###  Публикация: 1344144   (213609) от 09.12.2019
+
+Malik Djoudi - Temperaments (2019) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <French Electronic, Synthpop, Ambient Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempérament (3:13)
+ 02. Autrement (3:01)
+ 03. Épouser la nuit (3:37)
+ 04. Dis moi qu't'y penses (3:37)(   Читать дальше...   )Жанр: French Electronic, Synthpop, Ambient PopПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71550C38B93208C18E07B27A38CFE45024CD811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344239   (213659) от 09.12.2019
+
+Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Trance, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Avalan - Sucker For Love (Original Mix)
+02. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real (Extended Mix)
+03. Armin van Buuren feat. Sam Martin - Wild Wild Son (Original Mix)
+04. Armin van Buuren & Garibay - Phone Down (Original Mix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 02:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F329C51826CC057AB4F4B91857839DBCEA0C19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426565   (213677) от 25.11.2020
+
+Cpektir & Survey Channel - Myriagon Atlas (2020) Music Is The Devil [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off World Power Lines (00:43)
+ 02. Sinepuxent (03:40)
+ 03. Turquoise Waters (01:04)
+ 04. Mt. Norquay (04:20)(   Читать дальше...   )Жанр: Ambient, IDM, Downtempo, ExperimentalПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD06407C8D8F5EF933FE50DDC980D4CD88F36951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344049   (213693) от 09.12.2019
 
 Blank & Jones (feat. Marcus Loeber) - Silent Piano (Hourglass EP) (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano, Ambient>
@@ -155,6 +236,33 @@ Blank & Jones and Laid Back - Sitting in My Sofa (Van Bellen Remix) (2023) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A94D7EB8C8D74B8A0E2BD37E42E65CAECB9E8D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270271   (214256) от 18.12.2018
+
+Syrian - Kosmonauta (2006) Russian Edition [FLAC|Lossless|image + .cue] <Synth Pop, Future Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_214256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй полноформатный альбом Syrian "Kosmonauta" - это долгое путешествие одинокого космонавта к началу новой жизни на новой планете. Земля разрушена, и он ищет новый дом, странствуя среди звезд. Каждый трек — это последовательный рассказ истории в стиле Future Pop, разбавленном футуристическими семплами.01. The Beginning Of The End
+02. Enforcer
+03. Future Storm
+04. Empire Of The Sands(   Читать дальше...   )Жанр: Synth Pop, Future PopПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF6458D37CA8DB66E589EC78794777B452573ED
 ```
 
 
@@ -584,114 +692,6 @@ VA - FIVE (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A23443AFF6FB618E67218DF66CB56FDB33C2A16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085527   (214738) от 21.12.2016
-
-VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagles & Butterflies - Murder Was the Bass (Nick Muir Remix) (7:47)
-02. Marc Romboy - Counting Comets (Ruede Hagelstein Remix) (9:46)
-03. Eagles & Butterflies - Fireworks (8:30)
-04. BOG - Rewired (7:40)(   Читать дальше...   )Жанр: Tech House, Techno, Progressive HouseПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586E896A86C162D42F798B02A215645D8FF4447E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085581   (214788) от 21.12.2016
-
-VA - Cosy Christmas Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chambre 7 - Rising To The Top (03:56)
-02. Lemongrass - Nostalgia (03:45)
-03. Chambre 41 - Promenade No.2 (06:18)
-04. Dreamcatcher - LoveI s The Key (04:39)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457B8E9009069CF1BBBA9DC9785DBC59037FC75B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085297   (214791) от 21.12.2016
-
-VA - Christmas and Chill Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Ko Samui Nights (04:20)
-02. Roberto Sol - Momentos Azules (04:22)
-03. Chris Le Blanc - Shiva And The Sea - Sunset Ashram Mix (06:13)
-04. Florian Fai - Lakeshore Morning (04:57)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F7A2929C04467E2A03EA93188FAD0D6FD85AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085584   (214800) от 21.12.2016
-
-VA - Sensual Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite Soul - Red - Original Version (04:19)
-02. Lazy Hammock - Fading into Oblivion - Original Mix (05:55)
-03. Omaya - Novo - Original Mix (04:56)
-04. Twentyeight - Gitano - Original Version (04:47)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FA81DD37A4B4F83EBE7A58BDDBEA69AF8C40C8
 ```
 
 

@@ -1,3 +1,417 @@
+###  Публикация: 1737545   (106480) от 19.07.2024
+
+Spahn Ranch - The Coiled One (1995) Deluxe Edition, 2024, Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locusts (2023 Remaster) [00:03:58]
+02. Heretic's Fork (2023 Remaster) [00:04:42]
+03. Vortex (2023 Remaster) [00:04:06]
+04. Infrastructure (2023 Remaster) [00:04:33](   Читать дальше...   )Жанр: Techno, Electro, IndustrialПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395D5C79747F795273E1ABFB13C45BB074D73180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737635   (106481) от 19.07.2024
+
+Цыгане / Zigeunersken (1911) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая история. Граф увлекся молодой цыганочкой и крутит с ней шуры-муры. Но в вопросах брака он благоразумен. И взяв в жены дочь соседнего аристократа, цыганочку посылает.. назад в табор. Проходит пять лет, и какие-то цыгане заходят к графу, когда он сидит с женой и маленькой дочкой, и просят милостыню. Он в гневе посылает их... прочь, а они в отместку возвращаются (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эйнар ЦангенбергАктеры: Axel Boesen, Edith Buemann, Thilda Fønss, Элла Ла Кур, Лауриц Олсен, Карл Шенстром, Эксел Шульц, Franz Skondrup, Эйнар ЦангенбергПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52566208004747DE65EBEBC504C73AD00463A1DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737783   (106482) от 19.07.2024
+
+Nothing But Thieves - Dead Club City (2023) Extended Deluxe, 2024, RCA Records Label [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative rock, indie rock, hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the DCC (3:18)
+02. Overcome (3:35)
+03. Tomorrow Is Closed (3:58)
+04. Keeping You Around (3:35)(   Читать дальше...   )Жанр: Alternative rock, indie rock, hard rockПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737736   (106483) от 19.07.2024
+
+Одуванчик / Dandelion (2024) TS [H.264] [MVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме рассказывается о певице и авторе песен, которая все больше и больше скатывается вниз. Она из последних сил принимает участие в ралли мотоциклов в Южной Дакоте, где встречает Кейси, гитариста, который давно потерял веру в свою мечту.Производство: США / Automatik Entertainment, BondItЖанр: драма, мелодрамаРежиссер: Николь РигелАктеры: Томас Доэрти, Кики Лэйн, Мелани Николлз-Кинг, Джуди Маккуин Бауэр, Дженни МакМанус, Visionz2turnt, Грэйс Кайзер, Том, О’Брайэн, Акил Джексон, Кевин Е. МерфиПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737748   (106484) от 19.07.2024
+
+Мадам Клико / Widow Clicquot (2023) TS  [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего семь лет после свадьбы Барба-Николь Клико наслаждалась беззаботной жизнью. Но, потеряв горячо любимого мужа, она вынуждена взвалить на свои плечи огромный семейный бизнес, переживающий не лучшие времена.Производство: США / Fourth & Twenty Eight Films, WME IndependentЖанр: драма, биографияРежиссер: Томас К. НэпперАктеры: Лео Сутер, Хейли Беннетт, Наташа О'Кифф, Бен Майлз, Том Стёрридж, Фиби Николлс, Сэм Райли, Пол Рис, Кристофер Вилльерс, Кэра СеймурПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:23Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737811   (106485) от 19.07.2024
+
+VA - Exx Boundless Summer Hits 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airsand & TuraniQa - Doom Dom (Radio Edit) [4:16]
+02. Yocon - Mwaki (Original Mix) [6:58]
+03. Normtone & Wayward Brothers - Move (Original Mix) [4:59]
+04. Yocon & TuraniQa - Energy (Original Mix) [6:38](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Electronic, Indie DanceПродолжительность: 03:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C008BF633F579445FCAE34271B44BABBA20A6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737739   (106486) от 19.07.2024
+
+Одержимая / Des Teufels Bad / The Devils Bath (2024) WEB-DLRip [H.264/1080p] [Line] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австрия, 1750 год. В лесной деревне казнят женщину, признавшуюся в убийстве младенца. Некоторое время спустя Агнес из соседней деревни выходит замуж за местного мужчину и начинает здесь жить. Девушка жаждет детей, но нежелание мужа исполнять супружеский долг, тяжёлая ежедневная работа, придирчивая свекровь — и Агнес всё больше блуждает в одиночестве по лесу, одолеваемая (   Читать дальше...   )Производство: Австрия, Германия /  Ulrich Seidl Film Produktion, GmbHHeimfilm Gmbh, ARTEЖанр: ужасы, драма, историяРежиссер: Северин Фиала, Вероника ФранцАктеры: Аня Пляшг, Мария Хофштаттер, Дэвид Шайд, Тим Валериан Альберти, Наталья Баранова, Франциска Хольцер, Эльмар Курц, Агнес Лампл, Клаудия Мартини, Камилла ШилиаПеревод: Дублированный (Велес) LineЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:02:03Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737780   (106487) от 19.07.2024
+
+Bugatti And Musker - 2 Albums (1981, 1982) [MP3|320 Kbps] <Electronic, Funk/Soul, AOR, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дуэт авторов песен в стиле поп/ R&B. Они написали песни для многих других исполнителей, включая Sheena Easton, The Babys, Robert Miles, Jennifer Rush, Bucks Fizz, Air Supply, Lucio Battisti, Zucchero, Lisa Stansfield и Brian May (для песни Queen "Too Much Love Will Kill You").01. Every Home Should Have One (3:35)
+02. Cry Baby (4:00)
+03. Fate (3:26)
+04. The Whole World Is A Jungle (4:44)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, AOR, DiscoПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67817D5509BE456AE95C88F9AA670C26A60817E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737809   (106488) от 19.07.2024
+
+Crypt Sermon - The Stygian Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106488.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Glimmers in the Underworld 08:13
+2. Thunder (Perfect Mind) 05:53
+3. Down in the Hollow 06:31
+4. Heavy Is the Crown of Bone 05:08(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B3D37947C1BD774079993EB8018BFEBA66035F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737778   (106489) от 19.07.2024
+
+Highly Suspect - As Above, So Below (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative rock, hard rock, blues rock, grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime Voodoo (6:28)
+02. Suicide Machine (3:05)
+03. The Blue-Eyed Devil (4:28)
+04. Mexico (3:43)(   Читать дальше...   )Жанр: Alternative rock, hard rock, blues rock, grungeПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA14C4521099F5B679345D76AACF675195AD768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737740   (106490) от 19.07.2024
+
+Одержимая / Des Teufels Bad / The Devils Bath (2024) WEB-DLRip [Line] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австрия, 1750 год. В лесной деревне казнят женщину, признавшуюся в убийстве младенца. Некоторое время спустя Агнес из соседней деревни выходит замуж за местного мужчину и начинает здесь жить. Девушка жаждет детей, но нежелание мужа исполнять супружеский долг, тяжёлая ежедневная работа, придирчивая свекровь — и Агнес всё больше блуждает в одиночестве по лесу, одолеваемая (   Читать дальше...   )Производство: Австрия, Германия /  Ulrich Seidl Film Produktion, GmbHHeimfilm Gmbh, ARTEЖанр: ужасы, драма, историяРежиссер: Северин Фиала, Вероника ФранцАктеры: Аня Пляшг, Мария Хофштаттер, Дэвид Шайд, Тим Валериан Альберти, Наталья Баранова, Франциска Хольцер, Эльмар Курц, Агнес Лампл, Клаудия Мартини, Камилла ШилиаПеревод: Дублированный (Велес) LineЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:02:03Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737585   (106491) от 19.07.2024
+
+Футбол. Товарищеский Матч 2024. Хартс (Шотландия) - Тоттенхэм Хотспур (Англия) (17.07.2024) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Товарищеский Матч 2024. Хартс (Шотландия) - Тоттенхэм Хотспур (Англия)Жанр: Спорт, ФутболЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A9C0985A2506EEF6883776948292ACB3D80764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737710   (106492) от 19.07.2024
+
+Worshipper - One Way Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106492.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heroic Dose
+2. Keep This
+3. Windowpane
+4. Only Alive(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7FD285CFB51B1B7201265BD3DFC566B31CFABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737703   (106493) от 19.07.2024
+
+T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelo [6:08]
+02. Changing of the Guard [5:04]
+03. Appointment in Milano [5:44]
+04. Monk's Dream [6:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F057EA184207B9C1F758BE196C930ED55ADB0C86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737701   (106494) от 19.07.2024
+
+Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Time I Get to Phoenix [7:34]
+02. God Bless the Child [8:21]
+03. That Mellow Feeling [7:17]
+04. Holy Mama [5:22](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D2DA23D1353EF951ECF91FEB62EC33BE8D5EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737544   (106495) от 18.07.2024
+
+Trousdale - Out Of My Mind (2023) Deluxe Edition, 2024, Independent [FLAC 16,24/44.1,48,96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Blood [00:02:45]
+02. If I'm Honest [00:02:42]
+03. Point Your Finger [00:03:34]
+04. Movie Star [00:03:40](   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D0AEB67B4220992C3BF86E4F0543832CA44F61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737470   (106496) от 18.07.2024
 
 Cloven Hoof - Dominator (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -260,431 +674,6 @@ Babbba - Cabaret II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BE35EEFB43F361904A939CF31F663C096F50B33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737516   (106506) от 18.07.2024
-
-Photo Supreme 2024.2.1.6582 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D0F642C3E91F3BF582859B65AB3619F411803B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737622   (106507) от 18.07.2024
-
-Albert Castiglia - Righteous Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Centerline (4:44)
-02. Get Down To The Nitty Gritty (4:10)
-03. Mama, I Love You (6:12)
-04. You Can't Judge A Book By The Cover (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F323C74079AA36880947D21F95E2328294251B8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737644   (106508) от 18.07.2024
-
-Orange Goblin - Science, Not Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fire At The Centre Of The Earth Is Mine (5:20)
-02. (Not) Rocket Science (4:21)
-03. Ascend The Negative (5:24)
-04. False Hope Diet (6:58)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A63665635EDB76E81F84F4BB2D8B5CF0873DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737627   (106509) от 18.07.2024
-
-SkyEye - New Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Descenders (4:37)
-02. Fight! (4:22)
-03. Far Beyond (4:46)
-04. Railroad of Dreams (3:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C83E2D355E871E2B2D6975F6D2D2FE0DAB65E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737571   (106510) от 18.07.2024
-
-Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent, Math Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shokran — российская рок-группа, исполняющая прогрессивный метал и джент.
-Основана в 2012 году гитаристом Дмитрием Демьяненко.2014 - Supreme Truth
-2016 - Exodus
-2019 - Ethereal
-2024 - Duat(   Читать дальше...   )Жанр: Progressive Metal, Djent, Math MetalПродолжительность: 02:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC85FF1B7C284F0FBADE8D1A26E35EFF69222F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737563   (106511) от 18.07.2024
-
-David Moore and Westridge - Get The Led Out! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, classic rock, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paid My Dues [00:02:27]
-02. Mama Dance [00:01:58]
-03. Get The Led Out! [00:02:58]
-04. Hully Gully [00:03:35](   Читать дальше...   )Жанр: Rock, classic rock, Singer-SongwriterПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393F71AA53C9EFCE95F467617FAAFB4D19EDF037
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737527   (106512) от 18.07.2024
-
-Наталья Преображенская | Сам себе декоратор (2024) [MP3, Ирина Булекова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте магию рун, ощутите связь со Вселенной, почувствуйте её силу и получите секретные знания вместе с известным практиком рунной магии!
-Книга «Сам себе декоратор: секреты декора для крутого интерьера» поведает читателю, как зарождались и формировались топовые стили в интерьере, как развивать насмотренность и вкус, как создавать впечатляющие декораторские проекты (   Читать дальше...   )Жанр: Дизайн интерьераИздательство: АСТПродолжительность: 06:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9AF4B689BF99467BCA8A2EA80E9C2A32F1B489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737433   (106513) от 18.07.2024
-
-Liner Lou - Bluester (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steady Rollin' Gal (3:37)
-02. Do Right (3:41)
-03. Bumble Bee (4:12)
-04. My Buddy Blues (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1148FA96EDC3D02099E2C51FFA16BA32EBEA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737436   (106514) от 18.07.2024
-
-Will Jackson - Where There's a Will There's a Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River of Blues (2:48)
-02. R O B Aftermath (4:42)
-03. Shuffling Down to Memphis (5:36)
-04. Cupid Made Me Stupid (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2216192AB7A8516C0B75389F34FA10DC741C6DBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737420   (106515) от 17.07.2024
-
-Валерий Филимонов | Духовный отец преподобного Серафима Вырицкого – преподобный Варнава Гефсиманский (2002) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга рассказывает о путях восхождения к высотам христианского совершенства, о стяжании Духа Святаго Божия. В ней раскрыты истинные понятия о подлинных христианских добродетелях: смирении, кротости, любви, послушании, пастырстве, старчестве и духовной преемственности в их святоотеческом толковании. Есть надежда, что книга поможет читателю обрести духовный навык (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83022B72727D5B4224BB7BBDF5EDD2CCF6C93F6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737439   (106516) от 17.07.2024
-
-VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure and Pleasure (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Vanilla Twilight (5:51)
-02. Chillaxonic - Ineffable (5:22)
-03. Chillaxing Jazz Kollektion - Just Ones (4:20)
-04. Kool&Klean - Everything (4:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA738DDE4795FA6F9B1ACB78D3D3EC08CE2D3AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737443   (106517) от 17.07.2024
-
-VA - Idyllic Vacation Tranquil Vacation Getaway Instrumentals for Leisure and Pleasure (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Vanilla Twilight (5:51)
-02. Chillaxing Jazz Kollektion - Mornin' (4:30)
-03. Love Suggestions - The Way (4:13)
-04. Chillaxonic - Ineffable (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4241A6D4FE996B861419605A6F18F0C91E8920F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737408   (106518) от 17.07.2024
-
-Nemoreus - Orcunadoras (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Das Rote Tuch [3:31]
-02 - Give Us Rain [3:13]
-03 - Horns of War [3:36]
-04 - The Demon Inside [4:04](   Читать дальше...   )Жанр: Folk Metal, Black MetalПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1E1B7DE096660835C94F0074274C4C7C97BD5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737460   (106519) от 17.07.2024
-
-Cryptopsy - As Gomorrah Burns (2023) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lascivious Undivine
-2. In Abeyance
-3. Godless Deceiver
-4. Ill Ender(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:674606C059E4CAAAD5D0B604912E55525DCDEBAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737362   (106520) от 17.07.2024
-
-Nat Adderley Quintet - The Old Country (1990) 1992, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Country [6:47]
-02. Bohemia After Dark [5:57]
-03. Jeannine [9:32]
-04. Almost Always [4:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1089D990331334E24A7A9FD2DBC54ED4F3535038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737360   (106521) от 17.07.2024
-
-Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_106521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures (feat. Bob Mintzer) [6:18]
-02. New Year [5:13]
-03. Treasure [3:28]
-04. Butterfly Effect [7:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C9107A20A1719FBA27F35D59628F04A59E93D1
 ```
 
 

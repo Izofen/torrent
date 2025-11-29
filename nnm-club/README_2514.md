@@ -1,3 +1,56 @@
+###  Публикация: 1802079   (66110) от 14.06.2025
+
+Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Doom, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows [00:05:18]
+02. Under Blessed Skies [00:05:23]
+03. Where Silence Dwells [00:04:56]
+04. The Pale Light of Fireflies [00:06:57](   Читать дальше...   )Жанр: Melodic-Doom, AcousticПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBE4DD1ADD4CB3DAE9D66B27AA16340172F67BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801933   (66111) от 14.06.2025
+
+Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro Pop, Mashup, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H. & Jordan Suckley & Andyg vs. Dubvision & Martin Garrix vs. Sharam & Adam Beyer - Ambush Won't Let Go Patt (Johnny de City Intro Mashup)
+02. Tocadisco & Lucas & Steve vs. Lola Young vs. David Guetta & Morten - Morumbi Messy Kill Me Slow (Johnny de City Mashup)
+03. Galoski & Yaksa vs. Tiga vs. Audion vs. Age Of Love (   Читать дальше...   )Жанр: Dance, Electro Pop, Mashup, Hard DanceПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B78D249CE4DFAE394C925A114CC04FC80F0F2EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802034   (66112) от 14.06.2025
 
 slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
@@ -628,57 +681,6 @@ VA - Armin van Buuren - A State Of Trance 1229 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75CC6F14945BA13C827846DE09F8AEE1A3FA64C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801901   (66136) от 14.06.2025
-
-King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Garage Rock, Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Phantom Island [5:15]
-02 - Deadstick [3:34]
-03 - Lonely Cosmos [5:36]
-04 - Eternal Return [4:35](   Читать дальше...   )Жанр: Psychedelic Rock, Garage Rock, Jazz RockПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802047   (66137) от 14.06.2025
-
-Своя игра (14.06.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_66137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Евгений Брезановский, Аркадий Либерман, Павел МалышевСубтитры: РусскиеЯзык: РусскийПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E4BF129715BA2166FF46CF52E3FAA5095F4CD3
 ```
 
 

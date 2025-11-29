@@ -1,3 +1,57 @@
+###  Публикация: 1805309   (65486) от 05.07.2025
+
+Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Moon [00:03:51]
+02. Sanguine Covenant [00:03:48]
+03. Vesperal Salvation [00:05:24]
+04. Umbral Exorcism [00:04:03](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCBDC4F547C0E9391BC95744F519C5E728469CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805323   (65487) от 05.07.2025
+
+VA - Nothing But... Trancetopia, Vol. 27 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonic Wave & E-Set - Magic Fly (Extended Mix) 05:32
+02. Digital Dreams - Nirvana 05:09
+03. David Adam - Escape King (Extended Mix) 05:24
+04. Christophe Quinlivan-Hunt & Vikram Prabhu - Flight Mode (Extended Mix) 06:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954352C58714DF8540300B864C88140FF06868C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805121   (65488) от 04.07.2025
 
 VA - Ori Uplift - Uplifting Only Episode 647 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -635,60 +689,6 @@ Hoffman Cruise - When The Moon Rises (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2EAC9D409E8B7A4DDD35C281CBB04BD349D60C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805011   (65512) от 04.07.2025
-
-Witchrot - Soul Cellar (2025) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65512.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Possession Deepens [00:06:51]
-2. Tombstoned [00:05:05]
-3. Throat Cutter [00:06:23]
-4. Die Alone [00:05:06](   Читать дальше...   )Жанр: Stoner, Sludge, Doom-MetalПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1AFADF46FD1AEDA698F73ED1EC0F28AC7563E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805141   (65513) от 04.07.2025
-
-WarKings - Armageddon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Lindisfarne... (1:20)
-02. Armageddon (3:02)
-03. Genghis Khan (feat. Orden Ogan) (3:28)
-04. Kingdom Come (3:51)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA03A53D46FB9FD68DBEFAC731B05D37CD20094F
 ```
 
 

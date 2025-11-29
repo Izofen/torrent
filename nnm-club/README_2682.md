@@ -1,3 +1,55 @@
+###  Публикация: 1780384   (70478) от 18.02.2025
+
+Оливер Буркеман | 4000 недель (2023) [MP3, Ольга Ганкова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это саммари – сокращенная версия книги. Только самые ценные мысли, идеи, кейсы, примеры.
+Мы строим амбициозные планы, но забываем, что наша жизнь ужасно коротка и может оборваться в любую секунду. Стараемся впихнуть как можно больше рабочих дел в единицу времени, спланировать идеальное утро или отпуск мечты, следуем тысяче советов о том, «как надо», но не находим (   Читать дальше...   )Жанр: БизнесИздательство: Smart ReadingПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F900893FFEDB1D67B02E362B0A5B3991119E2F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780231   (70479) от 17.02.2025
+
+Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Two Glasses of Whiskey On Ice (feat. Sunny Bleau) (3:26)
+02.  You Better Put The Coffee On (feat. Jeff Jensen & Sunny Bleau) (5:40)
+03.  Low-Down-Middle-Aged-Blues (feat. Sunny Bleau) (4:14)
+04.  Peacock Strut (feat. Sunny Bleau) (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530B3510CA20935C42BC8AA530866CE4D0FA7932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780228   (70480) от 17.02.2025
 
 R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -638,60 +690,6 @@ Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6443B54EB9F31BA9F499E8177C1F01A2B953CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780207   (70504) от 17.02.2025
-
-Kulhu & the Vigilantes - Solace In The Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Catch the Devil (4:48)
-02.  Solace in the Blues (5:54)
-03.  Nobody's Alone (5:25)
-04.  Air / Despair (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AADAD9E543D4768830051F6B24060FAD4165C78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780300   (70505) от 17.02.2025
-
-Avatarium - Between You, God, The Devil And The Dead (2025) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Long Black Waves
-2. I See You Better In The Dark
-3. My Hair Is On Fire (But I'll Take Your Hand)
-4. Lovers Give A Kingdom To Each Other(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67EE0F672B8D689C7EB383A3873A1F383A17AA4
 ```
 
 

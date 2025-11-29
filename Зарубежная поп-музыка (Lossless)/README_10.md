@@ -1,3 +1,513 @@
+###  Публикация: 1743322   (105471) от 15.08.2024
+
+VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wale, Rihanna - Bad (Remix)Жанр: PopПродолжительность: 02:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC98B3E8950675D694EC46E2FA54C513D443EEA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742230   (105585) от 10.08.2024
+
+Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slide Down the Wall [00:02:23]
+02. It's Nice to Feel This Way Again [00:02:25]
+03. Beautiful Eyes [00:02:49]
+04. Gone [00:02:17](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1AF1F580C59183B0D742B2D59252CAC087F3E07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742177   (105601) от 10.08.2024
+
+David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy For You
+02. I Wanna Move To The Beat Of Your Heart
+03. Passion
+04. Was It Real Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6809C8E97A908EA73AEB209337282C89E9217AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739907   (105943) от 31.07.2024
+
+Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Believe in Shame? [00:04:23]
+02. The Krush Brothers LSD Edit [00:03:31]
+03. God (London) [00:01:39]
+04. This Is How a Road Gets Made [00:00:47](   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36C012A74DDBA8B4C448D0602ADBCBB30FE5403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739602   (106047) от 28.07.2024
+
+Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus (Maxim Andreev Radio Edit) (3:22)
+02. Love Is Blue (Sagi Kariv Radio Edit) (3:55)
+03. What's That Look (SoundFactory Radio Edit) (2:59)
+04. Romanism (SoundFactory Radio Edit) (2:26)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC398E76189B866B1A9970411CB209960E4D3300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739040   (106099) от 27.07.2024
+
+Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All She Wants Is (Single Mix) [00:04:26]
+02. All She Wants Is (Euro Dub Mix) [00:07:34]
+03. I Believe (Medley) [00:04:58]
+04. All She Wants Is (US Master Mix) [00:07:19](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738283   (106325) от 22.07.2024
+
+Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listening, Italiano Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fausto Leali – Bagno d'amore
+ 02. Ann Chigi – La regina delle api
+ 03. Flavia Fortuneto – Rincontrarsi
+ 04. Enzo Belmonte – Piccola canzone(   Читать дальше...   )Жанр: Easy Listening, Italiano PopПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E045A04241D6282C08F29F04DFCFBD6F744850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737839   (106396) от 20.07.2024
+
+Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Valses De Vienne
+ 02. Merci
+ 03. Coeur De Loup
+ 04. Mon Petit Petit Taxi(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F20DB29CFF8D016BEF0DFC84F3614CB325FCDE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737844   (106437) от 20.07.2024
+
+Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slice Me Nice / S.L.I.C.E.
+ 02. Fools Cry / Whenever Fools Cry
+ 03. When Guardian Angels....Rap
+ 04. Flames Of Love / Love Flames(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486ADB64FA0875D3629F574AFAD3A39FC46A056A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737116   (106560) от 16.07.2024
+
+Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin Trade (Radio Cut) [00:04:26]
+02. We Need You [00:02:53]
+03. Skin Trade (Stretch Mix) [00:07:43]
+04. Skin Trade (Parisian Mix; 2010 Remaster) [00:08:08](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514B832767FF9D13844699412ECEA30E7ABDD72B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736782   (106646) от 13.07.2024
+
+Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo (3:00)
+02. Miss Me Too (3:02)
+03. Into The Walls (3:09)
+04. 19th Hour (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9C1249A8E8D84B4D9EE03261211FF06E260A8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736604   (106670) от 13.07.2024
+
+Dalida - La Dolce Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love In Portofino (Daria Jane Remix) (3:00)
+02. Aranjuez, la tua voce (4:52)
+03. Quelli Erano Giorni (4:02)
+04. La Speranza E' Una Stanza (3:36)(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1ED1A27AF04B1B11F1D757772338B574EB3772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735519   (106806) от 10.07.2024
+
+Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdose D'Amore 2024 [00:02:56]
+02. Spirito Nel Buio [00:03:48]
+03. Soul Mama [00:03:30]
+04. Il Mare Impetuoso Al Tramonto Salì Sulla Luna E Dietro Una Tendina Di Stelle... (Remastered 2019) [00:03:56](   Читать дальше...   )Жанр: PopПродолжительность: 02:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490736B8495ABE0A9714BC930894F906F92D3270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735389   (106859) от 09.07.2024
+
+Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Soli	4:39
+02		Piccola E Fragile	3:57
+03		Ridammi Il Sole	4:43
+04		Vado Via	4:45(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735383   (106942) от 08.07.2024
+
+Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet El Presidente (Single Remix) [00:03:43]
+02. Vertigo (Do the Demolition) [00:04:44]
+03. Meet El Presidente [00:04:18]
+04. Meet El Presidente (Meet El Beat) [00:05:33](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBFABC3DB26B64E42F1BA08EDCE2230E62A0363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735185   (106968) от 07.07.2024
+
+Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Away [00:03:33]
+02. The Dream [00:03:01]
+03. Got to be Good [00:02:33]
+04. Nothing Lasts Forever [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D29F14D6B7CB7D8042D3C8F2E469FF7BEC0F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735278   (106984) от 07.07.2024
+
+The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, space disco, britfunk, jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violine [00:06:27]
+02. Steps to the Sun [00:06:43]
+03. Digital Native (Part One) [00:05:38]
+04. Sea of Dreams [00:06:57](   Читать дальше...   )Жанр: synthpop, space disco, britfunk, jazzПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066A4F5A2FD42AD006EF52E5BA07E3AF80F8DEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735279   (106986) от 07.07.2024
+
+Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Your Mind [00:01:25]
+02. C.Y.M. (Let it go) [00:04:31]
+03. Swipe [00:03:29]
+04. Body Language (feat. Bernhoft) [00:03:48](   Читать дальше...   )Жанр: Synthpop, Soul & FunkПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14856BC123BBA26CDAD0999265D8F3B47580D3F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734494   (107104) от 04.07.2024
+
+Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day & Night (StarGate Mix) [00:03:15]
+02. Something Deep Inside [00:03:22]
+03. Walk Of Life [00:03:49]
+04. Safe With Me [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734193   (107139) от 03.07.2024
 
 Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
@@ -182,519 +692,6 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD184840D88B1735A9C7968DFD076E8A724E359
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726782   (108647) от 30.05.2024
-
-Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where We Going (Intro) (1:59)
-02. When It Comes To Loving You (3:52)
-03. Weekender (3:47)
-04. A Message For Broken Hearts (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA5B1CFCCDEFAC5442862473401B007722F1458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723614   (109420) от 16.05.2024
-
-The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vitamin U [00:03:01]
-02. Got Me Good [00:02:47]
-03. Do You Like Me [00:02:44]
-04. Baby Doll [00:03:22](   Читать дальше...   )Жанр: Power-Pop, RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7343241531784D299828F44E94B4C85C01EBE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723757   (109464) от 16.05.2024
-
-Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman in Love (2:23)
-02. Yesterday (2:13)
-03. Wind Beneath My Wings (3:35)
-04. What a Wonderful World (3:36)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB9E07F474790480D092CE237775A10D42C4A49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723398   (109487) от 16.05.2024
-
-VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shympulz - Bionic Brain (Short Cut) (5:15)
-02. Dj Sheep & Luici Galconi - Feel the Same (Nightcore Remix) (2:27)
-03. Fantasy Project - Don't Know Why (C.Y.T. Nightcore Edit) (3:09)
-04. A19 - Beijing (4:24)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9D38C9B29DA13406752AC316B04868655E8D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723122   (109589) от 14.05.2024
-
-Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lip Service
-02. the sex was good!
-03. Better Kind Of Best Friend
-04. Homewrecking Era(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C260DF8B198B2CB5980BF93651359AD37F3A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722279   (109792) от 10.05.2024
-
-Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just An Illusion
-02. Body Talk
-03. Heart 'N' Soul
-04. Flashback(   Читать дальше...   )Жанр: R&B, DiscoПродолжительность: 00:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CF7320568269EAE4BE0D3CB64794C7A59F00FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719356   (110582) от 29.04.2024
-
-The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Sunshine Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canada In Springtime (2:29)
-02. Kum Ba Yah (3:15)
-03. Peter, Paul And Mary (4:11)
-04. Pineapple Crabapple (3:10)(   Читать дальше...   )Жанр: Sunshine pop, jazz, vocal, easy listeningПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B885A6C28BA0325E299A4F26DAFCAFC177BA897C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719262   (110649) от 28.04.2024
-
-Stephen Sanchez - Angel Face (2024) Club Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стивен Санчес анонсировал расширенную версию своего дебютного альбома Angel Face с Angel Face (Club Deluxe). Эта обновленная версия выйдет 26 апреля на Mercury Records/Republic Records.Стивен расширит альбом пятью совершенно новыми треками, а также любимой фанатами дуэтной версией своего 3-кратного платинового хита "Until I Found You"01. Something About Her (3:43)
-02. Evangeline (2:58)
-03. I Need You Most Of All (3:10)
-04. Only Girl (2:39)(   Читать дальше...   )Жанр: Pop, Pop Rock, Indie PopПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC839A05F7F77E6246FFACF656DA11E1724691F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719232   (110655) от 28.04.2024
-
-Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenbound (3:13)
-02. What if (3:21)
-03. Dark Magic (3:15)
-04. Ghost (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBBBB5F789A2608025BBB01DCBF04E04FEC01D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718482   (110846) от 26.04.2024
-
-Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Massive Will
-02 – Nar (feat. Ami Yerewolo)
-03 – L’amour (feat. Justina)
-04 – Lose My Mind (feat. Nayomi)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0709EA58802DB40852C10F64BBA20D9235AB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714120   (111746) от 09.04.2024
-
-MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Emaweni (feat. X-wise) [00:03:15]
-02. Ukwamukela [00:07:30]
-03. Isiphiwo [00:07:43]
-04. Qinisela (feat. Tycoon) [00:06:31](   Читать дальше...   )Жанр: DanceПродолжительность: 00:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8230CB9F51C45D9D838443F0F67BC30E1146E0A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713668   (111889) от 06.04.2024
-
-Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Eleven A Music Company Pty Ltd[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for Believing [00:03:29]
-02. Don't Ever [00:02:54]
-03. Scar [00:03:36]
-04. Ten Days [00:03:48](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8706B42BCD4ED96CEC574EE9B5DF6AE69007DD6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712068   (112285) от 01.04.2024
-
-Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Jazz Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All This Time
-02. Staring at the Wall
-03. Paradise
-04. Queen of the Sea(   Читать дальше...   )Жанр: Pop, Jazz VocalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB8FA081139588403557715184ACC9B9E225460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711903   (112294) от 01.04.2024
-
-Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks + .cue] <Electronic, pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My Island (3:53)
-02. Pretty In Possible (3:36)
-03. Bunny Is A Rider (3:14)
-04. Sunset (2:43)(   Читать дальше...   )Жанр: Art pop, alt-pop, electronicПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710967   (112590) от 28.03.2024
-
-Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - AmerIIcan Requiem
-02 - BlackbIIrd
-03 - 16 Carriages
-04 - Protector(   Читать дальше...   )Жанр: Pop, Soul, CountryПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709098   (112877) от 23.03.2024
-
-PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AEIOU (feat. Empire Of The Sun)
-02. The Hard Way (feat. Khalid)
-03. Solid Gold (feat. Kira Divine, Marques Toliver)
-04. All The Time(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708907   (112891) от 23.03.2024
-
-VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. President - I Give You My Heart                                [03:37]
-   02. Masterboy - Mister Feeling                                         [03:53]
-   03. Garcia - Vamonos (Hey Chico Are You Ready)                         [03:55]
-   04. B.B.E. - Seven Days and One Week                                   [04:33](   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6516C299B5C0B58A15F6F7FFC72C8ED645F6D159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709092   (112897) от 23.03.2024
-
-VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - I’m Good (Blue) (2:55)
-02. Ava Max - Kings & Queens (2:42)
-03. Dua Lipa - Levitating (feat. DaBaby) (3:23)
-04. Campbell - Would You (Go to Bed with Me) (2:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708847   (112982) от 22.03.2024
-
-Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puntería (3:02)
-02. La Fuerte (2:45)
-03. Tiempo Sin Verte (3:16)
-04. Cohete (2:53)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA067DA72B2339C92814A390D80B016653162BA
 ```
 
 

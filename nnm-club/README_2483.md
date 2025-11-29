@@ -1,3 +1,55 @@
+###  Публикация: 1807190   (65304) от 17.07.2025
+
+Ramonda - The Walls Are Crumbling Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under The Moonlight (04:32)
+ 02 - The Walls Are Crumbling Down (04:15)
+ 03 - Don't Look For Love (04:06)
+ 04 - Fight Fire With Fire (05:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D819253BD699E66D9B97A8B23D2E226F4451C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807187   (65305) от 17.07.2025
+
+МузЛофт / МузLoft. Стас Пьеха (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стас Пьеха. От панка до дуэта с Лепсом. Как мешала фамилия.
+Ты грустишь? Тогда скорее включай этот выпуск и наслаждайся хитами в исполнении Стасов. А еще можно будет услышать истории из 90-х и узнать почему парням нельзя слушать «Ласковый май».Производство: Россия | Y-GenerationУчастники: Стас ПьехаПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B0DE9B8C368DAFB954618799F32718E36C20F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807116   (65306) от 17.07.2025
 
 Константин Бакшт | Боевые команды продаж. Продажи на 100% (2008) [MP3, Вячеслав Тимошенко]
@@ -613,60 +665,6 @@ E&B Haircut - Polaroid Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C31038A4185E15EBC4664E66442213067B4A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806732   (65330) от 14.07.2025
-
-The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Rock, Gothic, Darkwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Dusk(Part 1) [00:03:14]
-02. Solo Yo [00:04:30]
-03. Vampiro [00:03:19]
-04. Es Halloween [00:04:08](   Читать дальше...   )Жанр: Alt. Rock / Gothic / DarkwaveПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10082DDE80690801E1EBF190FB923CE7B88DC5EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806693   (65331) от 14.07.2025
-
-D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_65331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Little Taste (4:04)
-02.  Grown Now (3:52)
-03.  Talkin' Heavy (5:02)
-04.  PTLD (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154B3A099A4D3487DFB7F853FF8FEDE3442A7FFB
 ```
 
 

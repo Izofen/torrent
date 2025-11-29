@@ -1,717 +1,697 @@
-###  Публикация: 1513076   (227133) от 27.11.2021
+###  Публикация: 1654679   (204876) от 22.08.2023
 
-Frank Sinatra - Reprise Rarities - Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys’ Night Out
-02. Me And My Shadow (feat. Sammy Davis Jr.)
-03. We Open In Venice (feat. Dean Martin, Sammy Davis Jr.)
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B96BC7C33BFC4532A654B9B1E71F34067285FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586962   (227192) от 09.12.2012
-
-V.A. - Chill-Out Jazz (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beady Belle - Closer
-02. Don Menza - Morning Song
-03. George Shearing - Killing Me Softly With His Song
-04. Francy Boland & the Orchestra - Autumn In New York
-05. Eugen Cicero - Im Mondenschein
-06. James Brown - Home At Last
-07. Jim Hall - In A Sentimantal Mood
-08. Shirley Horn - Return To Paradise
-09. Meshell Ndegeocello feat. Sabina Sciubba - Aquarium
-10. Sidsel Endresen - Traveling Still(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587106   (227325) от 09.12.2012
-
-Various Artists - The Music Maker Revue - Live! In Europe (2011) [WavPack|Lossless]<Modern Electric Blues>
+Omar & The Howlers - What's Buggin' You? (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227325.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Borders (Pura Fe')
-03. Summertime (Pura Fe')
-04. What Can An Old Man Do, But Sing The Blues? (Dr. Burt)
-05. Let The Good Times Roll (Eddie Tigner)
-06. (Get Your Kicks On) Route 66 (Eddie Tigner)
-07. Going Down Slow (Eddie Tigner)
-08. Old Folks Boogie (Alabama Slim)
-09. Blue & Lonesome (Alabama Slim)
-10. Trouble No More (Alabama Slim)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:10:52
+01 - Bad Monkey (00:03:26)
+02 - When Push Comes to Shove (00:02:36)
+03 - Clarksdale, Mississippi (00:07:00)
+04 - Gator Man (00:03:59)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:42:51
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F0E4D6A813D72EBAAB0AC9D0642C6C424A1307F0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650053   (227466) от 30.07.2023
+###  Публикация: 1654730   (204895) от 22.08.2023
 
-Maria Daines - I Believe in You (2023) [FLAC|Lossless|image + .cue] <Blues Rock>
+Larry Young - Young Blues (1960) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Blues [6:28]
+02. A Midnight Angel [2:24]
+03. African Blues [4:55]
+04. Little White Lies [4:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253A512CAB9DE4430998324DFEAA89154AB01BAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654429   (205125) от 21.08.2023
+
+Sonny Stitt - The Hard Swing (1959) 2001, Verve [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [3:10]
+02. What's New [3:42]
+03. Subito [3:59]
+04. If I Had You [4:09](   Читать дальше...   )Жанр: BopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1147296FEFFB710197419DFB4F322F5B34785E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654505   (205137) от 21.08.2023
+
+Fats Navarro - Memorial (1947) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boppin' A Riff 1&2 [5:36]
+02. Fat Boy [5:45]
+03. Be Bob Carroll [3:00]
+04. Gone With The Wind [3:12](   Читать дальше...   )Жанр: BopПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDF6FEA3E392A6D3088DB53136B32BD3D59D5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654398   (205263) от 20.08.2023
+
+Blindside Blues Band - XVI (2023) [FLAC|Lossless|image + .cue] <Blues-Rock, Hard Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_227466.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Are Warriors
-02. You and Her
-03. I Believe in You
-04. Black Clouds(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:00
+01. Shine On Through (4:52)
+02. Stand Up (4:18)
+03. Da Blues (5:30)
+04. Take Me Home (4:52)(   Читать дальше...   )Жанр: Blues-Rock, Hard RockПродолжительность: 00:53:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CB874BBECD51925767A140C91C948044C0ABA86
+magnet:?xt=urn:btih:765FC4EA27CEBC53E83C051727DF54B34FAD3C87
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650128   (227536) от 30.07.2023
+###  Публикация: 1654111   (205279) от 19.08.2023
 
-Molina, Talbot, Lofgren, Young - All Roads Lead Home (2023) [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock, Folk Rock>
+Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creme De Funk [5:14]
+02. Lazy Like [5:58]
+03. Nothing But Soul [6:50]
+04. A Night At St. Nicks [6:52](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE82B4F17A9696C802F695EFF59E73DD0A65B077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653664   (205384) от 17.08.2023
+
+Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Ray [3:49]
+02. Ill Wind (You're Blowin' Me No Good) [6:08]
+03. Watch What Happens [5:11]
+04. No Moon At All [4:15](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10803585708C876615938A8783DA97595BD7D80D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653543   (205436) от 16.08.2023
+
+Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Professor Longhair Boogie (Live At Casino Montreux 1986) (3:36)
+02. You Ain't Such A Much (Live At Casino Montreux 1986) (4:53)
+03. Sick And Tired (Live At Casino Montreux 1986) (3:31)
+04. Stack-a-Lee (Live At Casino Montreux 1986) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, BluesПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0EA995F4B012EFE1EBE72DF319285686768F2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653552   (205437) от 16.08.2023
+
+Dr. John - Things Happen That Way (2022) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Folk>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_227536.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rain
-02. You Will Never Know
-03. It's Magical
-04. Song of the Seasons(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Folk RockПродолжительность: 00:42:59
+01. Funny How Time Slips Away (4:38)
+02. Ramblin' Man (3:52)
+03. Gimmie That Old Time Religion (3:25)
+04. I Walk On Guilded Splinters (4:54)(   Читать дальше...   )Жанр: Blues, Pop, FolkПродолжительность: 00:39:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B209B71474836F5CA6F0736C7084747C05D9309
+magnet:?xt=urn:btih:2E4F90ED9A230A3A33045B325F6E73E337A6F14F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341906   (227570) от 30.11.2019
+###  Публикация: 1653450   (205452) от 16.08.2023
 
-Louis Armstrong - Swing That Music 1935 - 1939 (1990) Jazz Archives [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Swing>
+Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227570.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shoe Shine Boy [3:20]
-02. La Cucaracha [2:47]
-03. Thanks A Million [2:40]
-04. Solitude [3:02](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, SwingПродолжительность: 00:47:42
+01. Funky [9:01]
+02. Pint Size [12:24]
+03. Stella By Starlight [8:58]
+04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:767A07F117AA0C4D2B2175895EDC008A6706B402
+magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513186   (227603) от 27.11.2021
+###  Публикация: 1653380   (205488) от 16.08.2023
 
-VA - Jazz Lullaby (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Children>
+VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227603.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Singers Unlimited - Lullaby (1:36)
-02. Mel Torme - Hit the Road to Dreamland (2:27)
-03. Ella Fitzgerald - Dreams Are Made for Children (2:40)
-04. Johnny Hodges - Two Sleepy People (3:01)(   Читать дальше...   )Жанр: Jazz, ChildrenПродолжительность: 00:34:29
+01. Olivia Keast - Viva la Vida (4:27)
+02. Malva and the Sunday Crew - Use Somebody (3:05)
+03. Talisha Karrer - Sweet Child O’ Mine (3:56)
+04. Alice Lamb - Seven Nation Army (2:26)(   Читать дальше...   )Жанр: Jazz Vocal, RockПродолжительность: 00:43:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8798E9083E4F4B700773FA44E94DB98DC258E7EF
+magnet:?xt=urn:btih:387A1585549FB651436082C91F98859F953595C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424680   (227604) от 17.11.2020
+###  Публикация: 1653372   (205500) от 16.08.2023
 
-VA - Verve & Blue Note Today (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Mainstream Jazz, Vocal Jazz>
+VA - Jazz Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227604.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У нас на трекере не очень много этих сборников от Verve & Blue Note, а ведь в них собраны по одному лучшему треку с тех дисков, которые выпускает лейбл в течении года. Напомню, что Blue Note Records — джазовый лейбл основанный в 1939 году. Им владеет  британская медиагруппа Universal Music Group. Verve & Blue Note отличает очень скрупулёзный подход в отборе (   Читать дальше...   )01. Brian Newman - Dancing In The Moonlight   (3:18)
-02. Philip Bailey - Long As You're Living   (4:39)
-03. Jeff Goldblum & The Mildred Snitzer Orchestra - Cantaloupe Island (Live At Capitol Studios, Los Angeles, 2018)   (5:44)
-04. Marcus Strickland's Twi-Life - Timing   (5:27)(   Читать дальше...   )Релиз состоялся: 12 сентября 2019 годаЖанр: Jazz, Mainstream Jazz, Vocal JazzПродолжительность: 01:17:15
+01. Larkster Quartet - Always on My Mind (4:00)
+02. George Lanza - Sugar (3:57)
+03. Shannon & Keast - Fever (3:15)
+04. Meesha - Fields of Gold (4:00)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19D26D95DBF2D578E23D3A39847037EDEFF8E0D8
+magnet:?xt=urn:btih:B04BCE8F05A6A78A0B1E4B8EE72C0B429691A226
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 586959   (227606) от 09.12.2012
+###  Публикация: 1653222   (205515) от 15.08.2023
 
-Aaron Irwin Group - Blood and Thunder (2008) [FLAC|Lossless]<Contemporary Jazz>
+Jackie McLean & John Jenkins - Alto Madness (1957) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227606.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like The Sunshine
-02. The Wizard
-03. Blood And Thunder
-04. Back To You
-05. From This Moment On (Cole Porter)
-06. Little Hurts
-07. Sprung
-08. Very Early (Bill Evans)
-09. Until We Say Our Last GoodbyeЖанр: Contemporary JazzПродолжительность: 00:55:42
+01. Alto Madness [11:52]
+02. Windy City [7:04]
+03. The Lady Is A Tramp [6:54]
+04. Easy Living [7:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A1F8ECDA53E6ACD2465526B40AC2E6FFB735D2C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341904   (227658) от 30.11.2019
+###  Публикация: 1830852   (205622) от 27.10.2025
 
-Bucky Pizzarelli - April Kisses (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+Natalia M. King - AfroBlues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dumela (4:20)
+02.  AmaFunkyLove (3:39)
+03.  Lady No (4:21)
+04.  Lost & Everywhere (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E59EE6403072862B6AB32D7F7849D63DB79224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830843   (205623) от 27.10.2025
+
+Matt Pascale & The Stomps - Home (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Home (3:24)
+02.  F*cked Up Once Again (3:58)
+03.  Lost & Found (3:04)
+04.  Mr No Money (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4947AD1DE6516D644C54E72CBFA222EE488B6F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830838   (205625) от 27.10.2025
+
+Leilani Kilgore - Tell Your Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  HIGH/LOW (3:54)
+02.  BACK TO YOU (4:13)
+03.  SPANISH MOSS (4:58)
+04.  EARLY GRAVE (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E80E4C7699EB4E5B1DF7326F7AC62EFD3EAF6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830823   (205626) от 27.10.2025
+
+Laura Evans - Out of the Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wherever You Are (3:24)
+02.  Superman (3:18)
+03.  Honest (3:31)
+04.  ATM (2:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3ECE3B9D3ABE630027A3B973DC442C08FA8D44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830816   (205627) от 27.10.2025
+
+Henry Conlon - American Wild (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Just Say When (3:52)
+02.  American Wild (3:55)
+03.  Cop Car (4:15)
+04.  Do What You Gotta Do (3:00)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253AD504F7030BDE5494C896609998015C2FA7DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830793   (205628) от 27.10.2025
+
+Atua Blues - Two Roots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amazing Grace (5:54)
+02.  River Blues (4:11)
+03.  Hard Lovin' Woman (3:09)
+04.  I Get The Blues (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D1C160AEDA59716B0D765EEB0204C5DBD42DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830791   (205630) от 27.10.2025
+
+Willie Phoenix - Flower Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Across The Darkland (3:51)
+02.  Peace Love 2 U (4:07)
+03.  Honey's Drippin' (4:16)
+04.  Children Of The Times (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D665FF16DF837E527DE58F716349B236C4CAAE14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830911   (205783) от 27.10.2025
+
+VA - Roaring Halloween (Electro Swing 4) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Helena [2:42]
-02. April Kisses [3:18]
-03. Afterthoughts, Part 1 [1:55]
-04. Afterthoughts, Part 2 [1:03](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:51:35
+01.  Offbeat - Welcome to the Wolf Den (3:19)
+02.  Ashley Slater - Spooky Scary Skeletons (Hyper Swing Flip) (2:27)
+03.  Retronic - Dance in the Dark (2:42)
+04.  Duke Skellington - Halloween Day (3:04)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C50244D14A1B9DD875E3E48FB108396E7FF9761B
+magnet:?xt=urn:btih:3738C6360CF9F0C8416A38B1879E7599E21E0A54
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341907   (227675) от 30.11.2019
+###  Публикация: 1654283   (205788) от 20.08.2023
 
-Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+Roger Waters & François Myrand - Money (Lounge Version) (2023) feat. Richard St-Aubin, Gary Lindner & Tour-du-Lac [FLAC|24/48|tracks|WEB-DL] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MONEY (Lounge Version)Жанр: JazzПродолжительность: 00:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D040A359997FEBF1F924B25154C7A3E69861970
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423884   (205821) от 27.10.2025
+
+Katie Melua - Album No.8 (2020) Deluxe Edition [FLAC|Lossless|image + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227675.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When Day Is Done [3:29]
-02. Willow Tree [3:20]
-03. Honeysuckle Rose [2:57]
-04. Squeeze Me [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:06:38
+01. A Love Like That
+02. English Manner
+03. Leaving The Mountain
+04. Joy(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B76C36F0F71BBA4D44D607CB4D9A595E19E5AA8
+magnet:?xt=urn:btih:0A0A592C7D0A86A90EBD93A57EBA8BD01FB1AC00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341910   (227685) от 30.11.2019
+###  Публикация: 1156484   (206073) от 12.10.2022
 
-Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Standards, Traditional Pop>
+Anthony Gomes - Discography: 15 albums, 16CD (1997-2022) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский гитарист и певец Энтони Гомес (Anthony Gomes) родился в 1975 в в Торонто. Признанный критиками исполнитель, возглавляющий чарты, играет в стиле современного электрического блюза, включающего элементы рока, соула, R&B и кантри. После выхода его дебютного альбома Blues in Technicolor в 1998 году он начал гастролировать по Соединенным Штатам и Канаде и (   Читать дальше...   )--------------------------
+
+01. Painted Horse (3:45)
+02. Fur Covered Handcuffs (3:24)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 12:05:27 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993E47CB83D3E7AB4F59F0FEF73CDC9F16530E3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616093   (206210) от 28.02.2023
+
+Nina Simone - Great Women Of Song: Nina Simone (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Blues>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Medley [8:30]
-02. Stop The Sun, Stop The Moon [2:40]
-03. Strangers [2:44]
-04. I'll Nevet Be The Same [3:23](   Читать дальше...   )Жанр: Vocal Jazz, Standards, Traditional PopПродолжительность: 01:13:07
+01. Feeling Good
+02. I Put A Spell On You
+03. Don't Let Me Be Misunderstood
+04. Ne Me Quitte Pas(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, BluesПродолжительность: 00:43:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99E86A4243BC7E526705327D2BB1E40C1AB5DBC9
+magnet:?xt=urn:btih:36532BC3C6A55456DAE5B59FCAA449A056AAC672
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341909   (227690) от 30.11.2019
+###  Публикация: 1652155   (206664) от 10.08.2023
 
-Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+Romantic Beats for Lovers - Sensual Bubble Bath : Slow Romantic Jazz for Pleasurable Moments (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227690.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When The Day Is Gone [3:33]
-02. A Porter's Love Song To A Chambermaid [3:17]
-03. Picture Me Without You [3:16]
-04. It All Begins And Ends With You [3:06](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:09:02
+01. Sensual Time for Jazz (3:32)
+02. Whispers of Love (3:59)
+03. Romantic Mindset (2:59)
+04. Bedroom Midnight Strings (3:42)(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:53:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE618562713412ACC538EFDFEE9EB4C41082B6A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268445   (228073) от 10.12.2018
-
-Teeny Tucker - Put On Your Red Dress Baby (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Church House Prayer (feat. Robert Hughes) (03:28)
-02. Love Don't Hurt (feat. Robert Hughes) (02:33)
-03. Learn How to Love Me (03:19)
-04. I Sing the Blues (03:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0866AC8B1228C10005B7EE672FAB412403AF2F34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583632   (228081) от 16.10.2022
-
-Dick Wellstood - Live At The Sticky Wicket (1986) 2CD, 1997, Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228081.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lullaby of Birdland [4:18]
-02. How About You? [4:48]
-03. If Dreams Come True [4:43](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A94F7C0FAAD25BC35979C35A60C11A03AAA122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583780   (228089) от 16.10.2022
-
-Eric Reed - For Such A Time As This (2020) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradox Peace [1:05]
-02. Western Rebellion [4:20]
-03. Thelonigus (For Thelonious Monk and Charles Mingus) [5:31]
-04. Stella by Starlight [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF18B36E4084FF2DACB3C932BECEB8BB894DDF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424531   (228091) от 17.11.2020
-
-Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Never Entered My Mind [5:24]
-02. Four [7:13]
-03. In Your Own Sweet Way [5:47]
-04. The Theme (take 1) [2:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3CAFE31AB1A3A640ADF739B250452F606B0858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268343   (228132) от 10.12.2018
-
-Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex [3:55]
-02. Beautiful Woman [4:37]
-03. The Jam with Albert [9:21]
-04. Elementary Guitar Solo No.5 [6:52](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424528   (228206) от 17.11.2020
-
-Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [4:39]
-02. Copout Extension [8:22]
-03. Duel Fuel - Part I [2:45]
-04. Duel Fuel - Part II [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2FB3FED75A90CC69AB2E131B6609E065D61727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268350   (228218) от 10.12.2018
-
-Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry Baby [4:22]
-02. Sweet Cakes [3:41]
-03. You've Changed [3:20]
-04. Baby Let Me Hold Your Hand [3:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268345   (228227) от 10.12.2018
-
-Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fly [6:31]
-02. You'd Be So Nice to Come Home To [4:03]
-03. Meditation (Meditacao) [9:12]
-04. The Boy from Ipanema [5:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7758C5BF9B4D67DD6F5C15C4F5A694FBCDC1B35A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268354   (228244) от 10.12.2018
-
-Helen Carr - The Complete Bethlehem Collection (1955) 1993, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Mine [3:02]
-02. I Don't Want to Cry Anymore [5:16]
-03. Tulip or Turnip [2:25]
-04. Memory of the Rain [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8C31094F39DC1386C3CD3343049E09A1B1F014
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268360   (228250) от 10.12.2018
-
-Clora Bryant - Gal With A Horn (1957) 1995, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy in My Soul [2:48]
-02. Makin' Whoopee [3:34]
-03. Man with a Horn [3:58]
-04. Sweet Georgia Brown [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E32B3AE98ED32A0F1584D3FBF4346F3FD55A671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268333   (228257) от 10.12.2018
-
-Lea DeLaria - Play It Cool (2001) Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad of Sweeney Todd (from 'Sweeney Todd') [4:51]
-02. Cool (from 'West Side Story') [5:23]
-03. I've Got Your Number (from 'Little Me') [4:52]
-04. With Every Breath I Take (from 'City of Angels') [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3D538DCBAF377C0E5D57BB5ACDF5CE0F291271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965103   (228652) от 13.12.2015
-
-Wes Montgomery - Way Out Wes (1957-1959) 2CD, 2010, Not Now Music[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_228652.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Montgomeryland:
-01.Far Wes [05:58]
-02.Leila [03:34]
-03.Old Folks [06:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA074716573A0C88BB5255C96A8A5ED685779D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965194   (228721) от 13.12.2015
-
-Dmitri Kolesnik - Blues For Dad (2001) Boheme Music[APE|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues For Dad [06:17]
- 02.Home [09:12]
- 03.Waltz for B. E. [07:46]
- 04.New York Wind [11:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A365FAC86C1859FF362BA027DF907D21D6BF84D9
+magnet:?xt=urn:btih:2C73055C81DC4702D1F280D4FA170975F80429A0
 ```
 
 

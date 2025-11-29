@@ -1,3 +1,58 @@
+###  Публикация: 1653071   (206046) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Synth-pop, Symphonic Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206046.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prologue
+A2 Twilight
+A3 Yours Truly, 2095
+A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Symphonic Rock, Pop RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582513   (206229) от 10.10.2022
+
+AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206229.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC  — австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.
+Наряду с такими группами, как Led Zeppelin, Deep Purple, Queen, Iron Maiden, Scorpions, Black Sabbath, Uriah Heep, Judas Priest и Motörhead, AC/DC часто рассматриваются как пионеры хард-рока и хеви-метала. Сами же музыканты (   Читать дальше...   )1990 - The Razors Edge
+1995 - Ballbreaker
+2000 - Stiff Upper Lip
+2008 - Black Ice(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650659   (206467) от 12.08.2023
 
 Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -641,59 +696,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639009   (211804) от 11.06.2023
-
-Janis Joplin - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_211804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Moon
-02. Me And Bobby McGee
-03. Piece Of My Heart
-04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626297   (211882) от 09.06.2023
-
-Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_211882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gloryhammer — шотландская пауэр-метал-группа, основанная клавишником Кристофером Боузом, ведущим вокалистом группы Alestorm. Каждый участник группы представляет персонажа в сюжетной концепции. Группа появляется на сцене в доспехах и костюмах, чтобы представить своих персонажей.2013 - Tales From The Kingdom of Fife
-2015 - Space 1992: Rise of the Chaos Wizards
-2019 - Legends From Beyond The Galactic TerrorvortexЖанр: Symphonic Power MetalПродолжительность: 03:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
 ```
 
 

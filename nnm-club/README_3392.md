@@ -1,3 +1,427 @@
+###  Публикация: 1730450   (107858) от 16.06.2024
+
+Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torture Squad — бразильская дэт/трэш-метал группа, основанная в 1990 году.1998 - Shivering
+1999 - Asylum Of Shadows
+2001 - The Unholy Spell
+2004 - PandemoniumЖанр: Thrash/Death MetalПродолжительность: 08:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730614   (107859) от 16.06.2024
+
+Своя игра (16.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107859.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
+
+В третьем круге юбилейного турнира примут участие 9 игроков — каждого из них ждёт (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C93B5DFDF48C7C42C942D81C2A1CBF80C7DD572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730573   (107860) от 16.06.2024
+
+Вениамин Каверин | Песочные часы (2021) [MP3, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, Из архива «Гостелерадиофонда».
+Вениамин Александрович Каверин (1902–1989) – русский советский писатель, драматург и сценарист.
+Песочные часы – вещь довольно редкая. Было время, когда такими часами пользовались средневековые маги и алхимики. Песочные часы можно увидеть в школе на уроке химии. Тоненькой струйкой пересыпается песок из одного (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6E8CA4370A5A22CCEE4DDD77506A1C9F63FE93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730616   (107861) от 16.06.2024
+
+Speedtest от Ookla 5.4.2 Lite-Mod by Balatan [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 10.06.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFA1053750F4EA45ED6C64871B5268873C31AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730507   (107862) от 16.06.2024
+
+Andre Camilleri - Top Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt-Country, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Dog [00:03:01]
+02. You Funk Me Up [00:03:24]
+03. Time Keeps Moving Fast [00:03:28]
+04. Give Love a Chance [00:03:14](   Читать дальше...   )Жанр: Alt-Country, Blues RockПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CFFF612CB886E3AC94AA7922EC4D26F6FDD7F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730571   (107863) от 16.06.2024
+
+Вениамин Каверин | Ночной Сторож (2013) [MP3, Ольга Чернова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вениамин Александрович Каверин (1902–1989) – русский советский писатель, драматург и сценарист.
+Повесть «Ночной Сторож, или Семь занимательных историй, рассказанных в городе Немухине в тысяча девятьсот неизвестном году» написана на основе публиковавшихся раннее сказок.
+Прочитано по изданию: М. Детская литература, 1982 год.
+(   Читать дальше...   )Жанр: Русская литература для детей, повесть-сказкаИздательство: Нигде не купишьПродолжительность: 10:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D7E22974603F189B006041013C853C467B4A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730551   (107864) от 16.06.2024
+
+Rascal - Rascal (1990) [MP3|192 Kbps] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Is It Over
+02 - Knock Me Off My Feet
+03 - My Love's Not The Same
+04 - Days Gone By(   Читать дальше...   )Жанр: AORПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6431DB090F5483CBE883D864E33806E1B2B6B033
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730536   (107865) от 16.06.2024
+
+VA - Ibiza Summer Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DeepTurco - Touch My Body (04:34)
+02. Kato Kat - Moonlight (02:30)
+03. Perry & Fledger - Like a dream (03:28)
+04. Yan Zapolsky - Oh Na Na E (Radio Edit) (03:14)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E211AA8581A9207F416BB354C45E4F51DC6531
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730453   (107866) от 16.06.2024
+
+Storm Inside - Серый человек (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore, Post Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыши [00:01:54]
+02. Один на один [00:03:52]
+03. Серый человек [00:04:27]
+04. Маяки [00:03:38](   Читать дальше...   )Жанр: Melodic Metalcore, Post Hardcore, ElectronicПродолжительность: 00:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8624E89A49525B24703050C94F0E8801CCD937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730449   (107867) от 16.06.2024
+
+The Iron Bees - Ржавый Тромбон (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Парнишка молодой [00:02:46]
+02. вздрынч [00:02:09]
+03. Окурок на глазах [00:03:06]
+04. Заводская [00:02:35](   Читать дальше...   )Жанр: Ska, Ska-PunkПродолжительность: 00:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC900DBB8A18646FF58B25A90B739875F4E1AC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730506   (107868) от 16.06.2024
+
+VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - I’m Good (Blue) (2:55)
+02. LF System - Afraid to Feel (2:57)
+03. Tiësto - 10 - 35 (2:52)
+04. Ava Max - My Head & My Heart (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A254A75AAA00DD5D5A43AB5D78337F077A98CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729280   (107869) от 16.06.2024
+
+Aythis - Lost Lighthouse (2024) [FLAC|Lossless|WEB-DL|tracks] <neoclassical, ethereal, darkwave, goth>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold The Fire [00:03:12]
+02. Helios [00:02:55]
+03. Closer [00:02:52]
+04. Only Shadow Beneath Your Gaze [00:03:39](   Читать дальше...   )Жанр: neoclassical, ethereal, darkwave, gothПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2279E1DA45A751CF8706CEA498B55F9DB534044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730540   (107870) от 16.06.2024
+
+VA - Gothic Music Orgy, Vol. 6 (2020) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love & Hate [00:03:36]
+02 - Trapped Heart [00:03:37]
+03 - Cøldstar [00:03:12]
+04 - Can't Count on You [00:04:43](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 04:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9052C28734082518DCF7CA3CA13362485CBC773C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730542   (107871) от 16.06.2024
+
+Brave Browser 1.67.116 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1F7D01B3F073CCC03ECA749CB638A3078F4522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730381   (107872) от 16.06.2024
+
+Lonely Fire - The Last Ride (2024) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Future (01:20)
+ 02. Don't Break My Window (04:31)
+ 03. Victory (04:33)
+ 04. Casual Encounter (04:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF0B56CBC81889197C6596A3D51250DFA940275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730599   (107873) от 16.06.2024
+
+VA - Ibiza (Deep House Sensations) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonystar - Wanna Be (Radio Edit) (03:54)
+02. Markus Haupt - Hold On (To My Love) (03:14)
+03. Karlis, Schwarz & Funk - Night Drive (Schwarz & Funk Mix) (02:40)
+04. Baastian (DE) - African Soul (Deep Mix) (05:17)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B03F9A5D0A82A7DB056059E7CF451543476497
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730563   (107874) от 16.06.2024
 
 Moog Music - Mariana 1.2.0 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
@@ -258,438 +682,6 @@ Vince Guaraldi & Bola Sete - Vince & Bola (1963, 1966) 2000, Fantasy [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C3AE209E8808C71ED2616971E0BD5DAA207F667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730283   (107884) от 15.06.2024
-
-Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma-Daddy [3:58]
-02. Body and Soul [3:19]
-03. Desert Sands [5:32]
-04. 31st and State [6:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9541B2FB855B865DC60A9BE1D9B11C260ACC1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730243   (107885) от 15.06.2024
-
-Rezn - Burden (2024) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner, Doom, Drone>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo [00:04:55]
-02. Instinct [00:05:25]
-03. Descent of Sinuous Corridors [00:01:08]
-04. Bleak Patterns [00:06:52](   Читать дальше...   )Жанр: Psych Stoner, Doom, DroneПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565D80ABC61463836B80BD2922D0126B4D2B4955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730107   (107886) от 15.06.2024
-
-Annabel - Worldviews (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Another World (00:02:48)
-02 - All Time (00:02:28)
-03 - Worldviews (00:03:02)
-04 - We Are Where We Are (00:02:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DF5E164263FFC9C8E27E08136A5F5EB93DA0B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730335   (107887) от 15.06.2024
-
-Xeneris - Eternal Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbarossa (4:57)
-02. Before The River Of Fire (3:46)
-03. Eternal Rising (4:03)
-04. Pandoras's Box (4:19)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561E6EB207D6ACCF9D64E4F4352597778CC6C114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730170   (107888) от 15.06.2024
-
-Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dat Dere [4:48]
-02. Baby Man #2 [7:56]
-03. Baby Man [8:31]
-04. All Blues [7:00](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DC876211A3CA4558D5D2D22630243CC170D1DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730348   (107889) от 15.06.2024
-
-Gustave Reichert - Mars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars (7:00)
-02. Flight over the Dunes (7:03)
-03. Olympus Mons (9:13)
-04. Wind's Dance (6:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A13FC84C5C88D2578F610E3D5817B1AB28DA01F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730345   (107890) от 15.06.2024
-
-Finn Rees - Dawn Is A Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Up (4:30)
-02. Lagoon (8:28)
-03. Horizons (1:09)
-04. It's Behind Me Now (5:45)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E91FD2569BCDCD23459AF6ADFFA9D624233E3B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730418   (107891) от 15.06.2024
-
-Jet Engine Dragons - Ronin (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude (00:02:00)
-02 - Cursed Gods Reborn (00:06:44)
-03 - The Oracle (00:07:10)
-04 - Severed (00:05:42)(   Читать дальше...   )Жанр: Progressive Death, Groove MetalПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3039CF9982B7823C35F0E3224BE54C476E0F7974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730165   (107892) от 15.06.2024
-
-Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Lucky [2:56]
-02. What Kind of Fool Am I? [4:09]
-03. Corcovado [3:24]
-04. Work Song [4:17](   Читать дальше...   )Жанр: Latin Jazz, Piano JazzПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1520ADB81320CE7F491F286CA68DA21B758619
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730285   (107893) от 15.06.2024
-
-Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bouncin' with Ballholzka [8:11]
-02. Ancient Intrigues [6:50]
-03. When Love Has Gone (It Comes Out Like This) [6:08]
-04. Pete's Steps [8:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648604D1E5C945FF2349B736099FD5798DFA7F53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730317   (107894) от 15.06.2024
-
-Returned To The Earth - Stalagmite Steeple (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dark Morality (7:18)
-2. The Final Time (5:00)
-3. Stalagmite Steeple (9:58)
-4. Meaningless to Worth (6:09)(   Читать дальше...   )Жанр: Crossover Prog, Indie-RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326BF477005FF8F340F756DC9F048159AE2CF390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730223   (107895) от 15.06.2024
-
-Warlord - Free Spirit Soar (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behold A Pale Horse
-02. The Rider
-03. Conquerors
-04. Worms Of The Earth(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21BCD68F036CF742E6D1399543E39377FDEC13E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730434   (107896) от 15.06.2024
-
-Paradise In Flames - Blindness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desolate World (Instrumental) (0:59)
-02. Concerto No. 6 in C Minor, Cold Spring (3:37)
-03. Black Wings (3:53)
-04. Reasons to Not Believe (3:29)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B7A9F014F10C5E3462EE2C52C902E604ADDE9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730296   (107897) от 15.06.2024
-
-David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond In The Rough (2:59)
-02. Hurricane (2:56)
-03. Well Worth The Wait (4:15)
-04. Real Good Woman (3:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730359   (107898) от 15.06.2024
-
-Радиус - Ангелы и бесы (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Industrial, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы и бесы [00:04:05]
-02. Власть [00:04:52]
-03. Липкая кровь [00:04:41]
-04. Слово пацана [00:04:50](   Читать дальше...   )Жанр: Alternative, Industrial, Gothic MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D1E537596AAD63D0FA108ECC8C1A8364C67C98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730436   (107899) от 15.06.2024
-
-Jill Barber - Encore! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_107899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus je t’embrasse [00:02:51]
-02. Ménilmontant [00:04:04]
-03. Nuages [00:03:07]
-04. De temps en temps [00:02:52](   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A375E9173174F132CF2E76C7E4CCD219BF28824
 ```
 
 

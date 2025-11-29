@@ -1,3 +1,54 @@
+###  Публикация: 1782154   (70062) от 27.02.2025
+
+Журнал | Делаем сами №4 (577) (февраль 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70062.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BC805FCD7BD48CC4478DEDEC39A27765F859C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782242   (70063) от 27.02.2025
+
+VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta - Romantic Break
+02. Modern Talking - You're My Heart, You're My Soul
+03. Spagna - Easy Lady
+04. Baltimora - Woody Boogie(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D80233AAEA8F6FAE6F46E84E158897D06C1615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782160   (70064) от 27.02.2025
 
 Шрифты - MyFonts - Munchio [OTF, TTF]
@@ -599,60 +650,6 @@ LTR Limited Grotesque — семейство низкоконтрастных г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB927870A39598A6FAF48E1577AA548E88ED76E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782063   (70088) от 26.02.2025
-
-Marko Hietala - Roses from the Deep (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frankenstein's Wife (5:25)
-02.  Tarja - Left on Mars (5:02)
-03.  Proud Whore (5:02)
-04.  Two Soldiers (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7E168C88C98191943D3589B34F8F14DF1E5450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782025   (70089) от 26.02.2025
-
-VA - 25 Years Of Anjuna Mixed By Luttrell (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_70089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaytech - Pyramid (Dinka Extended Mix) (06:48)
-02. Soundprank - Beginnings (08:52)
-03. Michael Cassette - Through The Windows (Extended Mix) (04:49)
-04. Dusky - Mr Man (Extended Mix) (07:22)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E5D9CF364ECDC8D1E7045CAC749C116373CEE0
 ```
 
 
