@@ -1,3 +1,165 @@
+###  Публикация: 1670150   (172078) от 20.10.2023
+
+Limora - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Time
+02. Zehra
+03. Paris
+04. False Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2FACE4B48A74DBBDE0E1BDB980A7FBBA5D5A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670380   (172079) от 20.10.2023
+
+VA - Music News vol.307 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172079.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Despina Vandi - S' Agapao Kai Den Pao Kala (03:10)
+ 002. 5sta Family - Искры (02:45)
+ 003. 22 Region - На Таран (01:52)
+ 004. Ahmed Helmy - R4VE 201 (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CD60943276164EABF12CEAF6D18604190A9809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670406   (172086) от 20.10.2023
+
+VA - Music News vol.308 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tanya Tekis - Мне Плевать (02:18)
+ 002. Alex Alta feat. Saxonov - Don't Say (02:34)
+ 003. Alex Mica feat. Rafella - Te Necesito (03:26)
+ 004. Alina Eremia - Cu Voce Tare (03:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D5BFE675034E6F54320ABF24F518C463A5E547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670026   (172255) от 19.10.2023
+
+VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tundra - Pull Up (2:02)
+002. LaLion - RUN BOY (2:08)
+003. Tundra - Major (2:09)
+004. Egypt Central - Over And Under (2:12)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A6B431827747D37A69A368E4BAAB5DC4B005C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669405   (172614) от 17.10.2023
+
+VA - 60 minutes. Old School Dance Music vol.20 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Piano House, Latin House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Whelan & Di Scala feat.Nikki Belle - Sunset To Sunrise (Hott 22 Remix)
+02-Chris Montana Presents Bora Bora Chicks - No Problem (Chriss Ortega Remix)
+03-Steve Lawler - That Sound (Jerry Ropero & Denis the Menace Remix)
+04-Axwell feat. Steve Edwards - Watch The Sunrise (Extended Vocal)(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Progressive HouseПродолжительность: 59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3A89DECCEB2BE9CCC464F8A68F3915361EEAF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669699   (172632) от 17.10.2023
+
+The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buy Beg Or Steal
+02. Drive This Truck No More
+03. Maniac Lover
+04. Walk Italian(   Читать дальше...   )Жанр: RockabillyПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669206   (172789) от 16.10.2023
 
 VA - Electronic compilation part 38 (2023) [MP3|320 Kbps] <Electronic>
@@ -533,168 +695,6 @@ VA - Music News vol.55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B61928B4647C62F2F6EFE3C58A463CBBE664E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430145   (174504) от 09.12.2020
-
-VA - Beatport Clubbing House: Electro Sound Pack #207 (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_174504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам по вкусу качественная электронная музыка, что будет радовать вас где угодно и когда угодно, то лучше что сможем, это порекомендовать вам новый 207-й танцевальный микс от небезызвестного Beatport. Мелодии сборника звучат крайне современно и приятно, в связи с чем он должен быть интересным немалому количеству почитателей танцевальной музыки.001. Stashion - This In The House
-002. Maxx Play - Pop Those Bottles
-003. Grenno - In The Air
-004. Dj Msoja Sa - Helicopter(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE68E4A7DD7F682E9DBCCD261350F56E25E35C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668153   (174574) от 11.10.2023
-
-VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_174574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderstorm Artis - Stronger (Grey's Anatomy Version) (2:59)
-02. TALK - Run Away to Mars (3:33)
-03. Robert Grace - Casper (3:03)
-04. Rea Garvey - Free Like The Ocean (2:51)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429847   (174647) от 08.12.2020
-
-VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_174647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диско музыка это не даже гимн минувшей эпохи, это для многих лучшие воспоминания, юность, первая любовь. Эти чудесные дни будят разум, так почему бы не почувствовать их атмосферу у себя дома? Песни сборника "Discotron Remixes" в свежем исполнении подарят вам прекрасные воспоминания, чудесную музыку и атмосферу того времени.001. Dj Mark Brickman - The Get Down
-002. Giovanni Damico - Cassette Funk
-003. Paper Street Soul - Wonder
-004. Róisín Murphy - Something More(   Читать дальше...   )Жанр: DiscoПродолжительность: 09:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC1C4D75125630FFA50460940FDCC44820BA749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429896   (174854) от 08.12.2020
-
-VA - Шансон Зима (2020) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_174854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юра Шальной - Парижский Дождь (6:00)
-02. Денис Майданов - Утро Дорог (5:04)
-03. Владимир Ждамиров - Я Поцелуем Выпью Твои Слёзы (4:52)
-04. Сергей Клушин - Не Пара (4:40)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B3845FEFC676F3018CFD2FFCB2FACBDFE938B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595601   (174931) от 06.12.2022
-
-VA - Christmas Dance Party 2022-2023 (2022) [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_174931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva & Stephan F - Bam Bam Boogie (Extended Mix) (3:35)
-02. Turbotronic - Be My Lover (Extended Mix) (4:09)
-03. FLGTT - I Like To Move It (Extended Mix) (3:47)
-04. Stephan F & Tony T - The Power (Extended Mix) (3:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC4244AF1E2431E1B2F37DDD68757ACDD9766F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429849   (174940) от 08.12.2020
-
-VA - La Ballade Du Coeur (2020) [MP3|320 Kbps] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_174940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь старательно собраны самые лучшие и трогательные песни, которые напоминают нам о прекрасной и противоречивой любви. Эту музыку можно слушать бесконечно.001. Tété - Les Blédards Célestes
-002. Andréanne Warren - Thanatos
-003. Jean Ferrat - Mes Amours
-004. Whitney - Sur Un Fil(   Читать дальше...   )Жанр: ChansonПродолжительность: 08:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1D03F11C0F48EA05EDB4246FDEF5C81BEA99BF
 ```
 
 

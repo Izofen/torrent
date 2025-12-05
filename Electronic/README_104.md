@@ -1,30 +1,3 @@
-###  Публикация: 1518197   (157814) от 18.12.2021
-
-VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_157814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - A Voyage to Nowhere (04:35)
-02. Mare et Monti - The Beauty of Things (04:00)
-03. Buddhatronic - Ambervox (04:00)
-04. Artenovum - An Angel Voice (Soundpleasures Mix) (05:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1143B58C3E9C1B475B8173A7A1C4F1F6596DB70E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346756   (157862) от 20.12.2019
 
 Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive House>
@@ -681,6 +654,33 @@ VA - Easy Listening Chill Affairs, Vol. 3 (2023) [MP3|320 Kbps] <Electronic, Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12BBF60B714ECAACD392A81F2E8919A510E85FEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676057   (159235) от 11.11.2023
+
+VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun – Desire (05:57)
+02. Judith Ahrends – Wanderer (04:48)
+03. Sunset Boulevard Project – At the Beach (06:15)
+04. Giorgio Moroder – Our Love (J.C Fous de la Mer Forever Instrumental Mix) (06:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DowntempoПродолжительность: 02:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA52E945368D7BB07A256609E32173C216A6777
 ```
 
 

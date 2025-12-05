@@ -1,3 +1,57 @@
+###  Публикация: 1646542   (207933) от 26.07.2023
+
+VA - BBC Radio One: Essential Mix (2022) [MP3|~245 Kbps (V0)] <House, Techno, Drumnbass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Essential Mix - это еженедельное радиошоу, которое известно своей долгой и успешной историей в мире электронной музыки. Оно было запущено и ведется на британской радиостанции001. UnknownmiX - The Siren (2manydjs Edit)
+002. ?
+003. Haruomi Hosono - Alternative 3
+004. Ferrara - Love Attack (Soulwax Get Off The Speakers Edit)(   Читать дальше...   )Жанр: House, Progressive House, Techno, Dance, DrumnbassПродолжительность: 95:59:15 (~02:00:00 каждого выпуска)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADF4AAC705C0804921FC5EC35FC55D1BDF92E8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647633   (208239) от 22.07.2023
+
+Marco Rochowski - The Essential Collection (2023) 2CD [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Eternity (5:05)
+02. Star Crusader (Prodomo Remix) (5:52)
+03. Cybernetic Avenger (5:48)
+04. Lightyears To Go (6:35)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FE3583A43D936C13BE2B5E6961C3A1CE7F242F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647630   (208275) от 22.07.2023
 
 Marco Rochowski - Voyage Of Discovery (2023) [MP3|320 Kbps] <Spacesynth>
@@ -635,60 +689,6 @@ VA - Club Megamix 2023: Summer Hits (2023) [MP3|320 Kbps] <Electro House, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E01EE575D8180987C1D5A90DA74EB425236D29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640500   (211170) от 18.06.2023
-
-VA - Ibiza Top Hits (2023) [MP3|320 Kbps] <Electro House, Dance, Club, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_211170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raumakustik - Bugatti (Edit)
-02. El Mukuka, Mumba Yachi - The Harvest
-03. Kailly Jensen - Mantra
-04. Francisco Allendes, Trallez - Party(   Читать дальше...   )Жанр: Electro House, Dance, Club, ProgressiveПродолжительность: 01:55:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B33EC823FE88214871151E043D065500711F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640280   (211195) от 17.06.2023
-
-Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023, Remaster, Rhino [MP3|320 Kbps] <Electro House, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_211195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 1
-DISC 2
-DISC 3Жанр: Electro House, SynthpopПродолжительность: 3 CD, 03:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26022E45278D6927CCF746A0F4EA2695A113CEF
 ```
 
 

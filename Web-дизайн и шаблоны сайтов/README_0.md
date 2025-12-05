@@ -617,3 +617,27 @@ magnet:?xt=urn:btih:1453D8EFED5ABDF822482DEC39DF8A6FB0C01A97
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992284   (901833) от 01.03.2016
+
+Шаблоны сайта - ThemeForest - Toddlers - Kids, Child Care & Playgroup WordPress Theme [PHP, HTML, CSS, JS]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_901833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toddlers — премиум-тема WordPress с великолепным дизайном для сайтов детских садов, школ, центров детского творчества и т.д. Toddlers поддерживает все популярные плагины, такие как WPML, Woo-commerce, Event Calendar Pro, Buddy Press, bbPress, Contact form 7.Формат: PHP, HTML, CSS, JS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B5BE6A2243A0C87FFC9CF2C720EE5D9C53A44A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

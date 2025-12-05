@@ -1,106 +1,3 @@
-###  Публикация: 1447545   (246066) от 14.02.2021
-
-Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_246066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Producer (3:37)
-02. Just A Step Closer (3:34)
-03. Just Because I Love You (2:57)
-04. Devil Dance (3:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491932   (246647) от 04.05.2012
-
-Alizee - 5 альбомов (2000 - 2010) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_246647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alizée (Alizée Jacotey) - После победы в телевизионном конкурсе «Начинающая звезда» получила предложение от Милен Фармер (Mylene Farmer) и композитора Лоран Бутонна (Laurent Boutonnat), начать вокальную карьеру.
-Первый сингл «Moi… Lolita» и последовавший за ним альбом «Gourmandises» покорили Францию, а позже и всю Европу. Ализе по итогам 2000 года удостаивается (   Читать дальше...   )Жанр: PopПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239428   (246752) от 26.07.2023
-
-Муслим Магомаев - 4 альбома (2002-2008) [APE|Lossless]<Рор>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_246752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Королева красоты
-02. Солнцем опьяненный
-03. Не спеши
-04. Лучший город земли(   Читать дальше...   )Жанр: РорПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC962EBAC1CDE691AE659980444CD7954FD6417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241573   (246754) от 26.07.2023
-
-Татьяна Анциферова - Песни Александра Зацепина (2003) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_246754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C2E46B180666211381642D67DC3C5ED8668397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492747   (248473) от 07.05.2012
 
 Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
@@ -716,6 +613,120 @@ magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE74C3EF5FC79D5090373E3C33939C4FE12A9AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835365   (250936) от 06.11.2025
+
+VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
+03. Racey - Boy Oh Boy (2:53)
+04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835394   (250966) от 05.11.2025
+
+Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250966.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maman a tort (nouvelle version)
+02. Plus Grandir
+03. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9679A37459452FA883F08E3F35EEF3DA940A6B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835294   (250972) от 05.11.2025
+
+Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250972.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Get your mind straight [00:03:14]
+00. I figured it out [00:03:58]
+00. Normal world [00:03:48]
+00. Why the hell should I care [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494675   (251000) от 10.05.2012
+
+Matia Bazar - Fantasia (Best & Rarities) (2CD) (2011) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251000.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (Best)
+Продолжительность: 01:18:47
+
+01. Stasera… Che Sera
+02. Per Un’Ora D’Amore
+03. Cavallo Bianco
+04. Che Male Fa
+05. Ma Perche
+06. Solo Tu
+07. Mister Mandarino(   Читать дальше...   )2011Жанр: Italo-popПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1514173   (219468) от 02.12.2021
-
-Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original Motion Picture Soundtrack [FLAC|Lossless|image + .cue] <Classical, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_219468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к фильму Жерара Корбьо "Король танцует" ("Le Roi Danse")01. Te Deum Motet a deux choeurs (02:16)
-02. La Bocanne primitive (01:43)
-03. La Bocanne compliquee (01:06)
-04. Troupe d'Astree dansante (00:46)(   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3969704C73E3E3337C64D94539103E46EA194F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652021   (219500) от 09.08.2023
 
 Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
@@ -725,6 +698,38 @@ Cavendish Trailers - Action Thriller 6 (2014) [MP3|320 кб/с]<Trailer Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B39BAD0304167A5E6559A4C7840B67B13E2388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852344   (221853) от 22.12.2014
+
+Naseer Shamma - Viaje de las almas (Travelling souls) (2011) [MP3|320 кб/с]<Folk, Oriental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(14:54) 01. Travelling souls
+(06:34) 02. Al-Andalus opens its gates
+(08:21) 03. The path to Shaqlawa
+(04:49) 04. My grandfather's wisdom
+(13:50) 05. Nostalgia for Cordoba
+(04:54) 06. Hammurabi
+(12:13) 07. For Tunez
+
+Традиционная арабская музыка в исполнении Naseer Shamma (лютня) с участием двух музыкантов: Ashraf Sharif Khan (ситар) и Shabbaz Hussain (табла).Жанр: Folk, OrientalПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434B8BE7D0716345915D60F02EEFC95FFC4F93B4
 ```
 
 

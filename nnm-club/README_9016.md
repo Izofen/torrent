@@ -1,372 +1,552 @@
-###  Публикация: 1496565   (830005) от 13.10.2021
+###  Публикация: 1205075   (783797) от 09.02.2018
 
-VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno, Electro House>
+VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830005.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Juicy M @ Cream Arena, Creamfields UK, United Kingdom 2021-08-26:
-01. David Guetta & MORTEN - Bombardment
-02. Maddix - Technology
-03. Sonic Snares - Your Body(   Читать дальше...   )Жанр: Trance, Techno, Electro HouseПродолжительность: 12:25:30
+01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
+02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
+03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
+04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AECCB6F9B38856840BCF7107E47A6B1AB6C3AB4F
+magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496604   (830006) от 13.10.2021
+###  Публикация: 1204927   (783798) от 09.02.2018
 
-Hans Zimmer - The Dune Sketchbook: Music from the Soundtrack (2021) [AAC|~325 Kbps] <Score>
+Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830006.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Song of the Sisters (16:26)
-02. I See You in My Dreams (18:26)
-03. House Atreides (13:54)
-04. The Shortening of the Way (11:14)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
+01.	Loneliness	4:41
+02.	Relax	6:30
+03.	Green Eyes	4:37
+04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A50AC9EA95903052AB95EA591E86B6B405C25FFE
+magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502096   (830007) от 13.10.2021
+###  Публикация: 1204873   (783799) от 09.02.2018
 
-Дмитрий Орехов | Святые источники России (2000) [PDF, DJVU]
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830007.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге — третьей в серии о святынях России — впервые сделана попытка собрать и обобщить сведения о святых источниках нашего Отечества. Автор рассказывает об истории почитания источников на Руси, о гонениях на них в советское время и об удивительных чудесах исцеления, которые они и по сей день дарят страждущим.Жанр: ПравославиеФормат: PDF, DJVU
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9771AFC0C1049972FCBCE577F2A30A8C10B7C04
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502245   (830008) от 13.10.2021
+###  Публикация: 1205339   (783800) от 09.02.2018
 
-Суровое море России / Russlands wildes Meer (2018) WEB-DL [H.264/720p] (серии 1-2 из 2)
+VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
 
->>Документалистика и Телепередачи
->>Живая природа
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830008.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 6 000 километров от Москвы, на Дальнем Востоке России, находится одно из самых богатых по биологическому разнообразию, но и самое неприветливое море на нашей планете. Зимой оно покрыто паковым льдом, а летом тайфуны вздымают огромные волны. Этот регион отличается постоянной сейсмической активностью и смертоносными цунами. Побережье Охотского моря, его нетронутые (   Читать дальше...   )Производство: Австрия, ARTE, Channel One Russia, Interspot Film, National Geographic, ORF Enterprise (in association with), Smithsonian Channel, Zweites Deutsches Fernsehen (ZDF), Österreichischer Rundfunk (ORF)Жанр: Документальный, природа, флора, фаунаРежиссер: Франц ХафнерПеревод: Дублированный (Первый канал)Субтитры: отсутствуютПродолжительность: 2x ~ 00:43:00
+01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
+02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
+03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
+04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
+magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502138   (830009) от 13.10.2021
+###  Публикация: 1204909   (783801) от 09.02.2018
 
-Похищение в Париже / L'attentat (1972) BDRip [H.264/720p]
+James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830009.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда толпу, погружённую в как никогда судорожные заботы о подарках, авиабилетах, скорейшем завершении дел, подстегивает бежать ещё быстрее желание погреться и выпить чего-нибудь горячительного, эта толпа никогда не бывает столь равнодушной, как в канун Рождества. Воспетый карамельными хоралами семейный праздник ― идеальное время для преступления, которого (   Читать дальше...   )Производство: Франция, Италия, ФРГ, AMLF, Corona Filmproduktion, Sancrosiap, Terzafilm Produzione Indipendente, Transinter FilmsЖанр: триллерРежиссер: Ив БуассеАктеры: Жан-Луи Трентиньян, Мишель Пикколи, Джин Сиберг, Джан Мария Волонте, Мишель Буке, Бруно Кремер, Даниэль Ивернель, Филипп Нуаре, Франсуа Перье, Рой ШайдерПеревод: дублированный (Ленфильм)Субтитры: английскиеПродолжительность: 02:03:08
+01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
+02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
+03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
+04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A0380AA5E9050BA0575CB180DF23BBB3E119886
+magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502203   (830010) от 13.10.2021
+###  Публикация: 1205011   (783802) от 09.02.2018
 
-Большой собачий побег / Ozzy (2016) BDRip [H.264/1080p-LQ]
+VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830010.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь беспечного бигля Оззи переворачивается с лап на голову, когда, отправляясь в отпуск, семья Мартинов отдает его в элитный спа-отель для собак. Но хозяева не могли и представить, что это всего лишь ловушка, а их любимец окажется в настоящей собачьей тюрьме. Чтобы прорваться через супер-систему охраны и злющих сторожевых псов, Оззи вместе с такими же бедолагами, (   Читать дальше...   )Производство: Канада, Испания / Arcadia Motion Pictures, BD Animation, Capitan Arana, Pachacamac Films, Tangent AnimationЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Альберто Родригез, Начо Ла КазаПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:44
+01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
+02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
+03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
+04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A7198786B6DB5E1837100214BCDBA702B607B25
+magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502201   (830011) от 13.10.2021
+###  Публикация: 1205215   (783803) от 09.02.2018
 
-Skype 8.77.0.97 [Multi/Ru]
+VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830011.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
+02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
+03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
+04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:123A2481A82ADF0EA91FE91BB53A0824646DF34B
+magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496603   (830012) от 13.10.2021
+###  Публикация: 1205400   (783804) от 09.02.2018
 
-Hans Zimmer - Paul’s Dream (Dune: Music From the Soundtrack) (2021) [AAC|~320 Kbps] <Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul’s Dream (7:03)
-02. Ripples in the Sand (5:15)Жанр: ScoreПродолжительность: 00:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B234B56B0AC914916109D49174755217C828D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501810   (830013) от 13.10.2021
-
-Eyes of Eli - Eyes of Eli (2012) [FLAC|Lossless|WEB-DL|tracks] <Metal, Metalcore, Hardcore-Punk, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (2:08)
-2. Fallout (6:12)
-3. Open Up (5:09)
-4. Chruch of the Harlot (5:54)(   Читать дальше...   )Жанр: Metal, Metalcore, Hardcore-Punk, Nu-MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628AF923C332728F9DE4E38AF2BD35AEDE62461E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880459   (830018) от 22.03.2015
-
-Газета | Любимые рецепты читателей. Спецвыпуск  №6. Любимые блюда в горшочках (март 2014) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы любите поужинать аппетитным содержимым горшочка, причем каждый из своего собственного, то коллекция вкусных блюд этого номера - именно то, что Вам необходимо. Морковь в молочном соусе, картофель тушеный с чесноком, морская рыба в горшочках, мясо по-ирландски. И много других рецептов - в выпуске. Приятного аппетита!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697FDF96EDA17F450D8A649154055DB54C19D984
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880721   (830023) от 22.03.2015
-
-Журнал | Дачный совет №6 (март 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830023.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачный совет» - верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242C010AFACBA84DCDDDCC4310BF1071B72006D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880707   (830028) от 22.03.2015
-
-Kaitav Sapre - Wandering Elements (2014) [FLAC|Lossless|WEB-DL]<PsyChill, Ambient, Downtempo, Instrumental>
+VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830028.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Born from the Earth (04:21)
-02. Deserted in the Woods (05:36)
-03. Native Feeling (05:27)
-04. Deep Nature (04:46)
-05. Stillness (02:37)(   Читать дальше...   )Жанр: PsyChill, Ambient, Downtempo, InstrumentalПродолжительность: 00:47:42
+01. Spacetime Continuum - Flux (06:40)
+ 02. Move D - Gli Ragazzi Di Baia Di Puolo (09:05)
+ 03. Fred P. - Vortex (06:26)
+ 04. Patrice Scott - Synchronicity (06:05)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 02:57:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72C493F670DA88DB168D350ED87CD804674BDACF
+magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 312246   (830037) от 22.03.2011
+###  Публикация: 1204984   (783805) от 09.02.2018
 
-Как ограбить банк / How to Rob a Bank (2007) DVDRip
+VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kbps] <Chillhouse, Deep House, Downtempo>
 
->>Зарубежное кино
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sixth Sector  -  Reverse Server (Deep & City Mix)  2:40
+02.  Salina  -  Lost Angels (South London Mix)  2:48
+03.  Rox Waltford  -  Red Clouds (Deephouse Mix)  2:50
+04.  Electronique 44  -  Robot 151 (High Soul Mix)  2:44(   Читать дальше...   )Жанр: Chillhouse, Deep House, DowntempoПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204969   (783806) от 09.02.2018
+
+VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 1)  1:08:22
+02.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 2)  1:07:36
+03.  Cristoph & Jem Cooke  -  Slowly Burning (Original Mix)  7:06
+04.  Dario D'Attis & Sven Tasnadi  -  I Need (Original Mix)  7:21(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 05:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205356   (783807) от 09.02.2018
+
+Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [06:55]
+02. Four [04:37]
+03. Line for Lyons [06:33]
+04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204999   (783808) от 09.02.2018
+
+VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sean Sines  -  It Ain't Right (Apollo & Les Afrique Remix)  5:15
+02.  Miss Luna  -  Daytona Race (Paul Lomax Mix)  8:08
+03.  Oz & Edmond Dantes  -  No Way Back (Vocal Mix)  7:43
+04.  Muzzaik  -  Work It (Alexey Romeo & Julia Luna Remix)  7:09(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205282   (783809) от 09.02.2018
+
+VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solardo  -  On The Corner (Original Mix)  7:10
+02.  Mike Mago & Tiggi Hawke  -  Dangerous Behaviour (Extended VIP Mix)  4:18
+03.  CASSIMM & Sam Divine  -  What God Has Chosen (Original Mix)  6:02
+04.  Robosonic & Ferreck Dawn  -  Nine To Phife (Original Mix)  5:14(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205392   (783810) от 09.02.2018
+
+Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Earth Hour (05:20)
+ 02. Evening Earth Hour (06:56)
+ 03. Creeping Wave (08:22)
+ 04. Rotation Pull (06:04)(   Читать дальше...   )Жанр: Experimental, IDM, Abstract, AmbientПродолжительность: 00:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205327   (783811) от 09.02.2018
+
+VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 Kbps] <House, Classic House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Erick Morillo & Eddie Thoneick feat. Shawnee Taylor  -  Live Your Life (Eddie Thoneick Dub)  6:25
+02.  Jerry Ropero & Denis The Menace feat. Jaqueline  -  Coracao (Denis & Jerry's New Bangin Mix)  7:00
+03.  Francesco Diaz & Karl Frierson  -  Say A Little Prayer (Raul Rincon Peaktime Mix)  7:58
+04.  Jonathan Ulysses & Pryce Oliver feat. Futuristic Polar (   Читать дальше...   )Жанр: House, Classic House, DanceПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205374   (783812) от 09.02.2018
+
+VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luca Guerrieri  -  Faithful (Original Mix)  6:06
+02.  Boss Axis  -  The Sun (Original Mix)  7:25
+03.  Dave Wincent  -  Family Affairs (Original Mix)  6:18
+04.  Ultravizion  -  Luode (Original Mix)  7:58(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205405   (783813) от 09.02.2018
+
+VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. the_empath - Autoverse (05:30)
+02. Alpturer - Kibo (03:50)
+03. Perfluxe - Illusion (03:52)
+04. Algesis - Misuse (05:47)(   Читать дальше...   )Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205407   (783814) от 09.02.2018
+
+VA - Fifth Listen (2017) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Abstract, Glitch>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oror - Winter see und (05:57)
+02. Andrew Clam - Space Dance (Nearfield Remix) (04:12)
+03. VardenZenix - Triang and the farting snare (04:59)
+04. Kri Tik - Console napping (04:57)(   Читать дальше...   )Жанр: IDM, Ambient, Abstract, GlitchПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45EE00EBFD868F43B6E654805525AB79415428F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386632   (783815) от 12.06.2020
+
+Чума! (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это комедия о том, как люди средневековья справляются с новыми карантинными реалиями, пока за стенами замка бушует чума. По сюжету, жители вымышленного городка Нищбург оказываются заперты в замке на карантине. Палачи казнят людей на «удалёнке», печенеги совершают набеги на город в масках.Производство: РоссияЖанр: комедияРежиссер: Байбулат БатуллинАктеры: Максим Лагашкин, Зоя Бербер, Вячеслав Чепурченко, Иван Охлобыстин, Мария Горбань, Игорь Ознобихин, Надежда СысоеваПродолжительность: ~00:18:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACAA019D53A1D35D01E3D65A5EE13A55C4EA741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389900   (783816) от 12.06.2020
+
+Чужие / The Dustwalker (2019) BDRip
+
+>>След.
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830037.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодой парень Джинкс, уставший от несправедливостей мира, совершенно случайно оказывается в подвале банка, запертый вместе с Джессикой, служащей банка, уставшей от однообразия жизни. Внезапно некая банда совершает налет на банк, и теперь Джинксу приходится лавировать между грабителями и полицией, дабы спасти себя и девушку и выручить немного денег.Жанр: Криминал, Детектив, ТриллерРежиссер: Эндрюс ДженкинсАктеры: Ник Сталь, Эрика Кристенсен, Гэвин Россдэйл, Терри Крюс, Лео Фицпатрик, Адриано Арагон, Дэвид Кэррадайн, Рени Коэн, Николо Л. Коул, Бриттани ДеланоПеревод: Многоголосый закадровыйПродолжительность: 01:21:29
+Упавший космический корабль приносит паразита, превращающего людей в страшных монстров. Чтобы выжить, сержанту Джо Шарп придётся вступить в альянс с пришельцами...Производство: Австралия / Three Feet Of Film,, Head Gear Films, Kreo Films FZЖанр: Фантастика, триллер, драмаРежиссер: Сандра СкиберрасАктеры: Джолин Андерсон, Стэф Доусон, Талина Навиеде, Гарри Гринвуд, Райан Аллен, Хлоя Браун, Нина Дизли, Сэм Дадли, Руби Дункан, Кассандра МагратСубтитры: ОтсутствуютПродолжительность: 01:34:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B88C5655490706D488627DE36DF5B9BA56475F27
+magnet:?xt=urn:btih:E7BF0024C4F8503ECCB0A851FE20228C44BBFAD1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 309464   (830038) от 22.03.2011
+###  Публикация: 1389702   (783817) от 12.06.2020
 
-[EN] РАВ / WWE Monday Night RAW 14.03.2011 SATRip
+Bitdefender Antivirus Free Edition 1.0.17.178 Веб-установщик [En/De]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830038.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый выпуск RAW, в котором был
-US Championship match Sheamus vs. Daniel Bryan.Жанр: СпортПеревод: Профессиональный (двухголосый)Продолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C28DB94F77B265D649C8FDC2930B052871590FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312373   (830051) от 22.03.2011
-
-Peter Green - The Anthology (2008) 4CD Deluxe Box Set [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Change Is Gonna Come (With Splinter Group)  (5:06)
-02. I'm A Steady Rollin' Man Ft. Otis Rush (With Nigel Watson&Splinter Group) (3:32)
-03. It Takes Time (With Splinter Group) (5:09)
-04. Don't Walk Away (With Splinter Group) (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:30:00
+Bitdefender Antivirus Free Edition - бесплатный антивирус, использующий вирусные сигнатуры и проактивные технологии Bitdefender для защиты от новых и неизвестных угроз в режиме реального времени. Расплата за бесплатность - отсутствие возможности настраивать защиту под определенный уровень безопасности. В то же время, это делает решение простым и легким в использование (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
 
 ## Скачать торент
 ```bash
@@ -376,282 +556,121 @@ Peter Green - The Anthology (2008) 4CD Deluxe Box Set [WavPack|Lossless]<Blues>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114855   (830054) от 16.03.2017
+###  Публикация: 1389861   (783818) от 12.06.2020
 
-Сергей Сергеевич Хоружий | Фонарь Диогена (2010) [PDF]
+Чума! (2020) WEBRip [H.264] (сезон 1, серии 1-6 из 6)
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830054.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга проводит ретроспективный анализ эволюции понимания человека в европейской философии - от первой концептуализации человека у Аристотеля до теории практик себя Фуко. В призме сегодняшней антропологической ситуации, путь мысли о человеке предстает коррелативным пути философии в видении Хайдеггера: "забвение бытия" находит себе соответствие в "забвении (   Читать дальше...   )Жанр: Философия, антропологияФормат: PDF
+Это комедия о том, как люди средневековья справляются с новыми карантинными реалиями, пока за стенами замка бушует чума. По сюжету, жители вымышленного городка Нищбург оказываются заперты в замке на карантине. Палачи казнят людей на «удалёнке», печенеги совершают набеги на город в масках.Производство: Россия | «Carbon Production»Жанр: комедияРежиссер: Байбулат БатуллинАктеры: Максим Лагашкин, Зоя Бербер, Вячеслав Чепурченко, Иван Охлобыстин, Мария Горбань, Игорь Ознобихин, Надежда СысоеваПродолжительность: ~00:18:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53CD5E32E305C50A095DFE37954846B8C003CC1B
+magnet:?xt=urn:btih:2A46BA311DD911BBEEF67E2A9B518CD2B877B82B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114937   (830055) от 16.03.2017
+###  Публикация: 1387380   (783819) от 12.06.2020
 
-Soulver 2.6.2 [Multi/Ru]
+Чёрная лестница (2019) SATRip [H.264] (сезон 1, серии 1-20 из 20)
 
->>Архив торрентов
->>Архив 4Apple
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830055.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно.
-Для пользователей интересным в Soulver может оказаться то, что в самой программе можно задавать числа не только используя цифры, но и их словесные обозначения, Soulver прекрасно понимает оба варианта записи даже вперемешку. Например, можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 февраля 2017Разработчик: AcqualiaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
+Вадим Тельцов переезжает в столицу, где получает должность оперативника уголовного розыска и «однушку» в спальном районе Москвы. Быт налажен, работа есть, но однажды одно вроде бы стандартное дело переворачивает жизнь циничного опера с ног на голову: расследование убийства бизнесмена Юсова знакомит Тельцова с молодым руфером Максом, сыном убитого.Производство: Россия / Ан-фильмЖанр: драма, триллерРежиссер: Сахат ДурсуновАктеры: Алексей Матошин, Алексей Ушаков, Марина Коняшкина, Денис Васильев, Игорь Жижикин, Марина Куделинская, Азамат Нигманов, Денис Старков, Евгений Березовский, Павел Фартуков и др.Продолжительность: ~00:48:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAF8D6490189F02DD6C55F360F0EAFCB411AE030
+magnet:?xt=urn:btih:326F3B1E5865FEB063A4D67CFFE01BA11C85D2C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114828   (830056) от 16.03.2017
+###  Публикация: 1334110   (783820) от 12.06.2020
 
-Symphony X - Paradise Lost (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+Пожарные Чикаго / Чикаго в Огне / Chicago Fire (2019) WEB-Rip (сезон 8, серии 1-20 из 20) Шадинский
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830056.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Oculus ex Inferni 2:35
-02 Set the World on Fire (The Lie of Lies) 5:55
-03 Domination 6:30
-04 The Serpent's Kiss 5:04(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:34
+Сериал рассказывает о самой тяжелой и опасной работе — пожарных и спасателей чикагского отделения Firehouse 51. Несмотря на повседневные геройства мужчин и женщин, их огромная самоотдача приводит к личным потерям. Главный герой Мэтью Кейси, прирожденный лидер и настоящий пожарный. Однако расставание с девушкой заставляет его взглянуть по-новому на многие вещи. Кроме (   Читать дальше...   )Производство: США / Wolf Films, Universal TelevisionЖанр: драмаРежиссер: Джо Чаппелль, Реза Табризи, Сэнфорд БукставерАктеры: Джесси Спенсер, Тейлор Кинни, Кристиан Столте, Имонн Уолкер, Рэнди Флаглер, Джо Миносо, Дэвид Эйгенберг, Юрий Сардаров, Моника Реймунд, Энтони Феррарис и др.Перевод: Одноголосый, профессиональный - ШадинскийПродолжительность: ~00:42:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89B2FB2A17BE3556FC4CF680F293E7576E00F874
+magnet:?xt=urn:btih:215F5EAE978CFCF1C06FC8490D25173CB8659A29
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115038   (830057) от 16.03.2017
+###  Публикация: 1389878   (783821) от 12.06.2020
 
-Поль Фурнель | Читалка (2017) [MP3]
+1971 Project Helios (2020) [Multi] (1.0.0.0) License GOG
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830057.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С 1452 года, с издания 42-строчной библии Гуттенберга, текст и книга составляли единое целое. Опубликовать текст означало напечатать книгу, чтение текста подразумевало чтение книги, а приобрести текст можно было лишь купив книгу…
-
-Эта история началась вечером обычной пятницы, когда практикантка принесла ветерану издательского дела Роберу Дюбуа, бывшему владельцу, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 03:47:01
+1971 Project Helios - пошаговая стратегическая игра, сочетающая в себе современную военную тактику и ближний бой. Огнестрельного оружия и транспортных средств мало, конфликтам и боевым действиям нет конца, и страшный мороз уничтожает друзей и врагов на его пути. Восемь персонажей должны объединить усилия для общего дела: найти важного ученого, похищенного массивной (   Читать дальше...   )Тип издания: LicenseРазработчик: Recotechnology S.L.Жанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2F75B19882223D31ABD2933893659042FEDCFB9
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114845   (830058) от 16.03.2017
+###  Публикация: 1389724   (783822) от 12.06.2020
 
-Валентин Распутин | Живи и помни (2012) [MP3]
+Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830058.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В любом художественном произведении заглавие играет очень важную роль для читателя. Название книги «Живи и помни» наталкивает нас на более глубокое понятие и осмысление произведения. Эти слова - «Живи и помни» - говорят, что все то, что написано на страницах книги, должно стать незыблемым вечным уроком в жизни каждого человека. «Живи и помни» - это измена, низость, (   Читать дальше...   )Жанр: Современная проза, драмаПродолжительность: 09:39:38
+Однопользовательская игра в стиле приключенческого повествования, в которой мы оказываемся в пульсирующем голубом сердце нашей планеты. Игрок переносится в ближайшее будущее и познаёт тайны океана, обозревая подводный мир глазами Мирай — ученой и исследовательницы океанических глубин. Ваша недавно сформированная исследовательская группа, вооруженная инновационными (   Читать дальше...   )Тип издания: LicenseРазработчик: E-Line MediaЖанр: 3rd Person, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76FCB375A7DBE07D629CA61F76E32C13163898BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115043   (830059) от 16.03.2017
-
-Troy Redfern - Werewolf Etiquette (2013) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| What Goes Around  (04:40) 
-02| It Stacks  (04:07) 
-03| This Raging Heart  (05:31) 
-04| All Falls Down  (05:19) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F8F1D7EE2E2F8B77D7BCF44985968809C7B005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114944   (830060) от 16.03.2017
-
-Газета | Дача круглый год №5 (март 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все ответы на главные вопросы дачников и садоводов Вы легко найдете на страницах "Дача круглый год". Своими секретами высоких урожаев делятся огородники со стажем. Воспользуйтесь их опытом и таким образом Вы убережете посадки от многих напастей.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA47ADBA65F77947C34B1E85505FD0E6F99E55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114844   (830061) от 16.03.2017
-
-VA - Brutal Style Workout Music (2017) [MP3|320 Kbps] <Electro, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Buben - My Oxygen
-002. MadMal, Rokka Animal - Brutal Style (Original Mix)
-003. Electro Jack - Funktup
-004. Kill Eat Ratz - Goosebumps (Original Mix)(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 08:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BA92964213A33CD665F4DE31A4F616CCAB2062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115146   (830062) от 16.03.2017
-
-Журнал | Deco Home [Germany] (апрель-май 2017) [PDF] [De]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830062.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Deco Home" - международный журнал о дизайне и обустройство интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16044BBCD3CD970C27B8FCE1A0B82329E3DB688
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114856   (830063) от 16.03.2017
-
-VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norgzki - Butterfly Effect (Original Mix) 06:54
-02. Oliver Marks - Night Lover (Original Mix) 07:49
-03. Dark By Design - Words Are Not Enough (Original Mix) 06:47
-04. Cut-Up - Time To Rock (Original Mix) 06:17(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C003A5E6739A6ECE659587AD84F059F1DC8147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114859   (830064) от 16.03.2017
-
-Александр Ткаченко | Житие святителя Иоанна Шанхайского в пересказе для детей (2014) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый родитель желает воспитать в своём ребёнке красивый и сильный характер для счастливой жизни. Дети берут пример с окружающих, и часто образами для подражания становятся книжные герои. Наиболее убедительные - реальные образы, а среди них самые прекрасные - образы святых людей, их жизненный опыт.
-
-Как выглядит святой человек? Да вот так и выглядит: небольшого (   Читать дальше...   )Жанр: Жития святых для детейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856A3B6475CDAB42BA56EF764C976D928733B089
+magnet:?xt=urn:btih:A16BB7A519C9581CAF06031E9783CE0B8A30AC98
 ```
 
 

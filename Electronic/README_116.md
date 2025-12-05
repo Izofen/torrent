@@ -1,3 +1,57 @@
+###  Публикация: 1593477   (179878) от 28.11.2022
+
+Robert Miles - Dreamland (1996) [OGG Vorbis|650 Kbps] <Electronic, Dream, Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (Dream Version)
+02. Fable (Message Version)
+03. Fantasya
+04. Landscape(   Читать дальше...   )Жанр: Electronic, Dream, TranceПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8B9394C088756EF2C1B69871C813F1FCA31CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593534   (179896) от 28.11.2022
+
+VA - 2022 MMA Workout Music [MP3|320 Kbps] <House, Dance, Other>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Believer (3:24)
+02. Kid Cudi - Day 'N' Nite (Crookers Remix) (4:41)
+03. FVLCRVM - Wildfire (3:46)
+04. DMX - X Gon' Give It To Ya (3:37)(   Читать дальше...   )Жанр: House, Dance, OtherПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFCA858C2946A05C1B913CF5A01B1BCE2E65FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593741   (179901) от 28.11.2022
 
 VA - Sexy Funky House Annual 2023 (2022) [MP3|320 Kbps] <Funky, Club House>
@@ -634,60 +688,6 @@ VA - Balearic Beats: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6946B89D96E918FF4A37BE690FD28C748FE81F34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664839   (182376) от 30.09.2023
-
-Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_182376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Otherwish - ID
-02. Rinzen - ID
-03. Fever Ray - Shiver (Ivory Remix)
-04. Notre Dame - Yumi (Johannes Brecht Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665439   (182396) от 30.09.2023
-
-VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_182396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eligos - Feel Your Body Closer [02:54]
-02. Sam Collins - Pancake [03:29]
-03. Chris Simmons - My Heart [04:15]
-04. Dualhï - Say That You Love Me (Lalala) [02:40](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
 ```
 
 

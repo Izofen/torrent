@@ -1,111 +1,3 @@
-###  Публикация: 1672084   (170385) от 27.10.2023
-
-VA - A'dam After Disco (2023) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Soulful>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazibiza & House Of Prayers - One Night In The Disco (Original Mix)
-02. Mike Newman - Say I Love You (Original Mix)
-03. House Of Prayers & Crazibiza - Double Disco (Radio Mix)
-04. Ryan Fz & Mike Newman & Crazibiza - So Much Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Nu Disco, Indie Dance, SoulfulПродолжительность: 02:53:33 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFDC7EBE3A0B703DE32DCED614A051F193D8D56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344228   (170386) от 10.12.2019
-
-Patricia Kaas - 19 Par Patricia Kaas (2009) Compilation [FLAC|Lossless|tracks + .cue] <French Pop, Blues, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madmoiselle chante le Blues (live) (3:35)
- 02. D'Allemagne (4:12)
- 03. Mon mec à moi (4:25)
- 04. Les Hommes qui passent (3:47)(   Читать дальше...   )Жанр: French Pop, Blues, ChansonПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF72627A2E769865EF711F1FE56588B15E8B0EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596262   (170400) от 09.12.2022
-
-C.C.Catch - In The Mix - 80's Best (2002) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Survivor ('98 Rap Version)
-02. I Can Lose My Heart Tonight (Extended Club Remix)
-03. Strangers By Night (Maxi-Version)
-04. One Night's Not Enough (Maxi-Version)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1274D348E94C5BDB305F4854858380049E7A8A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344345   (170527) от 10.12.2019
-
-Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karma Chameleon
-02. It's A Miracle
-03. Black Money
-04. Changing Every Day(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E046FC2BD1F04945C4BFFC843FE9093A02AF7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430193   (170753) от 10.12.2020
 
 VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -692,6 +584,111 @@ Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D2445F2BE8D494AF77C3AF4336ABC0DE74C7B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669175   (172998) от 15.10.2023
+
+Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dippin My Feet
+02. Letting Go
+03. Golden Hour
+04. Never Gonna Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B319D32A9B627BB7DE5D69B2BAECFA700633734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668865   (173185) от 14.10.2023
+
+LKDR and Aria - Maria Magdalena (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (3:55)Жанр: Deep House, Euro-HouseПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9892682412590A59A7B4F224ACC29C002D74EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669042   (173200) от 14.10.2023
+
+Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything You Have Done [00:02:36]
+02. Upside Down [00:02:54]
+03. Friends [00:02:37]
+04. Ecstasy [00:02:19](   Читать дальше...   )Жанр: Pop DanceПродолжительность: 00:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831F2BCA2BF031430A6EE50C5DC27976C4B9C26D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668723   (173317) от 13.10.2023
+
+Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees (рус. Би Джиз) - британско-австралийская музыкальная группа, основанная в 1958 году. Состояла из троих братьев: лидера-вокалиста Барри Гибба, второго лидера-вокалиста Робина Гибба и клавишника-гитариста Мориса Гибба. Мировые продажи пластинок группы превышают 220 миллионов копий, что делает их одним из самых успешных коллективов в истории музыкальной индустрии. (   Читать дальше...   )Список альбомов:
+1967 - The Bee Gees 1st (RSO, MW 2069, Japan, Reissue 1973)
+1968 - Horizontal (ATCO Records - SD 33-233, US)
+1968 - Idea (Polydor - 583036, UK)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 14:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0DBF2D847A8372BCD2A1F3324FB958CFEB704C
 ```
 
 

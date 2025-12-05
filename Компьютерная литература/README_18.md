@@ -1,3 +1,29 @@
+###  Публикация: 1600102   (158930) от 26.12.2022
+
+Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158930.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Selenium WebDriver Recipes book is a quick problem-solving guide to automated testing web applications with Selenium WebDriver. It contains hundreds of solutions to real-world problems, with clear explanations and ready-to-run test scripts you can use in your own projects.
+
+Selenium WebDriver is a popular browser automation framework, testers or developers with (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CE3DC6C24311DA3691BA41875840C3475DDE90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600098   (158940) от 26.12.2022
 
 Zhimin Zhan | Selenium WebDriver Recipes in Node.js (2021) [PDF, EPUB] [EN]
@@ -604,30 +630,6 @@ Viorel Rudareanu, Daniil Baturin | Linux for System Administrators (2023) [PDF][
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BB0A7D6D26F604328533ECD2CFBA07D17387FBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673979   (163015) от 03.11.2023
-
-Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_163015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начиная с введения в React, библиотеку JavaScript для создания высокоинтерактивных и многократно используемых пользовательских интерфейсов, вы перейдете к моделированию данных для веб с помощью SQLAlchemy и PostgreSQL, а затем освоите разработку Restful API. Эта книга поможет вам определить пользователей приложения и управлять доступом к веб-приложению. Вы также (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```
 
 

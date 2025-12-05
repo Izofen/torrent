@@ -1,30 +1,3 @@
-###  Публикация: 1706991   (113417) от 15.03.2024
-
-LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axolotl [00:06:49]
-02. Corriente de aire [00:01:59]
-03. Manantial [00:04:27]
-04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706999   (113418) от 15.03.2024
 
 Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
@@ -696,6 +669,33 @@ Chicane - Far From The Maddening Crowds (1997) 2024 Symphonic Rehearsals [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D489435208B8C9091674D6F36A442AA8818BFFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704089   (114515) от 03.03.2024
+
+Black Nail Cabaret - Chrysanthemum (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Darkwave, DarkPop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Home is Empty [00:04:27]
+02. Autogenic [00:05:20]
+03. Totem and Taboo [00:04:58]
+04. Never Enough [00:03:46](   Читать дальше...   )Жанр: EBM / Synthpop / Darkwave / DarkPopПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E63D3ACBC4E3D1E76E8AC5324C6056EAE0D6403
 ```
 
 

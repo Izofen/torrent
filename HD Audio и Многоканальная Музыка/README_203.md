@@ -1,3 +1,84 @@
+###  Публикация: 1664424   (185442) от 26.09.2023
+
+Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185442.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wired For Sound
+A2 Once In A While
+A3 Better Than I Know Myself
+A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664294   (185948) от 25.09.2023
+
+*Ancients - Cosmic Ark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calamity [00:05:56]
+02. Desolate Dunes [00:05:18]
+03. Artemis [00:03:55]
+04. Endurance [00:06:14](   Читать дальше...   )Жанр: Post-RockПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50932E19C8023C3B9327815CC5E5F4F78B8F0BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664220   (186025) от 25.09.2023
+
+Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School - Bach: Partitas (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Praeludium (1:46)
+02. II. Allemande (3:32)
+03. III. Corrente (3:05)
+04. IV. Sarabande (5:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664242   (186044) от 25.09.2023
 
 Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
@@ -609,87 +690,6 @@ Heathen — группа из США, играющая в стиле спид/т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591175   (187128) от 18.11.2022
-
-Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_187128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
-1996 - Evil Empire
-1999 - The Battle Of Los Angeles
-2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663008   (187149) от 20.09.2023
-
-Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_187149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Purple [00:03:56]
-02. Change [00:04:27]
-03. Always [00:04:17]
-04. Breathe [00:04:21](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8268A3231475F3D028E7E7F8F6BC1994412C7BEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662993   (187160) от 20.09.2023
-
-Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwave, Retro Future>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_187160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonchild [00:03:40]
-02. Out of the Dark [00:04:25]
-03. Sonic [00:03:45]
-04. Cloud City [00:05:44](   Читать дальше...   )Жанр: Darksynth, Synthwave, Retro FutureПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771E3964429299E07D1FE556CD14E511F4FF02D
 ```
 
 

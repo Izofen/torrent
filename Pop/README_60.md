@@ -1,111 +1,3 @@
-###  Публикация: 1272170   (145705) от 26.12.2018
-
-VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_145705.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dadju - Jaloux
-02. DJ Snake - Taki Taki
-03. Imagine Dragons - Natural(   Читать дальше...   )Жанр: Pop, Folk, Indie, DancehallПродолжительность: 06:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677824   (145763) от 21.11.2023
-
-Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Vocal, Holiday>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_145763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jolly Time Of Year [00:02:02]
-02. Ring Out The Bells [00:03:59]
-03. Christmas Train (Destination Hope) [00:03:39]
-04. Not So Silent Night [00:02:45]Жанр: Pop, Classical, Vocal, HolidayПродолжительность: 2 CD, 02:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE11028372B27D176FED6D7BDB80643E71A3C9BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435072   (145813) от 27.12.2020
-
-Alsou (Алсу) - Greatest Hits (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_145813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иногда (5:16)
-02. Свет в твоем окне (4:17)
-03. Там, где рождается свет (4:36)
-04. Весна (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3999B673C0A52919746D10A3B0B9B5E4F40544F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348173   (145911) от 26.12.2019
-
-VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro House,  Pop >
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_145911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Course - Ready Or Not (Radio Mix) 3:24
-2. Paradisio - Lalala Bandolero 3:56
-3. Faithless - Insomnia ('96 Monster Radio Edit) 3:34
-4. DJ M.D. - Rio (Radio Version) 3:51(   Читать дальше...   )Жанр: Eurodance,  Euro House,  House , Trance,  Europop,  Pop ,  Pop-Rap,  Synth-popПродолжительность: 05:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435206   (145915) от 27.12.2020
 
 Владимир Пресняков - Слушая тишину (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -694,6 +586,114 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF5F82320E3FBE1DD3B68F38487CD12B36B39DD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678052   (147335) от 20.11.2023
+
+Мэйби Бэйби - Мэйбилэнд (2022) [FLAC|Lossless|WEB-DL|tracks] <Teen Pop, Pop Punk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nya-Nya-Nya ^ω^ (00:02:20)
+02 - Мэйбилэнд (00:02:22)
+03 - Дакимакура (00:03:20)
+04 - Интимки (00:02:49)(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678059   (147386) от 20.11.2023
+
+Мэйби Бэйби - Shawty (2023) [MP3|320 Kbps] <Teen Pop, Pop Punk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hello, My Name Is Baby
+02 - Duraga
+03 - Принцесса Диана
+04 - Ice Baby(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D15A91DBDE0D2E1004863F2004493896F26D4F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968635   (147414) от 27.12.2015
+
+a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [FLAC|Lossless|image + .cue] <Pop, New Wave, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (03:49)
+02. Train Of Thought (04:15)
+03. Hunting High And Low (03:45)
+04. The Blue Sky (02:37)(   Читать дальше...   )Жанр: Pop, New Wave, Synth-popПродолжительность: 02:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678194   (147454) от 20.11.2023
+
+VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  L.A. Work - Crazy Boy
+02.  2 Unlimited - Jump For Joy
+03.  Mac Project - Everybody
+04.  Optical 2 - Move On Up(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
 ```
 
 

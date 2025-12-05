@@ -1,57 +1,3 @@
-###  Публикация: 1617128   (197963) от 24.05.2023
-
-VA - Лучшие песни русского радио 21 Альбом (2000 - 2007) 23 CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_197963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гости из будущего - Самый любимый враг
-02. Л. Агутин, А.Варум - Две дороги, два пути
-03. С. Лобода - Мишка, гадкий мальчишка
-04. С. Зверев - Цыганочка(   Читать дальше...   )Жанр: PopПродолжительность: 27:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E5AE8DF3A67942B81BACC880C2D8EE810B69F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635603   (197979) от 26.05.2023
-
-Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_197979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lavender Haze
-02. Maroon
-03. Anti-Hero
-04. Snow On The Beach(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634745   (198157) от 22.05.2023
 
 VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other>
@@ -698,6 +644,60 @@ Toto Cutugno - Maestro Collection (2012) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A0B8BC903C0C980318241D24947E7578764D45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613739   (202554) от 20.02.2023
+
+Mylene Farmer - L’emprise (2022) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатый студийный альбом. В музыке Милен Фармер всегда было много печали, но на «L’Emprise» она зашкаливает. Это ее личный, откровенный альбом.01. Invisibles
+02. À Tout Jamais
+03. Que L’aube Est Belle
+04. L’emprise(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D341659188EC9A9704BE4356D67C252421E4A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613860   (202560) от 20.02.2023
+
+VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaka Khan - Ain't Nobody (4:05)
+02. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
+03. Tina Turner - The Best (5:29)
+04. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4291B4DD394CE96B79BA37192B33B16E0D63F9FD
 ```
 
 

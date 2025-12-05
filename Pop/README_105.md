@@ -1,84 +1,3 @@
-###  Публикация: 1636252   (241026) от 29.05.2023
-
-Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_241026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Of Change
-02. Heartbeat
-03. Lost In Paris
-04. The Years (Go By)Жанр: Italo-DiscoПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547913   (241034) от 02.05.2022
-
-Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_241034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balls [00:04:23]
-02. More Than a Sex Machine [00:05:03]
-03. Scheherazade [00:04:28]
-04. Aeroflot [00:04:28](   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C128D432CF93F74E9075CD36581B278BE9A676A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625841   (241150) от 12.04.2023
-
-VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_241150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Unholy
-02. Taylor Swift - Anti-Hero
-03. OneRepublic - I Ain't Worried
-04. Imagine Dragons - Bones(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2877E8A57198EF222F060AEA7B56BD4EC940A87F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618583   (241307) от 12.03.2023
 
 VA - String Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -695,6 +614,87 @@ Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624549   (242255) от 07.04.2023
+
+VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-ha - Take on Me
+02. Buster Poindexter - Hot Hot Hot
+03. Billy Ocean - Caribbean Queen (No More Love on the Run)
+04. Bangles - Walk like an Egyptian(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634935   (242318) от 23.05.2023
+
+Brandy Clark - Brandy Clark (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_242318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Enough Rocks (feat. Derek Trucks) (3:12)
+02. Buried (3:06)
+03. Tell Her You Don't Love Her (feat. Lucius) (3:32)
+04. Dear Insecurity (feat. Brandi Carlile) (4:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB5E318827470D5E4B319E2E8656B47D195F739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362531   (242407) от 24.02.2020
+
+Игорёк - Бабки есть! (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO (00:26)
+02. Не плачь (03:01)
+03. Кричи, кричи! (03:54)
+04. Ну как же так! (03:22)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311DCD80C17FA81700C8F7D54244D7317F470D88
 ```
 
 

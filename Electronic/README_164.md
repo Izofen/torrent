@@ -1,3 +1,28 @@
+###  Публикация: 1267623   (265797) от 07.12.2018
+
+Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid House, Future Jazz, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_265797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (BYTWB) (00:30)
+ 02. Underworld & OЖанр: Techno, Acid House, Future Jazz, ExperimentalПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267579   (265810) от 07.12.2018
 
 subtractiveLAD - Within And Without (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Shoegaze, Experimental>
@@ -668,33 +693,6 @@ VA - Future Sounds. EDM 2019 (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:401B4293114F541E049F713B6C140C3B724F71C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266831   (269207) от 03.12.2018
-
-VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_269207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amitacek - Blonde in Violet (Radio Mix)
-02. Air-T - Moments of Life (Radio Summer Mix)
-03. Damis - Balisto
-04. Miky - Nomad (Club Mix Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9715E786AE798AF1B078B7869879F1EDCB4C5FF
 ```
 
 

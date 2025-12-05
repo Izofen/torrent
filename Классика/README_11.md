@@ -1,29 +1,3 @@
-###  Публикация: 501697   (258824) от 27.05.2012
-
-Мишель Плассон, Дрезденский Филармонический Оркестр - Ференц Лист, Симфонические Поэмы (2010) (Диск 2)[FLAC|Lossless]<Classical Music>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_258824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прометей (Симфоническая поэма № 5)
-2. Что слышно на горе (Симфоническая поэма № 5)
-3. Праздничные звучания (Симфоническая поэма № 7)2010Жанр: Classical MusicПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501907   (258955) от 27.05.2012
 
 VA - Золотая классика. Популярные версии (5CD) (2003) [FLAC|Lossless]<Classical>
@@ -304,6 +278,87 @@ magnet:?xt=urn:btih:16205515053E587A2C13AF4275118F630330F2DC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013269   (777536) от 04.05.2016
+
+Waka Hasegawa, Samuel Coleridge - Taylor: Undiscovered Piano Works (1875-1912) 2013, Naxos [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_777536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cameos, Op. 56 
+01. I. Allegro ma non troppo    04:55
+02. II. Allegro moderato    04:18
+03. III. Andante    03:53Жанр: Classical, KeyboardПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B245D95CA6B5F9CE3CF3AC56E9C1B240333038
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012772   (778176) от 02.05.2016
+
+Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata for Piano and Violin in F, K.377
+01. 1. Allegro (3:52)
+02. 2. Tema (Andante) con variazioni (10:08)
+03. 3. Tempo di menuetto (5:57)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72EF12A7507236CDF95FAF476B90F4437FE30DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012785   (778257) от 02.05.2016
+
+Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [MP3|320 кб/с] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata for Piano and Violin in F, K.377
+01. 1. Allegro (3:52)
+02. 2. Tema (Andante) con variazioni (10:08)
+03. 3. Tempo di menuetto (5:57)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1A42F347D05C04F68865216ADF33C9D976CE60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210336   (778623) от 03.03.2018
 
 VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
@@ -352,6 +407,141 @@ Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4175965F790365987195C7E2EDD3BB10BAE3F454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203972   (784019) от 08.02.2018
+
+Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto In D Major, Op. 61
+
+A	Allegro Ma Non Troppo
+B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204264   (784031) от 08.02.2018
+
+Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 100 G Major "Military"
+A1	Band 1: Adagio; Allegro
+A2	Band 2: Allegretto
+A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204738   (784272) от 07.02.2018
+
+The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Daniel Harding (2017)2CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Die Meistersinger von Nürnberg (1868)
+01.Vorspiel (III)
+02.Sachs: Was duftet doch der Flieder so mild (II, “Fliedermonolog”)
+Tristan und Isolde (1865)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6023A457FB85AAD13FC7A9705F9BA521D5B4B8CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204816   (784278) от 07.02.2018
+
+Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Scene 1: Introduction
+02.Scene 2: Cosa dite! Ma cosa dite! (Tarabotto, Isabella)
+03.Scene 3: Ebben, che ascondi a Tarabatto (Isabella, Tarabotto)
+04.Scene 4: Qual tenero diletto (Bertrando)(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204760   (784286) от 07.02.2018
+
+Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No. 1, Overture
+02 Act I, No. 2, "Tocchiamo! a gaudio insolito" (Chorus)
+03 Act I, No. 3, "Ciel, ch'io respiri!"
+04 Act I, No. 4, "Salvami to, gran Dio"(   Читать дальше...   )Жанр: Opera,ClassicalПродолжительность: 02:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
 ```
 
 
@@ -514,195 +704,6 @@ Hornkonzert Nr. 2 Es-dur, KV 417(   Читать дальше...   )Жанр: Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F9213E134FFBB093A9A238B4B75AA4C046C066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006272   (828391) от 11.04.2016
-
-Ravel - Romantic Classic: Le Tombeau de Couperin, Piano Concerto in G, La Valse, Bolero (Nanut, Pantelli, Adolph) (2003) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_828391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bolero, op. 81
-01 - tempo di bolero moderato assai
-Valses nobles et sentementals, op. 61 (fragmentes)
-02 (fragmentes)(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3E8B56F283892D6B1A20051346A551BB52E4B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005691   (830648) от 10.04.2016
-
-Carlo Maria Giulini - Rossini: Stabat Mater (2006) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduzione. Andantino moderato. Stabat mater dolorosa 09:59
-02. Aria (Tenore). Allegretto maestoso. Cujus animam gementem 06:50
-03. Duetto (Soprano I/II). Largo. Quis est homo 07:20
-04. Aria (Basso). Allegretto maestoso. Pro peccatis sue gentis 05:08(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27290E4A750035692961E383FD992FD1D11BA39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380851   (831351) от 04.05.2020
-
-Franz Anton Hoffmeister - Symphonies (Orchestra della Svizzera italiana, Howard Griffiths) (2015) [FLAC|Lossless|image + .cue] <Classical, Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Franz Anton Hoffmeister
-
-01 Overture from the Opera "Der Königssohn aus Ithaka" (1795) - Allegro con brio [4:04]
-(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD719BE9110464A6DF3DFB89EA34B1B0BFA31E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380877   (831357) от 04.05.2020
-
-New London Chorale - Young Matthew Passion (1983) [FLAC|Lossless|WEB-DL|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831357.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Come Ye Daughters	6:15
-2.	My Master And My Lord	4:06
-3.	Break In Grief	3:32
-4.	'Tis I Whose Sin	2:22(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CF940EE9A8BD0522D6E3962367C6307BBA99BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380894   (831448) от 04.05.2020
-
-New London Chorale - Young Messiah (1979) [FLAC|Lossless|WEB-DL|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831448.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Comfort Ye	2,49
-2.	Every Valley	3,25
-3.	Who Shall Abide	2,58
-4.	O Thou That Tellest	3,51(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31AA0BBA5361ADE34A7135AD6608E5A8755D0998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005195   (832212) от 09.04.2016
-
-VA - Top 50 Most Popular Classical Piano (2014) [MP3|320 кб/с] <Classical, Piano>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_832212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liebestraume, S. 541 III. Oh Lieb, so lang du lieben kannst - Franz Liszt
-02. Lieder ohne Worte, Op. 19b I. Andante con moto - Felix Mendelssohn
-03. Nocturne in B-Flat Minor, Op. 9 No. 1 - Frederic Chopin
-04. 4 Impromptus, D. 935, Op. 142 III. Impromptu in B-Flat Major Rosamunde - Franz Schubert(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F27ACBB3C5621C7E8B955338EED3C35B2529F29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005179   (832308) от 09.04.2016
-
-Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_832308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion’s Heart
-02. Forgive Us Our Trespasses
-03. Ashes of Time
-04. Decimus(   Читать дальше...   )Жанр: Classical Crossover, SoundtrackПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9310EB2524144C2CBE0C234987321628C8EF17
 ```
 
 

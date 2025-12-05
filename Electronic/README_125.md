@@ -1,3 +1,57 @@
+###  Публикация: 1653417   (205492) от 16.08.2023
+
+VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala - Astralia (Colourbox Remix) [6:01]
+02. Cores - Ice Rain (Original Mix) [8:14]
+03. Commander Tom - Eye C Red (Original Mix) [6:51]
+04. Ulysses - Whales 2 Females (Original Mix) [5:58](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDF3665D1CE2F1E7DDCFB5D9A6AE91ED77D64E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653291   (205535) от 15.08.2023
+
+VA - Top 10 July 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dermot Kirby - Breathe (Original Mix) [7:31]
+02. Masaru Hinaiji - Spring Sign (Original Mix) [6:59]
+03. Sauli - Focus (Original Mix) [6:29]
+04. A L O N 3 L Y & Cedric Paul vs. Daniel Rigoni - La Oscuridad De Tu Corazón (Original Mix) [7:46](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51A044A4949947D3785DD1D66BF8F1136FA6B31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830919   (205751) от 27.10.2025
 
 VA - Ibiza Winter Session 2026 (The Island Chill out Pearls) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -641,60 +695,6 @@ VA - Balearic Breeze: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E60795D049FD18604C83012E3060900D1BC31166
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646542   (207933) от 26.07.2023
-
-VA - BBC Radio One: Essential Mix (2022) [MP3|~245 Kbps (V0)] <House, Techno, Drumnbass>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_207933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Essential Mix - это еженедельное радиошоу, которое известно своей долгой и успешной историей в мире электронной музыки. Оно было запущено и ведется на британской радиостанции001. UnknownmiX - The Siren (2manydjs Edit)
-002. ?
-003. Haruomi Hosono - Alternative 3
-004. Ferrara - Love Attack (Soulwax Get Off The Speakers Edit)(   Читать дальше...   )Жанр: House, Progressive House, Techno, Dance, DrumnbassПродолжительность: 95:59:15 (~02:00:00 каждого выпуска)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADF4AAC705C0804921FC5EC35FC55D1BDF92E8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647633   (208239) от 22.07.2023
-
-Marco Rochowski - The Essential Collection (2023) 2CD [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_208239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Eternity (5:05)
-02. Star Crusader (Prodomo Remix) (5:52)
-03. Cybernetic Avenger (5:48)
-04. Lightyears To Go (6:35)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FE3583A43D936C13BE2B5E6961C3A1CE7F242F
 ```
 
 

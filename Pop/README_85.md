@@ -1,57 +1,3 @@
-###  Публикация: 1587547   (192618) от 31.10.2022
-
-Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_192618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storie Di Tutti I Giorni (4:03)
-02. In Silenzio (2:48)
-03. Piccola Katy (2:38)
-04. Noi Due Nel Mondo E Nell'Anima (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FC46D9B6FB8AF4FCACC1B1C2BC83E32FFC89C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657425   (192741) от 03.09.2023
-
-Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_192741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Paloma Blue
-02 - Griechischer Sommer
-03 - Von Baden-Baden bis Berlin
-04 - Sonnenanbeter(   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587350   (192861) от 30.10.2022
 
 VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
@@ -695,6 +641,60 @@ Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617128   (197963) от 24.05.2023
+
+VA - Лучшие песни русского радио 21 Альбом (2000 - 2007) 23 CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_197963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гости из будущего - Самый любимый враг
+02. Л. Агутин, А.Варум - Две дороги, два пути
+03. С. Лобода - Мишка, гадкий мальчишка
+04. С. Зверев - Цыганочка(   Читать дальше...   )Жанр: PopПродолжительность: 27:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E5AE8DF3A67942B81BACC880C2D8EE810B69F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635603   (197979) от 26.05.2023
+
+Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lavender Haze
+02. Maroon
+03. Anti-Hero
+04. Snow On The Beach(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
 ```
 
 

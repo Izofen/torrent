@@ -1,30 +1,3 @@
-###  Публикация: 1749505   (104357) от 14.09.2024
-
-VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_104357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterboy - Set Me Free
-02. Blair Mccoy - Mama Loo
-03. Sandman - Dancing On The Beach
-04. 2fabiola - Magic Fligth(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E2DCBBC6DED5D67C733946D00C1AF7A30FAF4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822800   (104508) от 08.10.2025
 
 Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:6BCB4333E04B5973F37ED7C7280219DCE722DFB8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1767AC5EC10B105AE80FF11A5D9BBBFB07604795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746521   (104899) от 31.08.2024
+
+VA - DJ Hits Vol. 18 New (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dorkas - You Can Do It (Radio Edit)
+02. Real McCoy - One More Time (Radio Mix)
+03. Erasure - In My Arms (Single Edit
+04. Mystic Minds - Forever You (Radio Edit)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB7A11562A900032AA79A04BBEC465DFC1B636
 ```
 
 

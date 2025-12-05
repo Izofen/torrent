@@ -95,6 +95,39 @@ magnet:?xt=urn:btih:FAEA47CE460F7499B5D5EE0BC0EBBAD37E9B8A93
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488881   (91024) от 27.04.2012
+
+Solo Tango Orquestra - Historias de Tango (2010) [FLAC|Lossless]<Tango Argentino>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milonga Sentimental (live) (2:19)
+02. Toda mi Vida (2:50)
+03. Mano Brava (2:14)
+04. Gallo Ciego (3:29)
+05. A las cinco en la giralda (live) (3:13)
+06. Cite Tango (live) (5:46)
+07. Amelitango (live) (3:21)
+08. Oblivion (live) (4:02)
+09. Verano Porteno (live) (6:25)
+10. Solitude (3:43)(   Читать дальше...   )2010Жанр: Tango ArgentinoПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 443545   (91752) от 29.01.2012
 
 Adoramus - Hymns of the Celts (2007) [MP3|320 kbps]<New age, Celtic>
@@ -797,39 +830,6 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473998   (97783) от 27.03.2012
-
-Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_97783.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:42) 01. Etheric Body
-(05:10) 02. Emotional Body
-(04:56) 03. Mental Body
-(05:57) 04. Spiritual Body
-(03:16) 05. Green Sea
-(05:57) 06. Orange Sunset
-(05:11) 07. Indigo Sky
-(04:05) 08. Yellow Light
-(03:38) 09. Red Moon
-(10:13) 10. Violet Clouds(   Читать дальше...   )2006Жанр: New ageПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
 ```
 
 

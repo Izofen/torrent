@@ -1,57 +1,3 @@
-###  Публикация: 1271994   (145722) от 26.12.2018
-
-Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_145722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiery the Angels Rose (01:34)
-02. Thunderborn (02:03)
-03. Dragon Rider (02:21)
-04. Iron Poetry (feat. Kate St. Pierre) (03:09)(   Читать дальше...   )Жанр: Trailer Music, SoundtrackПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969166   (145762) от 28.12.2015
-
-Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_145762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud Mountain [15:50]
-02. Reflections [06:55]
-03. Tears Of The Forest [12:20]
-04. Providence [11:23]Жанр: Meditative, New AgeПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B65FB830E55BED4853F150E1519FE41A966E776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434518   (145976) от 27.12.2020
 
 Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Trailer>
@@ -724,6 +670,66 @@ London Symphony Orchestra & John Alldis Choir - A Festival of Christmas Carols (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838712171C9529E7A4880ACC9E6201C3B8F2AA54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271421   (148556) от 24.12.2018
+
+VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Gato Montes ( Eric Bouvelle )
+02. Le Plus Beau Tango Du Monde ( Julio Cortazon )
+03. Bucaro ( Jose Caldeiro )
+04. Gallito ( Andre Blot )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 03:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738987   (148594) от 27.12.2013
+
+David Arkenstone - Be Thou My Vision (2008) [FLAC|Lossless]<New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Be Thou My Vision (4:15)
+02. Sanctus (5:04)
+03. Celebration Jig (2:54)
+04. Amazing Grace (3:08)
+05. Deep Peace (5:12)
+06. Just as I Am (4:17)
+07. Lamb of God (5:11)
+08. The Water is Wide (3:58)
+09. In Christ Alone (4:45)
+10. You Are My God (4:21)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C741DD9AB47930B860D1A0C42BA1BDCA9E9E2BE2
 ```
 
 

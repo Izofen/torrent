@@ -1,3 +1,86 @@
+###  Публикация: 1641932   (210633) от 25.06.2023
+
+Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-DA|44.1/24|image+.cue|Audio-DVD] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice	6:00
+02. We Stand Alone	5:33
+03. Rage In Eden	 4:13
+04. I Remember (Death In The Afternoon)	4:57(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641848   (210672) от 24.06.2023
+
+Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/24|image+.cue|BD-Audio] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну вот, и еще одно юбилейное издание "властителей музыкальных дум" 80-х вышло. На этот раз, KISS. Что тут сказать? В те годы довольно прохладно к ним относился. Для меня рулили Пёпл, Хип. Но услышав Династию, мнение изменил.
+Для моих ровесников - Ночные Твари - в многоканале!))
+Про желательность наличия заднего центра не забываем01. Creatures Of The Night
+02. Saint And Sinner
+03. Keep Me Comin’
+04. Rock And Roll Hell(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641447   (210780) от 22.06.2023
+
+А. Журбин, Ю. Димитрин - Орфей и Эвридика. Зонг-опера в 2х частях (1980) Box Set, 2LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock-Opera, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210780.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Орфей полюбил Эвридику…
+A2 Первый дуэт Орфея и Эвридики и песня Орфея («Когда поет Орфей»)
+A3 Хор вестников («Близится, близится…»)
+A4 Сцена прощания(   Читать дальше...   )Жанр: Rock-Opera, ModernПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601748   (211014) от 02.01.2023
 
 Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Latin, Pop>
@@ -609,87 +692,6 @@ A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653669   (214264) от 17.08.2023
-
-Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_214264.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heat Of The Moment
-A2 Only Time Will Tell
-A3 Sole Survivor
-A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653322   (214374) от 17.08.2023
-
-Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_214374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alpha
-A1 Don't Cry
-A2 The Smile Has Left Your Eyes
-A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586013   (214597) от 28.10.2022
-
-Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Metalcore, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bullet For My Valentine — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли каверы на песни Metallica и Nirvana, параллельно занимаясь написанием (   Читать дальше...   )2006 - The Poison
-2008 - Scream Aim Fire
-2010 - Fever
-2013 - Temper TemperЖанр: Metalcore, Heavy MetalПродолжительность: 08:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1636662   (251915) от 31.05.2023
-
-Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_251915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sacred Fire
-02. Sun Circle
-03. Ceremony
-04. Spirit Dance(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB0F8700B2138BA81DE66DB6E2A001E7DF830CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451265   (252094) от 22.05.2023
-
-Whitney Houston & VA - The Bodyguard / Телохранитель (1992) [FLAC|Lossless|image + .cue] <Pop, OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_252094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You (4:32)
-02. Whitney Houston - I Have Nothing (4:50)
-03. Whitney Houston - I'm Every Woman (4:47)
-04. Whitney Houston - Run For You (4:25)(   Читать дальше...   )Жанр: Pop, OSTПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A019F0A67615081DFFA7A4C568062315F477F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 117526   (252102) от 22.05.2023
-
-VA - The Queen of the Damned / Королева Проклятых (2002) [APE|Lossless|image + .cue] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_252102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayne Static Of Static-X - Not Meant For Me (4:11)
-02. David Draiman Of Disturbed - Forsaken (3:40)
-03. Chester Bennington Of Linkin Park - System (5:04)
-04. Deftones - Change (In The House Of Flies) (5:00)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B343713649E246ECE00DBBE25CEAE56642CCF87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495940   (252401) от 13.05.2012
 
 VA - Namaste. Massage (2011) [MP3|320 кб/с]<New age, Relax>
@@ -167,37 +86,6 @@ VA - Украинские народные песни (2000) [FLAC|Lossless]<Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083D35A08901DD07918225C0BF5A1D6BE6AD7D4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495910   (252760) от 13.05.2012
-
-Russell Brower - Diablo III Soundtrack (2012) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Russell Brower - Diablo III Soundtrack (2012)
-Год: 2012
-Жанр: Soundtrack
-Продолжительность: 01:16:18Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks+.cueТрек лист:
-01. And The Heavens Shall Tremble (02:23)
-02. The Eternal Conflict (02:37)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -378,39 +266,6 @@ magnet:?xt=urn:btih:1186AF606B8F26D28516C69772782F3C928B2400
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2B7298514C7F75EBAED6AB91A5F2DAD8B40342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498737   (254332) от 19.05.2012
-
-Ghost Fish - Ghost Fish (2005) [FLAC|Lossless] <Indie Rock, Folk, Ethereal>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_254332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B (01:29)
-02. Cigar Of The Red King (03:46)
-03. D.D.L.M. (03:35)
-04. A Candle In The Sea (04:16)
-05. The Lonely King (05:39)
-06. Skin Meadow (05:26)
-07. Kik (04:32)
-08. Tangaroa (03:34)
-09. Outside (02:45)
-10. Inside (04:27)(   Читать дальше...   )2005Жанр: Indie Rock, Folk, EtherealФормат: CD, AlbumПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -766,6 +621,168 @@ Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Ap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499407   (256474) от 21.05.2012
+
+Хор Московского Сретенского Монастыря - Вижу чудное приволье (2004) [MP3|256 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Вижу чудное приволье (2:46)
+02. Однозвучно гремит колокольчик (3:53)
+03. На горушке, на горе (1:17)
+04. Как-то ранним утром (3:35)
+05. То не ветер ветку клонит (4:58)
+06. У зари-то, у зореньки (4:19)
+07. Вот полк пошел (2:07)
+08. Нiч яка мiсячна (3:24)
+09. Ах ты, степь широкая (3:33)
+10. Черный ворон (5:59)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADDFF60DF957469389693EC4554A62F8CA2B2C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499853   (256923) от 22.05.2012
+
+Кубанцы - Авторский сборник  (1995) [MP3|160 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За Кубанью огни горят (1:20)
+02. Атаман (6:27)
+03. Каким ты был (3:01)
+04. Сказал казак через долину (1:42)
+05. Ой, у вышнэвому саду (3:33)
+06. Ой, ты, Галя (2:51)
+07. Любо, братцы, любо (3:22)
+08. Ой, мий мылый варэнычкив хоче (2:06)
+09. Батько Атаман (2:06)
+10. Мисяць на нэби (3:04)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500025   (257228) от 23.05.2012
+
+Болот Байрышев - Хранитель огня (2008) [MP3|320 кб/с]<Горловое пение>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Кам-Шаман
+02. Таай-шоор
+03. Мен-койонок
+04. Священный-Укок
+05. Кокур
+06. Охота
+07. Jилдыс
+08. Кай-Болот
+09. Хранитель огня
+10. Очыра-Манди-Очы-Бала(   Читать дальше...   )Жанр: Горловое пениеПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62968165B5B199DF8A88C9DC81AC1104C2C647C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500447   (257258) от 23.05.2012
+
+Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Metal>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Franconian Woods in Winter's Silence (08:34)
+02. A Gentle Grieving Farewell Kiss (01:59)
+03. The Blue Mists of Night (06:26)
+04. Mourners (09:18)
+05. Where at Night the Wood Grouse Plays (05:29)
+06. Dying Brokenhearted (05:34)
+07. The Shepherd and the Maiden Ghost (03:27)
+08. Heimwärts (06:41)
+09. Waldpoesie (13:31)
+10. Die Schwäne im Schilf (05:51)(   Читать дальше...   )1995-2006Жанр: Neofolk, Doom/Folk/Symphonic MetalПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500394   (257395) от 24.05.2012
+
+Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Rock, Dark Acoustic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subaudition – это молодой финский дуэт, ранее исполнявший progressive metal в рамках малоизвестной команды Manifold Object. Необычный материал содержит не только стандартные и очевидные звуки, но также множество призрачных аллегорий, создающих атмосферу таинственности и загадочности. Полное ощущение сумрака, создаваемое богатым инструментальным рядом, спокойным вокалом и супер-эмоциональностью. Эта финская команда предпочитает создавать в своих произведениях безысходную атмосферу при помощи минимума нот, слов и звуков.01. Alms of the Sun (05:26)
+02. Sнnne (06:05)
+03. Now that we've spent all the Light (05:30)
+04. Feathers Fall (06:05)
+05. The Soul unto Aether (04:00)
+06. Human Abstract (06:12)
+07. Wall of Water (07:49)2006-2009Жанр: Neofolk, Atmospheric Rock, Dark AcousticПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+нет
 ```
 
 

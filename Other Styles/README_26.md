@@ -1,57 +1,3 @@
-###  Публикация: 1828014   (193752) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_193752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Passion
-02. Breathless
-03. Guitanova
-04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654919   (193913) от 24.08.2023
-
-VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_193913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atman (US) - Namekia (6:49)
-02. Mikhail Catan - Away (7:23)
-03. Tamer ElDerini - Fagr (5:42)
-04. Michael Simon - Canzul (6:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655059   (193920) от 24.08.2023
 
 VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -695,6 +641,60 @@ Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615787   (202169) от 27.02.2023
+
+Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomenon [05:50]
+02. Pulse [07:15]
+03. Storm (2023) [04:20]
+04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654838   (202249) от 23.08.2023
+
+Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning on the Mesa
+02. Ghosts of the Canyons
+03. Trail of the Ancients
+04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
 ```
 
 

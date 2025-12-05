@@ -1,36 +1,3 @@
-###  Публикация: 586661   (227334) от 09.12.2012
-
-A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_227334.jpg" />
-</div>
-
-
-###  Подробнее
-
-(09:21) 01. Cerca Del Arroyo IV
-(05:18) 02. Bonshai
-(04:54) 03. Lacricum
-(03:16) 04. El Jardin De Las Esencias
-(04:11) 05. Asia Lounge
-(04:47) 06. Dreams
-(05:53) 07. Crystal
-(10:24) 08. Otro Dia
-(10:09) 09. Anestes I
-(08:47) 10. Anestes II(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513062   (227376) от 27.11.2021
 
 Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar, Classical>
@@ -755,6 +722,33 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E94C3809D03D9263D11190D38A4AC32EC773597
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647520   (231510) от 19.07.2023
+
+Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I've Got To Say (3:04)
+02. Next In Line (3:07)
+03. Body And Fender Man (2:38)
+04. Love Me (3:16)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1633782   (198325) от 18.05.2023
+
+Стерео-Тест (Вега, г. Бердск) (1976) Мелодия СССР [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Samplers, Technical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198325.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В. Людвиковский - Пояснительный Текст ("Манекены")
+A2 Unknown Artist - Проверка Правильности Сторон
+A3 Unknown Artist - Проверка Баланса Громкоговорителей ("Жизнь Артиста")
+A4 Unknown Artist - Проверка Фазировки Громкоговорителей(   Читать дальше...   )Жанр: Field Recording, TechnicalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633584   (198446) от 15.05.2023
+
+Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, SHM-SACD [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come An' Get It 03:58
+02. Hot Stuff 03:22
+03. Don't Break My Heart Again 04:03
+04. Lonely Days, Lonely Nights 04:16(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11E7372CCDD148AA3F440945F3F4712DC9356CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221378   (198612) от 10.05.2023
+
+Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_198612.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В Спокойствии Ночи (In The Still Of The Night)
+A2 Я Мог Танцевать Всю Ночь (I Could Have Danced All Night)
+A3 Это - Великолепно (C'est Magnifique)
+A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632482   (198677) от 10.05.2023
 
 Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
@@ -619,88 +700,6 @@ Haggard — немецкий музыкальный проект, исполня
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656345   (203370) от 30.08.2023
-
-Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_203370.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heavy Waters
-A2 House Of The End Of The Road
-A3 Get That Beat
-A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656257   (203527) от 29.08.2023
-
-Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_203527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legion of the Damned — голландская трэш-метал/дэт-метал группа. Была основана в 1992 году как Occult, в 2005 году сменила название на Legion of the Damned.2005 - Malevolent Rapture - In Memory Of
-2007 - Sons Of The Jackal
-2008 - Feel The Blade
-2008 - Cult Of The DeadЖанр: Death/Thrash MetalПродолжительность: 09:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A62A075CEA9CE6CBD4D5123F025155C00852838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567596   (203562) от 25.01.2023
-
-Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks + .cue] <Alternative rock, progressive metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_203562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Muse — британская рок-группа, образованная в 1994 году в городе Тинмут (графство Девон).
-Группа состоит из трёх участников: Мэттью Беллами (вокал, гитара, клавиши), Криса Уолстенхолма (бас-гитара, бэк-вокал, вокал) и Доминика Ховарда (ударные).1999 - Showbiz
-2001 - Origin Of Symmetry
-2003 - Absolution
-2006 - Black Holes And Revelations(   Читать дальше...   )Жанр: Alternative rock, progressive metalПродолжительность: 10:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
 ```
 
 

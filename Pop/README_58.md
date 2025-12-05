@@ -1,112 +1,3 @@
-###  Публикация: 1678961   (141806) от 23.11.2023
-
-VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_141806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile - Kiss You All Over (3:19)
-02. Smokie - Mexican Girl (3:32)
-03. Boney M. - Painter Man (3:07)
-04. Barry Manilow - Copacabana (At The Copa) (4:05)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783D57E52F22271097228E96695F0A1C8FF7B93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435129   (141838) от 29.12.2020
-
-NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_141838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неуловимы
-02. Танцуй
-03. Один из нас
-04. Не б’ецца(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C254C0F0DCBA60A4E2F5EC383B6AE92A130A7DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520458   (141840) от 28.12.2021
-
-VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Christmas, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_141840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительный пост в уходящем году. Не то чтоб на этом сборнике Вас ждали какие-то уж совсем новинки, но всё здесь подобрано старушкой Соней так, чтоб лишний раз не отвлекаться от праздничного стола и салат оливье сочетался с хорошим музыкальным сопровождением.
-Не пугайтесь того, что в первом видео внизу вас встретит надпись о шокирующих кадрах. Время меняется и (   Читать дальше...   )CD1:
-01. John Lennon - Happy Xmas (War Is Over)  (3:35)
-02. Shakin’ Stevens - Merry Christmas Everyone  (3:40)
-03. Elton John - Step Into Christmas  (4:31)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 8 ноября 2019 годаЖанр: Christmas, Pop, RockПродолжительность: 05:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5273ED0E837C65A77B5FF4BF666B4538700BD805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678905   (141953) от 23.11.2023
-
-Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_141953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slaves of Love (feat. Quino)
-02. Don't Gamble with My Heart
-03. Only Love (feat. Bee Lee & AlimkhanOV A)
-04. Drama (feat. Quino)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435566   (141960) от 29.12.2020
 
 The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] <Rock, Pop, Surf>
@@ -697,6 +588,111 @@ Fantastique - Fantastique (1982) 2006 [FLAC|Lossless|image + .cue] <Disco, Hi-NR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD3CD9A773846849AA0ADDBED417B22AF8CC36B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087668   (144127) от 28.12.2016
+
+VA - Retro Megadance Party (2009) [FLAC|Lossless|tracks + .cue] <Eurodance, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is Love (Haddaway) [03:23]
+02. I've Been Thinking About You (Londonbeat) [03:39]
+03. Never Alone (2 Brothers On The Floor) [03:24]
+04. Megamix (Whigfield) [04:26](   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3C243AF1E64E2DF4A2EA34F2553C85EE9AF0D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435299   (144160) от 28.12.2020
+
+Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gimme More (3:42)
+2. What A Lousy Party (3:18)
+3. I Wanna Dance With You (3:34)
+4. New York City (3:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587828C356B46E712A8279250CE4F1F24DD91A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194924   (144260) от 28.12.2017
+
+Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musik sein [3:14]
+02. Feuerwerk [3:29]
+03. Ein Jahr [3:32]
+04. Frische Luft [3:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97A0BBF96DB66669723F6AA7F2C450502E4E5CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272443   (144267) от 27.12.2018
+
+Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moi… Lolita (Reloaded)Жанр: Deep House, Pop, ElectronicПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
 ```
 
 

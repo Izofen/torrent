@@ -1,3 +1,84 @@
+###  Публикация: 1653669   (214264) от 17.08.2023
+
+Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214264.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heat Of The Moment
+A2 Only Time Will Tell
+A3 Sole Survivor
+A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653322   (214374) от 17.08.2023
+
+Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alpha
+A1 Don't Cry
+A2 The Smile Has Left Your Eyes
+A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586013   (214597) от 28.10.2022
+
+Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Metalcore, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bullet For My Valentine — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли каверы на песни Metallica и Nirvana, параллельно занимаясь написанием (   Читать дальше...   )2006 - The Poison
+2008 - Scream Aim Fire
+2010 - Fever
+2013 - Temper TemperЖанр: Metalcore, Heavy MetalПродолжительность: 08:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586124   (214672) от 28.10.2022
 
 Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Rock, Pop Rock, Synth-pop>
@@ -263,30 +344,6 @@ Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665289   (218308) от 10.08.2023
-
-Deep Purple - 29 альбомов (1968-2020) [FLAC 2.0 24/96-24/192, APE2.0 24/96, WV2.0 24/192|image+.cue, tracks (Vinyl-Rip)] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_218308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple - британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в «тяжёлой музыке» 1970-х годов. Музыкальные критики называют Deep Purple в числе основателей хард-рока и высоко оценивают их вклад в развитие прогрессивного рока и хеви-метала. Музыканты «классического» состава Deep Purple (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:39:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -633,60 +690,6 @@ magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965183   (222673) от 16.12.2015
-
-Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamenco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_222673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradiso
-02. Cupid's Dance
-03. Alyssa
-04. Rain in Spain(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268583   (222893) от 13.12.2018
-
-Макс Фадеев - Ножницы (1997) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_222893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist
-A1 Акула
-A2 Сестричка
-A3 Тихо Несет Вода(   Читать дальше...   )Жанр: Electronic, Trip HopПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
 ```
 
 

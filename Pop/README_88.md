@@ -1,57 +1,3 @@
-###  Публикация: 1616063   (206192) от 28.02.2023
-
-VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_206192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mungo Jerry - In The Summertime
-02. Santana - Smooth feat. Rob Thomas
-03. Elton John - A Word In Spanish
-04. Duran Duran - Come Undone(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABDE7E5B2A966D3296D99AFC5FF6CEFF42B2BEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615515   (206338) от 26.02.2023
-
-VA - Romantic Collection. Ретро (1999) [OGG Vorbis|480 Kbps] <Pop, Stage & Screen, Vocal>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_206338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О. Анофриев-Песня о друге
-02. А. Герман-Надежда
-03. Л. Утесов-Московские окна
-04. Г. Великанова-Ландыши(   Читать дальше...   )Жанр: Pop, Stage & Screen, VocalПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607CEF384EF4AEE22289355C9A694FE63A9BDFA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652605   (206441) от 12.08.2023
 
 VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -693,6 +639,60 @@ VA - Romantic Collection. Disco (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:193260425A09F9D5887AFA8BE460BC9F4D7BE694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610777   (207796) от 09.02.2023
+
+VA - Romantic Collection. Italian (1999) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto Cutugno–	L'italiano
+02. Matia Bazar–	Solo Tu
+03. Adriano Celentano–	Il Tempo Se Ne Va
+04. Umberto Tozzi–	Tu(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DBA55ED06EF06812B6C378200BAF723A5236B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610469   (207812) от 09.02.2023
+
+VA - Romantic Collection. France (1998) [OGG Vorbis|480 Kbps] <Rock, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Dassin–	L'Ete Indien
+02. Patricia Kaas–	Mon Mec A Moi
+03. Charles Aznavour–	Il Te Suffisait Que Je T'Aime
+04. Ennio Morricone–	Le Vente, Le Cri (From The Film "Le Professional")(   Читать дальше...   )Жанр: Rock, Pop, VocalПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6735B48CE3B894885D26C3F8BAEB7A5CD107B806
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1634248   (198192) от 21.05.2023
+
+Helloween - Collection (2023) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helloween люблю с юности. Почти все альбомы сильные. Крутой вокал. До появления интернета, я понятия не имел, что начиная с 94 года, музыканты сменили вокалиста. Настолько голоса похожи, что если не знаешь, то и не поймёшь, что это другой поёт. К концу 90х, группа не поддалась на веяние ядовитой моды и не ушла в сторону скучной, примитивной альтернативы. Команда (   Читать дальше...   )001. Initiation
+002. I'm Alive
+003. A Little Time
+004. Twilight Of The Gods(   Читать дальше...   )Жанр: MetalПродолжительность: 14:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6050E387A42540695A93DE83E8B880FF98A65284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634266   (198204) от 21.05.2023
 
 VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
@@ -665,33 +692,6 @@ MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29C0E05E5C197550E5FB5E74708921E8DBD6D787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642023   (210578) от 25.06.2023
-
-VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_210578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Ellison - Loaded Gun Tonight
-02. Scott Ellison - Shakin With the Blues
-03. Paul Mark and the Van Dorens - Don't Get Me Started
-04. Scott Ellison - These Blues Got a Hold on Me(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 02:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA1DE759C21B3414C3E3EDF6E6D39D52BF993C6
 ```
 
 

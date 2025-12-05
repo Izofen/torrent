@@ -1,84 +1,3 @@
-###  Публикация: 1631894   (244464) от 08.05.2023
-
-VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_244464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melanie Martinez - VOID
-02. NLE Choppa - SLUT ME OUT
-03. Zach Bryan - Something in the Orange
-04. Yng Lvcas, Peso Pluma - La Bebe (Remix)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 03:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B72A5B5DBC0272385A72EBD680C231AC66EB098
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452756   (244473) от 07.03.2021
-
-tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_244473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One World (3:51)
-02. Made to Love (3:50)
-03. Boomin' / Opera Trip Interlude (4:03)
-04. I'm for You (3:47)(   Читать дальше...   )Жанр: Pop, Hip-HopПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AD556F658D3BD5D1F6A39C58F01489139E9278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631917   (244487) от 08.05.2023
-
-VA - That 70’s Summer (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_244487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart – Drift Away 3:46
-02. Maxine Nightingale – Right Back Where We Started From 3:12
-03. Randy Newman – Mama Told Me Not To Come 2:11
-04. Roberta Flack – Killing Me Softly With His Song 4:47(   Читать дальше...   )Жанр: Pop, Soft Rock, RockПродолжительность: 04:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22F71FF209DDB9A62769255379B200F7D92EE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289559   (244539) от 16.03.2019
 
 VA - Ballermann Opening Party Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -697,6 +616,84 @@ Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447545   (246066) от 14.02.2021
+
+Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_246066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Producer (3:37)
+02. Just A Step Closer (3:34)
+03. Just Because I Love You (2:57)
+04. Devil Dance (3:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239428   (246752) от 26.07.2023
+
+Муслим Магомаев - 4 альбома (2002-2008) [APE|Lossless]<Рор>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_246752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Королева красоты
+02. Солнцем опьяненный
+03. Не спеши
+04. Лучший город земли(   Читать дальше...   )Жанр: РорПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC962EBAC1CDE691AE659980444CD7954FD6417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241573   (246754) от 26.07.2023
+
+Татьяна Анциферова - Песни Александра Зацепина (2003) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_246754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C2E46B180666211381642D67DC3C5ED8668397
 ```
 
 

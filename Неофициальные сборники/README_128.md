@@ -1,3 +1,279 @@
+###  Публикация: 586415   (227111) от 09.12.2012
+
+VA - Milf Lounge: Selected Chillout for Sensual Emotions (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cool John - With the Trumpet (5:30)
+2. Magic Mike - Mb (3:26)
+3. Aperitif Quartet - Another Drink (5:20)
+4. Lu Zana - Umm (3:40)
+5. Light from Azure - Tranquilidad (5:43)
+6. Chill Institute - Immagini (5:02)
+7. Chill Art - Runi (5:07)
+8. Key Of Dreams - Lean On Me (3:23)
+9. Chill Love - Zip (5:19)
+10. Cut Groove - Yedeka (4:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8074074E88CAF045E4EB883B673FB1BC1147D0CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512943   (227200) от 27.11.2021
+
+VA - Beatport Chill Electronic: Sound Pack #374 (2021) [MP3|320 Kbps] <Chillout, Electronic, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227200.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Der Waldläufer - Naranja Nubis
+002. Pablo Bolívar - Uncut
+003. Jabu - Sweet Company
+004. Matthew Dear - Heart To Sing(   Читать дальше...   )Жанр: Chillout, Electronic, DowntempoПродолжительность: 08:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C7898640E8312C11D2E2BD9D5E2D87A42D8C10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341845   (227245) от 30.11.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 29.11.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. FILV & Edmofo feat. Emma Peters - Clandestina 2:29
+03. Tones And I - Dance Monkey 3:30
+04. Zivert - Credo 3:04(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310AC625CA8858554789B90EF332698CBE873338
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583900   (227276) от 16.10.2022
+
+VA - 80's Music Grandi Successi (2022) CD, Compilation [MP3|320 Kbps] <Italo-Disco, Soft Rock, Disco, New Wave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Level 42 - Running In The Family (7" Version)
+02. Blondie - Heart Of Glass (Special Mix)
+03. Katrina & The Waves - Walking On Sunshine
+04. Orchestral Manoeuvres In The Dark - Enola Gay (Remastered 2003)(   Читать дальше...   )Жанр: Italo-Disco, Soft Rock, Disco, New WaveПродолжительность: 04:46:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05A94DE1DC4204ABDA3AEAD33117B8FAD51714A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583860   (227300) от 16.10.2022
+
+VA - just hits 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - I'm Good (Blue) (2:57)
+02. Sam Smith - Unholy (feat. Kim Petras) (2:36)
+03. Ed Sheeran - Celestial (4:22)
+04. Lewis Capaldi - Forget Me (4:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B670E648608D9813E352FD1294C29D5070C41D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512934   (227332) от 27.11.2021
+
+VA - Beatport Trance: Sound Pack #373 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_227332.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Semper T - Serenade Radio Edit
+002. Snowface - Paranoia
+003. Everlight - Echoes feat. Justin B
+004. Terranation - Amazonas(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 08:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1D8EBD428DCF0217BBE2368BBBC5F19270C4A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583926   (227384) от 16.10.2022
+
+VA - В машине с музыкой Vol.311 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj. Jedy - October And April (02:54) 2022
+02. Millya - На Облаке Счастья (02:57) 2022
+03. Onyxxide - Say Me (02:36) 2022
+04. Elton John Feat. & Britney Spears - Hold Me Closer (Joel Corry Remix) (04:09) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E212A886DC940B8AAF863D1B70D7197B39CC54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512950   (227391) от 27.11.2021
+
+VA - Raise Your Flag Rock World's Fest (CD 01) (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jakethehawk - Ochre And Umber
+002. Jxdn - Angels & Demons
+003. Home Brewed Universe - Gallifrey Funk
+004. Rostam - Kinney(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F142280A84EA8487855715E3248A025ED5EC3698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512952   (227424) от 27.11.2021
+
+VA - Uplifting Trance: Beach Dance Classics Mix (2021) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solid Sleep - Tears
+002. Alexei Maslov - Autumn Renaissance
+003. Dan Iwan - Heaven&Earth
+004. Coredata - Ea4(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A2457E3D7F993B2E01AB4E8502B68942CAA931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341944   (227485) от 30.11.2019
+
+VA - German Top 100 Single Charts 29.11.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Apache 207 - Wieso tust Du dir das an
+04. The Cratez - Skifahren (mit Bausa Maxwell Joshi Mizu)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC035975D126B716F9CEEF96995ED905848AA3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587163   (227497) от 09.12.2012
 
 VA - Club Sunday Superfunk (09.12.2012) [MP3|320 кб/с]<Club, Progressive, House, Vocal>
@@ -437,276 +713,6 @@ VA - Car Audio. Best Of December 2015 (2015) [MP3|320 кб/с]<Dance, Club, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F277F426B5ABF44960144E9BB2C86F0411B0B841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268282   (228146) от 10.12.2018
-
-VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|320 Kbps] <Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-02. Michelle feat. Matthias Reim - Nicht Verdient
-03. Maite Kelly - Die Liebe Siegt Sowieso
-04. Andrea Berg - Ja Ich Will (DJ Edition)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0DE81B1CDDD638136DB60DFC0CEA54FDE2300C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964267   (228372) от 13.12.2015
-
-VA - Electro Life 40 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew D - Sweet Thing
-02. Anna Naklab, Younotus ft. Alle Farben - Supergirl (Original Mix)
-03. Apashe ft. Sway - I'm A Dragon (Owl Vision Remix)
-04. Armin Van Buuren ft. Mr.Probz - Another You (Extended Mix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Dubstep, TranceПродолжительность: 03:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642B770E4DF2D78E8C4DE057D23A3C05985B0C76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965060   (228461) от 13.12.2015
-
-Keep Shelly In Athens - Collection (2010 - 2015) [OGG|441-503 кб/с]<Alternative Pop, Electronic, Dream Pop, Downtempo, Chillwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Out Of You
-02. A) The Royal Superhero / B) Ready To Pay The Price
-03. The Chains
-04. Struggle With Yourself(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Dream Pop, Downtempo, ChillwaveПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79AF5B88DC75A6F64BFA78339B2D39A40BE3C17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583267   (228465) от 15.10.2022
-
-VA - Music News vol.221 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Chainz - 2 Step (OST Домашняя вечеринка) (02:10)
- 002. ADA - Светофоры (02:13)
- 003. Adil feat. Sultan - Письмо (03:03)
- 004. Akord - Cine-i Soarele Tau (03:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A474184A6295C349E0F6FF078F188A831545492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965033   (228509) от 13.12.2015
-
-VA - Private Lounge Cafe, Vol 2 (25 Delicious Lounge Anthems) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DGN - Tetris - Groove & Lounge Mix
-02. Cool Sixth - Bugiardo - Original Mix
-03. Sweet Life - Profumo - Original Mix
-04. Art Lounge - La Tua Galassia - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB570DC5FF03004DF3F9C5323D16B0DE99C8788C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965230   (228633) от 13.12.2015
-
-VA - Chillout Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_228633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Cool Shade
-02. Peter Pearson - Dreaming
-03. FXU - Lucky 13
-04. Radiosilence - Silence to Storm(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234B6A7CF0F1D6E2AFCB67FCC2B9516EFBB79189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341600   (228812) от 29.11.2019
-
-VA - Workout I Get Back In Shape (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_228812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Motley Crue - Kickstart My Heart (5:42)
-2.Nirvana - Smells Like Teen Spirit (5:03)
-3.Switchfoot - NATIVE TONGUE (4:38)
-4.3 Doors Down - Kryptonite (4:02)(   Читать дальше...   )Жанр: Hard Rock, Rock, OtherПродолжительность: 04:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A364760C1D2CC59B673ED024FFCCAE226A0A775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964934   (228873) от 12.12.2015
-
-VA - Trance Desire Volume 58 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_228873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neev Kennedy with Adrian&Raz - Crystal Clear (Igor Dyachkov & U-Jeen Remix) (06:41)
-02. Dart Rayne & Yura Moonlight feat. Cathy Burton - Incomplete (Original Mix) (06:51)
-03. Myon & Shane 54 feat. Amy Pearson - Hurricane (Myon & Shane 54 In Search Of Sunrise Mix) (08:12)
-04. Tenishia & Ana Criado - Ever True (Club Mix) (07:25)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245471C24F7B9CCE5CC572CD51B22F5B0A0BD949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424297   (229091) от 16.11.2020
-
-VA - Romantic Feelings (2020) [MP3|320 Kbps] <Pop, Lyric, Romantic Songs>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229091.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hugo Helmig - Curtains Of My Life
-002. Pete Tong & Jules Buckley - At The River
-003. Stories - Don't Start Now
-004. Dj7urbo - Change My Mind(   Читать дальше...   )Жанр: Pop, Lyric, Romantic SongsПродолжительность: 08:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1F0B28620F875721A9B87E21A848291D62EBC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424295   (229149) от 16.11.2020
-
-VA - Grand Disco Mixer (2020) [MP3|320 Kbps] <Disco, Dance, Remix, Nu Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monsieur Van Pratt - Mild Drug
-002. Audio Jacker - Out Of My Hands
-003. Roman Reiss - Lights Out
-004. Dave Lindbergh - Omg(   Читать дальше...   )Жанр: Disco, Dance, Remix, Nu DiscoПродолжительность: 09:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F530555FB2AB1426595A1C5D64EF5B0B71CB35FF
 ```
 
 

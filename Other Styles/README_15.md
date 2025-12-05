@@ -31,39 +31,6 @@ magnet:?xt=urn:btih:64D253B30675658D7371375DF7D9232F81CD6BE1
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487689   (129102) от 27.04.2012
-
-Sect - 4 albums (2007-2011) [FLAC|Lossless] <Neoclassical, Martial Industrial, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iustitia (08:46)
-02. Power Authority (03:38)
-03. Artes Liberales I (04:16)
-04. Emissaries of Light (04:11)
-05. Forlorn Hope (03:37)
-06. Absolution (03:59)
-07. Our Penance (04:34)
-08. Interregnum (03:41)
-09. Superiority Complex (02:45)
-10. Tribunal (03:42)(   Читать дальше...   )2007-2011Жанр: Neoclassical, Martial Industrial, ExperimentalПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525545   (129190) от 21.01.2022
 
 Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
@@ -770,6 +737,39 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590274   (135397) от 23.12.2012
+
+Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135397.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:50)
+
+(1:30) 01. China Heart
+(4:39) 02. Snowy Mountain
+(6:27) 03. Chongsam
+(4:37) 04. Genghis
+(1:07) 05. Birdman
+(4:45) 06. Sparrows
+(6:01) 07. Mountain Mist
+(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```
 
 

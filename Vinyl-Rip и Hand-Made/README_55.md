@@ -1,3 +1,57 @@
+###  Публикация: 1830794   (205759) от 27.10.2025
+
+Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
+2000 - Day Into Night
+2001 - Passage In Time
+2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653165   (205984) от 18.08.2023
+
+Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205984.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Immortal
+A2 Patient Number 9
+A3 Parasite
+B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653071   (206046) от 17.08.2023
 
 ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Synth-pop, Symphonic Rock, Pop Rock>
@@ -645,57 +699,6 @@ magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640068   (211409) от 16.06.2023
-
-Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_211409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639869   (211473) от 15.06.2023
-
-Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_211473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Sunrise (The Magician Birthday)
-02. July Mornin' (Look At Yourself)
-03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
 ```
 
 

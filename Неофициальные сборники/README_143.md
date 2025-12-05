@@ -1,3 +1,291 @@
+###  Публикация: 495159   (251183) от 11.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F512B5264CE791976C015CBA064C16DDA55EA21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495157   (251184) от 11.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494745   (251321) от 11.05.2012
+
+The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20 CD) (1998) [MP3|320 кб/с]<Jazz, pop, rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251321.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vengaboys - Up And Down
+2. Sash! - Encore une fois
+3. Nakatomi - Children Of The Night
+4. Red 5 - Da Beat Goes...
+5. The Outhere Brothers - Boom Boom Boom
+6. Captain Jack - Drill Instructor
+7. Gala - Freed From Desire
+8. Wink - Higher State Of Consciousness
+9. Faithless - Salva mea
+10. N-Trance feat. Rod Stewart - Da Ya Think I'm Sexy?(   Читать дальше...   )Жанр: Jazz, pop, rockПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F33B83391209D011945CB6A19A22128CE6E45B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495488   (251386) от 12.05.2012
+
+VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Taylor Swift - Ours (4:07)
+2. Дмитрий Колдун - Не С Той (3:52)
+3. Tom Stem - Love (Mennn Bass Remix) (4:11)
+4. Marina And The Diamonds - Primadonna (3:40)
+5. Eric Church - Springsteen (4:20)
+6. Dj Boor & Dj Frost Music feat SERPO & Парабит - А мне так хочется (2012) (сегодня танцуем) (Rework Version) (3:51)
+7. Аслан Махов - Улетаю (2:56)
+8. Train - Drive By (3:10)
+9. T-Killah feat. Виктория Дайнеко - Mirror Mirror (3:27)
+10. MainstreaM One - Один Шанс (M. One & Dj Seroff prod) (3:14)2012Жанр: Pop,DanceПродолжительность: 05:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EBEBFFE875A27B4B5DE26E6A52D20ED863EE8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495399   (251446) от 12.05.2012
+
+VA - Правильная Рэпчина Часть 8 (2012) [MP3|256 кб/с]<Рэп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Тимати feat. Джиган - Reebok Is Back
+002 Легальный Бизне$ - Все Говорят
+003 Западный Сектор (Объединенная Каста) - Сюрпризы
+004 Крестная семья - Гоп-Гоп
+005 АК-47 - Еду в Ленинград
+006 Dino MC 47 & Nano - Moscow
+007 Влади (Каста) feat. Хамиль & Змей - Тебе в прикол
+008 Bad Balance - Мир будет таким!
+009 25-17 feat. Вячеслав Бутусов - Русская
+010 T1One & Анастасия К. - Мама2012Жанр: РэпПродолжительность: 05:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A22315AE267BCB4A91BECD329CF40961C30777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496021   (251640) от 13.05.2012
+
+VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251640.jpg" />
+</div>
+
+
+###  Подробнее
+
+10.05.2012Жанр: House, Club, DanceПродолжительность: 01:16:56
+01.SoulKey Feat. Yaniv Gezz - My Heart Shouting
+02.Chino Y Nacho Ft. Jay Sean - Bebe Bonita (Techno Remix)
+03.Bingo Players Feat. Heather Bright - Dont Blame The Party
+04.Papajam - Do What I Wanna Do
+05.Mohombi - Say Jambo
+06.Ocean's Four Feat. Adam Clay - Beautiful Life 2012 (Marchesini & Farina Rework)
+07.Dirty Kidz Feat.Shalya Don Seydina - Ole Ola
+08.Bogdan Ioan - With You (Summer Edit)
+09.Antonie De Mornak - Live 1.0(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835675   (251668) от 07.11.2025
+
+VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Menda - Listen
+02 - Mr Salama - Radio
+03 - Dova Music - Golden Night
+04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835676   (251669) от 07.11.2025
+
+VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echønova - Where Are You Going Like That
+02 - Limora - Where Are U
+03 - Echønova - Still Hear You
+04 - Umideep - My Tears(   Читать дальше...   )Жанр: Electronic, Vocal, Easy listeningПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835716   (251672) от 07.11.2025
+
+Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, Other, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Lie to Me
+ 02 - Got Your Heart in a Headlock
+ 03 - I Gotta Get Someone to Call My Lover
+ 04 - If I'm the Problem(   Читать дальше...   )Жанр: Vocal,  Easy listening, Other, AIПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835728   (251674) от 07.11.2025
+
+VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Le Dernier Mot
+ 02 - Le Train De Nuit
+ 03 - Je M’en Vais
+ 04 - Minuit(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835708   (251685) от 07.11.2025
 
 VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -440,327 +728,6 @@ VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495826   (252831) от 14.05.2012
-
-VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_252831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume 1 (1995)
-
-01. The Exciters - Do-Wah Diddy
-02. Betty Everett - You're No Good
-03. Shirley Ellis - The Name Game
-04. The Cookies - Chains
-05. Carole King - It Might As Well Rain Until September
-06. Earl-Jean - I'm Into Something Good
-07. Skeeter Davis - I Can't Stay Mad At You
-08. Little Peggy March - I Wish I Were A Princess(   Читать дальше...   )1995-2008Жанр: Pop, Rock & Roll, OldiesПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496483   (252842) от 14.05.2012
-
-VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<Pop, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_252842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Akon - Rely On
-002 Chris Brown Feat. T-Pain - Niggas In Paris
-003 Evanescence - My Heart Is Broken (Radio Edit)
-004 Sianna - Baby Night (Radio Edit)
-005 Eminem Feat. Ludacris And Lil Wayne - Second Chance
-006 Arash - Melody (Dj Maz Nazari Radio Edit)
-007 Nina - Take Me Away (Radio Edit)
-008 Adam Lambert - Beg For Mercy
-009 Robert M - Baby Forever (Radio Edit)
-010 Bruno Mars - It Will Rain(   Читать дальше...   )2012Жанр: Pop, Hip-HopПродолжительность: 06:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496467   (252846) от 14.05.2012
-
-VA - Радужный молодежный хит (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_252846.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
-2. А - Студио - Я Искала Тебя (2:19)
-3. СтаЯ - Сердце (3:06)
-4. Анна Седокова - Такси (3:24)
-5. Юлия Морозова - Миллионы (4:25)
-6. Жара - Ну Как Же Быть (3:39)
-7. Яжевика - Город Тает (3:13)
-8. Тринна - Взорви Моё Сердце (4:02)
-9. Ани Лорак - Я Буду Солнцем (3:44)
-10. Софья Лукьянова - С Другой Стороны Всегда (3:53)2012Жанр: PopПродолжительность: 06:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EEC504B1C5D0EEDD9C449561265535E497A974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496438   (252874) от 14.05.2012
-
-VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_252874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Rok, R&BПродолжительность: 02:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496466   (252910) от 14.05.2012
-
-VA - В Машину! с DFM 50\50 (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_252910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dj Rich Art - Dont Stop
-02 Света - Супер Спортсмен (Dj Jump Radio Version)
-03 Shena feat. Алексей Воробьев - 24 Hours In Moscow (Давай-Давай Да!)
-04 Dj Smash Feat Maury - Rendez Vous (Sebastien Lintz Extended Mix)
-05 J.K. - Sweet Lady Night (MBRG Long Mix)
-06 Сергей Трофимов - Я Привык Улыбаться Людям
-07 Ton!c - Groundy (Original Mix)
-08 Катя Чехова - Я Тебя Люблю
-09 Alexis - Keep On Falling (Gordon & Doyle Remix)
-10 Табула Раса - Рисунки На Этаже2012Жанр: Pop,DanceПродолжительность: 06:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DEB27865E5C565A7216D2CD57879238190DB66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496486   (252951) от 14.05.2012
-
-VA - Русский рок - Баллады (2012) [MP3|192-320 кб/с]<Heavy, Progressive, Power, Gothic Metal, Hard Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_252951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azazello - Осень
-02. De'cadenta - Босиком
-03. Materia Prima - Царство Теней
-04. R-Genium - Будь со мной
-05. R.D. - Бескрылая
-06. Аркона - Там, за туманами
-07. Воздух - На лезвии бритвы
-08. Восьмой день - Странник
-09. Margenta - Настроение
-10. Коrsика - Пустой перрон2012Жанр: Heavy, Progressive, Power, Gothic Metal, Hard RockПродолжительность: 03:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E6AA95289D3AB51084F81D71A8D6E9BB43EA6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496753   (253123) от 15.05.2012
-
-VA - Клубный Танцпол Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_253123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tocadisco - That Miami Track feat. Julian Smith (Bassjacker Remix)
-02. Remo feat. Doniu & Amila - Without You (Extended Mix)
-03. Mike Indigo - Some (Extended Mix)
-04. Jessie J feat. David Guetta - Laserlight (Extended Mix)
-05. Сергей Жуков & Opium Project - Я Буду С Тобой (Haaski 'Downpour' Remix)
-06. Djane Housekat Feat. Rameez - My Party (Club Mix)
-07. DJ Save feat. Neon - Everyone (Original Mix)
-08. Dony feat. K-Brown - Only Love (Extended Mix)
-09. Eleftheria Eleftheriou - Aphrodisiac (DJ Pantelis Remix)
-10. Дискотека Авария, Джиган (Geegun) и Вика Крутая - Карнавал (Anton Orf & DJ Gladiator Remix)2012Жанр: Dance, ClubПродолжительность: 04:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720B738BF66E2D8653DD47BB616736392ED79A77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496920   (253143) от 15.05.2012
-
-VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_253143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dr. Alban - Look Who's Talking (Movie Theme)
- 02 F. Jay Feat. Olesya - Держи Меня За Руку
- 03 Akcent Feat. Ruxandra Bar - Feelings On Fire
- 04 140 Ударов В Минуту - На Расстоянии Дыхания (Dj Fisun Remix)
- 05 On T.V. - Just A Dream (Club Dance Mix)
- 06 Oksi - Безумная (Makhno Project Radio Edit)
- 07 Jay Adams Feat. Clara Sofie - Serenity (Original Mix)
- 08 Quest Pistols - Ты Была Светом
- 09 Klaas Feat. Carlprit - Do What You Do (Original Mix)
- 10 Арина И Размер Project - My Moscow Love(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 05:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F800607C43D1DF65506FEB36BDF004EB2DA9D7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496861   (253145) от 15.05.2012
-
-VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_253145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Michel Telo - Ai se te ue pego (Sagi Abitbul rmx)
-002 Дискотека Авария - Россия Победит!
-003 Far East Movement feat. Justin Bieber - Live my life
-004 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov remix)
-005 Sunrise Inc - Mysterious girl
-006 Стас Шуринс - Останься
-007 Inna - Alright
-008 Elvira T - Все решено (Fresh Tunes remix)
-009 Leventina - Freak it out
-010 Диверсанты - Мама Люба Дала Бы2012Жанр: PopПродолжительность: 11:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CB04CFFA3DB36977B55E47B75E3A0518E0E427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496758   (253152) от 15.05.2012
-
-VA - Популярный музыкайф зарубежный (2012) [MP3|192-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_253152.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Rasmus - In The Shadows (Max Freegrant VIP Remix) (5:48)
-2. Julia St. Luis - Wonder World (Radio Mix) (3:42)
-3. Espresso - Drive Me Crazy'99 (5:13)
-4. Dj.Tandu - Runnin' (Radio Mix) (3:38)
-5. Free Project - I Wanna Stay (Summer Track) (5:41)
-6. Casablanca - Sweet Sensation (Oh Yes,Oh No) (Radio Edit) (3:38)
-7. Red Hardin - Private Emotion (Dance Mix) (4:40)
-8. Alexandra Burke - All Night Long (4:22)
-9. High Spirit - Mr.Moon (Radio Mix) (3:38)
-10. One Nation - Your Woman (4:49)2012Жанр: PopПродолжительность: 07:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8F8150E3C5E9A07ADC7182347D1B0DB0DE185
 ```
 
 

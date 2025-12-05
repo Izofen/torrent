@@ -1,55 +1,3 @@
-###  Публикация: 1152326   (188949) от 13.11.2022
-
-Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_188949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Noah's Ark 2001) (5:19)
-02. Wild Planet (4:06)
-03. Future World (3:53)
-04. Where Did You Go (4:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590408   (189046) от 13.11.2022
-
-Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_189046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roxette - Joyride (04:24)
-02. Roxette - The LookЖанр: Pop RockПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590262   (189061) от 13.11.2022
 
 Андрей Губин - Только ты (1998) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -692,6 +640,60 @@ magnet:?xt=urn:btih:9D457C94472FEEE00EE2B5C7B64525E893B2DD78
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E132584C0AAD34146AB183B269B524D2F9995C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589095   (190573) от 08.11.2022
+
+Various Artists - ZYX Italo Disco New Generation Vol. 20 (2022) [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190573.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Den Harrow Feat. Orlando Johnson– Shine On (Flemming Dalum Remix) 5:30
+02. Ken Laszlo– Leather Man (Swedish Remix) 5:56
+03. Flemming Dalum– Walking In The Neon (Special ZYX Remix) 6:52(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588822   (190873) от 07.11.2022
+
+Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_190873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Dieter Thomas Heck
+02. Sorry Little Sarah (Maxi Version)
+03. My Bed Is Too Big
+04. Under My Skin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
 ```
 
 

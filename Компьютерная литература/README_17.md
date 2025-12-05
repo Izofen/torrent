@@ -1,3 +1,27 @@
+###  Публикация: 1677064   (152047) от 16.11.2023
+
+Expressif Systems | ESP32-C3: Беспроводное приключение: Полное руководство по IoT (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга демонстрирует различные приложения семейства ESP32-C3 – одноядерного микроконтроллера, представляющего собой «систему на кристалле» (SoC) с интегрированными Wi-Fi и Bluetooth 5 (LE). Он обеспечивает необходимый баланс мощности, возможностей ввода-вывода и безопасности, предлагая таким образом оптимальное экономичное решение для подключаемых устройств. Вы (   Читать дальше...   )Жанр: Компьютерная литература, электроникаПеревод: Ю.В. РевичИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5747B52018A5866060E205A8AE8C178D46D28930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677095   (152530) от 16.11.2023
 
 Буркхард Каинка | Проекты и схемы на RPi Pico (2022) [PDF]
@@ -604,32 +628,6 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A83D67E32BCF0AFC8A13B081E9E4BBDE3D448C2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600102   (158930) от 26.12.2022
-
-Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_158930.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Selenium WebDriver Recipes book is a quick problem-solving guide to automated testing web applications with Selenium WebDriver. It contains hundreds of solutions to real-world problems, with clear explanations and ready-to-run test scripts you can use in your own projects.
-
-Selenium WebDriver is a popular browser automation framework, testers or developers with (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CE3DC6C24311DA3691BA41875840C3475DDE90
 ```
 
 

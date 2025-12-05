@@ -1,3 +1,57 @@
+###  Публикация: 1312267   (231406) от 04.10.2022
+
+Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231406.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Impossible Dream
+A2 An Improvisation On ''None But The Lonely Heart''
+A3 Yonger Than Springtime
+A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934981   (231774) от 02.10.2022
+
+Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and other Great Hits (1971) [FLAC 2.0 24/192|image+.cue (Vinyl Rip)]<Pop/Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chirpy Chirpy Cheep Cheep
+02. Lingering Sounds
+03. Fate Strange Fate
+04. I Can't Tell The Bottom From The Top(   Читать дальше...   )Жанр: Pop/EuropopПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580206   (232099) от 30.09.2022
 
 Moby – Reprise (Box Set, Special Edition) (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Funk / Soul, Pop, Classical>
@@ -640,60 +694,6 @@ B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575129   (236491) от 08.09.2022
-
-John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_236491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly As In A Morning Sunrise《 S. Romberg 》
-02. Michelle《 J. Lennon 》
-03. Vesti La Giubba《 R. Leoncavallo 》
-04. Lamento Borincano《 R. Hernandez 》(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630590   (236921) от 01.05.2023
-
-Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_236921.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Круги · Circles
-A2 Тонущий На Суше · Drowning On Dry Land · Рыбный Суп · Fish Soup
-A3 Институт В Чикаго · Chicago Institute
-A4 Калифорния · California(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
 ```
 
 

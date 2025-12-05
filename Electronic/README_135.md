@@ -1,3 +1,57 @@
+###  Публикация: 1268782   (225217) от 12.12.2018
+
+VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Smiley – The Dreamers (Markus Schulz In Bloom Mix)
+02. ID
+03. Markus Schulz & Jam El Mar – The Lotus
+04. ID(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653A2E63B99E3FECE1C33D3A0A107F496CD800D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268787   (225234) от 12.12.2018
+
+VA - Total Trance Selections Vol.14 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nakhiya - Intersideral (Original Mix)
+02. Gerome - Sky Citizen (Original Mix)
+03. Franco Scaravaglione - Spice (Original Mix)
+04. Running Man - Amnesia (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810D313B4921CED565AAAA322E009995424CF4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584239   (225356) от 18.10.2022
 
 Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
@@ -634,60 +688,6 @@ Oaktree - Discography 7 Releases (2014-2018) [PIAS] Recordings [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF9AE956687CF9792B12F3EC351D896C8E3FFB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268605   (226440) от 11.12.2018
-
-VA - Jazzpresso Vol. 1-2 (2000-2001) Lab Records [FLAC|Lossless|tracks+.cue] <Acid Jazz, House, Future Jazz, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_226440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souldrummers - Space & Time (07:29)
- 02. Stephane Attias - Brazilian Fight Song (04:54)
- 03. Tweak - Fathorn (04:58)
- 04. Nigel Hayes - Shriek (05:43)(   Читать дальше...   )Тип издания: CDЖанр: Acid Jazz/House/Future JazzПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA8FE70B473DFE94C58ECC92C5CBA934ACB9079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583892   (226497) от 17.10.2022
-
-NOIRESOR - Imprinted Memories (2022) авторская раздача [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_226497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Road to the Village
-2. Dark Memories
-3. Nature and People
-4. Flying Over the Mountains(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48EF652032FE58B824E1F161298C21927D5F8CF
 ```
 
 

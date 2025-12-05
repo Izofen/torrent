@@ -467,39 +467,6 @@ magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 490442   (102410) от 01.05.2012
-
-Sweetbox - Sweetbox (1998) [FLAC|Lossless]<R'n'B, Hip-Hop, Downtempo, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. - Intro [1:08]
-02. - Don't Go Away [3:10]
-03. - Interlude [0:20]
-04. - He Loves Me [3:19]
-05. - Mama Papa [3:35]
-06. - Interlude [0:19]
-07. - Candygirl [2:52]
-08. - Everything's Gonna Be Alright [3:12]
-09. - Interlude [0:19]
-10. - Never Never [3:19](   Читать дальше...   )Жанр: R'n'B, Hip-Hop, Downtempo, ElectronicПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762690   (102904) от 26.11.2024
 
 VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Jazzy Hop, Underground Hip-Hop>
@@ -738,6 +705,33 @@ magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741464   (105337) от 18.08.2024
+
+Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чужой (Intro)
+ 02. Чужие
+ 03. Спеши любить
+ 04. На эстакаде(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1694344   (121119) от 24.01.2024
-
-VA - Redux Selection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_121119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Courbet - Left Alone (Extended Mix) [6:42]
-02. Mark Hide - Close To The Stars (Extended Mix) [7:47]
-03. AREO - Passion (Extended Mix) [7:48]
-04. Erik D & Katty Heath - Love Again (Extended Mix) [6:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1908B2722E6C91D2C5CFCE12DDA880593F1699
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694064   (121306) от 23.01.2024
 
 Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis|480 Kbps] <Europop, Synth-pop, Disco>
@@ -692,6 +665,33 @@ Morgenstern - Zeitgeist (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C80A47E4D7FED8AA51B8FB956137AC34736C632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692039   (122734) от 15.01.2024
+
+Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space 92 - Robot w/Space 92 - Gravity (Acapella)
+02. Heerhorst - Wimbo
+03. Space 92 - Gravity
+04. Green Velvet - Flash (Bart Skils Edit)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
 ```
 
 

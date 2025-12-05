@@ -1,57 +1,3 @@
-###  Публикация: 1589095   (190573) от 08.11.2022
-
-Various Artists - ZYX Italo Disco New Generation Vol. 20 (2022) [FLAC|Lossless|image + .cue] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_190573.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Den Harrow Feat. Orlando Johnson– Shine On (Flemming Dalum Remix) 5:30
-02. Ken Laszlo– Leather Man (Swedish Remix) 5:56
-03. Flemming Dalum– Walking In The Neon (Special ZYX Remix) 6:52(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588822   (190873) от 07.11.2022
-
-Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_190873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Dieter Thomas Heck
-02. Sorry Little Sarah (Maxi Version)
-03. My Bed Is Too Big
-04. Under My Skin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658716   (190884) от 09.09.2023
 
 VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -695,6 +641,60 @@ VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B22534F944E27BC01F99DAEAFBE3046C35E8FC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587547   (192618) от 31.10.2022
+
+Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storie Di Tutti I Giorni (4:03)
+02. In Silenzio (2:48)
+03. Piccola Katy (2:38)
+04. Noi Due Nel Mondo E Nell'Anima (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FC46D9B6FB8AF4FCACC1B1C2BC83E32FFC89C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657425   (192741) от 03.09.2023
+
+Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Paloma Blue
+02 - Griechischer Sommer
+03 - Von Baden-Baden bis Berlin
+04 - Sonnenanbeter(   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
 ```
 
 

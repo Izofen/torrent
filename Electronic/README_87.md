@@ -1,30 +1,3 @@
-###  Публикация: 1686960   (126236) от 24.12.2023
-
-VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_126236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betamaxx - Integrated Circuitry (4:02)
-02. Le Matos - Overdog (6:30)
-03. Absolute Valentine - She Is a Dancer (4:22)
-04. Das Mortal - The Curse (3:26)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAFFC7875B4620BFB775A27F43E6540AD2CCAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686962   (126239) от 24.12.2023
 
 VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
@@ -691,6 +664,33 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48B0A0DF8C9053320D65E83AA03A9C84482EBA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684766   (127388) от 17.12.2023
+
+Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imposter Syndrome [00:04:47]
+02. Bring The Noise [00:05:02]
+03. Echokammer [00:04:32]
+04. Light My Way [00:04:58](   Читать дальше...   )Жанр: EBM, FuturepopПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713B2FD303B6F49F144A1781F248D2C19B9AE612
 ```
 
 

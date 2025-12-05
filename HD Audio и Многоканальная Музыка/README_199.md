@@ -213,6 +213,87 @@ magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667431   (177006) от 08.10.2023
+
+Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Somewhere, My Love
+A2 Yesterday
+A3 My Best Beau (My Best Girl)
+A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594850   (177050) от 02.12.2022
+
+VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Njaalkeme (04:54) - Garmana
+02. Sakura Sakura (03:24) - Nicki Parrott
+03. Down The Years I Travelled (04:02) - Allan Taylor
+04. There You Are (05:44) - Brooke Miller(   Читать дальше...   )Жанр: Jazz, Pop, ClassicalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFABD737768B2AA99CD20F5C35BE1FF78E246BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415153   (177080) от 02.12.2022
+
+Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177080.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1a Sweet Dreams (Ghosts)
+A1b Night Light (Ghosts)
+A1c Guardian Angel (Ghosts)
+A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667196   (177613) от 07.10.2023
 
 Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
@@ -613,87 +694,6 @@ A4 Roll Away, Clouds(   Читать дальше...   )Жанр: Jazz, Pop, Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA3514335938754EA527CE7B81CE607123CA7589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666723   (178421) от 06.10.2023
-
-Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_178421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faking It (5:28)
-02. Eternal Spirits (3:35)
-03. Defiance (5:52)
-04. November (4:56)(   Читать дальше...   )Жанр: Post-metalПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AF184B0F077397075FD9FF445FF3FCC2512966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666705   (178702) от 05.10.2023
-
-Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_178702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak to Me (1:54)
-02. Breathe (3:22)
-03. On the Run (3:47)
-04. Time (7:19)(   Читать дальше...   )Жанр: Art rockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB374DA11B30FD4DFC551E66D20609C1CC6C6BA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666160   (178851) от 05.10.2023
-
-Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary R&B, New Jack Swing, Funk, Minneapolis  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_178851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder (2023 Remaster) [00:05:44]
-02. Daddy Pop (2023 Remaster) [00:05:16]
-03. Diamonds and Pearls (2023 Remaster) [00:04:42]
-04. Cream (2023 Remaster) [00:04:12](   Читать дальше...   )Жанр: Contemporary R&B, New Jack Swing, Funk, Minneapolis SoundПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FB828F3EFD453B7F826A32B400FC17D1412EBB
 ```
 
 

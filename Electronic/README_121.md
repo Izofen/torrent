@@ -1,3 +1,57 @@
+###  Публикация: 1589670   (189758) от 11.11.2022
+
+NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (8:39)
+ 02. In a Cloudland (9:01)
+ 03. Mindscream (8:23)
+ 04. Night Call (8:18)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65758414BD860D1E59F2C3D0A3DF5D68561C3A8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589027   (190341) от 09.11.2022
+
+Cyber Space - Future On Mars (2009) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_190341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electronic Dream of a Robot (Ambiente Version)
+02. Dreams
+03. We Fly into Another Galaxy
+04. Give It to Me (Dance Version)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BF9171A5D1353716688240523F8952D3BAA69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589140   (190363) от 09.11.2022
 
 Cyber Space - In The Beginning (2007) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
@@ -638,60 +692,6 @@ Sex Music - Sex Songs Instrumental Melodies for Sensual Exploration (2021) 3CD [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F26CF0447E500E01B64CD904CE071491AE4B6A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587699   (192306) от 01.11.2022
-
-VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3|320 Kbps] <Techno, Electro, Euro House, Hardcore>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_192306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charly Lownoise & Mental Theo - Wonderful Days
-02. Dune - Hardcore Vibes (Video Mix)
-03. Marusha - Somewhere Over The Rainbow (Short)
-04. Technohead - I Wanna Be A Hippy (Original Mix)(   Читать дальше...   )Жанр: Techno, Electro, Euro House, HardcoreПродолжительность: 05:24:18 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E7187D2D8285AC9E1663B6B6C293FF90FB2C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657612   (192434) от 04.09.2023
-
-Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_192434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sea [00:03:04]
-02. Darkout [00:03:05]
-03. Nothing to Regret [00:03:11]
-04. Into the Flames [00:04:08](   Читать дальше...   )Жанр: Dark Electro, EBMПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
 ```
 
 

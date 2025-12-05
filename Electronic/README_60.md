@@ -1,30 +1,3 @@
-###  Публикация: 1740797   (105794) от 03.08.2024
-
-VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_105794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antony Well - Lua Solidaria (6:27)
-02. Diogo Salvador & Walker G. - London City (4:35)
-03. Dr.H - Love (5:21)
-04. Dave Qri - Mama (4:40)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C032146D2690FFA242CA4CC8D5847E89C29287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740796   (105795) от 03.08.2024
 
 VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
@@ -692,6 +665,33 @@ VA - Ibiza Summer 2024: Deep & Tropical House (2024) [MP3|320 Kbps] <House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11298179FEA7C5AEE5AF497E80EF44064E5BC45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739309   (106108) от 27.07.2024
+
+VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - She's Not Me [02:33]
+02. Declan Drake - Lights Out [02:45]
+03. Deep Emotion - One More Night [02:36]
+04. Dani Corbalan - Promise Me [02:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E60CC30E0143C4380AD0555C1604A22A4451FC
 ```
 
 

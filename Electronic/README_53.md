@@ -1,30 +1,3 @@
-###  Публикация: 1764550   (101537) от 07.12.2024
-
-ZOYA - Eternity (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_101537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOYA - Crystal Cove (Extended Mix) [05:30]
-02. Nourey & ZOYA - Freya (Extended Mix) [05:43]
-03. ZOYA - One (We'd Be Love) (Extended Mix) [05:02]
-04. ZOYA - Eternity (Extended Mix) [05:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A97D479C9DDDFBDAF5634632372DA1337B25BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764614   (101538) от 07.12.2024
 
 Seefeel - Squared Roots (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Shoegaze>
@@ -694,6 +667,33 @@ Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D1F810D55F3EC76B43946184960C25018440B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762081   (102954) от 24.11.2024
+
+VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AYUUB - Teemo (Extended Mix) [5:09]
+02. Adip Kiyoi - Queen Of Zee (Extended Mix) [7:26]
+03. Kaselia - Albatross (Extended Mix) [6:31]
+04. Christopher Corrigan - Vanishing Echoes (Extended Mix) [6:40](   Читать дальше...   )Жанр: TranceПродолжительность: 03:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F095F0E97D3DF4C0CC5ECE3ADBC56AE27B598CA
 ```
 
 

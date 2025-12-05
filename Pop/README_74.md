@@ -1,108 +1,3 @@
-###  Публикация: 1672304   (166095) от 31.10.2023
-
-Angel Garcia DJ - If You Come Back (2023) [FLAC|Lossless|tracks] <Pop Trance, Eurobeat>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-If You Come Back (6:31)Жанр: Pop Trance, EurobeatПродолжительность: 00:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFCE136701A41F59BC0F26318AFCA50FBFE6E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84255   (166587) от 30.10.2023
-
-Хиты украинской эстрады 80-х годов / Хіти української естради 80-х років (2005) [APE|~ 600 кб/с] <Folk/ Народные песни>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тече вода
-2. Гай, зелений гай
-3. Зачаруй
-4. Горянка(   Читать дальше...   )Жанр: Folk, Народные песниПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4DB5C9ABDA7D3D93EE559622F9B7AF4359D271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84254   (166613) от 30.10.2023
-
-VA - Хиты украинской эстрады 70-х годов / Хіти української естради 70-х років (2005) [APE|~600 кб/с] <Folk/ Народные песни>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Червона рута
-2. День з тобою
-3. Пісня буде проміж нас
-4. Я піду в далекі гори(   Читать дальше...   )Жанр: Folk, Народные песниПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433DCE2B4A30ED9CC875C9610705E3AC59E5496A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84229   (166631) от 30.10.2023
-
-Хиты украинской эстрады 50-х годов / Хіти української естради 50-х років (2005) [APE|~600 кб/с] <Folk/Народные песни>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166631.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Київський вальс
-2. Троянди на пероні
-3. Пісня про вчительку
-4. Білі ночі(   Читать дальше...   )Жанр: Folk, Народные песниПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE24DA631F70EB7F99FF2A983DFF91F9030C598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597330   (166634) от 14.12.2022
 
 Black Eyed Peas - Elevation (2022) [MP3|320 Kbps] <Rap, Reggae, Dance>
@@ -692,6 +587,114 @@ magnet:?xt=urn:btih:2226985829D1E3BFD47AB5B6368FD4A6E2951CF7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B262A4F5E4716796BDB12570A4ABF91A33D32A62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672626   (168015) от 29.10.2023
+
+VA - Hit News Vol. 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CB Milton - It's A Loving Thing
+02. Maxx - Get-A-Way
+03. Unity Power feat. Rozlyne Clarke - Eddy Stready Go!
+04. O-Oh - Hey Magic Man(   Читать дальше...   )Жанр: Electronic, Italodance, Euro HouseПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD7E132C9426C7704A345D7EBEC5143D9ADB4F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672785   (168066) от 29.10.2023
+
+Bucks Fizz - The Land of Make Believe: B Sides and Rarities (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Europop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Can't Stand the Heat (Early Mix) [00:03:25]
+02. You Love, Love [00:03:37]
+03. Evil Man [00:03:52]
+04. Censored [00:04:58](   Читать дальше...   )Жанр: Disco, Europop, Pop Rock, Synth-popПродолжительность: 02:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E159393C6C7E78E9B61C347072A8607F3BF00F39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515872   (168314) от 08.12.2021
+
+Roxette - Joyride (2021) 3xCD, Remastered, Parlophone, Roxette Recordings, 30th Anniversary Edition [FLAC|Lossless|image + .cue] <Pop Rock, Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168314.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Joyride (4:23)
+02. Hotblooded (3:18)
+03. Fading Like A Flower (Every Time You Leave) (3:50)(   Читать дальше...   )Жанр: Pop Rock, Euro PopПродолжительность: 03:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F65C49E98B70632EE606466CEDD811BBDD96B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515785   (168352) от 08.12.2021
+
+VA - Eurodance Power Hits For Aerobic Sessions 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] < Eurodance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eurotronic, Timi Kullai, Zooom - Tribal Dance (Mykotank Mix)
+02. Tina Safrany - Love Is the Power (Eurodj Remix)
+03. Linda Rocco - Matter of Time (Chrizz Morisson Euro Remix)
+04. B.P.M - Club Sold Out(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8670E5D04A2EF4B8649E352D96755122238211CD
 ```
 
 

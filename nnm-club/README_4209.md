@@ -1,3 +1,560 @@
+###  Публикация: 1525653   (129136) от 21.01.2022
+
+DirEqual 4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129136.jpg" />
+</div>
+
+
+###  Подробнее
+
+DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
+Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469F08883BB029C4C6C9438AEA62616B944D87DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489133   (129137) от 27.04.2012
+
+VA - 15 Top Trance Hits 04 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129137.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - 15 Top Trance Hits (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:53:53Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Omnia & IRA - The Fusion (Original Mix) (6:08)
+ 02. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day (Radio Edit) (3:49)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DC0D49A3C49B12528ECED01A34835265595569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488770   (129138) от 27.04.2012
+
+Zentimo xStorage Manager 1.6.2.1216 RePack by KpoJIuK [Русский, Украинский, Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525716   (129139) от 21.01.2022
+
+VA - Buddah's Chill 6 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey Supaporn - 1001 Bangkok Nights (3:40)
+02. Krystian Shek, Ray Maddison - Thai Palm Bay (Play At Beach Mix) (4:43)
+03. Billy Esteban - Aliman (3:44)
+04. Lazy Hammock - Apocalyptic Journey (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F90C609D5C462186B1468CDA0CA90BEF729C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525690   (129141) от 21.01.2022
+
+VA - Buddah's Chill 3 (2013) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoungh Ann - Rufiyaa (4:51)
+02. Katoey - Pattaya Hood (3:42)
+03. Keisuke Sakai - Yama Nemuru (6:44)
+04. Michael e - Precious Jewel (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4BE34F0E3A2CB54695571FAA66AE9197155CBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488284   (129143) от 27.04.2012
+
+Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Morning 02:49
+ 02. Life During Epidemic 04:17
+ 03. The Servant's Speech 05:11
+ 04. Summoning Fists To Heaven 05:41
+ 05. A New Hope Of Worms 04:02
+ 06. Cerebral Code Of Obeisance 03:42Жанр: Brutal Technical DeathПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C704DF67F6746BAEDA5FCAE10C4F9B506453414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488766   (129144) от 27.04.2012
+
+Zentimo xStorage Manager 1.6.2.1216 [Мульти, есть русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488988   (129145) от 27.04.2012
+
+Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless]<Trad Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoe Shine Boy
+02. Evenin’ (Jimmy Rushing, vcl)
+03. Boogie Woogie (Jimmy Rushing, vcl)
+04. Oh! Lady Be Good
+05. Boogie Woogie
+06. The Dirty Dozen
+07. The Fives
+08. Hey Lawdy Mam
+09. Oh! Red
+10. Red Wagon(   Читать дальше...   )1996Жанр: Trad JazzПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525431   (129146) от 21.01.2022
+
+VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы являетесь откровенным поклонником Electro House и не одна более менее значимая клубная тусовка не выпадает из вашего поля зрения , то здесь обязательно найдёте для себя не один десяток треков в свою фонотеку.001. Velvet Valley - Kb3k
+002. Peter Paul - Festivalia
+003. Alex Greenhouse - Do You Know
+004. Stan Seba & Bynomic - Miracle(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D345D01C7D24A9FFE669C77026B179880E70EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488656   (129147) от 27.04.2012
+
+Galeon - 2 альбома (2009-2011) [MP3|224 - 320 kbps]<Instrumental Melodic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет Надежды, Нет Веры - Часть 1 (В Ожидании Чуда...) (11:03)
+02. Апокалипсис (8:14)
+03. На Пороге Рая (6:21)
+05. Мечта (8:00)
+06. Нет Надежды, Нет Веры - Часть 2 (По дороге к мечте...) (8:03)Жанр: Instrumental Melodic MetalПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A1DD1AE78F0BEB19F03B569370E28F22272F1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525654   (129148) от 21.01.2022
+
+Tokyo Blade - Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man In A Box
+02. Blood Red Night
+03. I Am Unbroken
+04. Disposable Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81561798FF99FEB04D397BBC8539A7D2A778BB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525300   (129149) от 21.01.2022
+
+Томас Харди | Тэсс из рода д'Эрбервиллей (2020) [MP3, Валентина Емельянова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе Томаса Харди (Томаса Гарди, Thomas Hardy) (1840–1928), ставшего классикой английской литературы, рассказывается о печальной судьбе девушки, наделённой красотой и тонко чувствующей душой. Проклятие, лежащее на Тэсс, обрекает её расплачиваться за преступления некогда могущественных предков. Готовая пожертвовать собой ради близких, она протестует против грубого (   Читать дальше...   )Жанр: Зарубежная классика, Классическая прозаПеревод: Александра КривцоваИздательство: АРДИСПродолжительность: 18:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88512F8A55EC51FF36A7FE17F3B2C71F82BACE79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525627   (129150) от 21.01.2022
+
+Giant - Shifting Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shifting Time
+02. Let Our Love Win
+03. Never Die Young
+04. Don't Say A Word(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A749870F15682E27E62B2FA477A8B818D0CFF292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525564   (129151) от 21.01.2022
+
+Gerry Rafferty - Essential (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baker Street (06:06)
+ 02. Right Down the Line (04:28)
+ 03. The Ark (05:40)
+ 04. Night Owl (06:09)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EC2D4F02A1666A0C83B1EEAFF9070B3AE89CB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525619   (129152) от 21.01.2022
+
+Мишель Бюсси | Я слишком долго мечтала (2020) [MP3, Марина Лисовец]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые любовные истории не умирают. Они продолжают жить в наших воспоминаниях и совпадениях, в которых мы видим былую любовь. Но для Натали эти совпадения вдруг становятся слишком частыми. Повсюду она видит напоминания о своей давней любви. Кто-то стремится вернуть к жизни ту страсть, что когда-то почти уничтожила её? Когда прошлое повторяется в настоящем почти (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ирина ВолевичПродолжительность: 13:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D337460F57974EC59E2DF4AA2B39888951ADE15B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525785   (129153) от 21.01.2022
+
+VA - Relaxing Chillout (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logophilia - Surfaces (6:03)
+02. Ace Of Duty - Prerogatives (6:13)
+03. Chiffre 100 - Summer Longing (Radio Mix) (3:48)
+04. Lusser - Asterism (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75093B23F8F62F5C04F922F600315366A8BB456D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488169   (129154) от 27.04.2012
+
+Большие приключения в Африке / Africa United (2010) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, объединяющая страны и поколения, снова на большом экране. История трех подростков из Руанды, обожающих футбол прошедших три тысячи миль, семь государств, чтобы попасть на Кубок мира в Южной Африке. В этом невероятном путешествии они становятся настоящей командой и верными друзьями.Жанр: Комедия, Приключения, ДрамаРежиссер: Дебс Гарднер-ПатерсонАктеры: Эрия Ндайамбаже, Роджер Нсенгиюмва, Шерри Сильвер, Эммануель Джал, Пресли Чвенайдаэ, Патрик МофокенгПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525781   (129155) от 21.01.2022
+
+Rectangle Pro 2.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBB38D1694377BE71DF74DBCB811A95151ECD14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525634   (129156) от 21.01.2022
+
+Boris - W (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to Go to the Side Where You Can Touch… (5:24)
+ 02. Icelina (5:18)
+ 03. Drowning by Numbers (4:16)
+ 04. Invitation (2:56)(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6337B643FDD2FB9F8432BECF32786C83BB5F232E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525767   (129159) от 21.01.2022
+
+Клоун Коко и хотдог / Koko`s Hot Dog (1928) WEBRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну, никак нельзя в американском мультике обойти такую очень американскую тему как хот-дог. И уж никак нельзя не пошутить о рецептуре блюда под названием "горячая собака". ;)Производство: США, Inkwell StudiosЖанр: Рисованная анимация, КороткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AD133C5BCF30B440FE2146255274471982EFE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525624   (129160) от 21.01.2022
+
+Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up Your Feet Again
+02. On The Other Side Of Pain
+03. Made It Through
+04. Shift The Paradigm(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CF583626E0C234B28285D686FDEB7119B00B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525414   (129162) от 21.01.2022
 
 VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
@@ -125,577 +682,6 @@ Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525676   (129170) от 21.01.2022
-
-Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zanzebaar (1:47)
-02. Paul Oakenfold, Baby E - Shine On (2:33)
-03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
-04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487394   (129171) от 27.04.2012
-
-VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alx, Jazzi Jay, Muzzyg - Letz Go! (Die Hoerer Remix)
-02. Avesta - Arena (Original Mix)
-03. Aylesbury - Surrender (Gimbal & Sinan Remix)
-04. Betatraxx feat. Krystal - Shuffling & Looking Dumb (Original Mix)
-05. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub)
-06. Kraymer - The Concept (Jay Robinson Remix)
-07. Laidback Lue - Do The Robot (Original Mix)
-08. Lenny Kravitz - Are You Gonna Go My Way (Christian Sims Remix)
-09. Lil Jon - Drink ft. LMFAO (Extended Clean)
-10. Mad Villains - Disk Hoez (Dirty Audio Remix)(   Читать дальше...   )2012Жанр: Dutch HouseПродолжительность: 01:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852E0FE49DB6B164FE6283DC31690C5182F6C358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525544   (129172) от 21.01.2022
-
-VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Interlude (0:57)
-02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
-03. CaPa - The Way We Live (3:48)
-04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488755   (129174) от 27.04.2012
-
-Газета | 1000 секретов [Украина] №8 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129174.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1000 секретов» - издание, которое станет полезным каждому. Оно содержит советы по различным темам: кулинария, цветоводство, ремонт, сад-огород, уход за животными, юридические вопросы, мода, здоровье, семейные отношения и многое другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7035D28BAFE60135468B43A72039B6347574F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525540   (129175) от 21.01.2022
-
-VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass, Jane Maximova - Deep River (6:29)
-02. SilverNight - Silence (6:55)
-03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
-04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525790   (129177) от 21.01.2022
-
-VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
-02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
-03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
-04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525633   (129178) от 21.01.2022
-
-Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not The End Of The Road
-02. What Goes Up
-03. Only The Dead
-04. Yoko Ono(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C90E85C6BDC132710B23E162A0388A200B3DC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488307   (129184) от 27.04.2012
-
-VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yolan & Kenia - На Пороге Лета (Extended Mix)
-02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
-03. Батишта feat. Ульяна Глушкова - Мама
-04. MainstreaM One - Всё Пройдёт
-05. Karizma - Я Забуду (Radio Edit)
-06. Алиса - Настроение
-07. Music Hayk - Почему Не Я
-08. Bi-O-Shock - Биоробот
-09. LiLi - Lady GaGa Отдыхает!
-10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525739   (129186) от 21.01.2022
-
-VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
-02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
-03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
-04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525426   (129188) от 21.01.2022
-
-VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
-002. Theo De Tank - Make Me Feel
-003. Jürgen Degener - Rhyme
-004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525680   (129189) от 21.01.2022
-
-Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Lost
-02. Don't Give Up
-03. Still Not Over You
-04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525545   (129190) от 21.01.2022
-
-Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris by Night (3:51)
- 02. Sourire (4:26)
- 03. Seine (3:39)
- 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525376   (129191) от 21.01.2022
-
-VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
-002. Simone D Jay - Move Your Feet
-003. DJ Planet Express - Wanted U 2 Kno
-004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525578   (129192) от 21.01.2022
-
-Firefox Browser 96.0.2 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525182   (129193) от 21.01.2022
-
-Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumours (04:10)
- 02. Rocky Trail (03:31)
- 03. Comb My Hair (03:06)
- 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525687   (129194) от 21.01.2022
-
-Винсент Ван Гог | Письма к друзьям (2021) [MP3, Константин Корольков]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ван Гог создал более сорока автопортретов. «Трудно познать самого себя. Однако написать самого себя не легче», – говорил он. Ван Гог оказался талантливым мастером не только кисти, но и пера. Буквально каждый вечер после работы за холстом он садился за стол и писал длинные письма родным и друзьям. После его смерти письма были найдены. Без преувеличения их можно назвать (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаПеревод: Полина В. МелковаПродолжительность: 04:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488898   (129195) от 27.04.2012
-
-Журнал | Дачный сезон №4 [2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дачный сезон - это журнал для дачников, а также любителей сада и огорода. Тема номера: выращиваем ранний картофель.
-Также вам будут интересны советы от заядлых дачников и секреты дачных посадок.2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572DE86CA06F43C7A20322DD2A7B9BAD7FBF3658
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525418   (129196) от 21.01.2022
-
-VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
-002. Memorio - Grace
-003. Subdream - Monsonoom
-004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525688   (129198) от 21.01.2022
-
-Sketch 82.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 10.15 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8B9CD3851BADB9A5DA808A5F0BE7FF7266E3C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488805   (129200) от 27.04.2012
-
-VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orjan Nilsen - Amsterdam (Original Mix)
-02. Julian Vincent feat. Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
-03. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
-04. Serge Devant feat. Rachael Starr - You & Me (Extended Mix)
-05. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
-06. Serge Devant & Danny Inzerillo feat. Polina - When You Came Along (Extended Mix)
-07. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)
-08. Snatt & Vix feat. Neev Kennedy - At The End Of The Day (Original Mix)
-09. Paul Van Dyk feat. Michelle Leonard - Lost In Berlin
-10. Доминик Джокер - Если Ты Со Мной (DJ Stylezz Remix)2012Жанр: Club, DanceПродолжительность: 04:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8A4B1413DADFFB4F4D27A1FDB1F61AF71F2B1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525639   (129201) от 21.01.2022
-
-Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_129201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spectral Ruins
-02. New Evil
-03. Daughters Of The Night
-04. The Sorrow Path(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEDA42112A9F6D6D84B490EFCAA55684BEC2180
 ```
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 224514   (167415) от 13.12.2020
-
-VA - Phil K Pres: Y4K - Distinctive Breaks (2005) [FLAC|Lossless]<Progressive Breaks, House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01Жанр: Progressive Breaks, HouseПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8025D4F4E16B3193D1415D846B87372447748310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345238   (167526) от 14.12.2019
 
 VA - Progressive Miami (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -684,6 +660,33 @@ VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35523F8C98036C9A94C8632DF6A5260572BE55CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596486   (169169) от 11.12.2022
+
+Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance On The Starlight
+02. Secret Mission
+03. Jabdah
+04. Mission X(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1E0CD1DDF69BAC308E24657D5C20C4D619A3EF
 ```
 
 

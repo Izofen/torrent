@@ -1,30 +1,3 @@
-###  Публикация: 1596486   (169169) от 11.12.2022
-
-Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_169169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance On The Starlight
-02. Secret Mission
-03. Jabdah
-04. Mission X(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1E0CD1DDF69BAC308E24657D5C20C4D619A3EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596733   (169202) от 11.12.2022
 
 VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Trance>
@@ -690,6 +663,33 @@ VA - Songs 4 Sex Sexy Chill Out Night Vibes (2023) [MP3|320 Kbps] <Electronic, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9BC4CC8FD7D83297310B956D4CDC9041B3B225
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344328   (170146) от 10.12.2019
+
+VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future House, Tech House, Bass House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Federico Rosano – Throws Up (Bass House Vip Mix) (4:15)
+02. Houze Muzzik – Puzzle Flow (Bass House Vip Mix) (4:24)
+03. Sick Kids – Friends (Henrick B Jordan Bass House VIP Mix) (4:20)
+04. Michael Beltone – Moving To The Beat (G-Mafia Bass House Mix) (3:50)(   Читать дальше...   )Жанр: House, Future House, Tech House, Bass HouseПродолжительность: 03:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D945CB6E2705959E617E9695E2BEC2DC756BAC
 ```
 
 

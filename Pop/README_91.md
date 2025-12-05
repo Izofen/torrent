@@ -1,84 +1,3 @@
-###  Публикация: 1183151   (213826) от 23.12.2017
-
-Анна Плетнёва - 7 синглов (2016-2017)  [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_213826.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Сильная девочка
-2017 - На чьей ты стороне?
-2017 - Подруга (feat. Марина Федункив)
-2017 - Игрушки(   Читать дальше...   )Жанр: РорПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0EEBBCA9B605954199892E85AA766010CC4475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193861   (213915) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 6 (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, 80's>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_213915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Freaky – May Day Love (03:57)
-02. Go To – Girl Of The 80's (07:03)
-03. Martinique – Fantastic Life (05:25)
-04. L'Affair – Don't Fly Away (03:49)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, 80'sПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EF6ABB3B5BEA4A840C1A8B163B24F17F327D43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270204   (214215) от 18.12.2018
-
-VA - Now That's What I Call Merry Christmas (2018) [FLAC|Lossless|tracks + .cue] <Pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем ближе новогодние праздники и Рождество, тем чаще задумываемся, а что к столу за музыкальное сопровождение будет. Кто-то смотрит телеэкзерсизы с басковыми и прочими дублируемыми на каждом канале, а кто-то загодя подбирает музычку по душе. Ведь Новый год и Рождество праздники для души. Чтоб помочь таким искателям, предлагаем вот этот свеженький сборник.01. Justin Bieber - Mistletoe  (3:02)
-02. Ariana Grande - Winter Things  (2:37)
-03. Pentatonix - Mary, Did You Know  (3:19)
-04. Sam Smith - Have Yourself a Merry Little Christmas  (2:42)(   Читать дальше...   )Релиз состоялся: 6 октября 2018 г.Жанр: Pop, rockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9940BA00180FF74CE3BA9AC5730F2BD44289A667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270264   (214236) от 18.12.2018
 
 Leonore O'Malley - First Be A Woman (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -693,6 +612,87 @@ Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F07EA126D657A7391E3BDCC8E730E2AC4916A01A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425902   (216307) от 23.11.2020
+
+VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - The Best (5:33)
+02. Duran Duran - Hungry Like the Wolf (3:40)
+03. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
+04. Spandau Ballet - Communication (3:40)(   Читать дальше...   )Жанр: Pop, Soul, OtherПродолжительность: 02:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966969   (216368) от 19.12.2015
+
+VA - Winter Party 2016 (2015) [MP3|320 кб/с] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TK - Hello (A.R. Mix)
+02. Trancemission - Sugar (A.R. Mix)
+03. Groovy 69 - Zero (B Remix)
+04. Thomas - Hula Hoop (B Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E903BB153ED4D47CD918EDCEDC04574C9868755F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343150   (216402) от 07.12.2019
+
+VA - Superstars In Concert (1986-87-88 The Prince's Trust Concerts) (1996) 3CDSet [MP3|320 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Gabriel – Sledgehammer (4:58)
+02. Rick Astley – Never Gonna Give You Up (4:05)
+03. Eric Clapton – Wonderful Tonight (4:21)
+04. Swing Out Sister – Breakout (3:56)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C871BD8278D40575A5DABF87AC9E59A165B63A14
 ```
 
 

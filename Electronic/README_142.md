@@ -1,3 +1,57 @@
+###  Публикация: 1633081   (234601) от 14.05.2023
+
+VA - Black Hole House Music 05-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HALIENE - Reach Across The Sky (John Dahlbäck Extended Remix) [4:47]
+02. ZOYA & Milkwish - Silent Shore (Extended Mix) [6:04]
+03. Siskin - Let Go (Extended Mix) [6:40]
+04. Dirkie Coetzee & Deeper Calling - Into Orbit (Extended Mix) [6:08](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FCE380E2F99ABC5B152A8E53FB3A26D4A24657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632932   (234657) от 13.05.2023
+
+Bob Moses - The Silence in Between (Remixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging On (CRi Remix) (5:26)
+ 02. Love Brand New (Eagles & Butterflies Remix) (4:41)
+ 03. Love Brand New (Vintage Culture Remix) (3:52)
+ 04. Afterglow (Kasablanca VIP Remix) (4:58)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24E3CCBCF631A767C7EAF8029AE9E0FD9995735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642002   (235052) от 25.06.2023
 
 VA - Club Summer Megamix (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -641,60 +695,6 @@ VA - Relax and Unwind: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820FE38D45AC9F52381CCC8D0C646EB1901FA498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639793   (236689) от 15.06.2023
-
-Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_236689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Our Way
-02. Schmerz
-03. The Darkest Hour
-04. God And The Devil(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B2ABD72943A1C196D75DE5F1ACB3FA685FB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631043   (236705) от 04.05.2023
-
-Kobaryo - MIXPEED ACTION (2018) [FLAC|Lossless|WEB-DL|tracks] <Speedcore, Electronic, Gabber>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_236705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Delete The World
-02 Villain Virus (feat. かめりあ)
-03 Blackbird
-04 My Music Playlist(   Читать дальше...   )Жанр: Speedcore, Electronic, GabberПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325A58EFC4B9C4E1A53B7F474471E3EE30B170B3
 ```
 
 

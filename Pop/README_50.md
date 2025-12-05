@@ -1,30 +1,3 @@
-###  Публикация: 1696694   (118658) от 08.02.2024
-
-Александр Маршал - Блокпост - Сборник лучших песен (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_118658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блок-пост 'Акация' (3:01)
-02. Братишка (3:21)
-03. Приказ 'Назад' (2:32)
-04. Третий тост (5:11)(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D6073628E13ECAC1751732044B905BB990A627
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697396   (118992) от 06.02.2024
 
 VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,6 +665,33 @@ Charlotte Sands - can we start over? (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB652F0FCC1CF2CF9FD9E03A5C5A5BF9003A717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694332   (121143) от 24.01.2024
+
+Johnny Hates Jazz - Turn Back The Clock (1988) [OGG Vorbis|480 Kbps] <Electronic, Pop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shattered Dreams
+02.  Heart Of Gold
+03.  Turn Back The Clock
+04.  Don't Say It's Love(   Читать дальше...   )Жанр: Electronic, Pop, Pop Rock, Synth-popПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0722E48E1424B9A73CED807D508D756B55F3084D
 ```
 
 

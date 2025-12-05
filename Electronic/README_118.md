@@ -1,3 +1,57 @@
+###  Публикация: 1427166   (184194) от 27.11.2020
+
+VA - Trance 2021 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_184194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Costa & Cathy Burton & Julia Violin - Can I Count On You (Original Mix)
+02. 4 Strings & Susanne Teutenberg - Ocean Wave (Original Mix)
+03. Roxanne Emery & BiXX - Sound of The Alarm (Original Mix)
+04. Nitrous Oxide - One Love (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593297F0A9EA85B01E945D867524568C5629A66D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592244   (184333) от 21.11.2022
+
+Purple Disco Machine - Club Exotica (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (feat. Sahara Beck) (Monte Remix) (6:41)
+ 02. At The Disko (Extended Mix) (6:34)
+ 03. Fireworks (feat. Moss Kena & The Knocks) (Club Dub Mix) (6:19)
+ 04. Don't Stop (Extended Mix) (6:28)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 01:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8245465621D282FDA0C75B90C3657B4ED6D6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592028   (184361) от 21.11.2022
 
 Paul Sabin - STALK 2 (ORIGINAL SERIES SOUNDTRACK) (2021) [FLAC|Lossless|tracks] <Techno, Deep Techno>
@@ -638,57 +692,6 @@ VA - A State Of Trance Radio Top 50 - 2023, Vol. 2 (2023) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B715BFA2A5B5BC39E7A46513158D06E0B9789DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663787   (186429) от 23.09.2023
-
-CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_186429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663431   (186432) от 23.09.2023
-
-VA - Boccaccio Life - The End Of An Era (2018) [FLAC|Lossless|tracks] <House, Hard Trance, Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_186432.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Compiled By DJ Gert (01:19:56.)
-
-101. Aquaplex & Junk Project - Brightness [3:46]
-102. Club Royale - Loosing Sleep [5:55](   Читать дальше...   )Жанр: House, Hard Trance, Progressive House, TechnoПродолжительность: 05:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
 ```
 
 

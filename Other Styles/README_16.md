@@ -1,36 +1,3 @@
-###  Публикация: 590274   (135397) от 23.12.2012
-
-Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_135397.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:50)
-
-(1:30) 01. China Heart
-(4:39) 02. Snowy Mountain
-(6:27) 03. Chongsam
-(4:37) 04. Genghis
-(1:07) 05. Birdman
-(4:45) 06. Sparrows
-(6:01) 07. Mountain Mist
-(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593005   (135636) от 22.12.2012
 
 Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental, Flamenco>
@@ -215,30 +182,6 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3036366191BE5907E5885EF7EE63B7F4EFA749F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249742   (137715) от 31.12.2015
-
-Микаэл Таривердиев - Ирония судьбы, или С легким паром(полная версия) (2005) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_137715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -761,6 +704,66 @@ Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194996   (142476) от 29.12.2017
+
+Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Murphy's Law (5:13)
+02 - Wheelchair Man (6:01)
+03 - Did You Feel That? (3:29)
+04 - Save the Rain (3:00)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA72E5C4ADBE5C14BA8CA226E163C266C1D728A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590602   (142753) от 17.12.2012
+
+Jarboe & Kris Force - The Path (2010) [MP3|320 кб/с]<Game Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Safe Song - The Path - 02:38
+02. Forest Theme - 07:03
+03. Little Girls - 01:03
+04. Charming Wolf - 03:26
+05. Fey Wolf - 04:59
+06. Forest Interlude 1 - 01:27
+07. Woodsman Wolf - 03:25
+08. Werewolf - 05:58
+09. Girl in Red - 03:15
+10. Forest Interlude 2 - 04:06(   Читать дальше...   )Жанр: Game SoundtrackПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12AC822B449470F06A2681C6342DC28F30B962E
 ```
 
 

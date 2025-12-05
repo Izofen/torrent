@@ -1,84 +1,3 @@
-###  Публикация: 1624549   (242255) от 07.04.2023
-
-VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_242255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-ha - Take on Me
-02. Buster Poindexter - Hot Hot Hot
-03. Billy Ocean - Caribbean Queen (No More Love on the Run)
-04. Bangles - Walk like an Egyptian(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634935   (242318) от 23.05.2023
-
-Brandy Clark - Brandy Clark (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_242318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Enough Rocks (feat. Derek Trucks) (3:12)
-02. Buried (3:06)
-03. Tell Her You Don't Love Her (feat. Lucius) (3:32)
-04. Dear Insecurity (feat. Brandi Carlile) (4:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB5E318827470D5E4B319E2E8656B47D195F739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362531   (242407) от 24.02.2020
-
-Игорёк - Бабки есть! (2002) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_242407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO (00:26)
-02. Не плачь (03:01)
-03. Кричи, кричи! (03:54)
-04. Ну как же так! (03:22)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311DCD80C17FA81700C8F7D54244D7317F470D88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362537   (242420) от 24.02.2020
 
 Игорёк - Хочу тебя срочно (2003) [MP3|320 Kbps] <Pop, Europop>
@@ -695,6 +614,87 @@ The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627245   (243199) от 18.04.2023
+
+VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanello & Steven Kimber - S.O.S. for Love (Maxi Version)
+02. Lenroy - Do You (Extended Version)
+03. TQ - Let's Go To Tokyo (Axel Remix)
+04. Siberian Heat - Magic Blue Eyes (Long Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B5DE2AAC0BEC207AE15EE300A3EF2DCC1EB6A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623349   (243228) от 01.04.2023
+
+VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyndi Lauper - Girls Just Wanna Have Fun
+02. Rick Astley - Never Gonna Give You Up
+03. Altered Images - I Could Be Happy
+04. Dead Or Alive - You Spin Me Round (Like A Record)(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DE3E3ACA7601BBFF98675AFF6D9C6E17CC4473
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627365   (243245) от 18.04.2023
+
+Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Dance Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Er liebt dich nicht [00:03:11]
+02 - Nimm Anlauf [00:03:38]
+03 - Der hellste Stern der Welt [00:02:56]
+04 - Sieger der Herzen [00:03:04](   Читать дальше...   )Жанр: Dance Pop, EuropopПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
 ```
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1838993   (261627) от 26.11.2025
+
+Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_261627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
+2019 - The Last Day on Earth
+2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192188   (263373) от 16.12.2017
 
 Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
@@ -52,7 +78,7 @@ magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839120   (287217) от 
+###  Публикация: 1839120   (287217) от 27.11.2025
 
 The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
 
@@ -74,6 +100,87 @@ A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290726   (672115) от 23.03.2019
+
+VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Euro House, Hip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_672115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.B. Milton - It's A Loving Thing
+02. Tranceformer Feat. Neil - Let Your Mind Dive
+03. Bad Boys Blue - My Love For You
+04. Tag Team - Whoomp! (There It Is)(   Читать дальше...   )Жанр: Disco, Euro House, Hip HopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131721   (672424) от 23.05.2017
+
+Zodiac: Disco Alliance (1980) & Music In The Universe (1983) 2LPs [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Disco, Electronic, Synth-pop>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_672424.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Mysterious Galaxy
+A2 Laser Illumination
+A3 Silver Dream
+A4 Photo Finish(   Читать дальше...   )Жанр: Disco, Electronic, Space Rock, Synth-popПродолжительность: 00:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C3BDCABD7492FDE3F209F0B61AB2A16D06B6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210840   (778047) от 05.03.2018
+
+Алла Пугачёва - Виниловая коллекция (1977-1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778047.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Iceberg
+A2 The Rope-Dancer · Канатоходка
+A3 Leningrad · Ленинград
+A4 A Woman Who Sings · Женщина Которая Поeт(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 10:06:51 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
 ```
 
 
@@ -101,6 +208,60 @@ Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377963   (781360) от 19.06.2020
+
+Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_781360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side (3:55)
+ 02. Like I've Never Been Gone (5:58)
+ 03. Big Log (5:07)
+ 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204978   (783986) от 08.02.2018
+
+Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Everything You Got (4:38)
+ 02. Damn Your Eyes (4:34)
+ 03. Black Coffee (4:15)
+ 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
 ```
 
 
@@ -484,82 +645,55 @@ magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461760   (1021538) от 11.04.2021
+###  Публикация: 1494111   (890699) от 06.09.2021
 
-Эдвард Григ - Пер Гюнт (1967) БСО Всесоюзного Радио, дир. Г. Рождественский [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+Поющие сердца - Зима любви (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1021538.jpg" />
+  <img src="http://84.39.252.114/public/picture/007/save_picture_890699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пер Гюнт. Сюита N1, соч.46.
-A1 Утро / Dawn
-A2 Смерть Озе / Death Of Ase
-A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:33
+A1 Зима Любви
+A2 Где Найти Любовь
+A3 Все, Что Было
+A4 Стучись В Любую Дверь(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
+magnet:?xt=urn:btih:A9D67C4A9E97236D4B232BA33B1624E130E1A45B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461738   (1021607) от 11.04.2021
+###  Публикация: 1494092   (890865) от 06.09.2021
 
-Ивао Судзуки - Гитара (1985) 1970, mono (repress) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1021607.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Шесть Пьес Для Лютни
-A2 Павана
-A3 Матацин (Медленный Испанский Танец)
-A4 Прелюдия Из Сюиты №1 Для Виолончели(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461534   (1021712) от 10.04.2021
-
-Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
+Locomotiv GT. - In Warsaw. Recorded live at the Congress Hall (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz-Rock, Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1021712.jpg" />
+  <img src="http://84.39.252.114/public/picture/007/save_picture_890865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Concerto E-dur , Op. 8 No.1, RV 269, ''Spring''/ми мажор, RV 269 «Весна»
-A1 Allegro
-A2 Largo
-A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:53
+A1 Tape Signal
+A2 Intro
+A3 Enfeleitett Szo • Forgotten Word
+A4 Es Jott A Dokto • And The Doctor Came(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 00:43:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
+magnet:?xt=urn:btih:2632D83DD71A5EC607A8CBCDDADC8E2DB2C3C62D
 ```
 
 

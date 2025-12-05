@@ -1,3 +1,57 @@
+###  Публикация: 1656685   (203083) от 31.08.2023
+
+VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheric - Stories [7:06]
+02. Niceshot - Temporal [7:27]
+03. Alex O'Rion - Ukko (Alternative Mix) [7:05]
+04. Fran Garay - Deductions [7:50](   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656590   (203128) от 31.08.2023
+
+Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [FLAC|Lossless|image + .cue] <Experimental, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrilegium (43:32)
+01.2 (silence) (03:32)
+01.3 Coda (01:40)
+01.4 (silence) (10:12)Жанр: Experimental, AmbientПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68117C3A13DF9951E86868427178601AC06B9E07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655699   (203522) от 29.08.2023
 
 VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ VA - Deep House Sessions 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89710437DF30396AA084E79BB36897545726A46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653417   (205492) от 16.08.2023
-
-VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_205492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandala - Astralia (Colourbox Remix) [6:01]
-02. Cores - Ice Rain (Original Mix) [8:14]
-03. Commander Tom - Eye C Red (Original Mix) [6:51]
-04. Ulysses - Whales 2 Females (Original Mix) [5:58](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF3665D1CE2F1E7DDCFB5D9A6AE91ED77D64E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653291   (205535) от 15.08.2023
-
-VA - Top 10 July 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_205535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dermot Kirby - Breathe (Original Mix) [7:31]
-02. Masaru Hinaiji - Spring Sign (Original Mix) [6:59]
-03. Sauli - Focus (Original Mix) [6:29]
-04. A L O N 3 L Y & Cedric Paul vs. Daniel Rigoni - La Oscuridad De Tu Corazón (Original Mix) [7:46](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51A044A4949947D3785DD1D66BF8F1136FA6B31
 ```
 
 

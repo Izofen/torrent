@@ -1,30 +1,3 @@
-###  Публикация: 1346282   (164388) от 18.12.2019
-
-VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_164388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airform – Portal Trip (06:12)
-02. Damian L – Lost Flight (09:27)
-03. Essence Project – Sunny Day (05:10)
-04. Flucturion 2.0 – Puma Colada (07:14)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346198   (164403) от 18.12.2019
 
 Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House>
@@ -693,6 +666,33 @@ VA - Fresh Family. Fresh Animal'z Bassball (1998) Resort Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DFCF5AD9C9CA02ACAF6485B59063089E071CC72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597632   (165942) от 15.12.2022
+
+Thermal Noise - 7 Albums (2018-2022) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - NEMESIS
+2019 - Horizon
+2019 - Intruder(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 7 CD, 05:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55773E5A15EFD2719B1108831E1E4D62E31DFC2E
 ```
 
 

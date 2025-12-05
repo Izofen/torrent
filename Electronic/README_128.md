@@ -1,3 +1,57 @@
+###  Публикация: 1832294   (213516) от 30.10.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - On The Beach (Mauro Picotto's Extended CRW Remix) [6:41]
+02. Vincent De Moor - Shamu (Extended Mix) [6:12]
+03. Armin van Buuren feat. Jan Vayne - Serenity (Extended Mix) [8:38]
+04. Re:Locate & Cliff Coenraad - We Feel (Re:locate Extended Mix) [7:30](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAC84D23578C958F878D1A700D712F85CD1F3AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832297   (213518) от 30.10.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Orbion (Extended Mix) [9:35]
+02. John O'Callaghan feat. Josie - Out Of Nowhere (Extended Mix) [7:28]
+03. Mauro Picotto & CRW - I Feel Love (V2) (Extended Mix) [5:19]
+04. Silent Electra - Polarity (Jochen Miller Extended Remix) [8:14](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15E87E42911D9D758253C783975C48C06B5489E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344144   (213609) от 09.12.2019
 
 Malik Djoudi - Temperaments (2019) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <French Electronic, Synthpop, Ambient Pop>
@@ -638,60 +692,6 @@ VA - Ibiza Winter Session 2017: 25 Deep Smoothies (2016) [MP3|320 Kbps] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095BE67BDCB9A2D4C13ABFFB496427EE445296A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085451   (214703) от 21.12.2016
-
-VA - Uplifting Only: Fan Favorites 2016 (Mixed by Ori Uplift) (2016) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas & Johannes Fischer - Tears of Hope (Intro Mix) (6:17)
-02. Sergey Nevone & Simon O'Shine - In Spite Of Everything (Radio Edit) (4:28)
-03. SoundLift - Long Way Back (Original Mix) (7:06)
-04. Afternova - We Were Meant To Be (Original Mix) (6:41)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F54E30A2D35FF47993B3686F6BB7AD7BBB7798A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586943   (214708) от 28.10.2022
-
-VA - FIVE (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_214708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aaron Lewis -  Horizon  (7:22)
-02.  Audioglider -  Hot Jupiters (Tripswitch Remix)  (9:38)
-03.  Benwaa -  Figure You Out (Daniel Klose Remix)  (8:24)
-04.  Blair Malott, Chuck Woodward -  So Far Gone  (7:26)(   Читать дальше...   )Жанр: Progressive House, Deep House, BreaksПродолжительность: 02:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A23443AFF6FB618E67218DF66CB56FDB33C2A16
 ```
 
 

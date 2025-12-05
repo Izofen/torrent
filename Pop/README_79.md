@@ -1,111 +1,3 @@
-###  Публикация: 1667426   (176016) от 09.10.2023
-
-VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_176016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Janet Jackson - Together Again [05:01]
-002. Jessie J - Domino [03:51]
-003. Agnes - Here Comes The Night [03:32]
-004. Lorde - Supercut [04:38](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667435   (176054) от 09.10.2023
-
-VA - Solo Divas Volumen 3 (2023) [MP3|320 Kbps] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_176054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cece Peniston - Finally [04:05]
-002. Chaka Khan - I Put A Spell On You [02:20]
-003. Mary J. Blige - Sweet Thing [03:42]
-004. Whethan - High [03:17](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CC980E43F0F25EF994A19277444D7523305189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667430   (176060) от 09.10.2023
-
-VA - Solo Divas Volumen 2 (2023) [MP3|320 Kbps] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_176060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mary J. Blige - Family Affair [04:28]
-002. Lady Gaga - Do What U Want [03:37]
-003. Diana Ross - I Still Believe (Purple Disco Machine Remix) [03:40]
-004. Gloria Gaynor - This Love Affair (Single Version) [02:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B865009FBA542E78462F4573DB67248096309558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595279   (176123) от 04.12.2022
-
-VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_176123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Unholy (2:36)
-02. OneRepublic - I Ain't Worried (2:28)
-03. The Weeknd - Blinding Lights (3:21)
-04. Post Malone - I Like You (A Happier Song) (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595249   (176191) от 04.12.2022
 
 Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
@@ -155,6 +47,60 @@ magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594741   (176696) от 03.12.2022
+
+C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_176696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (Room 69-Mix)  4:55
+02. I Can Loose My Heart Tonight (Extended Club Remix)  5:53
+03. 'Cause You Are Young (Maxi-Version)  4:55
+04. Are You Man Enough (Long Version - Muscle Mix)  6:03(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667491   (176898) от 08.10.2023
+
+Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Eurodance, Disco (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Sway
+02 – Sunlight
+03 – Immortal (feat. Sophie Ellis-Bextor)
+04 – Alcohol(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F7DBEBDE17DA4091C7039A737B058C72228863
 ```
 
 
@@ -693,6 +639,60 @@ Patti Brooks - Party Girl (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A28804E4647312C3D5E1F5B5B617470435E3FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666159   (180161) от 03.10.2023
+
+Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham Rap! (Enjoy What You Do?) (3:32)
+02. Wham Rap! (Enjoy What You Do?) (Club Mix) (4:20)
+03. Wham Rap! (Enjoy What You Do?) (Social Mix) (6:45)
+04. Wham Rap! (Enjoy What You Do?) (Unsocial Mix) (6:38)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666079   (180210) от 03.10.2023
+
+Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam
+02. Hold On to Now
+03. Things We Do for Love
+04. Tension(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8340832DDF2C290DEE2D12B69027F8B92C5DED04
 ```
 
 

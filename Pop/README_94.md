@@ -1,84 +1,3 @@
-###  Публикация: 1585865   (219533) от 24.10.2022
-
-VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_219533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julian Sommer - Dicht im Flieger
-02. Micha von der Rampe - Partyanimal
-03. Mickie Krause - Eine Woche wach
-04. HBZ - Gasteliste +1(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:43:41 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF6E45B6CD0BF7224AE2D7F4B4889980956D109
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585869   (219551) от 24.10.2022
-
-VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_219551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almklausi - Wir machen mit bei der Rettung der Erde
-02. Tim Toupet feat. Lorenz Buffel - Pietro Lombaaadi
-03. Schafer Heinrich - Ich hatte heut schon Sex
-04. Biervampir - Biervampir(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:08:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FF8679A7B7346CDE6D6DA4AE5246DF286DFA55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585856   (219559) от 24.10.2022
-
-VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_219559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melanie Mueller Joerg Draeger - Fuer eine Nacht
-02. Celina Mars - Heut Nacht
-03. Nancy Franck - Korken knallen
-04. Marry - Wir feiern den DJ(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6F905FEAA2FD136699B1E7D444722768AD4243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585870   (219565) от 24.10.2022
 
 VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -713,6 +632,85 @@ VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343032   (221137) от 04.12.2019
+
+Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЭДЕЛЬВЕЙС
+2. ДАВИДА ОЛЕНЬ
+3. О'ХЕНРИ
+4. АЛАДДИН(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651696   (221144) от 07.08.2023
+
+Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't Get over You (Demo Version) [00:03:02]
+02 - See White Wishes Fall (A Christmas Song) (Demo Version) [00:03:22]
+03 - Don't Come Crying to Me (Demo Version) [00:03:43]
+04 - Nothing Left for Us (Demo Version) [00:03:54](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342929   (221196) от 04.12.2019
+
+Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Be Mine
+02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
 ```
 
 

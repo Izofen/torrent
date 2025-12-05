@@ -1,30 +1,3 @@
-###  Публикация: 1684766   (127388) от 17.12.2023
-
-Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Futurepop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_127388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imposter Syndrome [00:04:47]
-02. Bring The Noise [00:05:02]
-03. Echokammer [00:04:32]
-04. Light My Way [00:04:58](   Читать дальше...   )Жанр: EBM, FuturepopПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713B2FD303B6F49F144A1781F248D2C19B9AE612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684983   (127395) от 17.12.2023
 
 Van Roy Asylum - Unsaint Petersburg (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <industrial metal, ebm, dark electro>
@@ -694,6 +667,33 @@ VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2CC3C4E5A3143EF842A0327418C7DFC891EA01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683023   (128765) от 10.12.2023
+
+VA - A State of Trance Year Mix 2023 (Mixed by Armin van Buuren) (2023) [FLAC|Lossless|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128765.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren – Am I AI? (A State of Trance Year Mix 2023 Intro) (Mixed) (02:33)
+002. Gareth Emery feat. Maria Lynn - Missing You (Mixed) (02:03)
+003. Above & Beyond - 500 (Mixed) (00:44)
+004. Armin van Buuren feat. Anne Gudrun - Love Is A Drug (Mixed) (0:59)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346055AE1CF8757B765AF390BFBE36D38BE42ED8
 ```
 
 

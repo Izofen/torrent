@@ -1,30 +1,3 @@
-###  Публикация: 1697262   (118955) от 06.02.2024
-
-Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_118955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shotgun (Into The Night) (Remix)
-02.  Battle Cry (Remix)
-03.  You & Me (Remix)
-04.  Mars Invaders (Remix)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697272   (118958) от 06.02.2024
 
 Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
@@ -695,6 +668,33 @@ Miss Monique - Yearmix 2023 (2024-01-26) [MP3|320 Kbps] <Progressive House, Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4AC59F1E3CC42651070AFDE41474A74572FB5A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695149   (120372) от 29.01.2024
+
+VA - Dream Dance Vol. 95 - The Annual (Extended Versions) (2024) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Sam Smith - Desire (Extended Mix) [4:33]
+02. Hardwell x DJs From Mars x Tomcraft - Loneliness (Extended Mix) [3:39]
+03. Felix Jaehn & Jonas Blue - Past Life (Extended Mix) [5:07]
+04. twocolors x Safri Duo x Chris de Sarandy - Cynical (MistaJam Extended Remix) [5:16](   Читать дальше...   )Жанр: Trance, Electronic, DanceПродолжительность: 05:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420F895B0F28F680DC88A7AEE6768612344FDC9C
 ```
 
 

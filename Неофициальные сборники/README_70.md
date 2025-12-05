@@ -1,3 +1,201 @@
+###  Публикация: 592045   (132149) от 29.12.2012
+
+VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adroa feat. Ajapai - Decimation
+2. Asking Alexandria - A Lesson Never Learned
+3. Brainpain - Ebola
+4. Brainpain - Power Of Evil
+5. Bring Me The Horizon - Blacklist (Spark Remix)
+6. Bring Me the Horizon - Sleep With One Eye Open (Tek-One Remix)
+7. Declare Your Funeral - Amnesia (Tim Tonik Remix)
+8. Demented Dimensions - I Swear to God
+9. Drowning Pool - Bodies (The Mask Remix)
+10. Excision - Brutal(   Читать дальше...   )Жанр: Dub Step/Heavy Electro/MetalstepПродолжительность: 02:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593162   (132150) от 29.12.2012
+
+VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:17:12
+CD 1:
+01. Coldplay - Viva La Vida (3:55)
+02. Eminem Ft Rihanna - Love The Way You Lie (4:23)
+03. Editors - Papillon (3:50)
+04. Natalia - I've Only Begun To Fight (3:30)
+05. Golden Earring - When The Lady Smiles (4:36)
+06. 50 Cent Ft Justin Timberlake - Ayo Technology (4:07)
+07. Jasper Steverlinck Ft Steven & Stijn Kolacny - Life On Mars (4:00)
+08. Amy Winehouse - Rehad (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 06:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594883   (132153) от 29.12.2012
+
+VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Трофимов - Текила Бум
+ 02. Ирина Круг - Без тебя
+ 03. Виктор Королёв - Три часа
+ 04. Стас Михайлов - Тебя оставлю я
+ 05. Вика Цыганова - Доставай гитару
+ 06. Денис Майданов - 48 часов
+ 07. Катерина Голицына - Май
+ 08. Анатолий Полотно и Федя Карманов - Не жалей
+ 09. Ирина Круг - Я прочитаю в глазах твоих
+ 10. Андрей Бандера - Шереметьево(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE3257EED3F2A5D14B63E22C901201B13EB14AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595816   (132202) от 29.12.2012
+
+VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Tunnel Trance Force: Best Of Vol 63 (continuous DJ mix by DJ Dean) (58:15)
+02. DJ Dean vs DJ Analyzer - It's A Dream (5:37)
+03. Mike Nero - Spring 2013 (club mix) (5:03)
+04. Locanda & Kuznetsow - The Tournament (Round 1 mix) (6:57)
+05. Keamon - Watch Out (Impegment Syndrom remix) (5:17)
+06. Angel Beats & DJ Merlin - You Make My Dreams 2K12 (6:16)
+07. Alex M & Marc Van Damme - Rock The House 2012 (6:01)
+08. Sunset Project - Welcome Back (Empyre One remix) (5:47)
+09. DJ Fait - Love Will Save The Day 2  (Calderone Inc mix) (6:46)
+10. DJ Stardust & Benjamin Zane - Famous (Pulsedriver Oldschool Flavour mix) (5:14)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169CEF3EB6FAEC3C7852CB26A4347E506FC467D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595789   (132215) от 29.12.2012
+
+VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven & Olav - Blissful World (Bonus Berlin Exclusiv Mix) (06:54)
+02. Chris Rockz - Dromedario (Cubic Egg Tech Mix) (08:20)
+03. Mauerpark Community - The Divine Circus (Outdoor Club Mix) (06:07)
+04. Berlin Minimal - Freitag Frei, Feierei (Original Mix) (06:17)
+05. Jason Duff vs. Miss Thunderpussy - BelleVille (Original Mix) (05:41)
+06. Jimmy(Ge) - Space (Original Mix) (06:37)
+07. Jens Riemann - Dirty Rolando (Original Mix) (05:37)
+08. Technodar - Funny Day (Original Mix) (05:08)
+09. Crazy Krauts - Frau Wunderlich geht baden (Original Mix) (06:10)
+10. Walter Native - Love Strings (Sirkhan Remix) (06:44)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C138730A719374CDC7DCB1BE03C7A1C6EB11333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595783   (132227) от 29.12.2012
+
+VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Pop, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out Of Heaven 03:53
+02. Rihanna - Diamonds 03:45
+03. The Lumineers - Ho Hey 02:43
+04. Taylor Swift - I Knew You Were Trouble. 03:39
+05. Justin Bieber - Beauty And A Beat (Feat. Nicki Minaj) 03:48
+06. Ke$Ha - Die Young 03:33
+07. Maroon 5 - One More Night 03:39
+08. Flo Rida - I Cry 03:43
+09. Phillip Phillips - Home 03:30
+10. Macklemore & Ryan Lewis - Thrift Shop (Feat. Wanz) 03:55(   Читать дальше...   )Жанр: Pop, Funky, Dance, VocalПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595787   (132293) от 29.12.2012
 
 VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
@@ -604,177 +802,6 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593080   (133597) от 26.12.2012
-
-VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_133597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: popПродолжительность: 05:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680619   (133635) от 30.11.2023
-
-VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_133635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Электроников - Песня о снежинке (04:05)
-002. ABBA - Happy New Year [04:24]
-003. Bee Gees - Thank You For Christmas [01:54]
-004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594131   (133675) от 26.12.2012
-
-VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_133675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceana - Endless Summer (UEFA Euro 2012 oficial song) [03:29]
-02. Dan Balan - Не любя [03:15]
-03. Alex Ferrari - Bara Bara Bere Bere [03:39]
-04. Митя Фомин - Хорошая песня [03:02]
-05. Loreen - Euphoria (WINNER of EUROVISION 2012-SWEDEN) [03:00]
-06. Стая - Сердце [03:06]
-07. Junior Caldera feat.Natalia Kills & Far East Movement - Lights Out [03:08]
-08. Artik feat.Asti - Облака [03:39]
-09. Tonic feat.Erick Gold - Lead The Way [03:35]
-10. A-Dessa - Fire [03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594147   (133678) от 26.12.2012
-
-VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_133678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-DESSA - Fire
-02. Serebro - Мальчик
-03. Dan Balan - Не любя
-04. Нюша - Воспоминание
-05. Полина Гагарина - Нет
-06. Зара - Я буду нежной
-07. Дима Билан - Так не бывает
-08. Ромади и Батишта - Формула любви
-09. Инь-Ян - Инопланетянин
-10. Ева Польна - Весь мир на ладони моей(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFD5729110E70543AF1340DF2B8ECB38B385489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680443   (134159) от 29.11.2023
-
-VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_134159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aimi Feat. & Dj. Nejtrino - Одна На Танполе (Remix) (03:11)
-02. Jemmy - Обнули (03:22)
-03. Фрик Пати - Напоследок (02:30)
-04. Юлия Колерт - Батискаф (04:12)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC68E7BBEB38E91DD6C316063D6BECE7F9B6E36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680332   (134185) от 29.11.2023
-
-VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_134185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estragur - North Wind [05:06]
-02. Magmatunes - You [05:17]
-03. Ludwig A.F. - Glass [04:34]
-04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
 ```
 
 

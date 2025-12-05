@@ -1,111 +1,3 @@
-###  Публикация: 1677709   (149107) от 19.11.2023
-
-Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_149107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Want to Know (1999 Remaster) (4:07)
-02. N.Y.C. (1999 Remaster) (4:09)
-03. Your Painted Smile (1999 Remaster) (3:14)
-04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677831   (149228) от 19.11.2023
-
-Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_149228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf [00:04:05]
-02. How Long [00:03:59]
-03. Lift Us Up [00:04:25]
-04. Don't Judge Me [00:04:37](   Читать дальше...   )Жанр: Pop, Soul, BluesПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677873   (149357) от 19.11.2023
-
-Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_149357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Water [00:04:15]
-02. What's Simple Is True [00:03:35]
-03. Hands [00:03:55]
-04. Kiss The Flame [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 02:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677847   (149367) от 19.11.2023
-
-Братья Радченко - Малиновый звон (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_149367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пора любви
-02. Домик окнами в сад
-03. Синенький платочек
-04. Зорька алая(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434684   (149394) от 25.12.2020
 
 Владимир Пресняков - Слушая тишину (2020) [MP3|320 Kbps] <Pop>
@@ -694,6 +586,120 @@ VA - Hit News Vol. 6 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C7ED4553421CD34455737B12ADADE5FF3CE5C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588832   (151321) от 14.12.2012
+
+Александр Серов - Звездная серия (2001) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мишель
+02. Ворованная ночь
+03. Ночь
+04. Проклятая
+05. Улыбка
+06. Я люблю тебя до слез
+07. Элен
+08. Музыка венчальная
+09. Эта песня
+10. Ты меня любишь(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AFC5E8FA06CAA3F477D4BA5BC298CB89307CA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825777   (151419) от 17.10.2025
+
+ВИА Сажень - Друзьям в дорогу (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Кто сказал [00:03:44]
+02 - Мир снов [00:02:46]
+03 - У камина [00:02:58]
+04 - На моих глазах [00:03:12](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0008AE25A2C55A1CB8452C9741A39D9DCE6EA3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086306   (151472) от 24.12.2016
+
+Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Jazz, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's The Most Wonderful Time Of The Year (2:45)
+02. Santa Claus Is Coming To Town (feat. Frank Sinatra) (2:15)
+03. Winter Wonderland (1:53)
+04. Only You (with James Corden) (3:05)(   Читать дальше...   )Жанр: Pop, Jazz, Swing, Easy Listening, Holidays, ChristmasПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C068BA25433CD3D949C4F5D55AFB076757A011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434529   (151473) от 24.12.2020
+
+Disco-Light Orchestra - Disco Sensation (1979) 2LP [MP3|320 Kbps] <Disco, Funk Soul, Pop, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Bring Me Down (2:11)
+02. Crazy Little Thing Called Love (2:17)
+03. A Walk In The Park (3:10)
+04. Dim All The Lights (3:24)(   Читать дальше...   )Жанр: Disco, Funk Soul, Pop, InstrumentalПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84F1A6E827874783C6CE0F46227954EAC2AF9AC
 ```
 
 

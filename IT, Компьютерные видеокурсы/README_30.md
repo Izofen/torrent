@@ -1,3 +1,80 @@
+###  Публикация: 1658857   (190808) от 09.09.2023
+
+HYPE4 Academy | Подборка курсов по UI и web-дизайну (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype4 Academy it`s an educational platform with both paid and free content for designers and developers. We will be adding new featured, articles and materials in the coming weeks.
+1. Hype4 Academy - Boring UI Course
+2. Hype4 Academy - Design + AI - Get Ready for the Future
+3. Hype4 Academy - How to create a UI Case Study(   Читать дальше...   )Производство: HYPE4 AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDAB452E48B5D8C86886F7AA9C49076252A22E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658223   (191340) от 07.09.2023
+
+Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите фундаментальные аспекты Laravel - одного из самых мощных фреймворков для разработки веб-приложений. Узнайте, как создавать эффективные и надежные базовые веб-приложения, используя все преимущества Laravel.Производство: Laravelcreative.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658200   (191405) от 07.09.2023
+
+Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - djChat (2023) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191405.jpg" />
+</div>
+
+
+###  Подробнее
+
+The course focuses on building a chat server administration API and integrating it with a front-end templating framework. It also covers API integration and building chat services with features like authentication.
+
+The first module covers source control and project initiation, including creating a new Django DRF project and configuring environment variables. It (   Читать дальше...   )Производство: Udemy, Very AcademyЖанр: React, Typescirpt, Django, DRF, RESTЯзык озвучки: АнглийскийПродолжительность: 28:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657994   (191721) от 06.09.2023
 
 Thinknetica Pro, Анна Буянова | Старый Добрый Код: как жить с существующим кодом (2023) WEB-DL [RU]
@@ -590,86 +667,6 @@ magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:869EF7441BC74166BBE895436617403EC15C4CB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653047   (194268) от 14.08.2023
-
-Infostart, Николай Бондаренко | Видеокурс «1C - Предприятие для программистов - Оперативные задачи» (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс из траектории обучения 1С-программиста, целиком посвященный одной из важнейших тем - решению оперативных задач. Материалы состоят из записей вебинаров последнего набора курса.
-
-Основная цель курса:
-Сформировать у слушателей практические навыки, связанные с разработкой прикладных решений, работающих на платформе “1С:Предприятие” и предназначенных для автоматизации (   Читать дальше...   )Производство: InfostartЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:58:08Реклама: Вставки и наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9C4E75ED51DC4724A3FDFBC17FA58079B9B588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653406   (194269) от 16.08.2023
-
-Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBRip [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194269.jpg" />
-</div>
-
-
-###  Подробнее
-
-From this course, you can learn Software Architecture and Clean Code Design in OOP.
-
-There are a lot of other courses on this topic. So, why would you choose exactly this course?  Here are just a few reasons:
-- Coding examples(   Читать дальше...   )Жанр: Java, OOP, Patterns, SOLIDЯзык озвучки: АнглийскийПродолжительность: 22:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5819E2302CA3370C1533B6A77E6A004915D18493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652724   (194313) от 13.08.2023
-
-Stepik, Илья Фофанов | React - Полное руководство (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для тех, кто много слышал о библиотеке React, но при этом ни разу полноценно не пробовал поработать с ней.
-Обучение построено вокруг небольшого учебного проекта, который вы начнете разрабатывать практически с первых лекций.
-Таким образом, по мере разработки вы будете гармонично подходить к каждой следующей теме, изучая ее применительно к (   Читать дальше...   )Производство: StepikЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
 ```
 
 

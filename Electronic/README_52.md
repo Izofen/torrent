@@ -1,30 +1,3 @@
-###  Публикация: 1766772   (101221) от 20.12.2024
-
-V.A. - Lounge & Wine, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_101221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - In My Mind
-02. Lemongrass - Blue Moon (Original Mix)
-03. Jazzamor - Till the End of Time (Original Mix)
-04. C.A.T. - No Way ? (Original Version)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20E0CFFCF8D8C7308132EFA86F46F3A351F3792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766687   (101222) от 20.12.2024
 
 VA - Armin van Buuren - A State Of Trance 1204 (Top 50 Of 2024) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -695,6 +668,33 @@ VA - Pretty Little Deep-House Friends, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5B9A96D51534909B896759D5DE827F4CD3703C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764550   (101537) от 07.12.2024
+
+ZOYA - Eternity (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZOYA - Crystal Cove (Extended Mix) [05:30]
+02. Nourey & ZOYA - Freya (Extended Mix) [05:43]
+03. ZOYA - One (We'd Be Love) (Extended Mix) [05:02]
+04. ZOYA - Eternity (Extended Mix) [05:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A97D479C9DDDFBDAF5634632372DA1337B25BF
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1672626   (168015) от 29.10.2023
-
-VA - Hit News Vol. 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CB Milton - It's A Loving Thing
-02. Maxx - Get-A-Way
-03. Unity Power feat. Rozlyne Clarke - Eddy Stready Go!
-04. O-Oh - Hey Magic Man(   Читать дальше...   )Жанр: Electronic, Italodance, Euro HouseПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD7E132C9426C7704A345D7EBEC5143D9ADB4F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672785   (168066) от 29.10.2023
-
-Bucks Fizz - The Land of Make Believe: B Sides and Rarities (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Europop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Can't Stand the Heat (Early Mix) [00:03:25]
-02. You Love, Love [00:03:37]
-03. Evil Man [00:03:52]
-04. Censored [00:04:58](   Читать дальше...   )Жанр: Disco, Europop, Pop Rock, Synth-popПродолжительность: 02:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E159393C6C7E78E9B61C347072A8607F3BF00F39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515872   (168314) от 08.12.2021
-
-Roxette - Joyride (2021) 3xCD, Remastered, Parlophone, Roxette Recordings, 30th Anniversary Edition [FLAC|Lossless|image + .cue] <Pop Rock, Euro Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168314.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Joyride (4:23)
-02. Hotblooded (3:18)
-03. Fading Like A Flower (Every Time You Leave) (3:50)(   Читать дальше...   )Жанр: Pop Rock, Euro PopПродолжительность: 03:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F65C49E98B70632EE606466CEDD811BBDD96B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515785   (168352) от 08.12.2021
-
-VA - Eurodance Power Hits For Aerobic Sessions 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] < Eurodance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eurotronic, Timi Kullai, Zooom - Tribal Dance (Mykotank Mix)
-02. Tina Safrany - Love Is the Power (Eurodj Remix)
-03. Linda Rocco - Matter of Time (Chrizz Morisson Euro Remix)
-04. B.P.M - Club Sold Out(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8670E5D04A2EF4B8649E352D96755122238211CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344861   (168423) от 12.12.2019
 
 V.A. - Dance Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance>
@@ -694,6 +586,114 @@ Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7880B704DACF44BA9C52DBCB8D127B7A1E62A97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344657   (169574) от 11.12.2019
+
+Burito - Samskara (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (1:52)
+ 02. Samskara (4:15)
+ 03. Дети закатов (3:12)
+ 04. Стих 1 (0:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AA1C3118527E54CF61F00F63C3F994FC8B91E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430818   (169656) от 11.12.2020
+
+Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. willow
+2. champagne problems
+3. gold rush
+4. ‘tis the damn season(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430822   (169690) от 11.12.2020
+
+Александр Маршал - Невыдуманные Истории (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169690.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дуэль
+2. Я Помню Тот День
+3. Роль
+4. Отец(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF855925DA0C733EB603030B2F3F849F985477D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344505   (169725) от 11.12.2019
+
+VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судя по обложке - этот сборничек предназначен для тех, кто встречает Рождество под пальмами и в море. И ещё одно наблюдение - на постере акулы, видимо, так нагрешили со знакомыми рыбками, что у них рога выросли. Да и чувачок-дедмороз тож не из монастыря выпал случайно. Вообщем, рекомендую оторваться так же как герой с обложки. Тем более есть возможность насладиться (   Читать дальше...   )CD1: Rockin'
+01. The Darkness - Christmas Time (Don't Let The Bells End)  (3:30)
+02. Nathaniel Rateliff & The Night Sweats - Santa Baby  (3:20)
+03. The Kinks - Father Christmas  (3:41)(   Читать дальше...   )Релиз состоялся: 15 ноября 2019 годаЖанр: Pop, Rock, DanceПродолжительность: 02:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E892158051C2C1CE5D71933C473E8C896F0F5FF2
 ```
 
 

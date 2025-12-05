@@ -1,3 +1,30 @@
+###  Публикация: 1834515   (250425) от 03.11.2025
+
+Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Goth-Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kein Allein [00:04:38]
+02. The Chemistry of Pain [00:05:02]
+03. Tomorrow's Past [00:04:27]
+04. hurt people hurt people [00:04:46](   Читать дальше...   )Жанр: Darkwave, Goth-RockПродолжительность: 00:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3544D1FFC2E090C54B1198E534C69ABA79854EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834800   (250455) от 04.11.2025
 
 VA - 25 Years Of Anjuna Mixed By Marsh (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
@@ -696,35 +723,6 @@ Pro>Tech – Orbiting Cathedrals (1997) [FLAC|Lossless] <Breaks, Techno, Industr
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497799   (253917) от 18.05.2012
-
-Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012) [MP3|~245 кб/с ]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_253917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012)
-Год: 16.05.2012
-Жанр: House
-Продолжительность: 03:55:40Кодек: MP3
-Битрейт: ~245 кб/с
-Тип битрейта: VBRТрек лист:  (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CE6834A7B9E9E257466E952164165A8ED0157B
 ```
 
 

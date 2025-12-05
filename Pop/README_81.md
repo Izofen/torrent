@@ -1,57 +1,3 @@
-###  Публикация: 1665029   (183241) от 29.09.2023
-
-VA - Electrónica Para Fiestas 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_183241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Me [00:02:46]
-02. Diva [00:02:45]
-03. Games [00:03:10]
-04. Jamba Jamba [00:03:29](   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65466A989789BCAD3F223620D1E5D2465573344B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427579   (183318) от 28.11.2020
-
-Limelight - Love Me Forever (2020) [MP3|320 Kbps] <Electronic, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_183318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Forever (Intro)  (1:55)
-02. Summer Lovers  (6:14)
-03. Say That You Love Me  (6:03)
-04. Our Day Will Come  (6:36)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EC479DCA5ADCCA9D8DDFC311A2FE6D48EF9ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427384   (183320) от 28.11.2020
 
 Supermax - The Lovemachine-Collection (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
@@ -695,6 +641,60 @@ Dabro - Юность. Deluxe Version (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:256A0AFC1F8F12513A1063BB25E46212D752E674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663801   (186434) от 23.09.2023
+
+Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Days
+02. Now or Never
+03. Beautiful
+04. Still Loving You(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663510   (186548) от 22.09.2023
+
+Kylie Minogue - Tension (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3382E4ADD0F6256B377591A4DF816361710FEEB8
 ```
 
 

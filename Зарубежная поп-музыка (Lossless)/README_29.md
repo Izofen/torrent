@@ -1,30 +1,3 @@
-###  Публикация: 1835365   (250936) от 06.11.2025
-
-VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_250936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
-03. Racey - Boy Oh Boy (2:53)
-04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835394   (250966) от 05.11.2025
 
 Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
@@ -155,35 +128,6 @@ Elton John - Japanese Collection (11 CD Original Mastering) (1988 - 2006) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0BBFB36BB2725256E9CC079CCC3DEFE82FC991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496667   (254176) от 18.05.2012
-
-M83 - Hurry Up, We're Dreaming (2011) [FLAC|Lossless]<Electronic, Dream pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_254176.jpg" />
-</div>
-
-
-###  Подробнее
-
-M83 - Hurry Up, We're Dreaming (2011)
-Год: 2011
-Жанр: Electronic, Dream pop, New Wave
-Продолжительность: 01:13:33Кодек: FLAC
-Битрейт: LosslessM83:M83 — французский музыкальный проект. Группа была основана в 2001 году Энтони Гонсалесом и Николя Фромажо в Антибе и названа в честь спиральной галактики Messier 83. Их пути разошлись вскоре после гастролей в поддержку второго альбома Dead Cities, Red Seas & Lost Ghosts, и теперь Гонсалес записывается в основном самостоятельно, часто с помощью брата Яна Гонсалеса, вокалиста и клавишника Моргана Кибби и барабанщика Лоика Морена.
-История:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -709,6 +653,60 @@ Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C03658C1A045A3BAD092B763F2DBAF740C2AE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191784   (263715) от 15.12.2017
+
+Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, Elektro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_263715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruleta (feat. Erick) (3:18)
+02. Gimme Gimme (2:57)
+03. My Dreams (3:11)
+04. Tropical (3:14)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, ElektroПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191652   (263775) от 15.12.2017
+
+VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_263775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii feat. Sandro Cavazza - Without You (3:02)
+02. Justin Bieber + BloodPop® - Friends (3:10)
+03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One (4:49)
+04. Portugal. The Man - Feel It Still (2:43)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1084697   (216168) от 20.12.2016
-
-VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_216168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pentatonix – The Christmas Song (Chestnuts Roasting on an Open Fire) [00:03:43]
- 02. Tom Odell – Real Love [00:02:21]
- 03. Joshua Radin – Winter [00:03:23]
- 04. Katy Perry – White Christmas [00:03:20](   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 02:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084967   (216353) от 20.12.2016
 
 Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) [MP3|320 Kbps] <New Age>
@@ -712,6 +685,33 @@ Danheim - Runagaldr (2018) [MP3|320 Kbps] <Nordic Folk, Dark Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99D17C9A9B3E2402088F84AC1E8B7BECDCECE552
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514173   (219468) от 02.12.2021
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original Motion Picture Soundtrack [FLAC|Lossless|image + .cue] <Classical, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к фильму Жерара Корбьо "Король танцует" ("Le Roi Danse")01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+04. Troupe d'Astree dansante (00:46)(   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3969704C73E3E3337C64D94539103E46EA194F
 ```
 
 

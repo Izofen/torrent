@@ -31,6 +31,39 @@ Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488935   (91047) от 27.04.2012
+
+Jacques Loussier - The Best of Play Bach (1985) [FLAC|Lossless]<Chamber Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air on the G String (00:03:37)
+02. Siciliano in G minor (00:03:36)
+03. Toccata & fugue in D minor (00:09:25)
+04. Prelude No. 1 (00:05:27)
+05. Prelude No. 2 (00:04:40)
+06. Chorale - Jesu, Joy of Man's Desiring (00:04:36)
+07. Italian Concerto (Allegro) (00:04:59)
+08. Italian Concerto (Adagio) (00:04:56)
+09. Italian Concerto (Presto) (00:03:04)
+10. Chorale No. 1 (Sleepers wake) (00:04:21)(   Читать дальше...   )1985Жанр: Chamber JazzПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 440838   (91421) от 24.01.2012
 
 Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
@@ -46,39 +79,6 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 ###  Подробнее
 
 Жанр: Blues, Soul, GospelПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440862   (91446) от 24.01.2012
-
-David Clayton-Thomas - In Concert - A Musical Biography (2006) [FLAC|Lossless]<Blues, Blues Rock, Jazz Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. And When I Die (4:33)
-02. Self-Centred Woman (8:58)
-03. Go Down Gamblin' (3:36)
-04. Me & Amaretto (4:57)
-05. Lucretia MacEvil (7:41)
-06. Wild Women & Po' Boys (5:24)
-07. God Bless The Child (8:09)
-08. Gimme That Wine (6:16)
-09. Don't Explain (5:50)
-10. Spinning Wheel (3:32)(   Читать дальше...   )Жанр: Blues, Blues Rock, Jazz BluesПродолжительность: 01:13:15
 
 ## Скачать торент
 ```bash
@@ -219,72 +219,6 @@ Marc Reece - Breakin' out (2002) [FLAC|Lossless]<Blues Rock>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 444162   (91885) от 31.01.2012
-
-Danielia Cotton - Rare Child (2008) [FLAC|Lossless]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Make Your Move (3:52)
-02. Testify (3:53)
-03. Didn't You  (4:27)
-04. Bang My Drum (4:16)
-05. Rare Child (3:11)
-06. Running (3:37)
-07. Righteous People (3:23)
-08. Dark Desire (4:01)
-09. Let It Ride (4:34)
-10. Bound (3:48)2008Жанр: Blues RockПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444136   (91926) от 31.01.2012
-
-The Jimmy Bowskill Band - Back Number (2012) [FLAC|Lossless]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Take A Ride (4:31)
-02. Linger On The Sweet Time (3:50)
-03. Salty Dog (4:35)
-04. Little Bird (4:06)
-05. Spirit Of The Town (5:32)
-06. Sin's A Good Man's Brother (4:53)
-07. Sinking Down (4:21)
-08. Down The Road (4:07)
-09. Seasons Change (4:57)
-10. Broke Down Engine (3:34)(   Читать дальше...   )2012Жанр: Blues RockПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 444850   (91940) от 01.02.2012
 
 Milt Jackson - Night Mist (1980) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
@@ -348,101 +282,6 @@ Regina Carter - 2 альбома (2003-2006) [FLAC|Lossless]<Post-Bop, Mainstrea
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 444875   (91961) от 01.02.2012
-
-Anita O'Day - Once Upon A Summertime (1994) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown (2:56)
-02. Love For Sale (3:13)
-03. S'Wonderful (3:10)
-04. They Can't Take That Away From Me (1:46)
-05. Boogie Blues (4:34)
-06. Tea For Two (5:34)
-07. Once Upon a Summertime (2:02)
-08. The Girl From Ipanema (2:51)
-09. Is You Is Or Is You Ain't My Baby (4:25)
-10. Night And Day (1:59)(   Читать дальше...   )1994Жанр: Vocal JazzПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445008   (91985) от 01.02.2012
-
-Benny Carter, Oscar Peterson - Benny Carter Meets Oscar Peterson (1995) [FLAC|Lossless]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends (6:40)
-02. Sweet Lorraine (6:50)
-03. Baubles, Bangles And Beads (8:17)
-04. It's A Wonderful World (6:33)
-05. If I Had You (6:45)
-06. Whispering (4:54)
-07. Some Kind Of Blues (4:44)1995Жанр: BopПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444977   (91990) от 01.02.2012
-
-Joe Pass - Blues Dues (1998) [FLAC|Lossless]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Wave (5:53)
-02. Blues In 'G' (7:05)
-03. All The Things You Are (5:44)
-04. 'Round Midnight (6:26)
-05. Here's That Rainy Day (4:48)
-06. Duke Ellington's Sophisticated Lady Melange (6:38)
-07. Blues Dues (5:32)
-08. Bluesette (3:44)
-09. Honeysuckle Rose (5:51)1998Жанр: BopПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 444871   (91994) от 01.02.2012
 
 Peter Herbolzheimer Rhythm Combination & Brass - Bandfire (1998) [FLAC|Lossless]<Big Band, Progressive Jazz>
@@ -467,39 +306,6 @@ Peter Herbolzheimer Rhythm Combination & Brass - Bandfire (1998) [FLAC|Lossless]
 08. Got To Get You Into My Life (3:47)
 09. After The Love Is Gone (3:20)
 10. Can't Let Go (2:58)1998Жанр: Big Band, Progressive JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444704   (91996) от 01.02.2012
-
-Scott Ellison - Walkin Through The Fire (2011) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Hits Like Dynamite (3:23)
-02. Shakin With the Blues (3:11)
-03. Aint Just Leavin Town (3:12)
-04. No Way to Live (2:34)
-05. Big Big Love (4:07)
-06. You Talk Too Much (4:58)
-07. Driftin Man (3:51)
-08. Sweet Thunder (3:49)
-09. Dont Wanna Need Ya (4:27)
-10. Walkin Through the Fire (4:10)(   Читать дальше...   )2011Жанр: Blues-RockПродолжительность: 00:58:58
 
 ## Скачать торент
 ```bash
@@ -804,9 +610,102 @@ Tuck Andress - Hymns, Carols And Songs About Snow (1991) [FLAC|Lossless]<Crossov
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 446828   (92208) от 04.02.2012
+###  Публикация: 446910   (92215) от 04.02.2012
 
-VA - The Black Box Of Jazz (1995) [FLAC|Lossless]<Jazz>
+Ramsey Lewis - Don't It Feel Good (1975) [FLAC|Lossless]<Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Don't It Feel Good (5:24)
+02. Juaacklyn (5:04)
+03. What's The Name Of This Funk (Spider Man) (3:21)
+04. Interlude (0:23)
+05. Something About You (4:06)
+06. That's The Way Of The World (5:46)
+07. Fish Bite (3:52)
+08. Interlude (0:20)
+09. I Dig You (5:36)
+10. Can't Function (3:25)Жанр: Funk, SoulПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446898   (92221) от 04.02.2012
+
+William DeVaughn - Be Thankful For What You Got (1993) [FLAC|Lossless]<Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Give The Little Man A Great Big Hand 05:41
+02. We Are His Children 05:18
+03. Blood Is Thicker Than Water 07:24
+04. Kiss & Make Up 02:53
+05. You Gave Me A Brand New Start 02:43
+06. Be Thankful For What You've Got 07:13
+07. Sing A Love Song 03:27
+08. You Can Do It 03:40
+09. Something's Being Done 03:451993Жанр: Jazz, SoulПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445709   (92244) от 04.02.2012
+
+Ronnie Baker Brooks - 3 Albums (1998 - 2006) [MP3|240, 320 kbps]<Blues, Blues-rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Лонни Брукс и двое его сыновей-гитаристов являют собой живое воплощение старой поговорки: семья, которая играет вместе, всегда вместе. Однако патриарх чикагского блюзового семейства прекрасно знает, что даже самый гордый отец должен однажды выпустить подросших птенцов из гнезда. Для старшего сына, Ронни Бейкера Брукса (   Читать дальше...   )Список альбомов:
+
+Golddigger - 1998
+Take Me Witcha - 2001
+The Torch - 2006Жанр: Blues, Blues-rock, SoulПродолжительность: 03:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A1789200BAF6127838E6561F4BCBFB3D446760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446878   (92318) от 05.02.2012
+
+Aaron Bell Trio - After The Party's Over (1999) [FLAC|Lossless]<Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
@@ -818,16 +717,112 @@ VA - The Black Box Of Jazz (1995) [FLAC|Lossless]<Jazz>
 
 ###  Подробнее
 
-01.Dave Brubeck - Take 5 (7:14)
-02.Wynton Marsalis - A Wheel Within A Wheel (6:33)
-03.Dexter Gordon - Seven Come Eleven (6:31)
-04.Dizzy Gillespie - Dirty Dude (4:26)
-05.Woody Herman - Rose Room (6:38)
-06.Sonny Stitt - Old Folks (4:06)
-07.Freddie Hubbard - Bolivia (12:40)
-08.Charlie Mingus - Fables Of Faubus (6:14)
-09.Thelonius Monk - Off Minor (5:15)
-10.Chick Corea - A Moment's Notice (4:25)(   Читать дальше...   )1995Жанр: JazzПродолжительность: 05:04:06
+01. Satin Doll, Pt. 1
+02. Satin Doll, Pt. 2
+03. The Party's Over
+04. Cool
+05. After the Party Blues
+06. Slaughter on the Tenth Avenue
+07. All the Way
+08. It Could Happen to You
+09. The Lost Nest
+10. Kumquat1999Жанр: JazzПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446966   (92323) от 05.02.2012
+
+Count Basie & His Orchestra - Basie In Europe (1989) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Hittin' Twelve (2:30)
+02. Freckle Face (6:11)
+03. Things Ain't What They Used To Be (4:09)
+04. Whirly-Bird (7:32)
+05. The More I See You (3:24)
+06. Orange Sherbet (4:00)
+07. Way Out Basie (3:58)
+08. Basie! (4:03)
+09. Jumpin' At The Woodside (3:15)1989Жанр: Big BandПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446180   (92370) от 05.02.2012
+
+Didier Lockwood - Tribute To Stephane Grappelli (2000) [FLAC|Lossless]<Jazz, Fusion, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Les Valseuses (3:07)
+02. I Got Rhythm (3:20)
+03. Nuages (5:53)
+04. Barbizon Blues (4:19)
+05. All The Things You Are (3:38)
+06. My One And Only Love (3:27)
+07. The Kid (4:07)
+08. Someday My Prince Will Come (5:37)
+09. Minor Swing (4:15)
+10. Misty (6:13)(   Читать дальше...   )2000Жанр: Jazz, Fusion, SwingПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446170   (92373) от 05.02.2012
+
+Atomic Fireballs - Birth of the Swerve (1998) [FLAC|Lossless]<Swing, Neo-Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Man With the Hex (3:15)
+02. Spanish Fly (3:29)
+03. Mata Hari (3:16)
+04. Spider Baby (3:50)
+05. Caviar and Chitlins (2:52)
+06. Starve a Fever (3:22)
+07. Catfish Ball (4:40)
+08. Devil Is Dancing (3:19)1998Жанр: Swing, Neo-SwingПродолжительность: 00:28:03
 
 ## Скачать торент
 ```bash

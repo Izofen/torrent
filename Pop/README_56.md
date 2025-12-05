@@ -1,108 +1,3 @@
-###  Публикация: 1273350   (137721) от 31.12.2018
-
-VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps] <House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_137721.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beach Club Band - Italian Girl (Extended Vocal Mix) 05:57
-2. Lana Love - Tell Me Why (Extended Vocal Disco Mix) 05:50
-3. Captain Apollo - When Time Went By (Extended Vocal Mix) 06:54
-4. Prima Ballerina - Don't Say Goodbye (Extended Vocal Mix) 06:03(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679452   (137740) от 25.11.2023
-
-Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_137740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I’m with YouЖанр: Dance, Euro-DiscoПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6455FF780848CE603C465F778FD7029266697C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679448   (137793) от 25.11.2023
-
-Polnalyubvi - О чем поет твое сердце (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk, Neo-classic>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_137793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Твои глаза [00:02:48]
-02. Успокой меня [00:03:19]
-03. Кукла [00:03:09]
-04. Моменты [00:02:51](   Читать дальше...   )Жанр: Indie, Folk, Neo-classicПродолжительность: 00:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E25B8C94ED8E1DD0F0FD39A5CB21E0EC635704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349374   (137866) от 31.12.2019
-
-NЮ - В сердце (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_137866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Веснушки
-02.В сердце
-03.Под кайфом
-04.Верь в меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679483   (137872) от 25.11.2023
 
 Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, Instrumental, Disco>
@@ -703,6 +598,114 @@ CD1:
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273078   (139104) от 30.12.2018
+
+Mylene Farmer - Desobeissance (2018) Nouvelle Edition [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rolling Stone
+02. Sentimentale
+03. Désobéissance
+04. N'oublie Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45F1ACF1965EE3383FBE9910717B30F62780A05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348966   (139816) от 30.12.2019
+
+VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Air - La femme d'argent
+002. Otis Redding - (Sittin' On) the Dock of the Bay
+003. Morcheeba - The Sea
+004. Art of Noise - Robinson Crusoe(   Читать дальше...   )Жанр: Pop, Relax, Easy ListeningПродолжительность: 06:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195833   (139830) от 30.12.2017
+
+Андрей Миронов - Неизвестный Миронов (2005) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это было недавно (В.Баснер - М.Матусовский)
+02. Апельсины (П.Аедоницкий - Ф.Лаубе)
+03. Джон Грей (М.Блантер - В.Масс)
+04. А может быть (Я.Френкель - М.Долматовский)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1111ECEE2DCD2DAEA12F4CBF75FA6B6046A12660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679162   (139906) от 24.11.2023
+
+Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская группа поп-музыки и кантри, образованная в Ричмонде, штат Кентукки, в 1963 году под названием the Exiles. Они гастролировали с Диком Кларком Caravan of Stars с 1965 по 1968 год. В 1972 году они сменили название на Exile. В 1978 году у них был поп-хит №1 в США с песней “Kiss You All Over”. В 1983 году они превратились в кантри-музыку со многими последующими (   Читать дальше...   )Список альбомов:
+1973 - Exile
+1978 - Mixed Emotions
+1979 - All There Is(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, DiscoПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCE6ABA95386C3C72BF7165919F1BDD2E6C864F
 ```
 
 

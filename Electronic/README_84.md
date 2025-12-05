@@ -1,30 +1,3 @@
-###  Публикация: 1692039   (122734) от 15.01.2024
-
-Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_122734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space 92 - Robot w/Space 92 - Gravity (Acapella)
-02. Heerhorst - Wimbo
-03. Space 92 - Gravity
-04. Green Velvet - Flash (Bart Skils Edit)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692048   (122741) от 15.01.2024
 
 VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -692,6 +665,33 @@ Igor Pumphonia - Euphonia 60 (2023) [MP3|320 Kbps] <Chillout, Organic House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7272600BB8DDD278C62E3EBE06D9A5D6DE042D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690924   (123670) от 09.01.2024
+
+Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teary (Original Mix) (3:55)
+02. City Like This (Original Mix) (4:50)
+03. Lonestar (Original Mix) (3:47)
+04. Hush Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5800C29C13D265C71A92984EF517E28614058F3
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1343703   (216316) от 07.12.2019
+
+VA - Psytrance 2020: Top 100 Hits DJ Mix (2019) [MP3|320 Kbps] <PsyTrance, Psychedelic, Electronic>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amfion - Take Control (Psytrance 2020 DJ Mix Edit) 4:34
+02. California Sunshine & Har El - Shining Star (Psytrance 2020 DJ Daylight Mix Edit) 5:15
+03. Painters Of Thoughts - Getafix 550 (Psytrance 2020 DJ Mix Edit) 6:03
+04. Sixsense & Alternate Side - Dymatized (Psytrance 2020 DJ Mix Edit) 5:03(   Читать дальше...   )Жанр: PsyTrance, Psychedelic, ElectronicПродолжительность: 11:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84731215B6662AEC1766FA397C0D017203CCFADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270109   (216398) от 17.12.2018
+
+VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego Fragoso - Ilustre Timidez (Original Mix)
+02. Mister Salo - Chicago (Original Mix)
+03. Ero Boy - Vintage (Original Mix)
+04. Chris Park - Tonight (Feel Flow! Remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8550590976B80F1D0AC1ABFAAA847FA3BC4298
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967107   (216411) от 19.12.2015
 
 Entheogenic - A Singularity Encoded (2015) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
@@ -639,60 +693,6 @@ VA - Uplifting Only Top 15: October (Extended Mixes) (2022) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FB959FEE481AA811B0126E9D693B67F6F67D95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586155   (218215) от 25.10.2022
-
-VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_218215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lessika - Moments of Life (Alex Fibonacci Remix)
-02. Tony Grand & YURI PIKE pres. Incredia - Horizon (Original Mix)
-03. JonFerstion & Sanderlift - Leave The Night Endless (Original Mix)
-04. Evebe - Free To Fly (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B48961D8790B3DFCA505EB9617BD1F48FA0EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084689   (218219) от 19.12.2016
-
-Mylene Farmer - Remixes (2004) [FLAC|Lossless|tracks + .cue] <Progressive House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_218219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sans Contrefaçon (J.C.A. remix) (5:57)
- 02. L'Instant X (The X Key mix by One-T) (3:44)
- 03. L'Âme-Stram-Gram (Full Intention Sultra mix) (8:01)
- 04. C'est une belle journée (Devil Head remix) (5:15)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BE7E734F0383C8AF6D5F788C62788CE584FCBA
 ```
 
 

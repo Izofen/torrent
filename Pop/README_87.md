@@ -1,57 +1,3 @@
-###  Публикация: 1613739   (202554) от 20.02.2023
-
-Mylene Farmer - L’emprise (2022) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_202554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцатый студийный альбом. В музыке Милен Фармер всегда было много печали, но на «L’Emprise» она зашкаливает. Это ее личный, откровенный альбом.01. Invisibles
-02. À Tout Jamais
-03. Que L’aube Est Belle
-04. L’emprise(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D341659188EC9A9704BE4356D67C252421E4A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613860   (202560) от 20.02.2023
-
-VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_202560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaka Khan - Ain't Nobody (4:05)
-02. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
-03. Tina Turner - The Best (5:29)
-04. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4291B4DD394CE96B79BA37192B33B16E0D63F9FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469252   (202622) от 17.02.2023
 
 Сергей Пенкин: Коллекция "Чувства" (10 CD Box Set 1991-2000) (2002) [WavPack|Lossless]<Classical, Folk, Pop>
@@ -693,6 +639,60 @@ VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D806A0DA4B5822494FF11E84E44A6D236E28C1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616063   (206192) от 28.02.2023
+
+VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mungo Jerry - In The Summertime
+02. Santana - Smooth feat. Rob Thomas
+03. Elton John - A Word In Spanish
+04. Duran Duran - Come Undone(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABDE7E5B2A966D3296D99AFC5FF6CEFF42B2BEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615515   (206338) от 26.02.2023
+
+VA - Romantic Collection. Ретро (1999) [OGG Vorbis|480 Kbps] <Pop, Stage & Screen, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О. Анофриев-Песня о друге
+02. А. Герман-Надежда
+03. Л. Утесов-Московские окна
+04. Г. Великанова-Ландыши(   Читать дальше...   )Жанр: Pop, Stage & Screen, VocalПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607CEF384EF4AEE22289355C9A694FE63A9BDFA9
 ```
 
 

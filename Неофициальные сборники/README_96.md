@@ -1,3 +1,165 @@
+###  Публикация: 1431746   (165559) от 15.12.2020
+
+VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
+002. Stewart Birch - Like The Rays From The Sun
+003. Phenomenal Handclap Band - Judge Not
+004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431702   (165951) от 15.12.2020
+
+VA - Секас от зайцев (2020) [MP3|320 Kbps] <Relax, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aelyn - Believe In Us (Chillout Mix) (4:10)
+02. Anderson East - If You Keep Leaving Me (4:13)
+03. Banks - Brain (4:41)
+04. Bastille - Bad Blood (Live Piano Version) (3:26)(   Читать дальше...   )Жанр: Relax, PopПродолжительность: 03:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4BE3982051F89410D79A986A64688CCB98FF48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345432   (165961) от 15.12.2019
+
+VA - Громкие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Godfather of Harlem, 21 Savage - On the Inside (3:06)
+2.5sta family - Первый снег (2:46)
+3.Alanis Morissette - Reasons I Drink (3:38)
+4.Ally Brooke - No Good (3:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875EB009A402B92B7E1C0490F2861D10704A64CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345494   (166005) от 15.12.2019
+
+VA - December Electro House Exclusive Megamixes (2019) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Leckenby - One Place
+002. Ivanshee - Serpantine (Original Mix)
+003. Playr2 - Checkmate (Original Mix)
+004. Platunoff - Unbreakable Soul (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68E284895826398178D954DCF5259B3B33447B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431839   (166034) от 15.12.2020
+
+VA - Громкие новинки Декабря 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker, Vize, Leony, Edward Artemyev - Space Melody (3:00)
+02. Amine, Rico Nasty - Back & Forth (3:01)
+03. Anivar - Высоко (3:45)
+04. Anivar - Капля кислорода (3:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A35912126D01087D114F8E815922F355583F3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431761   (166085) от 15.12.2020
+
+VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166085.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lina Lee - чмоК (02:16)
+ 002. Agunda & BRuys - Закат (02:18)
+ 003. Aisha - Чувства Цунами (03:28)
+ 004. Alban Skenderaj feat. Arilena Ara - AISHEH (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25851639C3B82169C43955DDB00A4C537C08D7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431745   (166228) от 15.12.2020
 
 VA - Beatport Electronic: Sound Pack #210 (2020) [MP3|320 Kbps] <Electronic, Synthwave, Experimental Music>
@@ -533,165 +695,6 @@ VA - The Official UK Top 40 Singles Chart 13.12.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2000F7AA2AEF70D47604C7C0B06D44D819B5EE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380061   (167587) от 13.12.2020
-
-aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515851   (167643) от 09.12.2021
-
-VA - Are & Be (2021) [MP3|320 Kbps] <R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SZA - I Hate U (2:54)
-02. Bruno Mars, Anderson .Paak, Silk Sonic - Smokin Out The Window (3:17)
-03. Lucky Daye - Over (3:25)
-04. Khalid, Ari Lennox, Smino - Scenic Drive (4:09)(   Читать дальше...   )Жанр: R&BПродолжительность: 03:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41C4BAE6FD6AF2ABEE64324B094CCE0DDC731AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431453   (167653) от 13.12.2020
-
-VA - National Pop Dance Music Vol.12 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. Её можно использовать на тренировке в спортзале или при пробежке в парке. Она поможет ощутить яркую бурлящую жизнь внутри себя, единство силы и воли для достижений и побед в спорте.001. Vize X Imanbek - Brother Louie
-002. Lucky Luke - Cooler Than Me
-003. Showtek, Spree Wilson - The Weekend
-004. Regard - Secrets(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53769FC9FEECF077E13C8C3283A65D1FD3805F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515836   (167691) от 09.12.2021
-
-VA - National Pop Dance Music Vol.27 (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной 27-й сборник лучших хитов народной попсы в проекте National Pop Dance Music уже готов к прослушиванию. Как полагается Вас ожидает 150 самых популярных песен с различных уголков мира, которые непременно создадут вам хорошее настроение и подарят целых девять часов самой классной музыки001. Kizz Daniel - Pipa
-002. Truck Stop - Morgen Gleich Morgen
-003. Tunng - Woman
-004. Jack Symes - Good Morning(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B56964123C10322D923A649D4443B8C146C0DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672791   (167706) от 29.10.2023
-
-VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Good Riddance (Time of Your Life) (2:33)
-02. Coldplay - Sparks (3:47)
-03. Disturbed - The Sound of Silence (4:08)
-04. Stone Temple Pilots - Plush (Acoustic Version) (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 04:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515862   (167789) от 09.12.2021
-
-VA - Beatport Electro House: Sound Pack #382 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_167789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый всеядный жанр танцевальный музыки, заходящий одним краем в радиоформат. В хаусе гораздо чаще, чем в остальной электронике, встречаются мелодии, вокал и прочие атрибуты поп-музыки. Этому жанру не чуждо стремление к гламуру, театральности, иногда даже китчу.001. From Tokyo To Sao Paulo - U're Funked
-002. Jason Lindell - Disco Dancin
-003. Luke Chable - Melburn
-004. Dirty Clone - Raw Mood(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB0187A3DE1F1BF16BC20D358E2A29F8FDC56A7
 ```
 
 

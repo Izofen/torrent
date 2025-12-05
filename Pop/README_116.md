@@ -1,138 +1,3 @@
-###  Публикация: 1267030   (268382) от 04.12.2018
-
-Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite (2:56)
- 02. Let The Music Play (3:14)
- 03. It's Not Easy (3:13)
- 04. The Zoo Song (3:21)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266988   (268391) от 04.12.2018
-
-VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tw3lv, Jack Wilby - Together
-02. Lulleaux, Giang Pham - Contact
-03. Afsheen, Rebecca Ferguson - Uncrazy
-04. Lny Tnz, Catali - Secrets(   Читать дальше...   )Жанр: Club, Vocal, Groove, Indie DanceПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266865   (268425) от 04.12.2018
-
-Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Bring Me to Life
-02 – Flames
-03 – Life Is a Rollercoaster
-04 – Don’t Stop Believin’(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338760   (268843) от 16.11.2019
-
-VA - Best Of Eurobeat Hi - Nrg Style (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irene – Sunday (radio version) (3:19)
-02. Ricky Visconti – Man Is For Woman (radio version) (3:04)
-03. Masha – Never Before (radio version) (2:43)
-04. Riki Visconti – You Make Me Feel So Blue (radio version) (3:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62296F9E4DADA5EFDC8619F7F00E4D5880B14EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190098   (268892) от 08.12.2017
-
-Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Outside Your Love (3:01)
-02. Lost In Wonderland (4:12)
-03. Don't Make It So Hard (3:20)
-04. Love Insight (5:01)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542671E7DC8D4819C81A5C2212B30F12960B2EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338687   (268920) от 16.11.2019
 
 A'mbar - Love Maniac (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -695,6 +560,141 @@ VA - Новый год в стиле Ретро (2016) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45A370E00FADFA53ADB0E38DBB32AFEF1F2E3561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266455   (270035) от 02.12.2018
+
+The Hollies - Live at the BBC (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_270035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Here I Go Again
+02.  Jennifer Eccles
+03.  I've Got a Way of My Own
+04.  Wings(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CC1B1B80B18CDF0475FD0E6BE7748AECA6F327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266463   (270036) от 02.12.2018
+
+Akcent - King of Disco (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_270036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - King of Disco
+02 - Let's Talk About It
+03 - Religious Girl
+04 - Baby(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266516   (270038) от 02.12.2018
+
+Jean-Pierre Massiera & Bernard Torelli - Turn Radio On (1977) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_270038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Radio On (3:19)
+02. Help Taxi (2:09)
+03. Whistler Programm (2:31)
+04. Knock Out (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9503E5FDEAF237037F122A16832F887A376655A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266460   (270042) от 02.12.2018
+
+Lily Allen - No Shame (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_270042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Then (03:10)
+02. Trigger Bang (feat. Giggs) (03:32)
+03. What You Waiting For? (03:06)
+04. Your Choice (feat. Burna Boy) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266649   (270044) от 02.12.2018
+
+VA - Clubfete 2019 (63 Club Dance & Party Hits) (2018) [MP3|320 Kbps] <Dance, Pop, Club, Tropical, Groove>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_270044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. El Profesor feat. Laura White - Ce soire? (HUGEL Remix)
+02. Dynoro & Gigi D'Agostino - In My Mind
+03. David Guetta - Don't Leave Me Alone (feat. Anne-Marie)(   Читать дальше...   )Жанр: Dance, Pop, Club, Tropical, GrooveПродолжительность: 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB46FDF932CAC20BEA38B8FDB78552587D13E52
 ```
 
 

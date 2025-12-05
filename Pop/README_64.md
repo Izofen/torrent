@@ -1,111 +1,3 @@
-###  Публикация: 1086121   (152777) от 24.12.2016
-
-Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Lossless|image + .cue] <Pop, Holiday, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake Up Christmas (3:47)
-02. I Believe In Father Christmas (3:02)
-03. Have Yourself A Merry Little Christmas (Duet with Kim Wilde) (2:35)
-04. Santa Claus Is Coming To Town (2:57)(   Читать дальше...   )Жанр: Pop, Holiday, ChristmasПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379B6AC52EF4166C66EB7B9FB09ED54D8EEDE9BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707577   (152842) от 23.12.2020
-
-VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя он уже был на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. После серии номерных сборников шведы выстрелили  сборником самых последних "свеженьких" хитов осени 2013.01. Ellie Goulding - Burn (Tiestos Club Life Remix) (5:16)
-02. Avicii - Wake Me Up (Speed Remix) (7:02)
-03. Robin Thicke Feat. Pharrell - Blurred Lines (3:50)
-04. Naughty Boy Feat. Sam Smith - La La La (3:38)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F483275503240F2B5ED2E50E0B0DA37AA51149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194607   (153256) от 26.12.2017
-
-Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop, Soulful, Funk, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_153256.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Co'n'Dorn (2 CD)
-2014 - Randorn (Deluxe)
-2017 - Jazzy Funky Dorn  (Live)
-2017 - OTDЖанр: Pop, Soulful, Funk, DanceПродолжительность: 05:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1222EAEA7024408B41CB4BAADD352B51AFEFD848
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433909   (153391) от 23.12.2020
-
-Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_153391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WTF Do I Know
-02. Plastic Hearts
-03. Angels Like You
-04. Prisoner (feat. Dua Lipa)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1A59613F1B54D2B9E04C2545F1AA452992C59B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194606   (153419) от 26.12.2017
 
 VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -691,6 +583,114 @@ VA - Het Beste Uit De Q Top 1000: Editie (2019), 6CD [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12046D204A257C3B1523413FFA4000A7D9785758
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676725   (155398) от 14.11.2023
+
+Лолита - И этим всё сказано (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155398.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пошлю его на...
+2. Расскажи, как...
+3. Ориентация Север
+4. По-другому(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A93EDFB352594AC0431838E631F2D499A57D16B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346979   (155401) от 21.12.2019
+
+VA - Песня года 1995. Финал (часть 3) (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алла Пугачёва - Бессонница
+02. Александр Серов - Я люблю тебя до слёз
+03. Вадим Казаченко - Благослови
+04. Иосиф Кобзон - Приди(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435EACD75F259D5E7E68B3C1EC38E0AC64982469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194111   (155453) от 25.12.2017
+
+Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' With My Eyes Closed 03:33
+02. Home Now 03:22
+03. Light Of My Life 03:37
+04. Poor Me 03:21(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C5AA90ECD5CA64726FBF431E4EAB777FDB49BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270647   (155476) от 20.12.2018
+
+The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1976 - Доули Фэмили в Москве
+1977 - The Dooley Family And The Others
+1978 - The Dooleys(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 05:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A95AD75AA66D28D2938E47092B5302201B4E2A8
 ```
 
 

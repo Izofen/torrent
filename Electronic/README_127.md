@@ -1,3 +1,57 @@
+###  Публикация: 1640500   (211170) от 18.06.2023
+
+VA - Ibiza Top Hits (2023) [MP3|320 Kbps] <Electro House, Dance, Club, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raumakustik - Bugatti (Edit)
+02. El Mukuka, Mumba Yachi - The Harvest
+03. Kailly Jensen - Mantra
+04. Francisco Allendes, Trallez - Party(   Читать дальше...   )Жанр: Electro House, Dance, Club, ProgressiveПродолжительность: 01:55:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B33EC823FE88214871151E043D065500711F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640280   (211195) от 17.06.2023
+
+Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023, Remaster, Rhino [MP3|320 Kbps] <Electro House, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 1
+DISC 2
+DISC 3Жанр: Electro House, SynthpopПродолжительность: 3 CD, 03:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26022E45278D6927CCF746A0F4EA2695A113CEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640199   (211281) от 16.06.2023
 
 VA - A State Of Trance Radio Top 50 - 2023, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -641,60 +695,6 @@ VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342ED442077A4F4D801CA6537A58250B1D36E7C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832294   (213516) от 30.10.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_213516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - On The Beach (Mauro Picotto's Extended CRW Remix) [6:41]
-02. Vincent De Moor - Shamu (Extended Mix) [6:12]
-03. Armin van Buuren feat. Jan Vayne - Serenity (Extended Mix) [8:38]
-04. Re:Locate & Cliff Coenraad - We Feel (Re:locate Extended Mix) [7:30](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAC84D23578C958F878D1A700D712F85CD1F3AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832297   (213518) от 30.10.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_213518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Orbion (Extended Mix) [9:35]
-02. John O'Callaghan feat. Josie - Out Of Nowhere (Extended Mix) [7:28]
-03. Mauro Picotto & CRW - I Feel Love (V2) (Extended Mix) [5:19]
-04. Silent Electra - Polarity (Jochen Miller Extended Remix) [8:14](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15E87E42911D9D758253C783975C48C06B5489E
 ```
 
 

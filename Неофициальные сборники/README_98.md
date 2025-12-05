@@ -1,3 +1,165 @@
+###  Публикация: 1672474   (168798) от 28.10.2023
+
+VA - Beatport Synthwave: Pack #635 (2023) [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168798.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tony Gray - Gundam
+002. Mogwaa - 11Khz
+003. The Spy - Acid Night
+004. Fringe Society - Alexithymia(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 10:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BAAF881444158C7271D17277A2DA3DDC359CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430954   (168799) от 12.12.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 11.12.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surf Mesa feat. Emilee - ily (I Love You Baby) (2:56)
+02. twocolors - Lovefool (3:10)
+03. Pascal Letoublon & Leony - Friendships (3:02)
+04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965C30D6EB43EEA569C21B5FCFBCA4D8C269A70A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672448   (168804) от 28.10.2023
+
+VA - 100 In Atmospheric Trance (2023) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soundlift - Wild Wind (Original Mix)
+002. Alex M.O.R.P.H. & Jamaster A - Sky over Great Wall (Extended)
+003. Adam Morris & Rezwan Khan - Aftermath (Extended Mix)
+004. Alessandra Roncone - Redemption (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363BBBA1AC0B51B787E63543B29889162EFAB522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344708   (168878) от 12.12.2019
+
+VA - Новый Год вдвоём (2019) [MP3|320 Kbps] <Pop, Christmas, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168878.jpg" />
+</div>
+
+
+###  Подробнее
+
+98º - Christmas Wish (3:48)
+2.Ariana Grande - Santa Tell Me (3:24)
+3.Carly Rae Jepsen - Last Christmas (3:32)
+4.Coldplay, Guy Berryman, Will Champion, Chris Martin, Jonny Buckland - Christmas Lights (4:02)(   Читать дальше...   )Жанр: Pop, Christmas, OtherПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DFD546A841EEDE04CE5A27B75BCFA6696D2F48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431224   (168892) от 12.12.2020
+
+VA - Record Super Chart 666 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fousheé & Katana Angels - Deep End (2:35)
+02. Tiesto - The Business (2:43)
+03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+04. Slava Marlow - Снова я напиваюсь (1:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AB279C814E3EE3EFDB1A89AE8439B12EAC44B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596591   (168897) от 11.12.2022
+
+VA - В машине с музыкой Vol.324 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldout - Задушу (03:49) 2022
+02. Татьяна Буланова Feat. & Алексей Beezon - Жми На Delete (03:22) 2022
+03. Dj. Dark & Mentol Feat. & Georgia Alexandra - Riders On The Storm (Radio Edit) (03:00) 2022
+04. Elena Ilang - Мама (03:38) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3478DBE89FDB706551BA25709810506FD35BF08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596736   (168963) от 11.12.2022
 
 VA - The True Romance (2022) [MP3|320 Kbps] <Pop, Lyric, Romantic>
@@ -533,168 +695,6 @@ VA - Music News vol.154 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9559462249E810329417F8F9985A4E75F4064A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596308   (170301) от 09.12.2022
-
-VA - Music News vol.230 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amirchik - Love Is (02:23)
- 002. 52Ghz - Город Наукоград (02:32)
- 003. A Boogie Wit Da Hoodie feat. Kodak Black - Water (Drowning Pt. 2) (03:27)
- 004. A'DI - Красками Город (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184D2D5CA13A7E6A567D6CCE42958B30422915A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344314   (170328) от 10.12.2019
-
-VA - Reverse Echoes: Ambient Music (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rinat Kaas - Children Of The Metropolis
-002. Alphaxone - Reverse Echoes
-003. Suduaya - Journey Of Aquila
-004. Grinzato - Look(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 12:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8019E38B1683E98BF78D5A92AAEE4F821ED351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344479   (170346) от 10.12.2019
-
-VA - НГ 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170346.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Моральный кодекс - Москва новогодняя (8:02)
-2.Мумий Тролль - С Новым годом, крошка! (5:04)
-3.Григорий Лепс - Новый год (4:34)
-4.Дискотека Авария - Новогодняя (4:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D775DE2D4A3054B34E19E31BD10A75223F976932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515394   (170382) от 06.12.2021
-
-VA - You & Me (2021) [MP3|320 Kbps] <Pop,Folk, Indie, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Local Natives - You & I (4:21)
-002. The Kooks - Westside (3:30)
-003. Kings of Leon - On Call (3:21)
-004. Craft Spells - Komorebi (4:23)(   Читать дальше...   )Жанр: Pop,Folk, Indie, OtherПродолжительность: 06:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84A547B8FA2AB7B7D9B7524FF9EADB7C2F21FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344281   (170416) от 10.12.2019
-
-VA - Workout 2  I Get Back In Shape (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Young Thug, Travis Scott, Gunna - Hot (4:39)
-2.Eminem - Lucky You (Feat. Joyner Lucas) (4:04)
-3.Drake - Nonstop (3:58)
-4.Young Buck, G-Unit - I Like The Way She Do It (3:52)(   Читать дальше...   )Жанр: Hip-Hop, Rap, OtherПродолжительность: 04:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310E04BCE5BC9F16E18512C8A633A48C4ED97E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344315   (170428) от 10.12.2019
-
-VA - Disco House Party (2019) [MP3|320 Kbps] <Disco House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_170428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scotch - Penguin Invasion
-002. Modern Boots - You're My Night, You're My Day
-003. Michael Gray - 24 7 People
-004. Shay Jones - When Love Calls(   Читать дальше...   )Жанр: Disco House, Funky HouseПродолжительность: 12:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD81EED97BFAE3E8718DB07BB3F7A15644340E5
 ```
 
 

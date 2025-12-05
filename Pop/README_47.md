@@ -1,30 +1,3 @@
-###  Публикация: 1705163   (113957) от 07.03.2024
-
-Илья Духовный - Грустная история (1998) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_113957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненужная песенка 03:34
-02. Грустная история 04:05
-03. Курортная любовь 03:35
-04. Звёздочка 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A400B98EE50EDE89998296BF4E1C946AD24CC8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705226   (113979) от 07.03.2024
 
 Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -696,6 +669,33 @@ Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31CA993C10B4610C608014102672033ADA6043F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702159   (116016) от 23.02.2024
+
+Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Square Rooms (03:42)
+02. Hungry for Your Love (04:13)
+03. Lie Detector (03:31)
+04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
 ```
 
 

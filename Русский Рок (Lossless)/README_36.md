@@ -1,3 +1,57 @@
+###  Публикация: 1623404   (233944) от 01.04.2023
+
+Джейло - Grunge Bo! X) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_233944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GRUNGE BO! X) [00:02:19]
+02. Где нас с тобою больше нет x( [00:02:12]
+03. Тени х_х [00:02:21]
+04. Мы найдем наши сердца </3+</3=<3 [00:02:43](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79258F25758C89D2B794509F848B88BA65D05E7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543257   (234453) от 10.04.2022
+
+Egor Lappo - Naturealism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unreal (00:01:27)
+02 - Invisible Walls (00:04:35)
+03 - Forgone Future (00:03:51)
+04 - Lack of Gravity (00:03:55)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA07B11FB848266AB0C6A3B597B92535D6C8064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477030   (234706) от 13.06.2021
 
 Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -641,60 +695,6 @@ Roman Rain - 31.0345 Years of Dread (2007) Remake, 2023, M2BA [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2628715CC458E66225FFEA4471A0AD7E215BE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627752   (237083) от 20.04.2023
-
-Сатана Печёт Блины - Сны и воспоминания (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Post-Bard>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_237083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Странные вещи [00:02:12]
-02. Забудь об этом [00:02:52]
-03. Когда ты рядом [00:02:08]
-04. Если честно [00:03:11](   Читать дальше...   )Жанр: Indie, Post-BardПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA86DE147D35BA994CEFB4B92AFCCDA3D85A67BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627749   (237091) от 20.04.2023
-
-Otto Dix - Vantablack (2023) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_237091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аутодафе [00:03:04]
-02. Vantablack [00:03:57]
-03. Судия [00:04:31]
-04. Нефть [00:03:05](   Читать дальше...   )Жанр: DarkWave, AlternativeПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33BFB0030DCC146DDD9330C081B7048C7B123DE
 ```
 
 

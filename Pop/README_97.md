@@ -1,84 +1,3 @@
-###  Публикация: 1342149   (225274) от 01.12.2019
-
-VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_225274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ровно 11 лет тому назад - 1 декабря 2008 года Австралийский дивизион лейбла EMI выпустил этот сборник для людей любящих в компании пропустить кружечку-вторую, а иногда и третью-четвертую. Головы людей, составлявших этот сборник, были явно этим самым пивом не затуманены, потому как он получился на удивление свежим и интересным. Знатоки вряд ли для себя найдут новые (   Читать дальше...   )CD1:
-01. Lynyrd Skynyrd - Sweet Home Alabama  (4:37)
-02. Choirboys - Run To Paradise  (4:05)
-03. Divinyls - Boys In Town  (2:50)(   Читать дальше...   )Релиз состоялся: 01 декабря 2008 годаЖанр: Pop, Rock, DanceПродолжительность: 03:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341987   (225339) от 01.12.2019
-
-Groove Armada - Twenty One (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_225339.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-CLUB MIX:
-01. Oh Tweak To Me (03:22)
-02. Luv 91 (04:22)
-03. You Got To (05:03)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 04:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342040   (225394) от 01.12.2019
-
-Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Afrobeat, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_225394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Rhythm (3:26)
-02. Why Did You Do It? (3:25)
-03. It's A Man's World (2:52)
-04. Have You Ever Seen The Rain (2:42)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Afrobeat, DiscoПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AE32EB31A19C31C4534330F620C2D1BBC78FD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342070   (225437) от 01.12.2019
 
 VA - ZYX Italo Disco Spacesynth Collection 5 (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
@@ -706,6 +625,87 @@ VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:311851DD068CE8AE5E0711454752D6AA59A19480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584188   (226624) от 17.10.2022
+
+Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_226624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rolling Stone
+02. Sentimentale
+03. Desobeissance
+04. N'oublie pas(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B024630FC77D7F7641B77F154D02720494B3B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583738   (226635) от 17.10.2022
+
+Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_226635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Control (Feat. Amaya) 3:54
+02. A Brighter Day (Extended Mix) 6:15
+03. Baila Bandolera (Extended Mix) 8:58
+04. Forever Young (Extended Mix) 7:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268235   (226808) от 10.12.2018
+
+VA - Schlager Club 2019 (63 Discofox Party Hits) (2018) 3CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_226808.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Ben Zucker - Was für eine geile Zeit (Single Mix)
+03. Eloy de Jong - Schritt für Schritt (Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 03:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B0DAE392F629DBC395790071DFEA4FFA20CC4B
 ```
 
 

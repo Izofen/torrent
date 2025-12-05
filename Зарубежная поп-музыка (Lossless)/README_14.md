@@ -161,6 +161,33 @@ magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525630   (129389) от 21.01.2022
+
+Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Fruits Of Eden (0:40)
+ 02. AURORA, Pomme - Everything Matters (3:34)
+ 03. Giving In To The Love (3:01)
+ 04. Cure For Me (3:22)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683010   (129908) от 09.12.2023
 
 НеАнгелы - Номер один (2006) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -426,39 +453,6 @@ Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593179   (135236) от 23.12.2012
-
-Jessica Jay - Broken Hearted Woman (1996) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Truth Is
-02. The Room At The Top Of The Stars
-03. Broken Hearted Woman (Club Mix)
-04. Casablanca (Jay In The Mix)
-05. Can't Help Falling In Love
-06. Fliptatious Heart
-07. Smile
-08. One More Try
-09. I'm Leaving
-10. I Swear(   Читать дальше...   )Продолжительность: 01:04:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 

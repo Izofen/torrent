@@ -1,30 +1,3 @@
-###  Публикация: 1823161   (117571) от 10.10.2025
-
-АИГЕЛ - Tatar Rave (2025) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electronic>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_117571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. АИГЕЛ/Harddope - Killer qiz
-2. АИГЕЛ/uravnabeshen - Mäñgelek Yoldız
-3. АИГЕЛ - Tönyaq Balqışı (Om1ji Schranz remix)
-4. АИГЕЛ/FEARSTbeats - Хäzer Betä Ul(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D712B272C7C9907D837CD43F663CC4CA588C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823158   (117583) от 10.10.2025
 
 АИГЕЛ - Tatar Rave (2025) [MP3|320 Kbps] <IDM, Electronic>
@@ -695,6 +668,33 @@ Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697262   (118955) от 06.02.2024
+
+Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shotgun (Into The Night) (Remix)
+02.  Battle Cry (Remix)
+03.  You & Me (Remix)
+04.  Mars Invaders (Remix)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
 ```
 
 

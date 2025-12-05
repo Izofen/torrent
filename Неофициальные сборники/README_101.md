@@ -1,3 +1,165 @@
+###  Публикация: 1430145   (174504) от 09.12.2020
+
+VA - Beatport Clubbing House: Electro Sound Pack #207 (2020) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам по вкусу качественная электронная музыка, что будет радовать вас где угодно и когда угодно, то лучше что сможем, это порекомендовать вам новый 207-й танцевальный микс от небезызвестного Beatport. Мелодии сборника звучат крайне современно и приятно, в связи с чем он должен быть интересным немалому количеству почитателей танцевальной музыки.001. Stashion - This In The House
+002. Maxx Play - Pop Those Bottles
+003. Grenno - In The Air
+004. Dj Msoja Sa - Helicopter(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE68E4A7DD7F682E9DBCCD261350F56E25E35C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668153   (174574) от 11.10.2023
+
+VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderstorm Artis - Stronger (Grey's Anatomy Version) (2:59)
+02. TALK - Run Away to Mars (3:33)
+03. Robert Grace - Casper (3:03)
+04. Rea Garvey - Free Like The Ocean (2:51)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429847   (174647) от 08.12.2020
+
+VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско музыка это не даже гимн минувшей эпохи, это для многих лучшие воспоминания, юность, первая любовь. Эти чудесные дни будят разум, так почему бы не почувствовать их атмосферу у себя дома? Песни сборника "Discotron Remixes" в свежем исполнении подарят вам прекрасные воспоминания, чудесную музыку и атмосферу того времени.001. Dj Mark Brickman - The Get Down
+002. Giovanni Damico - Cassette Funk
+003. Paper Street Soul - Wonder
+004. Róisín Murphy - Something More(   Читать дальше...   )Жанр: DiscoПродолжительность: 09:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1C4D75125630FFA50460940FDCC44820BA749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429896   (174854) от 08.12.2020
+
+VA - Шансон Зима (2020) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юра Шальной - Парижский Дождь (6:00)
+02. Денис Майданов - Утро Дорог (5:04)
+03. Владимир Ждамиров - Я Поцелуем Выпью Твои Слёзы (4:52)
+04. Сергей Клушин - Не Пара (4:40)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B3845FEFC676F3018CFD2FFCB2FACBDFE938B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595601   (174931) от 06.12.2022
+
+VA - Christmas Dance Party 2022-2023 (2022) [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva & Stephan F - Bam Bam Boogie (Extended Mix) (3:35)
+02. Turbotronic - Be My Lover (Extended Mix) (4:09)
+03. FLGTT - I Like To Move It (Extended Mix) (3:47)
+04. Stephan F & Tony T - The Power (Extended Mix) (3:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC4244AF1E2431E1B2F37DDD68757ACDD9766F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429849   (174940) от 08.12.2020
+
+VA - La Ballade Du Coeur (2020) [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь старательно собраны самые лучшие и трогательные песни, которые напоминают нам о прекрасной и противоречивой любви. Эту музыку можно слушать бесконечно.001. Tété - Les Blédards Célestes
+002. Andréanne Warren - Thanatos
+003. Jean Ferrat - Mes Amours
+004. Whitney - Sur Un Fil(   Читать дальше...   )Жанр: ChansonПродолжительность: 08:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1D03F11C0F48EA05EDB4246FDEF5C81BEA99BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429834   (175035) от 08.12.2020
 
 VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
@@ -533,168 +695,6 @@ VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B84BFA2E62E7935D146FCBFC901D2FC107CBCBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594538   (176631) от 03.12.2022
-
-VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_176631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Berezhnaya feat. Паша Руденко - Ревность (03:26)
- 002. 84 feat. Nebezao - Узумаки (02:26)
- 003. A1JR feat. Wagner - Youngers In Сharge (03:00)
- 004. Adriana Onci feat. DJ Sava - Deep End (Lesfunk Remix) (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429367   (176634) от 06.12.2020
-
-VA - German Top 100 Single Charts 04.12.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_176634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. LUNA - Verlierer
-04. Master KG - Jerusalema (feat. Burna Boy & Nomcebo Zikode) (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F359800BF1BF8C9741441170981E44B5AA1533A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594588   (176686) от 03.12.2022
-
-VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_176686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iyeoka - Simply Falling (Instrumental Mix)
-02. Kaz Hawkins - At Last
-03. Meena Cryle - Try Me
-04. Iyeoka - Broken Hearts Anthem (Walk Away)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA495EC5235C354CDB248517B74998C54C6230E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667157   (177256) от 07.10.2023
-
-VA - Car Music Mix 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_177256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT - Flame - Edit (5:27)
-02. Zven, Ghetto - S.W.A.T (2:13)
-03. Yves V & Fafaq - Bring It Back (2:51)
-04. Tony Igy x Pakito, K.Funk, M.Gold - Video Astronomia (Dj Baur Mixshow) (3:58)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 08:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0D9A54C4FB73F159EB85575C830482C744BC4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667162   (177382) от 07.10.2023
-
-VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_177382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Паршута - Играя в Минор (02:41)
- 002. Alex Matthew feat. Silvia - Ultima Vara (02:56)
- 003. Alex Say feat. Subo - Зараза (Elvira T Remix) (02:19)
- 004. Ami - Nostalgia (03:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F145D15B67F706FD2BD2E696C6092F5BBD5416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429131   (177391) от 05.12.2020
-
-Amethystium - Shadow to Light (Compilation) (2020) [MP3|320 Kbps] <Electronic, New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_177391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow to Light
-02. Ethereal
-03. Mono No Aware (Opening)
-04. Nightfall(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 05:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BF3BDAF804C0283B6A5095A39A5D07D096473F
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1770088   (100591) от 30.12.2024
-
-V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troels Hammer - I Done All I Could
-02. The Swan and The Lake - Primavera Gelato
-03. Jacob Gurevitsch - Morning View
-04. Ambala, Troels Hammer, Anders Ponsaing - Quiet Yellow Purple(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770099   (100607) от 30.12.2024
 
 VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wildenhues) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -689,6 +662,33 @@ Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C4AD6CAD4F5771EC9C6D0E6487AB031A95FEA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766772   (101221) от 20.12.2024
+
+V.A. - Lounge & Wine, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - In My Mind
+02. Lemongrass - Blue Moon (Original Mix)
+03. Jazzamor - Till the End of Time (Original Mix)
+04. C.A.T. - No Way ? (Original Version)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20E0CFFCF8D8C7308132EFA86F46F3A351F3792
 ```
 
 

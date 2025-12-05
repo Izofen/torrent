@@ -1,57 +1,3 @@
-###  Публикация: 1191784   (263715) от 15.12.2017
-
-Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, Elektro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_263715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruleta (feat. Erick) (3:18)
-02. Gimme Gimme (2:57)
-03. My Dreams (3:11)
-04. Tropical (3:14)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, ElektroПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191652   (263775) от 15.12.2017
-
-VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_263775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii feat. Sandro Cavazza - Without You (3:02)
-02. Justin Bieber + BloodPop® - Friends (3:10)
-03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One (4:49)
-04. Portugal. The Man - Feel It Still (2:43)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191641   (263804) от 15.12.2017
 
 VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, House, R&B, Soul>
@@ -695,6 +641,60 @@ Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290084   (672143) от 23.03.2019
+
+Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop - Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_672143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (Mackay, Dunne)
+02. Battle Of The Sexes (with Rod Stewart) (Norman, Carline)
+03. Slow Walk (Cadd, Belland)
+04. Seven Waves Away (A.Gibb, B.Gibb, Emery, S.Gibb)(   Читать дальше...   )Жанр: Pop - RockПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4AB5EB23BDFD5F642A8EBEDD267AD73A285094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291275   (672222) от 23.03.2019
+
+VA - Car Hits: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_672222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Minds – Don’t You Forget About Me (04:21)
+02. Dexys Midnight Runners – Come On Eileen (04:07)
+03. The Human League – Don’t You Want Me (04:00)
+04. Soft Cell – Tainted Love (02:37)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 6:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C746C14CAA19084DFC65CEE6FE7525D61EFC6D7
 ```
 
 

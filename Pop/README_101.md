@@ -1,84 +1,3 @@
-###  Публикация: 1634259   (233516) от 19.05.2023
-
-VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Boy - Forget You (2:27)
-02. Felix Jaehn - Call It Love (2:34)
-03. Glockenbach - YEAH (2:38)
-04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644853   (233604) от 07.07.2023
-
-Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [FLAC|24/44.1|WEB-DL|tracks] <Disco, Eurodance, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Wanna Get Hurt (3:28)
-02. When Love Takes over You (4:13)
-03. This Time I Know It's for Real (3:39)
-04. The Only One (3:55)(   Читать дальше...   )Жанр: Disco, Eurodance, EuropopПродолжительность: 01:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE56B7FBD7DD6E4B4B87EE9BBF04BF75240FDA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634176   (233636) от 19.05.2023
-
-EMIN - За минуту до... (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_233636.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Искал тебя
-2. За минуту до...
-3. Милая
-4. Рано(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0EBC51D159BA237A82E526B03D51A4ADB294B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634210   (233658) от 19.05.2023
 
 Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -693,6 +612,87 @@ Annette Humpe - Solo (серия "Другие восьмидесятые") (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC836E86623901511284A77489D57B669C5CB1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631969   (235924) от 08.05.2023
+
+Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_235924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now
+02. Can't Escape From You
+03. Angel Of Love
+04. I Love Fashion(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F1CF6DACD3AED0642B2A7D6AEB957947313D83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511505   (236022) от 21.11.2021
+
+Kumano - Kumano (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_236022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Cry For You (7:41)
+02. You Got It (7:25)
+03. Angel Eyes (4:19)
+04. I Heard It (5:59)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372DB944D556369AB015C09BA57EFD72E7911B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609271   (236324) от 03.02.2023
+
+Celine Dion - The Colour Of My Love (1993) Reissue, 1995, Epic [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_236324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power of Love
+02. Misled)
+03. Think Twice
+04. Only One Road(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C308E6CDAE298F886AAFB423FA57003EF5521BDC
 ```
 
 

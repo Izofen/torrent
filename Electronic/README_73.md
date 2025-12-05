@@ -1,30 +1,3 @@
-###  Публикация: 1715628   (111421) от 13.04.2024
-
-VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lexx Groove – Dancin' (6:40)
-02. Little Rick – What's Going on (5:12)
-03. Sliced – Something's Happening (6:10)
-04. Markyno – Great Life (6:43)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715830   (111438) от 13.04.2024
 
 Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -695,6 +668,33 @@ VA - Pure Synthwave, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86CA1EC940F6D59CA8CCAE8E076F6028A05117E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713421   (111904) от 06.04.2024
+
+MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - The Truth
+02. DJ T. - Dis (2023 Remake)
+03. Eitan Reiter - Pump Up The Jam (DJ T. Remix)
+04. RAFFA GUIDO - Famax(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2EE94C97AA54DD0BD47CD2BDB67FE508304F65
 ```
 
 

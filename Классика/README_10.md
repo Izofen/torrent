@@ -220,36 +220,6 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495107   (251123) от 11.05.2012
-
-Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofolk>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_251123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morgenstunden (05:58)
-02. Windstille (06:06)
-03. Sonnenhall (03:35)
-04. Dezemberabend (06:05)
-05. Baumgespenster (06:02)
-06. Waldzauber (06:55)
-07. Abschiedsfeuer (05:57)2006-2010Жанр: Neoclassical, Ambient, NeofolkПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495526   (251372) от 12.05.2012
 
 Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Neoclassical, Martial Industrial>
@@ -756,6 +726,32 @@ Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83CC5100397A33998F9B385817DF0285DFF31F6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501697   (258824) от 27.05.2012
+
+Мишель Плассон, Дрезденский Филармонический Оркестр - Ференц Лист, Симфонические Поэмы (2010) (Диск 2)[FLAC|Lossless]<Classical Music>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прометей (Симфоническая поэма № 5)
+2. Что слышно на горе (Симфоническая поэма № 5)
+3. Праздничные звучания (Симфоническая поэма № 7)2010Жанр: Classical MusicПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
 ```
 
 

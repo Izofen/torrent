@@ -671,26 +671,28 @@ magnet:?xt=urn:btih:DB9E66323DBA28A30C6D08B2B867040E1717E8C7
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267623   (265797) от 07.12.2018
+###  Публикация: 1188638   (265730) от 07.12.2018
 
-Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid House, Future Jazz, Experimental>
+Dictaphone - Discography 6 Releases (2002-2018) City Centre Offices, Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Abstract, Modern Classical, Experimental, Avant-garde Jazz>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265797.jpg" />
+  <img src="http://84.39.252.114/public/picture/007/save_picture_265730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (BYTWB) (00:30)
- 02. Underworld & OЖанр: Techno, Acid House, Future Jazz, ExperimentalПродолжительность: 00:30:33
+01. The Conversation (05:02)
+ 02. Maelbeek (04:38)
+ 03. Manami (04:29)
+ 04. Soylent Green (1973) (03:48)(   Читать дальше...   )Тип издания: CD, WebЖанр: Abstract/Modern Classical/Acoustic/Avant-garde JazzПродолжительность: 00:40:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
+magnet:?xt=urn:btih:12F346947333CBF97187B96EEA9404A58326403D
 ```
 
 

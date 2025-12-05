@@ -612,6 +612,60 @@ magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667431   (177006) от 08.10.2023
+
+Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Somewhere, My Love
+A2 Yesterday
+A3 My Best Beau (My Best Girl)
+A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415153   (177080) от 02.12.2022
+
+Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177080.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1a Sweet Dreams (Ghosts)
+A1b Night Light (Ghosts)
+A1c Guardian Angel (Ghosts)
+A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667196   (177613) от 07.10.2023
 
 Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
@@ -634,62 +688,6 @@ A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319188   (177798) от 06.10.2023
-
-Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_177798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце уходит на Запад
-02. Война
-03. Стоп! Думаю себе
-04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594487   (177838) от 01.12.2022
-
-Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_177838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pretty Maids — датская рок-группа, основанная в 1981 году в Хорсенсе, Дания.
-Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, хэви-метал и пауэр-метал, несколько более мягкий, нежели у Running Wild или Helloween, но более жёсткий, чем у Europe.
-Группа была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году (   Читать дальше...   )1983 - Pretty Maids (EP)
-1984 - Red, Hot And Heavy
-1987 - Future World
-1990 - Jump The GunЖанр: Melodic Heavy MetalПродолжительность: 13:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```
 
 

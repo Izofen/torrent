@@ -1,3 +1,63 @@
+###  Публикация: 493262   (248486) от 07.05.2012
+
+Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) [FLAC|Lossless]< House, Future Jazz, Experimental, Downtempo, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Warning :: 01:38
+02. City Sphere :: 06:06
+03. Forgotten Thoughts :: 06:39
+04. The Sound Of The Big Babou :: 07:17
+05. Unreasonable Behaviour :: 01:19
+06. Cycles D'Oppositions :: 04:56
+07. The Man With The Red Face :: 09:08
+08. Communications From The Lab :: 05:15
+09. Greed (Part 1+2) :: 06:45
+10. Dangerous Drive :: 08:47(   Читать дальше...   )2000,2004Жанр: House, Future Jazz, Experimental, Downtempo, ElectroФормат: CD, AlbumsПродолжительность: 02:03:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834187   (248594) от 02.11.2025
+
+VA - Ibiza Winter Island 2026 (The Chill Out Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Steen Thottrup - Saw You (04:14)
+ 02.  Lemongrass - Night Blossom (04:38)
+ 03.  Calmabohain - Silent Ocean (Sa Trincha @Night Version) (03:08)
+ 04.  Van - My Sunrise (09:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5E884A8D25E602A48187B600695BD45AA7A712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 181903   (248963) от 08.05.2012
 
 Der Blutharsch (And The Infinite Church Of The Leading Hand) - 19 albums (1996-2011) [FLAC|Lossless] <Martial Industrial, Dark Ambient, Apocalyptic Folk, Psychedelic Rock, Experimental>
@@ -22,39 +82,6 @@ Der Blutharsch (And The Infinite Church Of The Leading Hand) - 19 albums (1996-2
 08. the final stand (06:44)
 09. Kühlungsborn (03:03)
 10. acid blaze (06:01)(   Читать дальше...   )1996-2011Жанр: Martial Industrial, Dark Ambient, Apocalyptic Folk, Psychedelic Rock, ExperimentalПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493796   (248971) от 08.05.2012
-
-In The Nursery - 35 albums (1986-2011) [mp3|320 kbps] <Neoclassical, Darkwave, Industrial, Ambient>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_248971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artisans of Civilisation (06:57)
-02. Past Glory (05:01)
-03. Blind Sound (04:40)
-04. Crepuscule (04:19)
-05. Trial By Error (05:25)
-06. Coloured Silence (03:01)
-07. Lectern (04:32)
-08. Crave (05:28)
-09. Resonate (03:55)
-10. Overtone (02:11)Жанр: Neoclassical, Darkwave, Industrial, AmbientПродолжительность: 00:45:33
 
 ## Скачать торент
 ```bash
@@ -685,33 +712,6 @@ Earthling - Radar (1995) 30th Anniversary Edition, 2025, Chrysalis Records Limit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C05F16BB7306B64E946CD9818CA74B101516D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834515   (250425) от 03.11.2025
-
-Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Goth-Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_250425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kein Allein [00:04:38]
-02. The Chemistry of Pain [00:05:02]
-03. Tomorrow's Past [00:04:27]
-04. hurt people hurt people [00:04:46](   Читать дальше...   )Жанр: Darkwave, Goth-RockПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3544D1FFC2E090C54B1198E534C69ABA79854EA7
 ```
 
 

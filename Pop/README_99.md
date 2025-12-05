@@ -1,84 +1,3 @@
-###  Публикация: 1423676   (229009) от 16.11.2020
-
-VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229009.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 GIMS - YOLO
-02 OBOY - Cabeza
-03 PLK Feat. Niska - On Sait Jamais(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423877   (229016) от 16.11.2020
-
-New Baccara - F.U.N. (1990) Japanese Edition [FLAC|Lossless|tracks + .cue] <Euro-Disco, Euro-Pop, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_229016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.U.N. (4:57)
- 02. Say A Little Prayer (3:43)
- 03. Without You (4:44)
- 04. Are You Alone Tonight (3:53)(   Читать дальше...   )Жанр: Euro-Disco, Euro-Pop, SynthpopПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D95360B63A5BCD6B5E3996CD143154E5EB089BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649656   (229066) от 28.07.2023
-
-Purple Flash - Greatest Hits 1978-1984 (2006) Compilation [MP3|320 Kbps] <Electronic, Funk / Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_229066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Doing That Thing (5:59)
-02. Creme Souflee (4:58)
-03. We Can Make It (7:17)
-04. Leading Lover (6:18)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, DiscoПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AB9C4ED73DDC48E7862592E901A2448228A9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341814   (229077) от 29.11.2019
 
 VA - 538 Hitzone 90 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
@@ -710,6 +629,89 @@ VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D3A62FFB3DC5A01589D6F62EE1943FDCF829BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649342   (230474) от 27.07.2023
+
+Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Che Dio ti benedica (04:20)
+02. Questa primavera (05:01)
+03. Fatte na pizza (03:27)
+04. Mal di te (04:50)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649448   (230686) от 27.07.2023
+
+Duncan Sisters - The Duncan Sisters (1979) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness In My Eyes (6:47)
+02. Outside Love (7:10)
+03. Rock Along Slowly (4:44)
+04. Boys Will Be Boys (7:15)(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182B88753134D65FD08A003A2126A0D4DBDDC4AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637499   (230752) от 04.06.2023
+
+Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_230752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Right Said Fred - Британская поп-группа, созданная в 1989 году братьями Ричардом и Фредом Фэйрбрассами (Richard and Fred Fairbrass).
+В 1991 году вышел первый хит «I’m Too Sexy», многократно использованный в кино и на телевидении. Песня заняла первое место в хит-парадах США и второе место в Великобритании.
+После The Beatles, они стали второй группой из Англии, три (   Читать дальше...   )01. I'm Too Sexy (2023)
+02. Don't Talk Just Kiss (2023)
+03. Deeply Dippy (2023)
+04. Love For All Seasons (2023 Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
 ```
 
 

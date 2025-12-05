@@ -1,30 +1,3 @@
-###  Публикация: 1700623   (116889) от 18.02.2024
-
-Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Krautrock, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_116889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue (00:01:32)
-02 - Scary Memories (00:02:21)
-03 - Atonal Floating (00:01:02)
-04 - Full Of Life (00:01:57)(   Читать дальше...   )Жанр: Krautrock, SynthpopПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915C4351E49614E3CDF9FD0BBE50738C0EEC0835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700685   (116908) от 18.02.2024
 
 Kasra - Dream Metal (2024) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
@@ -692,6 +665,33 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) 1st Austrian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D29830A77DF4C3B64D2CE62D8CB19979A1E8E16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823161   (117571) от 10.10.2025
+
+АИГЕЛ - Tatar Rave (2025) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electronic>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117571.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АИГЕЛ/Harddope - Killer qiz
+2. АИГЕЛ/uravnabeshen - Mäñgelek Yoldız
+3. АИГЕЛ - Tönyaq Balqışı (Om1ji Schranz remix)
+4. АИГЕЛ/FEARSTbeats - Хäzer Betä Ul(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D712B272C7C9907D837CD43F663CC4CA588C58
 ```
 
 

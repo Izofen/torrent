@@ -1,30 +1,3 @@
-###  Публикация: 1713421   (111904) от 06.04.2024
-
-MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_111904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - The Truth
-02. DJ T. - Dis (2023 Remake)
-03. Eitan Reiter - Pump Up The Jam (DJ T. Remix)
-04. RAFFA GUIDO - Famax(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2EE94C97AA54DD0BD47CD2BDB67FE508304F65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713153   (111914) от 05.04.2024
 
 VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -689,6 +662,33 @@ GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711125   (112534) от 29.03.2024
+
+VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Cosmic Gate & Christian Burns - Brave
+02.	Laura van Dam & Ginchy - Save Me (Progressive Pick)
+03.	Jaytech - Nebula
+04.	JODA - Spark (Jono Grant & Harry Diamond Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
 ```
 
 

@@ -1,3 +1,273 @@
+###  Публикация: 1587421   (192362) от 01.11.2022
+
+Colin James - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Carried Away
+02. I Will Remain
+03. Find My Home
+04. You Were Never Mine(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D9962B2F784828301606A59C5EF433CDBD0609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657545   (192581) от 03.09.2023
+
+VA - Oriental Deep 3 (2023) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KastomariN - Mindreader (7:23)
+02. Hraach - Dle Yaman (116 Deep Mix) (7:01)
+03. Stoto - Late Night - Original Mix (6:10)
+04. Bugra Atmaca - Lost - Jack Mode Remix (6:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6CD3B44A4F994BA6366000781A58EEAEB07787
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657138   (192839) от 02.09.2023
+
+VA - Shazam Хит-парад World Top 200 Август (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192839.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peggy Gou - (It Goes Like) Nanana (3:51)
+002. DOJA CAT - Paint The Town Red (3:51)
+003. Loreen - Tattoo (3:03)
+004. Olivia Rodrigo - vampire (3:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F3B5C62D05230A10A792F06E35659DB2AD469D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587253   (192858) от 30.10.2022
+
+VA - В машине с музыкой Vol.315 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bagardi  - Ты Опять Одинокий (02:45) 2022
+02. Mayone  - Feeling Blue (02:42) 2022
+03. Бубнова-Я  - Заново (03:41) 2022
+04. Lost Knights  - Hold On (02:19) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5AD469EA6808CA479E3DB63C399C611138775B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655902   (192973) от 02.09.2023
+
+VA - Trance In Motion Vol.364 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John O'Callaghan Official, Paul Skelton & Sue McLaren - Power Of Now (Acoustic vs. Extended Mix)
+02. Andy Newtz UK - When It's Time (Extended Mix)
+03. Asteroid - Flow State (Extended Mix)
+04. James Dymond - Layan Bay (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D226ED11E41EB21DC80E5C4D93C397E95BB9243B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655840   (193000) от 02.09.2023
+
+VA - Death And The Labyrinth (folk metal) (2023) 2CD [MP3|320 Kbps] <Metal, Pagan Metal, Folk Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amon Amarth - Guardians Of Asgaard [04:23]
+02. Obscurity - V Legion [04:48]
+03. Wulfgar - Circle of Runes [04:10]
+04. Eluveitie - Luxtos [03:55](   Читать дальше...   )Жанр: Metal, Pagan Metal, Folk MetalПродолжительность: 15:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C453D5854BF75D2FE77B67AC5952C99AF1D6015F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587080   (193165) от 29.10.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 28.10.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
+02. Barton - Running Up That Hill (4:58)
+03. Robin Schulz feat. David Guetta - On Repeat (3:10)
+04. Rosa Linn - SNAP (2:59)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9212C00BC05EDDBCBCE9D80F23FA55D8E5A5208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586951   (193228) от 29.10.2022
+
+VA - Rock & Blues Part 9 (2022) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragan Krle Jovanovic - Under My Bed
+02. Sonny Black and the Dukes - Blues Walkin' By My Side
+03. Jovan Lole Savic -  I Have This Life
+04. Daniel Castro - I'll Play the Blues for You(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AED8C347EF59387E7C16B8218241C88F6283411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587045   (193231) от 29.10.2022
+
+VA - В машине с музыкой Vol.314 (2022) MP30 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маракеш  - Танцуем, Моя Любовь (03:23) 2022
+02. Ycare & Madame Monsieur  - Tatoues (03:46) 2022
+03. Akila  - На Чёрном Мерине (03:12) 2022
+04. Тамара Кутидзе  - Я Хочу Сказать Тебе (02:54) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AA3F457C78CDBA49CDE55C22DD3E040A090E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586817   (193258) от 29.10.2022
+
+VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, Soul, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Are You Ready For Love (Extended Version) (08:31) 2022
+02. Wings - Goodnight Tonight (Long Version) (07:16) 2022
+03. Cliff Richard - We Don't Talk Anymore (12" Mix) (06:58) 2022
+04. Blondie - Heart Of Glass (12" Version) (05:48) 2022(   Читать дальше...   )Жанр: Electronic, Hip-Hop, Rock, Funk, Soul, PopПродолжительность: 05:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827766   (193273) от 23.10.2025
 
 VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
@@ -424,276 +694,6 @@ Part 1 (Discoteka):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CEDE1E5615DA14816F28BF440D237AB7319190
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652889   (194395) от 13.08.2023
-
-VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yolanda Be Cool - Segunda feat Jonjon Extended Mix (5:48)
-002. BLOND ISH - Call My Name (Extended Mix) (5:00)
-003. Eelke Kleijn - Time Machine (4:31)
-004. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C98137BB6083C4ADE85981CB479B6344FCAD95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651977   (194473) от 12.08.2023
-
-VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scary Goldings - Equal Parts Timing & Romance [03:16]
-002. Rahsaan Roland Kirk - I'll Be Seeing You [06:22]
-003. Joey DeFrancesco - More Music [06:05]
-004. Fernando Rusconi Hammond Organ Trio - Buga Buga Boogaloo [05:48](   Читать дальше...   )Жанр: Hammond, Instrumental, JazzПродолжительность: 21:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E56490A685022E7E108D42558586626641497BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651408   (194719) от 06.08.2023
-
-ДДТ (DDT) - This Is ДДТ (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это всё (7:54)
-02. Метель (7:32)
-03. Пасха (6:02)
-04. Расстреляли рассветами (5:53)(   Читать дальше...   )Жанр: RockПродолжительность: 03:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C184CF5D2E8F7E3B50668239090D1CCDB4EB36C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649909   (194892) от 31.07.2023
-
-VA - Свежий Русский Хит от ALEXnROCK часть 13 (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я небольшой почитатель современной поп музыки. Может что то зацепить, но выветривается очень быстро. Пока выбирал песни для сборника, переслушал много лажи. И ведь стараются, творят подобную шляпу. Музыки нет, есть звуки. Мужская лирика превратилась в примитивное нытье. Подростки непонятно что, мямлят дебильными голосами блеющих баранов, маты пихают везде. Подобное (   Читать дальше...   )01. Сергей Лазарев - Вкус Малины
-02. Ella - Танцевать
-03. Те100стерон - Нет Ответа
-04. Минаева feat. Егор Сесарев - Где Не Будет Слез(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E3F55CB0B5176B0AD5607EF7DF6AD4342F7FE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650163   (194979) от 31.07.2023
-
-VA - Музыка для машины Vol.36 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_194979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ольга Шультайс - Посвящаю (03:10)
-02. Братья Егоровы - На Дачу (03:18)
-03. Lurum Feat. & That Girl - The Way It Goes (03:47)
-04. Сюзанна - Не Чета (Yuri Usachev Remix) (02:36)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B159711A0187062DD2C160ED58A45C36598F12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648329   (195122) от 28.07.2023
-
-VA - Музыка для машины Vol.34 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_195122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Braaten Feat. & Aron Matthews & Matthias Nebel - Meet Me At The Sunset (02:44)
-02. Hande Yener - Hoscakal (03:50)
-03. Mitchel Feat. & Gidayyat - Джаман (02:25)
-04. Erin - Не Остаться С Тобой (03:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D1DE2749C732D5C55B0EC66C0AEA4F9177F5AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648887   (195194) от 25.07.2023
-
-VA - Ремейки и каверы NNM 5 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_195194.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spiller - Groovejet - Purple Disco Machine & Lorenz Rhode Remix (7:06)
-002. Masove - Destination Calabria (6:54)
-003. A'Studio - SOS (feat. Polina) - Skylark Remix - Nic Fanciulli Edit (6:40)
-004. Jen Payne - Toca's Miracle - Kevin McKay Remix (6:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C79A2ED4145A6942F4488D3C12B4525AE473B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648648   (195314) от 24.07.2023
-
-VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_195314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jax Jones feat. Calum Scott - Whistle (3:01)
-02. Amirchik - Молчание (2:55)
-03. Filatov & Karas - Мимо Меня (3:03)
-04. Dua Lipa - Dance The Night (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88E0F6144685F7B1BF16A011DF50759644E8D77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648586   (195353) от 23.07.2023
-
-VA - Summer Hits (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_195353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mau P - Drugs From Amsterdam (5:23)
-02. Luis Fonsi - Despacito (4:41)
-03. SZA - Kill Bill (4:35)
-04. Sam Smith - Unholy (feat. Kim Petras) (4:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D020CBDE6335B769E9724F50B7EACB1D35FE448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623868   (195497) от 18.07.2023
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 3 (2023) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_195497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pablo Fierro - Djambo (David Montoya remix, 2013) (5:58)
-02. Djeff - Labyrinth (Atjazz remix, 2018) (6:17)
-03. Pablo Fierro - El Dia De Mi Suerte (2011) (4:17)
-04. Soul Minority - Take Me to the Rhythm (Johnwaynes remix, 2010) (6:37)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898E380CCD393384DC8B2A34E4D88FB629C8986F
 ```
 
 

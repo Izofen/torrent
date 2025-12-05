@@ -1,108 +1,3 @@
-###  Публикация: 1669175   (172998) от 15.10.2023
-
-Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_172998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dippin My Feet
-02. Letting Go
-03. Golden Hour
-04. Never Gonna Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B319D32A9B627BB7DE5D69B2BAECFA700633734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668865   (173185) от 14.10.2023
-
-LKDR and Aria - Maria Magdalena (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_173185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena (3:55)Жанр: Deep House, Euro-HouseПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9892682412590A59A7B4F224ACC29C002D74EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669042   (173200) от 14.10.2023
-
-Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_173200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything You Have Done [00:02:36]
-02. Upside Down [00:02:54]
-03. Friends [00:02:37]
-04. Ecstasy [00:02:19](   Читать дальше...   )Жанр: Pop DanceПродолжительность: 00:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831F2BCA2BF031430A6EE50C5DC27976C4B9C26D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668723   (173317) от 13.10.2023
-
-Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_173317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bee Gees (рус. Би Джиз) - британско-австралийская музыкальная группа, основанная в 1958 году. Состояла из троих братьев: лидера-вокалиста Барри Гибба, второго лидера-вокалиста Робина Гибба и клавишника-гитариста Мориса Гибба. Мировые продажи пластинок группы превышают 220 миллионов копий, что делает их одним из самых успешных коллективов в истории музыкальной индустрии. (   Читать дальше...   )Список альбомов:
-1967 - The Bee Gees 1st (RSO, MW 2069, Japan, Reissue 1973)
-1968 - Horizontal (ATCO Records - SD 33-233, US)
-1968 - Idea (Polydor - 583036, UK)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 14:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0DBF2D847A8372BCD2A1F3324FB958CFEB704C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826887   (173578) от 19.10.2025
 
 AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco>
@@ -698,6 +593,114 @@ VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F699160A838D2B2CA477A47C484894F0008B465B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667426   (176016) от 09.10.2023
+
+VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Janet Jackson - Together Again [05:01]
+002. Jessie J - Domino [03:51]
+003. Agnes - Here Comes The Night [03:32]
+004. Lorde - Supercut [04:38](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667435   (176054) от 09.10.2023
+
+VA - Solo Divas Volumen 3 (2023) [MP3|320 Kbps] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cece Peniston - Finally [04:05]
+002. Chaka Khan - I Put A Spell On You [02:20]
+003. Mary J. Blige - Sweet Thing [03:42]
+004. Whethan - High [03:17](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CC980E43F0F25EF994A19277444D7523305189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667430   (176060) от 09.10.2023
+
+VA - Solo Divas Volumen 2 (2023) [MP3|320 Kbps] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mary J. Blige - Family Affair [04:28]
+002. Lady Gaga - Do What U Want [03:37]
+003. Diana Ross - I Still Believe (Purple Disco Machine Remix) [03:40]
+004. Gloria Gaynor - This Love Affair (Single Version) [02:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B865009FBA542E78462F4573DB67248096309558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595279   (176123) от 04.12.2022
+
+VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy (2:36)
+02. OneRepublic - I Ain't Worried (2:28)
+03. The Weeknd - Blinding Lights (3:21)
+04. Post Malone - I Like You (A Happier Song) (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1610777   (207796) от 09.02.2023
-
-VA - Romantic Collection. Italian (1999) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_207796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toto Cutugno–	L'italiano
-02. Matia Bazar–	Solo Tu
-03. Adriano Celentano–	Il Tempo Se Ne Va
-04. Umberto Tozzi–	Tu(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DBA55ED06EF06812B6C378200BAF723A5236B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610469   (207812) от 09.02.2023
-
-VA - Romantic Collection. France (1998) [OGG Vorbis|480 Kbps] <Rock, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_207812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Dassin–	L'Ete Indien
-02. Patricia Kaas–	Mon Mec A Moi
-03. Charles Aznavour–	Il Te Suffisait Que Je T'Aime
-04. Ennio Morricone–	Le Vente, Le Cri (From The Film "Le Professional")(   Читать дальше...   )Жанр: Rock, Pop, VocalПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6735B48CE3B894885D26C3F8BAEB7A5CD107B806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610948   (207846) от 09.02.2023
 
 Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,6 +638,60 @@ magnet:?xt=urn:btih:37E726F9D4C59DADB3816324373EB16C640B7C0E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA5CEF07804A7EC9E25DCA1CB660C308B6FB56F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643633   (209956) от 02.07.2023
+
+Назарій Яремчук – Краще (2018) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Червона рута
+02. Полісяночка
+03. Одинокий вожак
+04. Гай, зелений гай(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073CF7870939F1B409F5128F655BFAB3389E7A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643632   (209975) от 02.07.2023
+
+Галина Егорова - Популярные песни 30-60 годов (1996) [MP3|320 Kbps] <Retro, Folk>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подари мне платок
+02. И кто его знает
+03. Ивушка зеленая
+04. Ой, метель(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D4ECDD29918DD092B5368A3577D383C7E0616B
 ```
 
 

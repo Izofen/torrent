@@ -1,84 +1,3 @@
-###  Публикация: 1627245   (243199) от 18.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanello & Steven Kimber - S.O.S. for Love (Maxi Version)
-02. Lenroy - Do You (Extended Version)
-03. TQ - Let's Go To Tokyo (Axel Remix)
-04. Siberian Heat - Magic Blue Eyes (Long Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B5DE2AAC0BEC207AE15EE300A3EF2DCC1EB6A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623349   (243228) от 01.04.2023
-
-VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyndi Lauper - Girls Just Wanna Have Fun
-02. Rick Astley - Never Gonna Give You Up
-03. Altered Images - I Could Be Happy
-04. Dead Or Alive - You Spin Me Round (Like A Record)(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DE3E3ACA7601BBFF98675AFF6D9C6E17CC4473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627365   (243245) от 18.04.2023
-
-Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Dance Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Er liebt dich nicht [00:03:11]
-02 - Nimm Anlauf [00:03:38]
-03 - Der hellste Stern der Welt [00:02:56]
-04 - Sieger der Herzen [00:03:04](   Читать дальше...   )Жанр: Dance Pop, EuropopПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626788   (243282) от 17.04.2023
 
 Irene Cara - Fame (1983) Netherlands 12" Single [MP3|320 Kbps] <Disco>
@@ -685,6 +604,87 @@ Whitney Houston - Don't Cry For Me (2023) The Remixes [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D5C7579A4B53E46E28B342BCC30609EAF31F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631894   (244464) от 08.05.2023
+
+VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie Martinez - VOID
+02. NLE Choppa - SLUT ME OUT
+03. Zach Bryan - Something in the Orange
+04. Yng Lvcas, Peso Pluma - La Bebe (Remix)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 03:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B72A5B5DBC0272385A72EBD680C231AC66EB098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452756   (244473) от 07.03.2021
+
+tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One World (3:51)
+02. Made to Love (3:50)
+03. Boomin' / Opera Trip Interlude (4:03)
+04. I'm for You (3:47)(   Читать дальше...   )Жанр: Pop, Hip-HopПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AD556F658D3BD5D1F6A39C58F01489139E9278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631917   (244487) от 08.05.2023
+
+VA - That 70’s Summer (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart – Drift Away 3:46
+02. Maxine Nightingale – Right Back Where We Started From 3:12
+03. Randy Newman – Mama Told Me Not To Come 2:11
+04. Roberta Flack – Killing Me Softly With His Song 4:47(   Читать дальше...   )Жанр: Pop, Soft Rock, RockПродолжительность: 04:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22F71FF209DDB9A62769255379B200F7D92EE5D
 ```
 
 

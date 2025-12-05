@@ -1,3 +1,57 @@
+###  Публикация: 1067440   (244810) от 29.10.2016
+
+VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Austin - I.O.U. (Radio Version) 03:33
+02. Winman - Fade To Grey 03:37
+03. Scotty - Westend Girls (2Nd Mix) 03:18
+04. Topaz - The Great Commandment 03:28(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F3888AF411646E070C28844107E40A42AE5CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625072   (244824) от 08.04.2023
+
+VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Ryasnyansky - Escape From Reality (Original Mix) [5:34]
+02. Miroslav Vrlik & Cold Runner - Rise Above Them (Original Mix) [3:26]
+03. Onstream89 - Infinite Moment (Original Mix) [7:15]
+04. Future State - Alien Escape (Original Mix) [5:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498EA93E1DDE0CE14D8702D8AF41ABD28EC6A1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631563   (244827) от 06.05.2023
 
 VA - Top 5 April 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -637,60 +691,6 @@ VA - A Chillout Affair (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63AFC5DA7EF5B85CE194B4036E87DEA250225E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565966   (245667) от 26.07.2022
-
-Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245667.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Hyper Violent:
-01. When The Trumpets Of Hate Blow 2:56
-02. Broken Empires 4:31
-03. Acts Of Aggression 5:15(   Читать дальше...   )Жанр: EBM, ElectroПродолжительность: 01:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3817E94CB66638A032565F6FCDCEAF638D8E94AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448799   (245670) от 19.02.2021
-
-LDA - Shattered Feelings. (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shattered Feelings (Original Mix) (06:40)
-02. Blue Lights (Original Mix) (06:47)
-03. You Are Mine (Original Mix) (05:59)
-04. Let Me Take Your Hand (Original Mix) (06:02)Жанр: Drum & BassПродолжительность: 00:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BC3593AFF0D0A62D65212034A3DA81BD06139F
 ```
 
 

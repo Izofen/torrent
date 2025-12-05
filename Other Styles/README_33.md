@@ -1,30 +1,3 @@
-###  Публикация: 1647520   (231510) от 19.07.2023
-
-Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_231510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I've Got To Say (3:04)
-02. Next In Line (3:07)
-03. Body And Fender Man (2:38)
-04. Love Me (3:16)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635136   (232236) от 27.05.2023
 
 Василий Васин (Вася Васин) - Песни казаков (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
@@ -692,6 +665,33 @@ Blick Bassy - Madiba (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Africa>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE937C855DC299B1B3D10D18584B17B78AFF65E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636437   (240763) от 30.05.2023
+
+Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk, Americana>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fare Thee Well My Dearest Dear (3:17)
+02. Lost in a Wood (3:00)
+03. The Captain with the Whiskers (2:47)
+04. June Apple (1:53)(   Читать дальше...   )Жанр: Folk, AmericanaПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4150BBA32A7376A834E1C4FB9C22BEED1145D6F6
 ```
 
 

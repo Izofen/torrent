@@ -1,84 +1,3 @@
-###  Публикация: 1343423   (218494) от 06.12.2019
-
-Анна Плетнёва "Винтаж" - Cinematic (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_218494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Буду
-3. Королева мэйнстрима
-4. Мантра(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AD25B9532F9F776E76646B3A5EA8039AF97E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343214   (218544) от 06.12.2019
-
-Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Pop-Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_218544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crush (3:20)
- 02. Always You (4:05)
- 03. Sober (4:06)
- 04. Stranded (3:37)(   Читать дальше...   )Жанр: Electronic, Pop, Pop-Rock, BalladПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E59FADF20C513592E1420EFEA84B156051C0AF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343441   (218573) от 06.12.2019
-
-Анна Седокова - Про любовь (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_218573.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Игристое, детка!
-2. Грааль
-3. Алые губы
-4. Стильная(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6082E70875609EF3981D1FA12816C8EBA61E81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343185   (218585) от 06.12.2019
 
 VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -695,6 +614,87 @@ VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D60565BA627BAC8C4E75A82EDE1FE4F719F3BCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585865   (219533) от 24.10.2022
+
+VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julian Sommer - Dicht im Flieger
+02. Micha von der Rampe - Partyanimal
+03. Mickie Krause - Eine Woche wach
+04. HBZ - Gasteliste +1(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:43:41 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF6E45B6CD0BF7224AE2D7F4B4889980956D109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585869   (219551) от 24.10.2022
+
+VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almklausi - Wir machen mit bei der Rettung der Erde
+02. Tim Toupet feat. Lorenz Buffel - Pietro Lombaaadi
+03. Schafer Heinrich - Ich hatte heut schon Sex
+04. Biervampir - Biervampir(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:08:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FF8679A7B7346CDE6D6DA4AE5246DF286DFA55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585856   (219559) от 24.10.2022
+
+VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie Mueller Joerg Draeger - Fuer eine Nacht
+02. Celina Mars - Heut Nacht
+03. Nancy Franck - Korken knallen
+04. Marry - Wir feiern den DJ(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6F905FEAA2FD136699B1E7D444722768AD4243
 ```
 
 

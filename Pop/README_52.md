@@ -1,30 +1,3 @@
-###  Публикация: 1690355   (123961) от 07.01.2024
-
-VA - 80s Lost & Found (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_123961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A-Ha - The Sun Always Shines on T.V.
-02.  Tina Turner - Private Dancer
-03.  Duran Duran - Save a Prayer
-04.  Fleetwood Mac - Big Love (2018 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706F4FA027BEE022593CE34A4F0CD547FFAF529B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690198   (124043) от 06.01.2024
 
 Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop/R&B>
@@ -690,6 +663,33 @@ Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686326   (126587) от 22.12.2023
+
+VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Bobo - What About My Broken Heart
+02. Snipers - Fire
+03. Black Diamond - Go With Love
+04. D.J. Wondermike - Take Me Away(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8CEACCC3F335BC6AACC12CB0B172FF021150BC
 ```
 
 

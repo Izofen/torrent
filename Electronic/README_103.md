@@ -448,33 +448,6 @@ magnet:?xt=urn:btih:D11CA6A81B0772FBF7671E7A184932A5CD2A786E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566129   (157246) от 13.12.2012
-
-Various Artists - Plastic City (LP&EP) 2012 [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_157246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Higher End (original mix) (05:35)
-02. When I Change (original mix) (08:25)
-03. Unrest Of Spirit (original mix) (06:16)
-04. Dobare (original mix) (06:27)Жанр: House, Tech House, Deep HouseПродолжительность: 00:26:44
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 390616   (157284) от 18.12.2021
 
 Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
@@ -686,6 +659,33 @@ VA - World Sound The Best Of 2022 [MP3|320 Kbps] <House, Funky House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B4D4716E55554C3326719F929B4443D7FA4070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518197   (157814) от 18.12.2021
+
+VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - A Voyage to Nowhere (04:35)
+02. Mare et Monti - The Beauty of Things (04:00)
+03. Buddhatronic - Ambervox (04:00)
+04. Artenovum - An Angel Voice (Soundpleasures Mix) (05:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1143B58C3E9C1B475B8173A7A1C4F1F6596DB70E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1624098   (245425) от 04.04.2023
+
+Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:40]
+02. Grotesk [00:03:55]
+03. Man-Made Tragedy [00:03:08]
+04. H.E.L.L. [00:03:51](   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BA26EFB3B75E4C7A978EC3DFBC614E1C9C5BD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624100   (245432) от 04.04.2023
 
 Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
@@ -106,73 +133,6 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749497682498C54B2319D25D8CF38C97C4BD154A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493807   (249217) от 09.05.2012
-
-Die Krupps - 4 Альбома (1992 - 1997) [FLAC|Lossless]<Electronic, Industrial, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 		Moving Beyond 	4:25
-02. 		The Gods Of Void 	4:26
-03. 		Paradise Now 	5:00
-04. 		Black Beauty White Heat 	   5:04
-05. 		Reconstruction 	4:28
-06. 		Behind    	1:35
-07. 		Taste Of Taboo    	5:35
-08. 		Rise Up    	3:39
-09. 		Fire    	3:13
-10. 		Full Circle 	   4:01(   Читать дальше...   )Жанр: Electronic, Industrial, Heavy MetalПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492969   (249244) от 09.05.2012
-
-Faith No More - The Platinum Collection (2006) [FLAC|Lossless]<Alternative Rock, Funk Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Faith No More — американский музыкальный коллектив, сформированный в Сан-Франциско. Существовал с 1982 года по 1998 год.
-В феврале 2009 Faith No More объявили о воссоединении. В июне 2009 года они впервые за 11 лет появились вместе в Brixton Academy в Лондоне (Англия) и стало известно (   Читать дальше...   )01. From Out of Nowhere :: 03:23
-02. Epic :: 04:54
-03. Falling to Pieces :: 05:12
-04. Midlife Crisis :: 04:20
-05. A Small Victory :: 04:55
-06. Evidence :: 04:54
-07. Last Cup of Sorrow :: 04:17
-08. Ricochet :: 04:30
-09. Caffeine :: 04:28
-10. Everything's Ruined :: 04:33(   Читать дальше...   )Жанр: Alternative Rock, Funk Metal, Hard RockФормат: CD, CompilationПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -288,39 +248,6 @@ Stereophonics - британская рок-группа. Основана в 19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496573   (252954) от 14.05.2012
-
-Garbage - Not Your Kind Of People (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Automatic Systematic Habit
-02. Big Bright World
-03. Blood For Poppies
-04. Control
-05. Not Your Kind Of People
-06. Felt
-07. I Hate Love
-08. Sugar
-09. Battle In Me
-10. Man On A Wire(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -756,6 +683,60 @@ Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF0DBB2D85C439999E337C5109DEF482F1C23A22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267711   (264886) от 08.12.2018
+
+Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pollution (3:49)
+ 02. The Propaganda (5:17)
+ 03. Build A Bridge (3:58)
+ 04. The Story (3:52)(   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F0AB5AB598E4D8F44CEC7AAC1215F676BCB5AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267719   (265812) от 07.12.2018
+
+Shadows - illuminate (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_265812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further Away (3:01)
+ 02. Senses (1:52)
+ 03. Chain Reaction (3:23)
+ 04. Into The Line (2:53)(   Читать дальше...   )Жанр: Melodic Hardcore, PunkПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB39D6D4240E0B63A380EC07242078E0A6CDC46
 ```
 
 

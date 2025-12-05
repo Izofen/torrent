@@ -1,3 +1,57 @@
+###  Публикация: 1648647   (230658) от 24.07.2023
+
+Kerala Dust - Violet Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Downbeat, Electroacoustic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbeam, Midnight, Howl (5:41)
+ 02. Violet Drive (5:24)
+ 03. Shake (0:21)
+ 04. Red Light (3:57)(   Читать дальше...   )Жанр: Deep House, Organic House, Downbeat, ElectroacousticПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B319CF3D31B5DABE2A7B6C2B42BDC9A9C7FA518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648730   (230662) от 24.07.2023
+
+VA - Bossa N' Elvis (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Bossa Nova>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michelle Simonal - Don't Be Cruel (2:51)
+02. Sarah Menescal - Always On My Mind (3:15)
+03. Cassandra Beck - Burning Love (2:50)
+04. Karen Souza - Can't Help Falling In Love (Bossa Mix) (3:08)(   Читать дальше...   )Жанр: Balearic, Downtempo, Bossa NovaПродолжительность: 00:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20581F924EF834FEAE44FC54AF4E069D967B77A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648677   (230689) от 24.07.2023
 
 VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -641,60 +695,6 @@ Landscape - Xcursions 2 Other Versions (2023) [MP3|320 Kbps] <New Wave, Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEFD701654EB44DB7FF34CC3B0775ABC571302F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648234   (231342) от 23.07.2023
-
-VA - Wonderful Trance Tracks (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_231342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gilbert Carrizales - Pale Blue Dot [07:40]
-02. Veselin Tasev - Angelic Stars (Extended Mix) [08:53]
-03. Aj Antares - The Dreamer (4Am Mix) [07:01]
-04. Mauro Rizzo - I Love Trance Music [05:41](   Читать дальше...   )Жанр: TranceПродолжительность: 05:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A88CB71ADF5E5CB694202964ABFB6E2DA8A1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646705   (231369) от 20.07.2023
-
-VA - Summer Mix 2023 Beach Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_231369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chico40 - Better Off [03:40]
-02. Abee Sash - When I First Saw You [03:31]
-03. Cristian Ferrer - Not Alone (Radio Edit) [03:53]
-04. Magthegreat - Cry [03:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5761E765D3D44C2D3C3BA08CB276443868E8ACB2
 ```
 
 

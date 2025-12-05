@@ -1,138 +1,3 @@
-###  Публикация: 1191033   (264464) от 13.12.2017
-
-Бамбинтон - Альбом года (2017) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зая
-02. Красавица и чудовище
-03. Созданы звёздами
-04. Камбэки(   Читать дальше...   )Жанр: РорПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990A36C2846FB2D193A917F1DE0E4A5ED374D69D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191256   (264472) от 13.12.2017
-
-VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Piano>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264472.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Ed Sheeran  -  This Year's Love (Recorded for BBC Radio 2)  2:36
-02.  Sam Smith  -  Stay With Me (Recorded for BBC Radio 2)  3:26
-03.  George Michael  -  Let Her Down Easy (Live From Prague Opera House, 2011)  3:41(   Читать дальше...   )Жанр: Pop, Easy Listening, PianoПродолжительность: 02:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D755AC0E12041C376EA38E90112BD80127E83D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191165   (264473) от 13.12.2017
-
-St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang on Me (02:48)
-02. Pills (04:40)
-03. Masseduction (03:17)
-04. Sugarboy (04:01)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Electropop, New Wave, Ambient RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191301   (264475) от 13.12.2017
-
-VA - Italo Disco - The Lost Legends Vol. 7 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fockewulf 190 - Gitano (6:04)
-02. Middle Ages - Stop Your Lies (6:12)
-03. Nord Est - Overnight (6:08)
-04. Bandeaux - Black And White (6:44)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82020FE3A1047608E7D1628703BD43C7408C2824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191517   (264482) от 13.12.2017
-
-Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Press Restart
-02. Headphones
-03. One Foot
-04. Surrender(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A81DDE99C911469706B74536E32053CC9A84D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339878   (264573) от 21.11.2019
 
 Ласковый Май - Золотой альбом (2003) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -695,6 +560,141 @@ VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267030   (268382) от 04.12.2018
+
+Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_268382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellite (2:56)
+ 02. Let The Music Play (3:14)
+ 03. It's Not Easy (3:13)
+ 04. The Zoo Song (3:21)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266988   (268391) от 04.12.2018
+
+VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_268391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tw3lv, Jack Wilby - Together
+02. Lulleaux, Giang Pham - Contact
+03. Afsheen, Rebecca Ferguson - Uncrazy
+04. Lny Tnz, Catali - Secrets(   Читать дальше...   )Жанр: Club, Vocal, Groove, Indie DanceПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266865   (268425) от 04.12.2018
+
+Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_268425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Bring Me to Life
+02 – Flames
+03 – Life Is a Rollercoaster
+04 – Don’t Stop Believin’(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338760   (268843) от 16.11.2019
+
+VA - Best Of Eurobeat Hi - Nrg Style (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_268843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irene – Sunday (radio version) (3:19)
+02. Ricky Visconti – Man Is For Woman (radio version) (3:04)
+03. Masha – Never Before (radio version) (2:43)
+04. Riki Visconti – You Make Me Feel So Blue (radio version) (3:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62296F9E4DADA5EFDC8619F7F00E4D5880B14EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190098   (268892) от 08.12.2017
+
+Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_268892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Outside Your Love (3:01)
+02. Lost In Wonderland (4:12)
+03. Don't Make It So Hard (3:20)
+04. Love Insight (5:01)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542671E7DC8D4819C81A5C2212B30F12960B2EAE
 ```
 
 

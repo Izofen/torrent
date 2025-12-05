@@ -1,57 +1,3 @@
-###  Публикация: 1615787   (202169) от 27.02.2023
-
-Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_202169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phenomenon [05:50]
-02. Pulse [07:15]
-03. Storm (2023) [04:20]
-04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654838   (202249) от 23.08.2023
-
-Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_202249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning on the Mesa
-02. Ghosts of the Canyons
-03. Trail of the Ancients
-04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614455   (202330) от 23.02.2023
 
 VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
@@ -693,6 +639,60 @@ magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604927   (209877) от 16.01.2023
+
+ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_209877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend (3:00)
+02. Waterfall (4:11)
+03. Arabica (6:00)
+04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661040   (210447) от 14.08.2022
+
+VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
+02. Scooter - Fire (03:14)
+03. KMFDM - Megalomaniac (04:19)
+04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
 ```
 
 

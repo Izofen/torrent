@@ -1,3 +1,175 @@
+###  Публикация: 589095   (152763) от 14.12.2012
+
+Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]<Dub Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 J.Viewz - Oh, Something's Quiet (BeatMagik Remix)
+02 La Roux - I'm Not Your Toy (Nero Remix)
+03 J.Rabbit - Ninja GaidenЖанр: Dub StepПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE482057B39F5A40B41201BFCD21370C3E2B78C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434046   (152926) от 23.12.2020
+
+VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Korol i Shut - Кукла колдуна (3:22)
+002. GAYAZOV$ BROTHER$ - Увезите меня на Дип-хаус (2:56)
+003. Markul - B.I.D (3:12)
+004. Drake - Toosie Slide (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B99E516B0612288459FC366C6C36347658E522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086397   (152964) от 24.12.2016
+
+VA - The Best Lounge Vol.46(Compiled by Sergio) (2016) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Bonnee - Soundscapes (Lounge Atmosphere Mix)
+02. 2 Illusions - Lone Wanderer
+03. Dancing Fantasy - Midnight Blvd.
+04. Croone - Never Met a Dream(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AD2610055B9328452D1DE9721F007997438100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434218   (153014) от 23.12.2020
+
+VA - Rock Classics 60s-80s: Remastered Version (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок - это, пожалуй, единственный стиль, интерес к которому не угасает с годами, а рок-хиты никогда не выходят из моды. Подтверждением тому служит большое количество ремиксов и кавер-версий на знаменитые рок-хиты всех времен. Представляем вам сборник рок-композиций, ставших уже классическими, но не утратившими своей популярности среди современных меломанов.001. The Everly Brothers - Cathy's Clown
+002. The Band - This Wheel's On Fire
+003. Genesis - Invisible Touch
+004. The Clash - Police On My Back(   Читать дальше...   )Жанр: RockПродолжительность: 12:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073B42FE511388AF03E6777C10B6F43C984125A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588627   (153138) от 14.12.2012
+
+VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aly & Fila Feat. Jwaydan - We Control The Sunlight (Original Mix)
+2. Parka feat. Anna Basel - Momentarily Gone (Mike Nichol Remix)
+3. Trance Arts featuring DaJan - Beneath The Shadows (Astuni Remix)
+4. Steve Allen & Ian Holing Feat. - Control It Down (Aurosonic Mas
+5. Smart Apes Vs DJ Anna Lee - Running Away (Fat Kid Remix)
+6. Noel Gitman - Endless Love Oen Bearen Remix
+7. Shogun Feat Emma Lock - Run To My Rescue (Original Mix)
+8. A.T.M. - Broken Dreams (Mindful Innovations Remix)
+9. Fast Distance - Pacifica (Temple One Remix)Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 06:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3C39835694E25DC0B21699CED7BF9863E2F46D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588013   (153172) от 14.12.2012
+
+VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Albin Myers feat. Tiesto vs. Depeche Mode - Maximal Hells Bells, Jesus! (Riverhouse Bootleg)
+2. Andrew Bennett - Roadtrip
+3. Arno Cost - Lifetime
+4. Audien - Sup
+5. Benny Benassi - House Music
+6. Benny Benassi feat. Pink Is Punk - Perfect Storm
+7. Duvoh feat. Tess Marie - Come Over (Deorro Remix)
+8. Far East Movement - Dirty Bass (James Egbert Remix)
+9. Fedde Le Grand feat. Nicky Romero vs. Matthew Koma - Sparks (Jochen Miller Remix)
+10. Franky Rizardo feat. Roul And Doors - Elements (Hardwell feat. Dannic Remix)(   Читать дальше...   )Жанр: House/Electro House/ElectroПродолжительность: 02:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434222   (153246) от 23.12.2020
 
 VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
@@ -532,168 +704,6 @@ VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347000   (154152) от 22.12.2019
-
-VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_154152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LadBaby - I Love Sausage Rolls New Entry
-02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086145   (154189) от 23.12.2016
-
-VA - Лучшие хитовые треки в стиле Industral Rock & Nu Metal от LORDEGRAF (2016) [MP3|96-320 Kbps] <Industral Rock & Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_154189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Alter Bridge - Blackbird [07:58]
-02.	Black Light Burns - Lie [04:19]
-03.	Blindside - Swallow [02:25]
-04.	Breaking Benjamin - Breath [03:39](   Читать дальше...   )Жанр: Industral Rock & Nu MetalПродолжительность: 06:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194789   (154190) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_154190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Георг Отс  -  Мы с тобой не дружили  2:50
-02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
-03.  Олег Даль  -  И солнце всходило  3:20
-04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194740   (154201) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 20) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_154201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе  -  Пожелание  3:13
-02.  Эдуард Хиль  -  Так уж бывает  2:24
-03.  Марк Бернес  -  Любимый город  2:30
-04.  Олег Даль  -  Есть только миг  3:18(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194734   (154219) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 19) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_154219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Марк Бернес  -  Журавли  4:14
-02.  Иосиф Кобзон  -  Тёмная ночь  3:27
-03.  Муслим Магомаев  -  Верни мне музыку  3:55
-04.  Георг Отс  -  Гаснут зори  3:47(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270903   (154239) от 21.12.2018
-
-VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_154239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker & Tomine Harket - Darkside (Original Mix)
-02. Anna Naklab feat. Alle Farben & Younotus - Supergirl
-03. Armin Van Buuren & Trevor Guthrie - This Is What It Feels Like
-04. ATB feat. Sean Ryan - Never Without You(   Читать дальше...   )Жанр: Dance, SpacesynthПродолжительность: 02:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063346D34271EE39A5E6F68D4A7325018B0E140E
 ```
 
 

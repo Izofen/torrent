@@ -1,3 +1,273 @@
+###  Публикация: 1030573   (671828) от 01.07.2016
+
+ППК - Воскрешение Hey DJ' (2001) [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Classic Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_671828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ППК - Воскрешение (Space Club Mix) (8:03)
+02. ППК - Воскрешение (Wellenrausch Remix) (6:49)
+03. ППК - Воскрешение (B-Power Techstyle Mix) (5:29)
+04. ППК - Воскрешение (PartyZans Promo Mix) (9:41)(   Читать дальше...   )Жанр: Classic TranceПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3856276722A3F455A78E00D2DCAD31C812BD6DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030749   (671966) от 01.07.2016
+
+Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <Electronic, Ambient, Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_671966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Okhotsk Fantasy    11:46
+2.    Pavane Pour Une Infante Dfunte    07:16
+3.    Ma Mere L’Oye Suite: Pavane De La Belle Au Bois Dormant    01:55
+4.    Petite Poucet    03:52(   Читать дальше...   )Жанр: ambientПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4563EAF03CA3A4E9C8CA406F8296137F448C16A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290726   (672115) от 23.03.2019
+
+VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Euro House, Hip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_672115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.B. Milton - It's A Loving Thing
+02. Tranceformer Feat. Neil - Let Your Mind Dive
+03. Bad Boys Blue - My Love For You
+04. Tag Team - Whoomp! (There It Is)(   Читать дальше...   )Жанр: Disco, Euro House, Hip HopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029852   (675708) от 29.06.2016
+
+Кино - Атаман (2013)  [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_675708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра - Иной креатив 2009-(03:08)
+02. Атаман 2012-(04:13)
+03. Группа крови 2009-(04:10)
+04. Звезда по имени Солнце (фанатский микс)-(03:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C908236D3168D01E78E58983A4A44C078CE2CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210840   (778047) от 05.03.2018
+
+Алла Пугачёва - Виниловая коллекция (1977-1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778047.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Iceberg
+A2 The Rope-Dancer · Канатоходка
+A3 Leningrad · Ленинград
+A4 A Woman Who Sings · Женщина Которая Поeт(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 10:06:51 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210826   (778426) от 04.03.2018
+
+Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak To Me (1:08)
+02. Breathe (In The Air) (2:49)
+03. On The Run (3:44)
+04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377963   (781360) от 19.06.2020
+
+Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_781360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side (3:55)
+ 02. Like I've Never Been Gone (5:58)
+ 03. Big Log (5:07)
+ 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204978   (783986) от 08.02.2018
+
+Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Everything You Got (4:38)
+ 02. Damn Your Eyes (4:34)
+ 03. Black Coffee (4:15)
+ 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116120   (824358) от 19.03.2017
+
+Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_824358.jpg" />
+</div>
+
+
+###  Подробнее
+
+side A
+A1 It's A Heartache
+A2 Blame Me
+A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006983   (824796) от 13.04.2016
+
+Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_824796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    600 Years    06:25
+2.    Naked Love    05:36
+3.    The Journey    05:55
+4.    Earthbound    04:06(   Читать дальше...   )Жанр: new ageПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA554F97074C6D2723914B3346F7036251221D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 654327   (824907) от 10.05.2013
 
 Ambra – Child Of The Universe (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <New Age, Electronic, Ambient>
@@ -421,168 +691,6 @@ A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380624   (832820) от 03.05.2020
-
-The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_832820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss You (4:49)
- 02. When the Whip Comes Down (4:21)
- 03. Imagination (4:39)
- 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380462   (832949) от 03.05.2020
-
-Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_832949.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
-Norman Gimbel, Michel Legrand, Jaques Demy
-A2. Didn't We
-Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501854   (833536) от 11.10.2021
-
-Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_833536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic (Remixed Extended Version) [00:05:09]
-02. Radiate (Remix) [00:04:22]
-03. Radio Station (Extended Version) [00:05:02]
-04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461760   (1021538) от 11.04.2021
-
-Эдвард Григ - Пер Гюнт (1967) БСО Всесоюзного Радио, дир. Г. Рождественский [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1021538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пер Гюнт. Сюита N1, соч.46.
-A1 Утро / Dawn
-A2 Смерть Озе / Death Of Ase
-A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461738   (1021607) от 11.04.2021
-
-Ивао Судзуки - Гитара (1985) 1970, mono (repress) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1021607.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Шесть Пьес Для Лютни
-A2 Павана
-A3 Матацин (Медленный Испанский Танец)
-A4 Прелюдия Из Сюиты №1 Для Виолончели(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461534   (1021712) от 10.04.2021
-
-Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1021712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto E-dur , Op. 8 No.1, RV 269, ''Spring''/ми мажор, RV 269 «Весна»
-A1 Allegro
-A2 Largo
-A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
 ```
 
 

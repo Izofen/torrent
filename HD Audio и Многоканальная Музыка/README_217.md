@@ -1,3 +1,57 @@
+###  Публикация: 1625088   (241674) от 10.04.2023
+
+Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241674.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Will I Ever Understand You 4:40
+A2 You Don't Know 4:26
+A3 Like Flames 5:05
+A4 Heartstrings 4:12(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC8B698DFA02D4A202F04037009F6B22199B0F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625380   (241702) от 10.04.2023
+
+Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side-A
+
+01. Rocket
+02. Believer(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71250EB162EEF4B4B01EC1FB5B23A5CCE28C9F2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624583   (241806) от 07.04.2023
 
 Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -638,59 +692,6 @@ A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633384   (243402) от 15.05.2023
-
-Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_243402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blazon Stone - шведская хэви-метал/пауэр-метал группа, образованная в 2011 году.2013 - Return To Port Royal
-2015 - No Sign Of Glory
-2016 - Ready For BoardingЖанр: Heavy/Power/Speed MetalПродолжительность: 04:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626764   (243585) от 15.04.2023
-
-Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_243585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Love You 3:14
-A2 Lost Again 4:18
-A3 No More Words 3:57
-A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
 ```
 
 

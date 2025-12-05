@@ -1,30 +1,3 @@
-###  Публикация: 1711125   (112534) от 29.03.2024
-
-VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_112534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Cosmic Gate & Christian Burns - Brave
-02.	Laura van Dam & Ginchy - Save Me (Progressive Pick)
-03.	Jaytech - Nebula
-04.	JODA - Spark (Jono Grant & Harry Diamond Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711347   (112548) от 29.03.2024
 
 VA - Deep-House Heaven, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -693,6 +666,33 @@ VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE4B358D9966F48A6C9228F7EADA4BB4E1E45973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706991   (113417) от 15.03.2024
+
+LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axolotl [00:06:49]
+02. Corriente de aire [00:01:59]
+03. Manantial [00:04:27]
+04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
 ```
 
 

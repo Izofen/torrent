@@ -1,111 +1,3 @@
-###  Публикация: 967885   (157146) от 23.12.2015
-
-Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_157146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Go Away (6:27)
-02. Terrapin (4:20)
-03. Empty Eyes (version 1) (5:06)
-04.Жанр: Synth-popПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600467   (157164) от 27.12.2022
-
-VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_157164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Weapons (2:31)
-02. M. Pokora - Déjà volé (2:16)
-03. Ed Sheeran - Celestial (3:29)
-04. Soprano - 3615 Bonheur (3:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346735   (157323) от 20.12.2019
-
-Денис Майданов - Обречен на Любовь (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_157323.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Обречён на любовь (Radio Edit)
-2. Территория сердца (feat. Лолита)
-3. Жена (feat. Сергей Трофимов)
-4. Верность (feat. Наталья Майданова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A08BA7FB6BACC19F112D2F07FFB200274D45E2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676337   (157332) от 13.11.2023
-
-VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_157332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upfront feat. Jamal - Alone
-02. D.J. Bobo - Give Yourself A Chance
-03. Exp - She Said
-04. 2 Unlimited - Nothing Like The Rain(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D952D40B42B2B5FE500170ED6C1B208BE498DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600383   (157359) от 27.12.2022
 
 VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -695,6 +587,114 @@ Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600176   (159036) от 26.12.2022
+
+Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Story Has Just Begun [00:04:08]
+02 - I Fell in Love with You [00:03:25]
+03 - Happy Days [00:03:18]
+04 - We Just Lived [00:03:46](   Читать дальше...   )Жанр: Pop-Rock, FolkПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675914   (159258) от 11.11.2023
+
+Ева Польна - Открытый Космос (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159258.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Verdi
+3. Танцевать
+4. Без сожаления(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C84304B16C5C371AB3540A9EBE1EDC0D12FA0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676023   (159284) от 11.11.2023
+
+Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <French Pop, Jazz, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Happy Day
+02. Rockin’ Around The Christmas Tree
+03. Feliz Navidad
+04. Hallelujah(   Читать дальше...   )Жанр: French Pop, Jazz, ChristmasПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CE09A9606E30091854E0C78DF0869EE07CC2D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600101   (159288) от 25.12.2022
+
+Pentatonix - Holidays Around the World (2022) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pentatonix (PTX) - американская a cappella группа из Arlington, Texas, которая сформировалась в 2011 году. Их канал на YouTube в настоящее время имеет 19,8 миллиона подписчиков и 5,7 миллиарда просмотров. Pentatonix выиграли три премии Grammy в 2015, 2016 и в 2017 годах. 21 сентября 2022 года члены группы анонсировали свой шестой рождественский альбом Holidays Around (   Читать дальше...   )01. feat. Meghan Trainor - Kid on Christmas (3:22)
+02. It’s the Most Wonderful Time of the Year (2:50)
+03. feat. Grace Lokwa - Love Came on Christmas (Joy to the World × Kumama Papa) (4:08)
+04. Star on Top (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
 ```
 
 

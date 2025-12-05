@@ -1,35 +1,3 @@
-###  Публикация: 852344   (221853) от 22.12.2014
-
-Naseer Shamma - Viaje de las almas (Travelling souls) (2011) [MP3|320 кб/с]<Folk, Oriental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(14:54) 01. Travelling souls
-(06:34) 02. Al-Andalus opens its gates
-(08:21) 03. The path to Shaqlawa
-(04:49) 04. My grandfather's wisdom
-(13:50) 05. Nostalgia for Cordoba
-(04:54) 06. Hammurabi
-(12:13) 07. For Tunez
-
-Традиционная арабская музыка в исполнении Naseer Shamma (лютня) с участием двух музыкантов: Ashraf Sharif Khan (ситар) и Shabbaz Hussain (табла).Жанр: Folk, OrientalПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434B8BE7D0716345915D60F02EEFC95FFC4F93B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852375   (221910) от 22.12.2014
 
 Santiago Lara - 2 альбома (2007, 2012) [MP3|320 кб/с]<Folk, Flamenco>
@@ -730,6 +698,39 @@ Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE9C83C88CD9D98F94857189E545956CE93C5B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586661   (227334) от 09.12.2012
+
+A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_227334.jpg" />
+</div>
+
+
+###  Подробнее
+
+(09:21) 01. Cerca Del Arroyo IV
+(05:18) 02. Bonshai
+(04:54) 03. Lacricum
+(03:16) 04. El Jardin De Las Esencias
+(04:11) 05. Asia Lounge
+(04:47) 06. Dreams
+(05:53) 07. Crystal
+(10:24) 08. Otro Dia
+(10:09) 09. Anestes I
+(08:47) 10. Anestes II(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
 ```
 
 

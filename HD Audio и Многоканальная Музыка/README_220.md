@@ -1,3 +1,57 @@
+###  Публикация: 1627632   (254994) от 20.04.2023
+
+Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		Беспокойный Пульс = Restless Beat	4:10
+A2		Печаль = Sadness	4:20
+A3		Испанский Мотив = Spanish Theme	3:40
+A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626965   (255126) от 16.04.2023
+
+Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & I
+02. This Is The World
+03. Jerusalem
+04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626464   (255201) от 14.04.2023
 
 Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
@@ -597,7 +651,7 @@ magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839120   (287217) от 
+###  Публикация: 1839120   (287217) от 27.11.2025
 
 The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
 
@@ -624,82 +678,28 @@ magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210826   (778426) от 04.03.2018
+###  Публикация: 1030761   (671730) от 01.07.2016
 
-Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
+Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic, Ambient>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>DVD-Audio
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778426.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_671730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Speak To Me (1:08)
-02. Breathe (In The Air) (2:49)
-03. On The Run (3:44)
-04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
+01. Oxygene (Part I) (7:40)
+02. Oxygene (Part II) (8:20)
+03. Oxygene (Part III) (2:50)
+04. Oxygene (Part IV) (3:50)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:39:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116120   (824358) от 19.03.2017
-
-Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_824358.jpg" />
-</div>
-
-
-###  Подробнее
-
-side A
-A1 It's A Heartache
-A2 Blame Me
-A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006983   (824796) от 13.04.2016
-
-Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_824796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    600 Years    06:25
-2.    Naked Love    05:36
-3.    The Journey    05:55
-4.    Earthbound    04:06(   Читать дальше...   )Жанр: new ageПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA554F97074C6D2723914B3346F7036251221D2
+magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1702159   (116016) от 23.02.2024
-
-Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_116016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Square Rooms (03:42)
-02. Hungry for Your Love (04:13)
-03. Lie Detector (03:31)
-04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701991   (116018) от 23.02.2024
 
 Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Swing>
@@ -684,6 +657,33 @@ Jennifer Lopez - This Is Me...Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C0A9F998C710CFFCD4C6854EB64D873D8F33F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823124   (117569) от 10.10.2025
+
+Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Himbeerrot (One Kiss) (2:31)
+02. Traumfabrik (2:48)
+03. Küss mich wach (2:58)
+04. Auf freien Feldern (4:02)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
 ```
 
 

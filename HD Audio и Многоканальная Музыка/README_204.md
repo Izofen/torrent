@@ -1,3 +1,84 @@
+###  Публикация: 1591175   (187128) от 18.11.2022
+
+Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
+1996 - Evil Empire
+1999 - The Battle Of Los Angeles
+2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663008   (187149) от 20.09.2023
+
+Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Purple [00:03:56]
+02. Change [00:04:27]
+03. Always [00:04:17]
+04. Breathe [00:04:21](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8268A3231475F3D028E7E7F8F6BC1994412C7BEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662993   (187160) от 20.09.2023
+
+Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwave, Retro Future>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonchild [00:03:40]
+02. Out of the Dark [00:04:25]
+03. Sonic [00:03:45]
+04. Cloud City [00:05:44](   Читать дальше...   )Жанр: Darksynth, Synthwave, Retro FutureПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771E3964429299E07D1FE556CD14E511F4FF02D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662977   (187193) от 20.09.2023
 
 Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -611,84 +692,6 @@ magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660218   (189703) от 12.09.2023
-
-The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The Gondoliers" and "Yeomen Of The Guard" (1959) [FLAC 1.0|24/96||side-tracks|Vinyl-Rip] <Class ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_189703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Brass & Military, Opera, Brass BandПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659463   (190118) от 11.09.2023
-
-James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Electronic, Pop, Leftfield, Soul, Experemental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_190118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asking To Break (2:53)
-03. Tell Me (5:00)
-04. Fall Back (4:01)
-05. He's Been Wonderful (3:21)(   Читать дальше...   )Жанр: Electronic, Pop, Leftfield, Soul, ExperementalПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7AAD44A90FB74D507FF8B913E221D2321D3453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659458   (190121) от 11.09.2023
-
-Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023) Sun Label Group, LLC [FLAC 24/96|WEB-DL|tracks] <Classic Rock, Rock'N'Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_190121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Golly Miss Molly (Remastered 2023) [00:02:18]
-02. High Powered Woman (Alternate / Remastered 2023) [00:02:01]
-03. Be Bop A Lula (Remastered 2023) [00:02:26]
-04. C.C. Rider (Remastered 2023) [00:02:23](   Читать дальше...   )Жанр: Classic Rock, Rock'N'RollПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
 ```
 
 

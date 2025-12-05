@@ -1,3 +1,165 @@
+###  Публикация: 1517739   (162127) от 16.12.2021
+
+VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горячий коктейль популярных танцевальных композиций в диско сборнике "Discolandia". Сотня треков заводной музыки, которые и не грех добавить в свою персональную медиатеку.001. Jam Tronik - Wish You Where Here
+002. Jam Tronik - Stand By Me
+003. Robert Hill - Hold Me Again
+004. Discotron - Dance Of Disco(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1897B6F87C94CC2B627CDFDA4073098AECAC62E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517535   (162157) от 16.12.2021
+
+VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника "The Chill Jazz Pleasure" в тему уже не осеннему и ещё не зимнему ипохондрическому настрою. Тоскливое звучание струнных и клавишных дало немалое пространство, где царит меланхолия. Кроме того интересно обратить внимание, что в этом релизе практически не найдется ни одного трека с однообразным темпом. Благодаря этому приёму пластинка не надоедает, (   Читать дальше...   )001. Andy Creeggan - Flower Offering
+002. The Braxton Brothers - When Love Comes Around
+003. Boney James - Sweet Thing
+004. Jonathan Butler - Song For Elizabeth(   Читать дальше...   )Жанр: Smooth Jazz, Chillout, DowntempoПродолжительность: 08:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943E05A0FE496DBF9571243100176C58AF01D54B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674191   (162203) от 04.11.2023
+
+VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andia - Solstitiu (04:09)
+ 002. 5УТРА - Как Дела (02:50)
+ 003. Ado - Прости (02:10)
+ 004. AGAYAN - Тактильность (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517533   (162216) от 16.12.2021
+
+VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откровенный ностальгический лоск сопровождается короткими саксофонными интерлюдиями и проигрышами аккордеона, выступающими здесь в роли конферансье. Они привносят в едва видимое притворное ретро звучание некую камерность, отправляющую слушателя в небольшое комфортабельное заведение, где собираются музыканты, неспешно что-то играющие, выпивающие и учтиво о чём-то (   Читать дальше...   )001. Timo Lassy - Orlo
+002. Dave Koz - Life In The Fast Lane
+003. Jamie Saft Quartet - Turn At Every Moment
+004. High Pulp - Swallow(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 08:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D903BED6E64292694E1D35DF46E86A9D304510DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517511   (162268) от 16.12.2021
+
+VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro, Future House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглавная тема музыки сборника "Inter Galactic" является фантастика и космические путешествия, и многие композиции вполне подошли бы в качестве саундтрека для кинематографических космических сиквелов. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам лонгплея.001. Dallanoras - Sat Nam
+002. Marko Valentino - Repeat
+003. Lewis Mcklein - Better Than Yesterday
+004. The Polymode - Class A(   Читать дальше...   )Жанр: House, Electro, Future House, ProgressiveПродолжительность: 11:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C43D5DFD8394DD51CDA3518CA702D6F22A8559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517529   (162274) от 16.12.2021
+
+VA - A Voice From Real Life: Country Folk Music (2021) [MP3|320 Kbps] <Country, Folk Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр узнаваемый по первым нотам, конечно это Кантри! Дух свободы, оригинальность исполнения, простые и близкие каждому слова, находят отклик в сердцах слушателей этого направления народной музыки.001. Carrie Underwood - Sweet Baby Jesus
+002. London Heritage Orchestra - Like Everyone She Knows
+003. Tracy Lawrence - Hard Times
+004. Jon Langston - Now You Know(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 09:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD04633C233276B6232F0F570833DE8B492D25C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824607   (162281) от 18.10.2025
 
 Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -533,168 +695,6 @@ VA - Hi Games Vol.2 (Chiptune, Drum and Bass Edition) (2019) [MP3|320 Kbps] <Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AEDC99E790BCCBFC91A4093459FAA8C22CE4C2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345893   (163956) от 18.12.2019
-
-VA - Не спи за баранкой (Музыка в машину) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_163956.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#2Маши - Всем Нашим (Andrey Vertuga & Dj ZeD Reboot) (2:54)
-2.Artik Asti - Моя вина (RICH-MAX Radio Remix) (3:56)
-3.Boney M - Daddy Cool (Nick Raider Radio-Mix) (3:28)
-4.Culture Beat - Mr. Vain (Dj SPARX Remix 2019) (5:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3271324F5FD79E07AD667FC6E500885F18DE7D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598110   (164054) от 17.12.2022
-
-VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_164054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. Shakin' Stevens - Merry Christmas Everyone
-04. Brenda Lee - Rockin' Around The Christmas Tree(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673588   (164056) от 02.11.2023
-
-VA - Remix NNM 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_164056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мари Краймбрери - Случилась Осень (Denis Bravo Remix) (2:59)
-02. MITCHEL, Ханза, Баюн & Богдан - Пуэрто Рико (Silver Ace Remix) (2:46)
-03. Тося Чайкина - ещё (Livmo Remix) (3:25)
-04. Dabro - Ты знаешь, мам (Andy Shik & Subsnow & Scartz Remix) 2023 (4:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46B4AEF017EE4B02D0B00C49A107755F5F72C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346235   (164142) от 18.12.2019
-
-VA - Classic Rock timeless! (2019) 2CD [MP3|320 Kbps] <Rock, Blues, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_164142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rolling Stones - Like a Rolling Stone
-02. Black Sabbath - War Pigs
-03. Nazareth - White Boy
-04. The Beatles - Come Together(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 08:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA61A00CF9901B0266CF44081BAC4A7163234D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432450   (164170) от 17.12.2020
-
-VA - The True Story (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_164170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник отличного хард рока, который отлично подойдет для всех любителей жесткого, но мелодичного звучания. Монументальные, мелодичные композиции накатывают как волны настраивая слушателя на мысли философского содержания.001. Dead Man's Chest - Dear God
-002. Roadsaw - Under The Devil's Thumb
-003. Dripback - Blessed With Less Than Nothing
-004. The Acacia Strain - The Lucid Dream(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8637FD589624FC3D817EB322756B05D9DCE48895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432231   (164187) от 17.12.2020
-
-VA - Indigo Baby: Rap Theme Music (2020) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_164187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Особенно рэп и хип-хоп музыку любят подростки и молодые люди – ритмичность, лирика и стиль исполнения заставляют их включать эту музыку еще и еще раз. Причем, хип-хоп – это не только музыка, но и даже имидж. И можно даже смело утверждать, что рэп культура является настоящим образом жизни!001. Devil The One - Glock 9
-002. Xander - Midnight
-003. Headie One - Gang
-004. Marteen - Straight To The Point(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 11:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B2DA537A4650F0F08C91721822FE72A93BDBBD
 ```
 
 

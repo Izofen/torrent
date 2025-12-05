@@ -1,29 +1,3 @@
-###  Публикация: 491056   (102563) от 02.05.2012
-
-Детская литература  | Двенадцать братьев (1979) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_102563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные загадки с иллюстрациями А. Юсуповой.
-Художник Алсу Юсупова (Тимергалина) живет и работает в Казани. Закончив в 1979 году Казанское художественное училище, начала работать в области книжной графики, живописи и декоративно-прикладного искусства.
-Для детишек дошкольного возраста.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317FADFCE3EB0C2EEB2FB3C127AACD7961941541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490632   (102610) от 02.05.2012
 
 Турбьёрн Эгнер | Приключения в лесу Ёлки-на-Горке [1986] [PDF]
@@ -645,6 +619,33 @@ From wild horses and zebras to working horses like the Clydesdale, Shire, Perche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734444   (107115) от 03.07.2024
+
+Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age Range: 5 - 8 years
+Grade Level: Kindergarten - 3
+Follow a Swallowtail butterfly from egg to caterpillar to pupa and then on to becoming a beautiful butterfly.
+Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up into the fascinating world of animal development. Close-up photographs give children an animal's eye-view of growing up, while (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley PreschoolФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
 ```
 
 

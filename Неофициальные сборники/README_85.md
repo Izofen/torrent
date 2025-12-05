@@ -1,3 +1,165 @@
+###  Публикация: 1271521   (148680) от 24.12.2018
+
+VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan
+02. Selena Gomez - Back to You
+03. Ed Sheeran - Shape of You
+04. Ariana Grande - God Is A Woman(   Читать дальше...   )Жанр: Pop, Hip Hop, Alternative, DanceПродолжительность: 05:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519430   (148684) от 24.12.2021
+
+VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
+002. Grum - Price Of Love
+003. Lezcano - In My Time Of Need
+004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519456   (148688) от 24.12.2021
+
+VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкая танцевальная музыка с богатыми традициями от Disсо 80-х - и есть то, что ожидаешь услышать в данном сборнике. Своеобразный выразительный вокал и неповторимый мелодизм. Каждая песня сборника насыщена всем тем необходимым, что требуется для приятного времяпровождения, пассивного или активного отдыха. Несмотря на то, что этот стиль, как и многие другие предшественники, (   Читать дальше...   )001. Danros - Can't Get Enough
+002. The Sunburst Band - Rough Times
+003. French La Touche - Hard Life
+004. Holy Aliens & Dawn Tallman - Dance With You(   Читать дальше...   )Жанр: Jackin, Funky, Disco HouseПродолжительность: Jackin, Funky, Disco House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347708   (148708) от 24.12.2019
+
+VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deaky Ear Candy - The Pure Tour (Original Mix)
+002. Neon Lights - Bad Boy
+003. Simian Mobile Disco - V Formation
+004. Tone Of Arc - Loosen Up The Vibe(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAEADB0D955FB10B848CABABA4F189165036DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347605   (148731) от 24.12.2019
+
+VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148731.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.12 Stones - Crash (3:42)
+2.Blur - Song 2 (2:01)
+3.Disturbed - Stricken (4:07)
+4.DJ Muggs - Trap Assassin (2:54)(   Читать дальше...   )Жанр: Hard Rock, Rock, OtherПродолжительность: 02:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15709A80A54F02863ED0D55ED585FECC2C0350DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271633   (148744) от 24.12.2018
+
+VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet But Psycho
+002. Mariah Carey - All I Want For Christmas Is You
+003. Sido - Tausend Tattoos
+004. Mero - Baller los(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347703   (148759) от 24.12.2019
 
 VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
@@ -537,168 +699,6 @@ VA - Jazzy And Chic The Perfect Smooth Jazz Selection For Your Dinner (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F895156295580DB058A7213B999E72E9B8BA230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271473   (150180) от 23.12.2018
-
-VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_150180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Emperor Of China (Original Mix) 7:36
-02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
-03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
-04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271247   (150185) от 23.12.2018
-
-VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_150185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677435   (150341) от 18.11.2023
-
-Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_150341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firehouse — самая любимая команда, ещё юности. Первые 2 альбома невероятно сильные. Все песни хитовые. Вокалист улётный, очень круто валит. Гитарные партии просто чума. Энергетика бешеная. Впервые услышал альбом 92 года, Hold Your Fire, в середине 90х, у друга на бобине. И на следующий день купил кассету SONY HF и побежал в звукозапись. У нас в студиях был только (   Читать дальше...   )01. Reach For The Sky
-02. Rock You Tonight
-03. Sleeping With You
-04. You're Too Bad(   Читать дальше...   )Жанр: RockПродолжительность: 05:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00315206AE9089CDEEED58066F1052EC4278003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677519   (150440) от 18.11.2023
-
-VA - Latin Blues (2023) [MP3|320 Kbps] <Blues, Rock, Latino>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_150440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delbert McClinton & Dick50 - She's Not There Anymore [03:04]
-02. Tito & Tarantula - After Dark (2015 Remaster) [03:44]
-03. John Mayall - So Hard To Share [06:57]
-04. Vargas Blues Band - Blues latino [05:33](   Читать дальше...   )Жанр: Blues, Rock, LatinoПродолжительность: 06:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F10CC40111FD383B2A4C8C4CA01D4A421EE800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677532   (150503) от 18.11.2023
-
-VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_150503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whirlwind - Cannons Of Infuriation
-002. Attest - Reign Of Nil
-003. Ticinum - Il Muto Dall'accia Al Collo
-004. Aphyxion, Immerse - Heavy Shadows(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 09:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691276103A63D83D47D221034C29D49C627CAFA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824156   (150676) от 18.10.2025
-
-VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_150676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John O'Callaghan Official - Fragmentos (Original Mix)
-02. Solarstone. - Over The Mountains (Club Mix)
-03. RAM Official, Christina Novelli & Asteroid - All Gone 2025 (Extended Mix)
-04. Andrea Ribeca - Summer Bliss (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413A169CD41C4CFB9E70AFBAE43F7158CEB89B01
 ```
 
 

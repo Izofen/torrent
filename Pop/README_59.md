@@ -1,108 +1,3 @@
-###  Публикация: 1087668   (144127) от 28.12.2016
-
-VA - Retro Megadance Party (2009) [FLAC|Lossless|tracks + .cue] <Eurodance, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_144127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is Love (Haddaway) [03:23]
-02. I've Been Thinking About You (Londonbeat) [03:39]
-03. Never Alone (2 Brothers On The Floor) [03:24]
-04. Megamix (Whigfield) [04:26](   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3C243AF1E64E2DF4A2EA34F2553C85EE9AF0D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435299   (144160) от 28.12.2020
-
-Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_144160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gimme More (3:42)
-2. What A Lousy Party (3:18)
-3. I Wanna Dance With You (3:34)
-4. New York City (3:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587828C356B46E712A8279250CE4F1F24DD91A4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194924   (144260) от 28.12.2017
-
-Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_144260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musik sein [3:14]
-02. Feuerwerk [3:29]
-03. Ein Jahr [3:32]
-04. Frische Luft [3:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97A0BBF96DB66669723F6AA7F2C450502E4E5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272443   (144267) от 27.12.2018
-
-Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_144267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moi… Lolita (Reloaded)Жанр: Deep House, Pop, ElectronicПродолжительность: 02:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272469   (144285) от 27.12.2018
 
 Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|image + .cue] <Italo-Disco, Pop, 80s>
@@ -689,6 +584,114 @@ VA - SpinCat Music - Best Of 2021 (2021) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9B1C0908AF8AE392A74EE4D66FBDCB600C15E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272170   (145705) от 26.12.2018
+
+VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145705.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Dadju - Jaloux
+02. DJ Snake - Taki Taki
+03. Imagine Dragons - Natural(   Читать дальше...   )Жанр: Pop, Folk, Indie, DancehallПродолжительность: 06:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677824   (145763) от 21.11.2023
+
+Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Vocal, Holiday>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jolly Time Of Year [00:02:02]
+02. Ring Out The Bells [00:03:59]
+03. Christmas Train (Destination Hope) [00:03:39]
+04. Not So Silent Night [00:02:45]Жанр: Pop, Classical, Vocal, HolidayПродолжительность: 2 CD, 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE11028372B27D176FED6D7BDB80643E71A3C9BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435072   (145813) от 27.12.2020
+
+Alsou (Алсу) - Greatest Hits (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иногда (5:16)
+02. Свет в твоем окне (4:17)
+03. Там, где рождается свет (4:36)
+04. Весна (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3999B673C0A52919746D10A3B0B9B5E4F40544F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348173   (145911) от 26.12.2019
+
+VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro House,  Pop >
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Course - Ready Or Not (Radio Mix) 3:24
+2. Paradisio - Lalala Bandolero 3:56
+3. Faithless - Insomnia ('96 Monster Radio Edit) 3:34
+4. DJ M.D. - Rio (Radio Version) 3:51(   Читать дальше...   )Жанр: Eurodance,  Euro House,  House , Trance,  Europop,  Pop ,  Pop-Rap,  Synth-popПродолжительность: 05:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
 ```
 
 

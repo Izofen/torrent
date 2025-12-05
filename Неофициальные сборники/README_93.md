@@ -1,3 +1,165 @@
+###  Публикация: 417840   (160523) от 07.11.2023
+
+VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альбина Токова - Горный ветер
+02. Азамат Биштов и Мурат Тхагалегов - Сердце
+03. Рамазан Кайтмесов - От меня не уйти
+04. Анастасия Аврамиди и Мурат Тхагалегов - Вянут розы в снегу(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A34020052FF9B08A39998A1B75F5915AE669D82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675052   (160544) от 07.11.2023
+
+VA - Chill Hits 2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jessie Murph - Always Been You (2:08)
+002. Jessie Murph - Pray (2:25)
+003. Jeremy Zucker - always, i'll care (2:27)
+004. Wasia Project - ur so pretty (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 07:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEAEFA42C25AA84F7ACB5F456DCE17741EF1D8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674726   (160759) от 06.11.2023
+
+VA - Крутые пушки Осень 2023 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MACAN - ASPHALT 8 (DJ LEV Radio Remix) (2:32)
+02. Makkeno Special Set Track #11 - Party Till We Die (Extended Mix) (3:07)
+03. Masters at Work - Work (DJ LEV Remix) (5:20)
+04. Navai & Timati, Misha Goda, Rakurs - Lambo (Dj Petrosian Mash-Up Radio) (2:34)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67161FDB14F8FA3F17E0D7B69E0D603D5E5E928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674644   (160775) от 06.11.2023
+
+VA - Soft Shades Of Deep House (2023) [MP3|320 Kbps] <Deep-House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echo Boy - Get Do It
+02. Jack District - Want You
+03. Dianik - Sibillance
+04. Simon Shaw - Pipes(   Читать дальше...   )Жанр: Deep-House, ElectroПродолжительность: 07:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E161D077E7E7589555A4C3802483DE3ADBC9421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674637   (160801) от 06.11.2023
+
+VA - Rock Vivo! (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meat Loaf - I'd Do Anything For Love (But I Won't Do That)
+02. Kiss - Rock 'N' Roll All Nite
+03. Aerosmith - Dream On
+04. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05ECCB1CEDB15595B77817E190D1FBF2DEDF4F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674111   (160808) от 06.11.2023
+
+VA - My Playlist - Hammond organ blues, soul, jazz & funk music (2023) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160808.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scary Goldings - Equal Parts Timing & Romance [03:16]
+002. Rahsaan Roland Kirk - I'll Be Seeing You [06:22]
+003. Joey DeFrancesco - More Music [06:05]
+004. Soulive - Uncle Junior [07:18](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 21:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93255D85B953280A3A530FA64D4ACA7776C9910
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674216   (160830) от 06.11.2023
 
 VA - Kontor Top of the Clubs Vol. 98 (2023) [MP3|~266 Kbps (V0)] <Electronic, Dance, Club, House>
@@ -533,168 +695,6 @@ VA - Disco Is Alive 3 (2021) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0024BB831EE61BA558D0FF5B72F4D5354ECBEC82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517739   (162127) от 16.12.2021
-
-VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горячий коктейль популярных танцевальных композиций в диско сборнике "Discolandia". Сотня треков заводной музыки, которые и не грех добавить в свою персональную медиатеку.001. Jam Tronik - Wish You Where Here
-002. Jam Tronik - Stand By Me
-003. Robert Hill - Hold Me Again
-004. Discotron - Dance Of Disco(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1897B6F87C94CC2B627CDFDA4073098AECAC62E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517535   (162157) от 16.12.2021
-
-VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "The Chill Jazz Pleasure" в тему уже не осеннему и ещё не зимнему ипохондрическому настрою. Тоскливое звучание струнных и клавишных дало немалое пространство, где царит меланхолия. Кроме того интересно обратить внимание, что в этом релизе практически не найдется ни одного трека с однообразным темпом. Благодаря этому приёму пластинка не надоедает, (   Читать дальше...   )001. Andy Creeggan - Flower Offering
-002. The Braxton Brothers - When Love Comes Around
-003. Boney James - Sweet Thing
-004. Jonathan Butler - Song For Elizabeth(   Читать дальше...   )Жанр: Smooth Jazz, Chillout, DowntempoПродолжительность: 08:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943E05A0FE496DBF9571243100176C58AF01D54B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674191   (162203) от 04.11.2023
-
-VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andia - Solstitiu (04:09)
- 002. 5УТРА - Как Дела (02:50)
- 003. Ado - Прости (02:10)
- 004. AGAYAN - Тактильность (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517533   (162216) от 16.12.2021
-
-VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откровенный ностальгический лоск сопровождается короткими саксофонными интерлюдиями и проигрышами аккордеона, выступающими здесь в роли конферансье. Они привносят в едва видимое притворное ретро звучание некую камерность, отправляющую слушателя в небольшое комфортабельное заведение, где собираются музыканты, неспешно что-то играющие, выпивающие и учтиво о чём-то (   Читать дальше...   )001. Timo Lassy - Orlo
-002. Dave Koz - Life In The Fast Lane
-003. Jamie Saft Quartet - Turn At Every Moment
-004. High Pulp - Swallow(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 08:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D903BED6E64292694E1D35DF46E86A9D304510DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517511   (162268) от 16.12.2021
-
-VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro, Future House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заглавная тема музыки сборника "Inter Galactic" является фантастика и космические путешествия, и многие композиции вполне подошли бы в качестве саундтрека для кинематографических космических сиквелов. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам лонгплея.001. Dallanoras - Sat Nam
-002. Marko Valentino - Repeat
-003. Lewis Mcklein - Better Than Yesterday
-004. The Polymode - Class A(   Читать дальше...   )Жанр: House, Electro, Future House, ProgressiveПродолжительность: 11:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C43D5DFD8394DD51CDA3518CA702D6F22A8559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517529   (162274) от 16.12.2021
-
-VA - A Voice From Real Life: Country Folk Music (2021) [MP3|320 Kbps] <Country, Folk Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_162274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр узнаваемый по первым нотам, конечно это Кантри! Дух свободы, оригинальность исполнения, простые и близкие каждому слова, находят отклик в сердцах слушателей этого направления народной музыки.001. Carrie Underwood - Sweet Baby Jesus
-002. London Heritage Orchestra - Like Everyone She Knows
-003. Tracy Lawrence - Hard Times
-004. Jon Langston - Now You Know(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 09:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD04633C233276B6232F0F570833DE8B492D25C2
 ```
 
 

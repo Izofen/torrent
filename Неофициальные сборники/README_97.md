@@ -1,3 +1,162 @@
+###  Публикация: 1380061   (167587) от 13.12.2020
+
+aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515851   (167643) от 09.12.2021
+
+VA - Are & Be (2021) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SZA - I Hate U (2:54)
+02. Bruno Mars, Anderson .Paak, Silk Sonic - Smokin Out The Window (3:17)
+03. Lucky Daye - Over (3:25)
+04. Khalid, Ari Lennox, Smino - Scenic Drive (4:09)(   Читать дальше...   )Жанр: R&BПродолжительность: 03:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41C4BAE6FD6AF2ABEE64324B094CCE0DDC731AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431453   (167653) от 13.12.2020
+
+VA - National Pop Dance Music Vol.12 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. Её можно использовать на тренировке в спортзале или при пробежке в парке. Она поможет ощутить яркую бурлящую жизнь внутри себя, единство силы и воли для достижений и побед в спорте.001. Vize X Imanbek - Brother Louie
+002. Lucky Luke - Cooler Than Me
+003. Showtek, Spree Wilson - The Weekend
+004. Regard - Secrets(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53769FC9FEECF077E13C8C3283A65D1FD3805F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515836   (167691) от 09.12.2021
+
+VA - National Pop Dance Music Vol.27 (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной 27-й сборник лучших хитов народной попсы в проекте National Pop Dance Music уже готов к прослушиванию. Как полагается Вас ожидает 150 самых популярных песен с различных уголков мира, которые непременно создадут вам хорошее настроение и подарят целых девять часов самой классной музыки001. Kizz Daniel - Pipa
+002. Truck Stop - Morgen Gleich Morgen
+003. Tunng - Woman
+004. Jack Symes - Good Morning(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B56964123C10322D923A649D4443B8C146C0DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672791   (167706) от 29.10.2023
+
+VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Good Riddance (Time of Your Life) (2:33)
+02. Coldplay - Sparks (3:47)
+03. Disturbed - The Sound of Silence (4:08)
+04. Stone Temple Pilots - Plush (Acoustic Version) (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 04:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515862   (167789) от 09.12.2021
+
+VA - Beatport Electro House: Sound Pack #382 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый всеядный жанр танцевальный музыки, заходящий одним краем в радиоформат. В хаусе гораздо чаще, чем в остальной электронике, встречаются мелодии, вокал и прочие атрибуты поп-музыки. Этому жанру не чуждо стремление к гламуру, театральности, иногда даже китчу.001. From Tokyo To Sao Paulo - U're Funked
+002. Jason Lindell - Disco Dancin
+003. Luke Chable - Melburn
+004. Dirty Clone - Raw Mood(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB0187A3DE1F1BF16BC20D358E2A29F8FDC56A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515857   (167805) от 09.12.2021
 
 VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Electro>
@@ -536,168 +695,6 @@ VA - Top Grade Disco Hits (2020) [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D26122CCA3B0BBB0E4A3E0696AB2EEF9173607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672474   (168798) от 28.10.2023
-
-VA - Beatport Synthwave: Pack #635 (2023) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168798.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tony Gray - Gundam
-002. Mogwaa - 11Khz
-003. The Spy - Acid Night
-004. Fringe Society - Alexithymia(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 10:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BAAF881444158C7271D17277A2DA3DDC359CC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430954   (168799) от 12.12.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 11.12.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surf Mesa feat. Emilee - ily (I Love You Baby) (2:56)
-02. twocolors - Lovefool (3:10)
-03. Pascal Letoublon & Leony - Friendships (3:02)
-04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965C30D6EB43EEA569C21B5FCFBCA4D8C269A70A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672448   (168804) от 28.10.2023
-
-VA - 100 In Atmospheric Trance (2023) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soundlift - Wild Wind (Original Mix)
-002. Alex M.O.R.P.H. & Jamaster A - Sky over Great Wall (Extended)
-003. Adam Morris & Rezwan Khan - Aftermath (Extended Mix)
-004. Alessandra Roncone - Redemption (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363BBBA1AC0B51B787E63543B29889162EFAB522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344708   (168878) от 12.12.2019
-
-VA - Новый Год вдвоём (2019) [MP3|320 Kbps] <Pop, Christmas, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168878.jpg" />
-</div>
-
-
-###  Подробнее
-
-98º - Christmas Wish (3:48)
-2.Ariana Grande - Santa Tell Me (3:24)
-3.Carly Rae Jepsen - Last Christmas (3:32)
-4.Coldplay, Guy Berryman, Will Champion, Chris Martin, Jonny Buckland - Christmas Lights (4:02)(   Читать дальше...   )Жанр: Pop, Christmas, OtherПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DFD546A841EEDE04CE5A27B75BCFA6696D2F48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431224   (168892) от 12.12.2020
-
-VA - Record Super Chart 666 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fousheé & Katana Angels - Deep End (2:35)
-02. Tiesto - The Business (2:43)
-03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-04. Slava Marlow - Снова я напиваюсь (1:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4AB279C814E3EE3EFDB1A89AE8439B12EAC44B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596591   (168897) от 11.12.2022
-
-VA - В машине с музыкой Vol.324 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldout - Задушу (03:49) 2022
-02. Татьяна Буланова Feat. & Алексей Beezon - Жми На Delete (03:22) 2022
-03. Dj. Dark & Mentol Feat. & Georgia Alexandra - Riders On The Storm (Radio Edit) (03:00) 2022
-04. Elena Ilang - Мама (03:38) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3478DBE89FDB706551BA25709810506FD35BF08
 ```
 
 

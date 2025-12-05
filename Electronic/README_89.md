@@ -1,30 +1,3 @@
-###  Публикация: 1683023   (128765) от 10.12.2023
-
-VA - A State of Trance Year Mix 2023 (Mixed by Armin van Buuren) (2023) [FLAC|Lossless|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_128765.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren – Am I AI? (A State of Trance Year Mix 2023 Intro) (Mixed) (02:33)
-002. Gareth Emery feat. Maria Lynn - Missing You (Mixed) (02:03)
-003. Above & Beyond - 500 (Mixed) (00:44)
-004. Armin van Buuren feat. Anne Gudrun - Love Is A Drug (Mixed) (0:59)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346055AE1CF8757B765AF390BFBE36D38BE42ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824296   (128940) от 14.10.2025
 
 VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -155,6 +128,33 @@ VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525750   (129335) от 21.01.2022
+
+Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanß (5:41)
+ 02. Interval Signal (6:23)
+ 03. Night Shift (6:03)
+ 04. Formanta (4:10)(   Читать дальше...   )Жанр: Ambient, Techno, Downtempo, ExperimentalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80196170024458286B78D81DC8885FDE1EE6D6C6
 ```
 
 

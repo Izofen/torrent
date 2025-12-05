@@ -226,6 +226,198 @@ magnet:?xt=urn:btih:9568692BAD42A9891BC700683FFCECA2BCE24963
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488324   (129280) от 28.04.2012
+
+VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Original Mix)
+02. Beyonce - Love On Top (DJ Escape & Tony Coluccio Remix)
+03. Amelle feat. DBX - God Won't Save U Now (7th Heaven Club Mix)
+04. Matt Bukovski - Alterations (Original Mix)
+05. Sultan & Ned Shepard feat. Quilla - Walls (Original Mix)
+06. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
+07. Rita Ora feat. Tinie Tempah - R.I.P. (Seamus Haji Club Mix)
+08. ReOrder & Stine Grove - Seize The Day (Original Mix)
+09. Claes Rosen - Whats Up Tonight (2012 Rework)
+10. Avicii feat. Salem Al Fakir - Silhouettes (Vocal Mix)2012Жанр: Club, DanceПродолжительность: 04:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525468   (129291) от 21.01.2022
+
+VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ber, Charlie Oriain - Meant To Be (2:46)
+02. Jenna Raine - see you later (ten years) (3:08)
+03. Alec Benjamin - Older (3:12)
+04. Will Linley - miss me (when you're gone) (3:06)(   Читать дальше...   )Жанр: Pop, ChilloutПродолжительность: 04:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489359   (129326) от 29.04.2012
+
+VA - Посвящение Друзьям (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Иван Кучин - Пройдут Года
+002 Олег Безъязыков И Гр Владимирский Тракт - Свеча
+003 Григорий Лепс - Спокойной Ночи, Господа
+004 Любовь Успенская - К Единственному, Нежному
+005 Гарик Грин И Группа На Троих - Шоферская
+006 Владимир Богун - Вариант Номер Три
+007 Марк Котляр - Когда Мужчине За 30
+008 Андрей Вертузаев - Дикая Любовь
+009 Анатолий Днепров - Армения
+010 Михаил Круг - Идет Этап2012Жанр: ШансонПродолжительность: 06:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BE57D7A32B66AC34651AECFBD10E9646A86868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489415   (129334) от 29.04.2012
+
+VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Любовь Фоменко - Линии Сердца
+02 Dj Riga & Mc Zali - Дяди И Тети
+03 Пицца - Париж
+04 Quest Pistols - Разные
+05 Евгения Власова - Красивые и Богатые
+06 Real O - Луна (Я В Белом Платьице)
+07 Маттиас - За тобой
+08 Снежана Фирсова - Благодарю
+09 Земфира - Господа (Krainov Remix)
+10 Сергей Трофимов - Я Привык Улыбаться Людям (DJ Fisun remix)2012Жанр: Pop,DanceПродолжительность: 06:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A488965B875C381775B0D38558DAB166D495D28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489586   (129445) от 29.04.2012
+
+VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 feat. Chris James - The Veldt (Original Mix)
+02. Luigi Lusini - Wake Me Up, I'm Dreaming (Original Mix)
+03. Serge Devant feat. Danielle Parente - Far Away (Extended Mix)
+04. Jozhy K & Angel - Number One (Original Mix)
+05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
+06. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Myon & Shane 54 Summer Of Love Mix)
+07. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix)
+08. Jason Derulo - Pick Up The Pieces (7th Heaven Club Mix)
+09. Paulina Rubio - Boys Will Be Boys (Club Edit)
+10. Jennifer Lopez - Dance Again (Cosmic Dawn Club Mix)2012Жанр: Club, DanceПродолжительность: 04:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991E5D0287EA3BB2FB906DABBB6F23392ED80E7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489443   (129449) от 29.04.2012
+
+VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Street Dancer
+02. Bassmonkeys Feat. Lyck - Embrace My Heart (Got Me Dancing Club Mix)
+03. Bazeda, Custom Drops - Love To Party (Original Mix)
+04. Bingo Players - Rattle
+05. Blake Jarrell Feat. Michael S - Say What You Will (Dohr & Mangold Remix)
+06. Bt & Adam K - Tomahawk (Original Mix)
+07. Capes - Better Know
+08. Cardinal Feat. Arielle Maren - Sink Into Me (Original Mix)
+09. Cressida & Natalie Paris - Easy To Forget (Club Mix)
+10. Dash Berlin Feat. Jonathan Mendelsohn - Better Half Of Me (Chris Schweizer Remix)2012Жанр: House, ClubПродолжительность: 04:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D374A75047B02456F5046213CFAF86EABA5BEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525290   (129576) от 20.01.2022
 
 VA - Dance Rising (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -599,186 +791,6 @@ VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490532   (130018) от 01.05.2012
-
-VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Сателлит & Marlena feat. PolCox - Почему (Tonada Club Mix)
-02. Ариф - Любовь Моя
-03. Эльдар Далгатов - Я Влюблен
-04. Софья Лукьянова - People Like
-05. NEO - Суетных Улиц
-06. Антитила - А Я Видкривав Тебе
-07. Чай Вдвоём - Улетай
-08. Эрика (Еріка) - Ворожка
-09. Dino MC 47 - Игры С Огнём
-10. Джиган (Geegun) feat. Сосо Павлиашвили - Деньги2012Жанр: PopПродолжительность: 03:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3B3A18D65B81E939B039CE10A3F0F42A525289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490869   (130226) от 02.05.2012
-
-VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Hayk - В Мыслях С Тобою
-02. Руслан Алехно - Оглянись
-03. Aslan и Эльдар Далгатов - Опа Опа
-04. Рената Штифель - Душа
-05. Danila Rastv - Тайны
-06. Fontano - Революция (Radio Edit)
-07. 4POST (Дима Бикбаев) - Как Же Ты Могла
-08. Натали Катэрлин - Юра
-09. Киевэлектро - Поцелуй
-10. Олег Винник - Аэропорт2012Жанр: PopПродолжительность: 06:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57876E29175D4FACA497DF98C4FE8BE1463A7E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491003   (130293) от 02.05.2012
-
-VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MainstreaM One & Handyman - Мы Не Одиноки
-02. Наталья Строгая - Гимн R-Club
-03. Charmlex feat. Анастасия Бережная и Андрей Леницкий - Сhampion
-04. Скрябин - Не Думай Про Завтра
-05. Гарик Сукачёв - Победа За Нами
-06. 25-17 - Звезда
-07. Чайф - Для Него, Для Себя, Для Меня
-08. Мия - Дивись, Це Можливо
-09. Idenline - Together
-10. Dino MC 47 - Время2012Жанр: PopПродолжительность: 03:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF47FE7C0F434E03DE75C56E73BAB599193291E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524770   (130414) от 18.01.2022
-
-VA - 60 Minutes. Old School Dance Music vol.5 (mixed by Dj V)(2021) [MP3|320 Kbps] <Progressive Trance, Tech Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Ronski Speed - Overfloat (Ronski Speed pres Sun Decade Mix)
-02-Moonbeam & Tyler Michaud feat.Fisher - Love Never Dies (Original Mix)
-03-Sunlounger feat. Zara - Lost (Club Mix)
-04-Olive - Your Not Alone (Mat Zo Bootleg)(   Читать дальше...   )Жанр: Progressive Trance, Tech Trance, Uplifting TranceПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD53F5A6CEBC8FD355B33C01697A069637E749F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524836   (130439) от 18.01.2022
-
-VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Easy On Me
-02. GAYLE - abcdefu
-03. Walker Hayes - Fancy Like
-04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 05:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001C231E7CECF8FA3311CA65109B110BF0211375
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524757   (130460) от 18.01.2022
-
-VA - Зайцев.нет Лучшие новинки Января (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANDEROV, SAYFO - Вера (2:54)
-02. Ann Ci - С новым годом! (3:26)
-03. KAMENSKIY - Стать первым (2:24)
-04. Mireia - Холодно (3:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5574DFB3CFACA153A0D42B5016E19CA7E7A594E8
 ```
 
 

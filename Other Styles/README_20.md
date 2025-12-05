@@ -1,63 +1,3 @@
-###  Публикация: 968338   (153264) от 24.12.2015
-
-Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_153264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Shine
- 02. Secrets of Life
- 03. Dolphin Island
- 04. Paradise Calling(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556C2878445144FA34A5EDFEC0DE405D006B29E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738408   (153379) от 25.12.2013
-
-The Barra MacNeils - Oh Christmas Three (2013) [MP3|320 кб/с]<Folk, Celtic, New Age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:06) 01. Bound for Bethlehem
-(2:24) 02. Maybe This Christmas
-(4:48) 03. Miners’ First Noel
-(2:05) 04. Here We Come a-Wassailing
-(6:25) 05. The Green Tree Set
-(3:51) 06. Oran Nollaig Na Bretainn Bhig (A Breton Carol)
-(3:48) 07. Christmas Belongs to Children
-(3:47) 08. For Mary for Joseph
-(3:04) 09. A-Walkin' Christmas Morning
-(8:44) 10. The Parting SetЖанр: Folk, Celtic, New AgeПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5609A80CDB6500A1D90F095AAF6C02880CF998B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194450   (153877) от 26.12.2017
 
 Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
@@ -738,6 +678,60 @@ Alan Silvestri - Ночь в музее 2 / Night At The Museum: Battle Of The S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFB2BA284CB52AE9002D89C0B923C87AC4CB789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085799   (156695) от 22.12.2016
+
+Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chanson d'automne (poeme de Verlaine) [0:53]
+02. Une amitie [1:30]
+03. La promenade [1:23]
+04. La lecon de violon [0:48](   Читать дальше...   )Жанр: Score, Soundtrack, ClassicalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433644   (156813) от 21.12.2020
+
+Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegy 1 (Angels) (02:27)
+ 02. Elegy 2 (Forever) (05:01)
+ 03. Elegy 3 (Farewell) (04:02)
+ 04. Elegy 4 (Clouds) (02:46)(   Читать дальше...   )Жанр: Progressive Rock, New Age, AmbientПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1582293   (206410) от 08.10.2022
+
+Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для всех, кто хочет начать работу с DevOps. Поскольку в DevOps существует множество инструментов и технологий, людям стало сложно выбирать правильные технологии. Этот курс начинается с самых основ командной строки, демонстрируя множество инструментов и технологий. Также, что наиболее важно, он покажет вам, как различные технологии в DevOps работают (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 47:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615214   (206437) от 25.02.2023
+
+Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deployment (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Django 4 Masterclass 2022: от разработки до развертывания, опубликованная Udemy Academy. Изучите Django с нуля, создайте и запустите приложения Django с расширенными функциями, такими как аутентификация и интеграция платежей.
+
+Создание веб -приложений с Django. Вот что вы получаете, зарегистрировавшись на этот курс: на протяжении всего курса я объясняю каждую строку (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D115A49E11BA6B9B66CFEAA5623C2DEC7DF387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615142   (206533) от 24.02.2023
+
+Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный мастер-класс FastAPI с нуля 2022 — это учебный курс по микрофреймворку FastAPI, опубликованный Академией Udemy. FastAPI — это мощная веб-инфраструктура на основе языка программирования Python, которую можно использовать для проектирования и разработки расширенных API RESTful. С момента первоначального запуска проекта FastAPI прошло не так много времени, и (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 21:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C452129FF1AAC2C84DAB10756533D6D104AD9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615160   (206537) от 24.02.2023
 
 Udemy, Eric Roby | FastAPI - The Complete Course (Beginner + Advanced) (2022) WEB-DL [EN / EN Sub]
@@ -583,84 +657,6 @@ Do you want to masterПроизводство: UdemyЖанр: Программи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A12256A94A48B3AAB7111608DEF7059A45B5822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646825   (208821) от 16.07.2023
-
-Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Optimization (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_208821.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you had your own jet plane, would you drive it to the grocery store or fly it on tour around the world?
-
-Today every computer and phone comes with immense computing power and multiple cores, allowing full parallelism. In this course, you will go on a journey to learn all the fundamental tools you need to become a confident and successful multithreaded application (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607383   (208887) от 27.01.2023
-
-Udemy, Sean Campbell | .NET Microservices: CQRS & Event Sourcing with Kafka (2022) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_208887.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this course, you will learn how to create .NET microservices that comply with the CQRS and Event Sourcing patterns.
-You will not use any CQRS framework, but you will write every line of code that is required to effectively create your own CQRS and Event Sourcing framework using C# and Apache Kafka. While this might sound a little daunting, you will be carefully (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722CEAE444F97C61398AE590F6CD58DFC708D0C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605791   (209588) от 19.01.2023
-
-BAS, Павел Дуглас | Создание Чекеров на BAS (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_209588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь создавать простые скрипты чекеры на Browser Automation Studio (BAS).
-Этот навык полезен, когда вам необходимо проверить на валид множество аккаунтов, используя браузер Chrome.
-Чекеры - это специальные скрипты, которые заходят на сайт, пробуют авторизоваться по введенным логину и паролю и смотрят вошли в личный кабинет или нет.
-Если вошли, то сохраняет результат (   Читать дальше...   )Производство: BASЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:41:20Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8362A5FA5ED3A09243ECB9E4BDB6580472AE9B
 ```
 
 

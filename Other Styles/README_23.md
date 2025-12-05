@@ -1,57 +1,3 @@
-###  Публикация: 1515610   (168482) от 08.12.2021
-
-VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Русские народные песни, гармонь>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Сметанин - На реке на Виледи (1:36)
-02. Сергей Сметанин - Вологодская тальянка (1:23)
-03. Сергей Сметанин - От скуки на все руки (2:55)
-04. Сергей Сметанин - Как на Северной Двине (3:29)(   Читать дальше...   )Жанр: Русские народные песни, гармоньПродолжительность: 06:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D66B60CE53E12DC4CD105B339F517CF0393032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515706   (168515) от 08.12.2021
-
-Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_168515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in the waves
-02. Native tears
-03. Wuambrito otra vez
-04. Sounds of nature(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1733892FAA2C7EC7AC65ED37C1E5D68DE8C388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 7944   (168752) от 12.12.2019
 
 Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
@@ -694,6 +640,60 @@ VA - Лучшие мелодии на свете - Collection (24CD) (2006 - 200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D75E205A237722779CA92FD1A016EFDCF69952
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344599   (175018) от 08.12.2020
+
+Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_175018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanuman
+02. Buster Voodoo
+03. Triveni
+04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595337   (175130) от 06.12.2022
+
+Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blameless [00:04:28]
+02. Green Cross [00:02:58]
+03. Shadowforce [00:03:40]
+04. Flowers of Essence [00:04:10](   Читать дальше...   )Жанр: Post-Punk, Dark FolkПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
 ```
 
 

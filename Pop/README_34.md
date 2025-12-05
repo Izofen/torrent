@@ -1,30 +1,3 @@
-###  Публикация: 1769695   (100617) от 29.12.2024
-
-Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_100617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See The Sun (Remastered 2024)
-02. (Do You Wanna Play) My Rock And Roll Song (Remastered 2024)
-03. Our Story (Remastered 2024)
-04. Keep On Dancing (Remastered 2024)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768858   (100878) от 26.12.2024
 
 AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -707,6 +680,33 @@ magnet:?xt=urn:btih:6E015DE838164B04EFD9D38F7F9C00800455EAC6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B912882D8A012B218575251FCDC0CB852FFE0DA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758588   (103357) от 03.11.2024
+
+Алексей Новиков - Судьба (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Чужая [00:03:48]
+02 - Судьба [00:03:21]
+03 - Тебя люблю [00:04:14]
+04 - Я проиграл [00:03:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5134EACC5F9F8CD3A07E2CCD8E38213AA8D8A9
 ```
 
 

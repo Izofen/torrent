@@ -1,3 +1,57 @@
+###  Публикация: 1150965   (237874) от 02.05.2022
+
+The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237874.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Michelle
+A2 In My Life
+A3 What Goes On
+A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548491   (237909) от 02.05.2022
+
+Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Maiden (с англ. — «Железная дева») — британская хеви-метал-группа, которая в начале 1980-х гг. являлась одним из известнейших представителей новой волны британского хеви-метала (NWOBHM), а позже оказала значительное влияние на развитие метала в целом.1980 - Iron Maiden
+1981 - Killers
+1982 - The Number of the Beast
+1983 - Piece of Mind(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 24:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC32DDC07E889DCB56331AA7C26854BCF9BDA82E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150283   (237946) от 02.05.2022
 
 Валерий Леонтьев - Песни Раймонда Паулса (1984, 1986) 2LP Reissue [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Soul, Disco>
@@ -639,60 +693,6 @@ magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087724   (238862) от 27.04.2022
-
-Блестящие - Новое и лучшее (1999) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_238862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чао, Бамбино!
-02. Милый рулевой (RMX)
-03. Новый год
-04. Неоткрытое письмо(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628540   (238933) от 23.04.2023
-
-Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_238933.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Computerwelt 5:05
-A2 Taschenrechner 5:00
-A3 Nummern 3:00
-(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
 ```
 
 

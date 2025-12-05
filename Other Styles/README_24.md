@@ -1,57 +1,3 @@
-###  Публикация: 1344599   (175018) от 08.12.2020
-
-Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_175018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanuman
-02. Buster Voodoo
-03. Triveni
-04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595337   (175130) от 06.12.2022
-
-Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_175130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blameless [00:04:28]
-02. Green Cross [00:02:58]
-03. Shadowforce [00:03:40]
-04. Flowers of Essence [00:04:10](   Читать дальше...   )Жанр: Post-Punk, Dark FolkПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429491   (176529) от 06.12.2020
 
 VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
@@ -694,6 +640,60 @@ Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591262   (187518) от 17.11.2022
+
+VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. POLINA - Что-то пошло не так
+2. Люся Чеботина - Главная причина
+3. Николай Ростов - Где ты была вчера?
+4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590974   (187537) от 17.11.2022
+
+Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon (04:05)
+02. Penelope Graves (06:17)
+03. Gambit of Night (Extended) (03:53)
+04. Come Take a Trip in My Airship (04:05)(   Читать дальше...   )Жанр: Progressive Rock, Cinematic RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
 ```
 
 

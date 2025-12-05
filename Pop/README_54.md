@@ -1,30 +1,3 @@
-###  Публикация: 1683473   (128403) от 11.12.2023
-
-Bananarama - Robert De Niro's Waiting /  Velvet Lies (Remixes) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_128403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert De Niro's Waiting (The Reflex Revision - Edit)
-02. Velvet Lies (Luke Million Remix)
-03. Robert De Niro's Waiting (The Reflex Revision)
-04. Venus (Boys Noize Rework Edit)Жанр: PopПродолжительность: 00:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C41A4D5528D3C45DD834E28BD8FE5A642983BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683471   (128414) от 11.12.2023
 
 Виктор Рыбин & Наталья Сенчукова - В жизнь надо верить! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -206,6 +179,33 @@ magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45FAC31FEC7D7B87ABD71DA1312463A2C93F345C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525630   (129389) от 21.01.2022
+
+Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Fruits Of Eden (0:40)
+ 02. AURORA, Pomme - Everything Matters (3:34)
+ 03. Giving In To The Love (3:01)
+ 04. Cure For Me (3:22)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
 ```
 
 
@@ -498,39 +498,6 @@ Raggio Di Luna (Moon Ray) - Comanchero (1986) [FLAC|Lossless]<Italo-Disco>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491549   (130541) от 03.05.2012
-
-VA - Summer Klub`80 Volume 5 (2011) 2CD [FLAC|Lossless]<Italo-Disco, Hi NRG, Euro Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bananarama - Love In The First Degree :: 07:17
-02. Silent Circle - Oh Don't Lose Your Heart Tonight :: 05:49
-03. Ricchi E Poveri - Hasta La Vista :: 06:12
-04. Timerider - Timerider :: 04:53
-05. Macho Gang - Sahara :: 06:36
-06. Carrara - Welcome To The Sunshine :: 05:57
-07. Squash Gang - I Want An Illusion :: 06:06
-08. Bruce & Bongo - Hi Ho (Heigh Ho - Whistle While You Work) :: 05:45
-09. Iudy - Island Of The Sun :: 04:42
-10. Jimmy & Susy - Come Back :: 06:012011Жанр: Italo-Disco, Hi NRG, Euro DanceФормат: 2xCD, Compilation, RemasteredПродолжительность: 02:04:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571130   (130731) от 09.12.2023
 
 Grisha Urgant - Estrada (2012) [MP3|320 кб/с]<Pop Rock>
@@ -553,39 +520,6 @@ Grisha Urgant - Estrada (2012) [MP3|320 кб/с]<Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE7449E5CDD6F21448B9D7213E3807477BD22C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596540   (130733) от 31.12.2012
-
-VA - 12" 80s Pop (2007) 3CD[FLAC|Lossless]<Pop Rock, Disco, New Wave, Synth-pop, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_130733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Miller Band - Abracadabra (12' Mix) [03:39]
-02. Robert Palmer - Addicted to Love (12' Mix) [05:50]
-03. Lionel Richie - Dancing On The Ceiling (Extended) [07:09]
-04. Diana Ross - I'm Coming Out (12' Mix) [05:20]
-05. Donna Summer - Unconditional  Love (Extended Version) [05:12]
-06. Rick James - Super Freak (12' Mix) [07:04]
-07. Belle Stars - Sign of The Times (Remixed Extended 12' Version) [05:35]
-08. Kid Creole and the Coconuts - Stool Pigeon (12' Mix) [06:17]
-09. Will Powers - Kissing with Confidence (Extended) [05:30]
-10. Transvision Vamp - Baby I Don't Care (Abigail's Party Mix) [05:38](   Читать дальше...   )Жанр: Pop Rock, Disco, New Wave, Synth-pop, FunkПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -672,39 +606,6 @@ magnet:?xt=urn:btih:9CCC0388F554B23F3E9910EB3546D6E7534BB681
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596364   (131326) от 30.12.2012
-
-Frank Duval - Greatest Hits (2CD) (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_131326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love
-02. Me To You
-03. Children Of Gods
-04. Life Will Go On
-05. Dance On Fire (Orphee)
-06. Alaya
-07. Angel By My Side
-08. Galaxies Zena
-09. Touch My Soul
-10. And At The End Of Every Street(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596233   (131383) от 30.12.2012
 
 Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
@@ -733,6 +634,87 @@ Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682425   (131391) от 07.12.2023
+
+Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|Lossless|image + .cue] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automatic Lover (Long Version)
+02. Meteor Man (Remix Nineteeninetyseven)
+03. Shotgun
+04. E.S.P.(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32685597A66DD3285BE6D9CA79E1C495A0B068C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682470   (131489) от 07.12.2023
+
+Катя Суржикова – Не спи, дорогой! (1997) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. D.J. Boy
+2. Стройный кипарис
+3. Самурай
+4. Служба спасения(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B7684B437D1FA409034EE78F607DC58C83BCE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682337   (131833) от 06.12.2023
+
+Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sie War Erst Siebzehn (Und Neu In Der Stadt) (New Kid In Town) (5:13)
+02. Rocky (4:14)
+03. Leg Den Kopf An Meine Schulter (2:31)
+04. An Mir Soll Es Nicht Liegen (3:44)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 ```
 
 

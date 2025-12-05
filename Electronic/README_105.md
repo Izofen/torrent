@@ -1,30 +1,3 @@
-###  Публикация: 1676057   (159235) от 11.11.2023
-
-VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_159235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun – Desire (05:57)
-02. Judith Ahrends – Wanderer (04:48)
-03. Sunset Boulevard Project – At the Beach (06:15)
-04. Giorgio Moroder – Our Love (J.C Fous de la Mer Forever Instrumental Mix) (06:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DowntempoПродолжительность: 02:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA52E945368D7BB07A256609E32173C216A6777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676100   (159253) от 11.11.2023
 
 VA - Easy Listening Chill Affairs, Vol. 2 (2023) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
@@ -687,6 +660,33 @@ Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99BECBC5C0F18C7916E5ECE30F264E12AF952308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674628   (160843) от 06.11.2023
+
+VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus Koch - Morning Breeze (3:50)
+02. Lee Lou - Morning (3:47)
+03. Ottis Blake - Pulses (4:49)
+04. Steven Solveig - Relax and Unwind (4:48)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097F8128B9AF5FF1E1BC9127C40B7C2088DF2BD1
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1694332   (121143) от 24.01.2024
-
-Johnny Hates Jazz - Turn Back The Clock (1988) [OGG Vorbis|480 Kbps] <Electronic, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_121143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shattered Dreams
-02.  Heart Of Gold
-03.  Turn Back The Clock
-04.  Don't Say It's Love(   Читать дальше...   )Жанр: Electronic, Pop, Pop Rock, Synth-popПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0722E48E1424B9A73CED807D508D756B55F3084D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693724   (121439) от 22.01.2024
 
 Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|320 Kbps] <Pop Rock>
@@ -695,6 +668,33 @@ Cabballero - The Elements (1995) [FLAC|Lossless|image + .cue] <Trance, Eurodance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB82E9C94C3891DF98F287C69F224FD590995107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690355   (123961) от 07.01.2024
+
+VA - 80s Lost & Found (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A-Ha - The Sun Always Shines on T.V.
+02.  Tina Turner - Private Dancer
+03.  Duran Duran - Save a Prayer
+04.  Fleetwood Mac - Big Love (2018 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706F4FA027BEE022593CE34A4F0CD547FFAF529B
 ```
 
 

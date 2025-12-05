@@ -1,117 +1,3 @@
-###  Публикация: 1682425   (131391) от 07.12.2023
-
-Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_131391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatic Lover (Long Version)
-02. Meteor Man (Remix Nineteeninetyseven)
-03. Shotgun
-04. E.S.P.(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32685597A66DD3285BE6D9CA79E1C495A0B068C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682470   (131489) от 07.12.2023
-
-Катя Суржикова – Не спи, дорогой! (1997) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_131489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. D.J. Boy
-2. Стройный кипарис
-3. Самурай
-4. Служба спасения(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B7684B437D1FA409034EE78F607DC58C83BCE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682337   (131833) от 06.12.2023
-
-Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_131833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sie War Erst Siebzehn (Und Neu In Der Stadt) (New Kid In Town) (5:13)
-02. Rocky (4:14)
-03. Leg Den Kopf An Meine Schulter (2:31)
-04. An Mir Soll Es Nicht Liegen (3:44)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595419   (131940) от 29.12.2012
-
-VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD BoxSet[MP3|320 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_131940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Village People - Go West [03:34]
-02. Leo Sayer - Moonlighting [04:11]
-03. David Essex - Oh What A Circus [03:51]
-04. The Osmonds - Let Me In [03:35]
-05. Bonnie Tyler - Lost In France [03:54]
-06. Elkie Brooks - Pearl's A Singer [03:37]
-07. Jimmy James & The Vagabonds - Now Is The Time [03:35]
-08. Donna Summer - MacArthur Park [03:57]
-09. Peter Skellern - Hold On To Love [02:56]
-10. The Mixtures - The Pushbike Song [02:31](   Читать дальше...   )Жанр: PopПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595681   (132044) от 29.12.2012
 
 Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, pop rock>
@@ -713,6 +599,111 @@ magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24FDF0048AF7DCA48CD9C5AA62752F15341716A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273350   (137721) от 31.12.2018
+
+VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps] <House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137721.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beach Club Band - Italian Girl (Extended Vocal Mix) 05:57
+2. Lana Love - Tell Me Why (Extended Vocal Disco Mix) 05:50
+3. Captain Apollo - When Time Went By (Extended Vocal Mix) 06:54
+4. Prima Ballerina - Don't Say Goodbye (Extended Vocal Mix) 06:03(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679452   (137740) от 25.11.2023
+
+Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I’m with YouЖанр: Dance, Euro-DiscoПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6455FF780848CE603C465F778FD7029266697C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679448   (137793) от 25.11.2023
+
+Polnalyubvi - О чем поет твое сердце (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk, Neo-classic>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Твои глаза [00:02:48]
+02. Успокой меня [00:03:19]
+03. Кукла [00:03:09]
+04. Моменты [00:02:51](   Читать дальше...   )Жанр: Indie, Folk, Neo-classicПродолжительность: 00:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E25B8C94ED8E1DD0F0FD39A5CB21E0EC635704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349374   (137866) от 31.12.2019
+
+NЮ - В сердце (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Веснушки
+02.В сердце
+03.Под кайфом
+04.Верь в меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
 ```
 
 

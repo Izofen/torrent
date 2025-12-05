@@ -1,111 +1,3 @@
-###  Публикация: 1273078   (139104) от 30.12.2018
-
-Mylene Farmer - Desobeissance (2018) Nouvelle Edition [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_139104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolling Stone
-02. Sentimentale
-03. Désobéissance
-04. N'oublie Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45F1ACF1965EE3383FBE9910717B30F62780A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348966   (139816) от 30.12.2019
-
-VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_139816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Air - La femme d'argent
-002. Otis Redding - (Sittin' On) the Dock of the Bay
-003. Morcheeba - The Sea
-004. Art of Noise - Robinson Crusoe(   Читать дальше...   )Жанр: Pop, Relax, Easy ListeningПродолжительность: 06:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195833   (139830) от 30.12.2017
-
-Андрей Миронов - Неизвестный Миронов (2005) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_139830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это было недавно (В.Баснер - М.Матусовский)
-02. Апельсины (П.Аедоницкий - Ф.Лаубе)
-03. Джон Грей (М.Блантер - В.Масс)
-04. А может быть (Я.Френкель - М.Долматовский)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111ECEE2DCD2DAEA12F4CBF75FA6B6046A12660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679162   (139906) от 24.11.2023
-
-Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_139906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская группа поп-музыки и кантри, образованная в Ричмонде, штат Кентукки, в 1963 году под названием the Exiles. Они гастролировали с Диком Кларком Caravan of Stars с 1965 по 1968 год. В 1972 году они сменили название на Exile. В 1978 году у них был поп-хит №1 в США с песней “Kiss You All Over”. В 1983 году они превратились в кантри-музыку со многими последующими (   Читать дальше...   )Список альбомов:
-1973 - Exile
-1978 - Mixed Emotions
-1979 - All There Is(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, DiscoПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCE6ABA95386C3C72BF7165919F1BDD2E6C864F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679159   (139924) от 24.11.2023
 
 VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -696,6 +588,115 @@ VA - Утомлённое солнце. Песни 30-50-х (2008) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720B419015C70599667B4E88D727D8B12E7D89AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678961   (141806) от 23.11.2023
+
+VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile - Kiss You All Over (3:19)
+02. Smokie - Mexican Girl (3:32)
+03. Boney M. - Painter Man (3:07)
+04. Barry Manilow - Copacabana (At The Copa) (4:05)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783D57E52F22271097228E96695F0A1C8FF7B93C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435129   (141838) от 29.12.2020
+
+NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неуловимы
+02. Танцуй
+03. Один из нас
+04. Не б’ецца(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C254C0F0DCBA60A4E2F5EC383B6AE92A130A7DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520458   (141840) от 28.12.2021
+
+VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Christmas, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительный пост в уходящем году. Не то чтоб на этом сборнике Вас ждали какие-то уж совсем новинки, но всё здесь подобрано старушкой Соней так, чтоб лишний раз не отвлекаться от праздничного стола и салат оливье сочетался с хорошим музыкальным сопровождением.
+Не пугайтесь того, что в первом видео внизу вас встретит надпись о шокирующих кадрах. Время меняется и (   Читать дальше...   )CD1:
+01. John Lennon - Happy Xmas (War Is Over)  (3:35)
+02. Shakin’ Stevens - Merry Christmas Everyone  (3:40)
+03. Elton John - Step Into Christmas  (4:31)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 8 ноября 2019 годаЖанр: Christmas, Pop, RockПродолжительность: 05:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5273ED0E837C65A77B5FF4BF666B4538700BD805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678905   (141953) от 23.11.2023
+
+Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaves of Love (feat. Quino)
+02. Don't Gamble with My Heart
+03. Only Love (feat. Bee Lee & AlimkhanOV A)
+04. Drama (feat. Quino)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
 ```
 
 

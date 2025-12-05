@@ -1,30 +1,3 @@
-###  Публикация: 1719754   (110375) от 02.05.2024
-
-VA - Footsteps On The Dancefloor, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dainpeace - Not Follow (Extended Mix) (04:47)
-02. George Rodgers - How Will I Know (03:30)
-03. VarZet - Flashback (02:22)
-04. Ismael johnson - Shaker (03:28)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784E3664C0C60AD787BE1F0894A90F58C23E541A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719813   (110377) от 02.05.2024
 
 Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -686,6 +659,33 @@ Astropilot - LIMITLESS (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C2E0915F14DCE6857C8097D3ED0F2120516551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718673   (110898) от 26.04.2024
+
+Pet Shop Boys - Nonetheless (2024) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loneliness (05:38)
+ 02. Feel (05:02)
+ 03. Why am I dancing? (03:33)
+ 04. New London boy (04:53)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4A75079E4B8F13DE6935358C8A9491E26A5E5B
 ```
 
 

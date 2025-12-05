@@ -1,30 +1,3 @@
-###  Публикация: 1595731   (174380) от 07.12.2022
-
-Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_174380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Атлант
-02. Utopia
-03. Мало Нам
-04. Психопатия(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F0FC2152FE5DF059524B995725197FC9815C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595738   (174842) от 06.12.2022
 
 Miyagi & Эндшпиль - HATTORI (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -155,6 +128,33 @@ magnet:?xt=urn:btih:89A15817D7601C71BFB2CED5D4E0213C6E8E8A8D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:649650271C74FAEC2D06D68E2936EEB7E64F2384
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595026   (176727) от 03.12.2022
+
+VA - FIRMAA (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_176727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Cave - БЛАГОДАРНОСТЬ [00:00:31]
+02. Murovei - ЯРОСТЬ [00:01:55]
+03. Гуф - МИМО ОБЛАВ [00:02:48]
+04. Смоки Мо, Murovei, Гуф, Ноггано - OZZY [00:05:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51DBAD784A4A5EDDC5A36BA931104DA683B022F
 ```
 
 

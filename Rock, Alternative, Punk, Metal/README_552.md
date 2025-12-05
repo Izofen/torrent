@@ -1,3 +1,381 @@
+###  Публикация: 1191572   (264091) от 14.12.2017
+
+Asking Alexandria - Asking Alexandria (2017) [MP3|320 Kbps] <Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone In A Room
+02. Into The Fire
+03. Hopelessly Hopeful
+04. Where Did It Go?(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9574910624A20CB5548FA014EB84737BA904CAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340061   (264191) от 22.11.2019
+
+Lindemann - F&M: Frau Und Mann (2019) Deluxe Edition [FLAC 2.0|24/44|tracks|WEB-DL] <Industrial Metal, Neue Deutsche Harte>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steh auf (3:04)
+02. Ich weib es nicht (4:50)
+03. Allesfresser (3:29)
+04. Blut (4:03)(   Читать дальше...   )Жанр: Industrial Metal / Neue Deutsche HarteПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8916270269B2B2F60AE1FC3B6BD3BEDAD7EDA036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340146   (264193) от 22.11.2019
+
+Чайф - Слова на бумаге (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чей чай горячей
+02. Ночью выпал снег
+03. Все девушки Бонда
+04. Время придёт выбирать(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340084   (264224) от 22.11.2019
+
+Чайф - Слова на бумаге (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чей чай горячей (Original Version)
+02. Ночью выпал снег
+03. Все девушки Бонда
+04. Время придёт выбирать(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4289B0B2F04A42861391F4B9DC25BF7353B06A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340011   (264246) от 22.11.2019
+
+Chris Rea - Auberge (1991) 2CD, Deluxe Edition, Remastered 2019 [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Auberge (2019 Remaster)
+02. Gone Fishing (2019 Remaster)
+03. You're Not A Number (2019 Remaster)(   Читать дальше...   )Жанр: Rock, Soft Rock, BluesПродолжительность: 02:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401AFBA998F5C6A710849B62F34ECFDC8FF86FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340126   (264256) от 22.11.2019
+
+Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orchestra) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie May
+02. Reason To Believe
+03. Handbags and Gladrags
+04. Sailing(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B9A51D23B937769CC0A69C5E7C48670B0C0D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340114   (264278) от 22.11.2019
+
+Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1996 - Ten (X)
+1996 - The Name Of The Rose
+1997 - The Robe(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 22:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339904   (264281) от 22.11.2019
+
+The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист и композитор Магнус Карлссон (Kiske/ Somerville, Magnus Karlsson's Free Fall, Primal Fear, The Codex, Planet Alliance, Last Tribe, Midnight Sun, Starbreaker, Allen/ Lande, Bob Catley, Scheepers) и вокалист Ронни Ромеро (Rainbow, Walter Giardino Temple, Eridan, Aria Inferno, Lords of Black, Jose Rubio's Nova Era, Santelmo, Voces del Rock) объединились в новом (   Читать дальше...   )--------------------------
+
+01. Don't Stand In My Way (5:02)
+02. Bring Me Home (6:24)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:55:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340153   (264282) от 22.11.2019
+
+Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я Можу Все
+2. Сліди
+3. Дощ
+4. Перша Леді(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339980   (264305) от 22.11.2019
+
+Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftermath
+02. Blue Eyed Fiend
+03. Psychic Suicide
+04. Double Agent 616(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339965   (264307) от 22.11.2019
+
+Scartown - Легенды Большого Города (2006) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Другой Мир
+02. Легенды Большого Города
+03. Сумеречная Зона
+04. Притяжение Бездны(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868C6F78753D3F61B842D609C107A6EB918B70CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969630   (264373) от 27.12.2015
+
+Стимфония - Герда (2015) [MP3|320 кб/с] <Steampunk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Сопливая песня
+02.  Упыри
+03.  Герда
+04.  Вий(   Читать дальше...   )Жанр: Steampunk, RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1FD6C0DAC056070199D2D1D894A9B9DB87EF3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969388   (264405) от 27.12.2015
+
+Рэйнхардт - Новелла (2015) [MP3|320 кб/с] <Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мёртвая Петля
+2. Каталонская Роза
+3. Новелла
+4. Долгая Холодная Зима(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC032D2515268905577F1AD6687C752652AF1341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268106   (264433) от 09.12.2018
+
+Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_264433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lavender Bones
+02. Bullfrog
+03. Skinny Dipping
+04. Speak Slow(   Читать дальше...   )Жанр: Pop-Punk, AlternativeПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1759E0CBF4DF1F97819AEC059367D4B92B67BF1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191386   (264470) от 13.12.2017
 
 Гребля - Скачал, послушал, удалил (2017) [MP3|320 Kbps] <Alternative Rock, Pop Punk>
@@ -317,384 +695,6 @@ W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70778CCD7C9F76CF4D66E768D5A8535F76F30D0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267711   (264886) от 08.12.2018
-
-Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pollution (3:49)
- 02. The Propaganda (5:17)
- 03. Build A Bridge (3:58)
- 04. The Story (3:52)(   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F0AB5AB598E4D8F44CEC7AAC1215F676BCB5AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191022   (265091) от 12.12.2017
-
-U2 - U218 Singles (Vol.1,2) (2006) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo (2005 Live From Milan) (3:54)
-02. I Will Follow (2005 Live From Milan) (4:27)
-03. Elevation (2005 Live From Milan) (5:52)
-04. I Still Haven't Found What I'm Looking For (2005 Live From Milan) (5:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A3F44AE1462B078A81669975FA6614F900386A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191068   (265112) от 12.12.2017
-
-Ольга Кормухина - Неизданное (2015) [APE|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Верю
-02. Долина света
-03. Время пришло
-04. Я не твоя(   Читать дальше...   )Жанр: RockПродолжительность: 01:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF281724F54EBC39F5586DF84280152DBCC07C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191129   (265143) от 12.12.2017
-
-Brutto - Live Minsk - Arena 08.03.2017 (2017) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Человек
-03. Underdog
-04. Moscow Сalling(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4988C218DFF50B1FAF93E2E4EB7B6A87320224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191272   (265146) от 12.12.2017
-
-Гран-КуражЪ - Достучаться До Небес (2017) EP [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Достучаться До Небес
-2. Голос Твой
-3. Звездные Дожди
-4. Русская Рулетка(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337CB8729EC4DD871C7051DC76BC30592978139D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191162   (265231) от 12.12.2017
-
-Morbid Angel - Kingdoms Disdained (2017) Limited Edition [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piles of Little Arms
-02. D.E.A.D.
-03. Garden of Disdain
-04. The Righteous Voice(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5331A23A8CD39678908C1EB3804FA68FE60E2EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339666   (265257) от 20.11.2019
-
-Lindemann - F&M Frau Und Mann (Deluxe Edition) (2019) [MP3|320 Kbps] <Industrial, Neue Deutsche Harte>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steh Auf 3:04
-02. Ich Weiss Es Nicht 4:49
-03. Allesfresser 3:29
-04. Blut 4:02(   Читать дальше...   )Жанр: Industrial, Neue Deutsche HarteПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8081FD9CA656A0BA69C7CC4472CD4D9C3300503B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339673   (265304) от 20.11.2019
-
-Lindemann - F&M: Frau Und Mann (2019) [FLAC|Lossless|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steh Auf
-02. Ich Weiss Es Nicht
-03. Allesfresser
-04. Blut(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210420FD94A7697A27E7E623CE5EA268A78A93EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339599   (265337) от 20.11.2019
-
-Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Lossless|image + .cue]<Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2003 – Last Autumn's Dream
-2004 – Last Autumn's Dream II
-2005 – Winter In Paradise(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 16:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8323FC75131FF6EE061DF0869FD84E89DC050D51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339657   (265358) от 20.11.2019
-
-Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Where Angels Fear To Tread (Album Version) [4:08]
- 2 - Ransacker [5:13]
- 3 - Before A Grave [5:06]
- 4 - Freddie Mercury [4:53](   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD3E002AD2CB4D7C9F714F9CE96F1EB3946E7A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267695   (265729) от 07.12.2018
-
-Magic Dance - New Eyes (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You're Holding Back 4:13
-02.Never Go Back 3:59
-03.These Four Walls 4:35
-04.Please Wake Me 5:02(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63221754F8D01FB6F9297E523415D479997DEE1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267547   (265798) от 07.12.2018
-
-Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost In The City
-2. The Run
-3. We Got Love
-4. Sign From Your Heart(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9268496D97EF47CC389B9984509F8CE7B647EF8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267621   (265799) от 07.12.2018
-
-Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Gospel
-2. Chapter II
-3. Chapter III
-4. Moon Goddess(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267653   (265801) от 07.12.2018
-
-Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_265801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forever And A Day
-2. The Last Day Of Sun
-3. When I'm Gone (Feat. Gogo Melone)
-4. Dor(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FE3022EA7A35E83172E0B23CCA105F915B5C79
 ```
 
 

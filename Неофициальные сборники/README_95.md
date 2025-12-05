@@ -1,3 +1,165 @@
+###  Публикация: 1345893   (163956) от 18.12.2019
+
+VA - Не спи за баранкой (Музыка в машину) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163956.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.#2Маши - Всем Нашим (Andrey Vertuga & Dj ZeD Reboot) (2:54)
+2.Artik Asti - Моя вина (RICH-MAX Radio Remix) (3:56)
+3.Boney M - Daddy Cool (Nick Raider Radio-Mix) (3:28)
+4.Culture Beat - Mr. Vain (Dj SPARX Remix 2019) (5:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3271324F5FD79E07AD667FC6E500885F18DE7D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598110   (164054) от 17.12.2022
+
+VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. Shakin' Stevens - Merry Christmas Everyone
+04. Brenda Lee - Rockin' Around The Christmas Tree(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673588   (164056) от 02.11.2023
+
+VA - Remix NNM 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мари Краймбрери - Случилась Осень (Denis Bravo Remix) (2:59)
+02. MITCHEL, Ханза, Баюн & Богдан - Пуэрто Рико (Silver Ace Remix) (2:46)
+03. Тося Чайкина - ещё (Livmo Remix) (3:25)
+04. Dabro - Ты знаешь, мам (Andy Shik & Subsnow & Scartz Remix) 2023 (4:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46B4AEF017EE4B02D0B00C49A107755F5F72C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346235   (164142) от 18.12.2019
+
+VA - Classic Rock timeless! (2019) 2CD [MP3|320 Kbps] <Rock, Blues, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rolling Stones - Like a Rolling Stone
+02. Black Sabbath - War Pigs
+03. Nazareth - White Boy
+04. The Beatles - Come Together(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 08:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA61A00CF9901B0266CF44081BAC4A7163234D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432450   (164170) от 17.12.2020
+
+VA - The True Story (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник отличного хард рока, который отлично подойдет для всех любителей жесткого, но мелодичного звучания. Монументальные, мелодичные композиции накатывают как волны настраивая слушателя на мысли философского содержания.001. Dead Man's Chest - Dear God
+002. Roadsaw - Under The Devil's Thumb
+003. Dripback - Blessed With Less Than Nothing
+004. The Acacia Strain - The Lucid Dream(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8637FD589624FC3D817EB322756B05D9DCE48895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432231   (164187) от 17.12.2020
+
+VA - Indigo Baby: Rap Theme Music (2020) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Особенно рэп и хип-хоп музыку любят подростки и молодые люди – ритмичность, лирика и стиль исполнения заставляют их включать эту музыку еще и еще раз. Причем, хип-хоп – это не только музыка, но и даже имидж. И можно даже смело утверждать, что рэп культура является настоящим образом жизни!001. Devil The One - Glock 9
+002. Xander - Midnight
+003. Headie One - Gang
+004. Marteen - Straight To The Point(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 11:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B2DA537A4650F0F08C91721822FE72A93BDBBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432214   (164307) от 17.12.2020
 
 VA - Beatport Deep House: Electro Sound Pack #209 (2020) [MP3|320 Kbps] <Deep House, Electro>
@@ -533,168 +695,6 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF001B891F07C3BDC28DA7F821B35AE5EB8DB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431746   (165559) от 15.12.2020
-
-VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_165559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
-002. Stewart Birch - Like The Rays From The Sun
-003. Phenomenal Handclap Band - Judge Not
-004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431702   (165951) от 15.12.2020
-
-VA - Секас от зайцев (2020) [MP3|320 Kbps] <Relax, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_165951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aelyn - Believe In Us (Chillout Mix) (4:10)
-02. Anderson East - If You Keep Leaving Me (4:13)
-03. Banks - Brain (4:41)
-04. Bastille - Bad Blood (Live Piano Version) (3:26)(   Читать дальше...   )Жанр: Relax, PopПродолжительность: 03:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4BE3982051F89410D79A986A64688CCB98FF48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345432   (165961) от 15.12.2019
-
-VA - Громкие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_165961.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Godfather of Harlem, 21 Savage - On the Inside (3:06)
-2.5sta family - Первый снег (2:46)
-3.Alanis Morissette - Reasons I Drink (3:38)
-4.Ally Brooke - No Good (3:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875EB009A402B92B7E1C0490F2861D10704A64CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345494   (166005) от 15.12.2019
-
-VA - December Electro House Exclusive Megamixes (2019) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Leckenby - One Place
-002. Ivanshee - Serpantine (Original Mix)
-003. Playr2 - Checkmate (Original Mix)
-004. Platunoff - Unbreakable Soul (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68E284895826398178D954DCF5259B3B33447B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431839   (166034) от 15.12.2020
-
-VA - Громкие новинки Декабря 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker, Vize, Leony, Edward Artemyev - Space Melody (3:00)
-02. Amine, Rico Nasty - Back & Forth (3:01)
-03. Anivar - Высоко (3:45)
-04. Anivar - Капля кислорода (3:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A35912126D01087D114F8E815922F355583F3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431761   (166085) от 15.12.2020
-
-VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_166085.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lina Lee - чмоК (02:16)
- 002. Agunda & BRuys - Закат (02:18)
- 003. Aisha - Чувства Цунами (03:28)
- 004. Alban Skenderaj feat. Arilena Ara - AISHEH (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25851639C3B82169C43955DDB00A4C537C08D7B
 ```
 
 

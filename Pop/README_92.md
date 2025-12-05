@@ -1,84 +1,3 @@
-###  Публикация: 1425902   (216307) от 23.11.2020
-
-VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_216307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - The Best (5:33)
-02. Duran Duran - Hungry Like the Wolf (3:40)
-03. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
-04. Spandau Ballet - Communication (3:40)(   Читать дальше...   )Жанр: Pop, Soul, OtherПродолжительность: 02:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966969   (216368) от 19.12.2015
-
-VA - Winter Party 2016 (2015) [MP3|320 кб/с] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_216368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TK - Hello (A.R. Mix)
-02. Trancemission - Sugar (A.R. Mix)
-03. Groovy 69 - Zero (B Remix)
-04. Thomas - Hula Hoop (B Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E903BB153ED4D47CD918EDCEDC04574C9868755F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343150   (216402) от 07.12.2019
-
-VA - Superstars In Concert (1986-87-88 The Prince's Trust Concerts) (1996) 3CDSet [MP3|320 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_216402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Gabriel – Sledgehammer (4:58)
-02. Rick Astley – Never Gonna Give You Up (4:05)
-03. Eric Clapton – Wonderful Tonight (4:21)
-04. Swing Out Sister – Breakout (3:56)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C871BD8278D40575A5DABF87AC9E59A165B63A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426083   (216520) от 23.11.2020
 
 VA - Tiktock Best Of 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -694,6 +613,87 @@ Samba Soul - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Sam
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F5D55A194BA3CEA46D9DF26EE1B20F7FA0968A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343423   (218494) от 06.12.2019
+
+Анна Плетнёва "Винтаж" - Cinematic (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Буду
+3. Королева мэйнстрима
+4. Мантра(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AD25B9532F9F776E76646B3A5EA8039AF97E52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343214   (218544) от 06.12.2019
+
+Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Pop-Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crush (3:20)
+ 02. Always You (4:05)
+ 03. Sober (4:06)
+ 04. Stranded (3:37)(   Читать дальше...   )Жанр: Electronic, Pop, Pop-Rock, BalladПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E59FADF20C513592E1420EFEA84B156051C0AF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343441   (218573) от 06.12.2019
+
+Анна Седокова - Про любовь (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218573.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Игристое, детка!
+2. Грааль
+3. Алые губы
+4. Стильная(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6082E70875609EF3981D1FA12816C8EBA61E81
 ```
 
 

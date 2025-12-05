@@ -1,138 +1,3 @@
-###  Публикация: 175814   (255566) от 03.04.2023
-
-Белый Орел - Дискография (1997-2007) [FLAC|Lossless]<POP>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никто Не Виноват (4:55)
-02. Давай Расстанемся (4:14)
-03. Налево - Налево (3:17)
-04. Я Ждал Тебя (4:14)(   Читать дальше...   )Жанр: POPПродолжительность: 4:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30AED8202C0CA1037402694A3EEA48AD7598EB3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 403426   (255574) от 03.04.2023
-
-Винтаж - 4 альбома (2007-2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:11:21
-
-01. Деревья
-02. Стерео(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80472C430B33412C24E78DC027347C74BB28BDAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836884   (255603) от 13.11.2025
-
-VA - Now That's What I Call Music! 27 (1994) 2CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base - The Sign     03:09
- 02. Chaka Demus & Pliers (With Jack Radics & Taxi Gang) - Twist & Shout     03:56
- 03. DReam - Things Can Only Get Better     03:59
- 04. East 17 - It's Alright     04:41(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / SoulПродолжительность: 02:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C01A20468652A751E2C67CEF3BA0AF80C18CEB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836781   (255672) от 12.11.2025
-
-Discobonus - Different Shores (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Always Inside (4:29)
-02. Let Me Fall (4:00)
-03. Lonely Again (4:30)
-04. The Sweetest Mistake (3:29)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1817EF17FD5F1FC7814854FB3EBE21082FF1BC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836920   (255712) от 13.11.2025
-
-Scotch - Pictures Of Old Days (1987) Reissue, Remastered, Deluxe Edition, 2016 [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_255712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus Plus     05:02
- 02. Rhythm Of Love     03:20
- 03. Pictures     05:24
- 04. Over The Rainbow     03:54(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, EuropopПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD424992245A61E1A23F70A2BA219176CDF772D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 135545   (255864) от 13.11.2025
 
 Нэнси - Дискография (1995 - 2008) [MP3|320 kbps]<Pop>
@@ -737,6 +602,153 @@ VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501273   (259130) от 28.05.2012
+
+Bad Boys Blue - Instrumental Collections (2011) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (4:40)
+02. Gimme Gimme Your Lovin (3:55)
+03. A Train To Nowhere (3:50)
+04. How I Need You (3:41)
+05. House Of Stlence (3:56)
+06. Save Your Love (4:11)
+07. Car Crash (4:44)
+08. Don't Walk Away, Suzanne (3:50)
+09. Lovers In The Sand (3:40)
+10. I Totally Miss You (3:54)(   Читать дальше...   )2011Жанр: PopПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDC0E4B28968684D5584458564F64A19393E87C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502917   (259313) от 29.05.2012
+
+Olly Murs - In Case You Didn't Know (2011) [MP3|320 кб/с]<Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Skips a Beat (feat. Rizzle Kicks)
+02. Oh My Goodness
+03. Dance With Me Tonight
+04. I've Tried Everything
+05. This Song Is About You
+06. In Case You Didn't Know
+07. Tell the World
+08. I'm Ok
+09. Just Smile
+10. On My Cloud(   Читать дальше...   )Жанр: Dance-PopПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F9F392C11ED3BAFDA5EA43661926426086822F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838259   (260055) от 22.11.2025
+
+Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Management LTD [FLAC 24/96|Lossless|WEB-DL|tracks] <Country, Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay It Down  (2025 Remaster) [00:03:38]
+02. Lovin' Him Was Easier  (2025 Remaster) [00:04:23]
+03. Good Hearted Woman  (2025 Remaster) [00:03:30]
+04. If This Is Our Last Time  (2025 Remaster) [00:03:24](   Читать дальше...   )Жанр: Country, Pop, BluesПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838630   (260557) от 24.11.2025
+
+VA - 20s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ROSÉ - APT. (2:49)
+02. Ed Sheeran - Sapphire (2:59)
+03. Dua Lipa - Dance The Night (From Barbie The) (2:56)
+04. Alex Warren - Ordinary (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A13531AE8BF4775F8A0517D20672B981E0E090F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838581   (260608) от 23.11.2025
+
+Александр Малинин - Мне нужен ответ (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Айсберги [00:02:56]
+02 - Мне нужен ответ [00:03:45] 24/44.1
+03 - Быть с тобой [00:02:45]
+04 - Не провожай [00:03:19](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8345051B2EE441D2E7752DFB2D01A3695F7ED237
 ```
 
 

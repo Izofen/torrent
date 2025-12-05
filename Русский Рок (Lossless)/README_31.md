@@ -1,3 +1,57 @@
+###  Публикация: 1400271   (192015) от 05.09.2023
+
+Кино - Любовь - это не шутка (1986) Limited Edition, Remastered, 2020, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192015.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Попробуй спеть вместе со мной
+2. Любовь - это не шутка
+3. Прохожий
+4. Закрой за мной дверь, я ухожу(   Читать дальше...   )Жанр: RockПродолжительность: 02:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB19B314C6A6BF4578CF9EBEB84FD05A1CBA5D3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657678   (192134) от 05.09.2023
+
+Scream in Darkness - Судный день (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфония раздробленных костей [00:04:10]
+02. В святость и назад [00:03:17]
+03. Кровавая ванна [00:04:39]
+04. Бессмертные [00:03:25](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587443   (192371) от 01.11.2022
 
 ПОЛ ПУНШ - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop Punk, Rock>
@@ -636,60 +690,6 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B47B58429289071916F14819D57DE45F4418D0A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655099   (204623) от 24.08.2023
-
-Cenobite - Torment Your Flesh and Explore the Limits of Experience (2023) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_204623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy Glory (4:17)
-02. Cenobite's Sigil (2:30)
-03. Sores (4:01)
-04. Master of Torment (4:21)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C3FE9D0C79A805E682942A22085C433CB0BB0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654456   (204940) от 22.08.2023
-
-Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_204940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GONE TO HELL [00:04:00]
-02. NERVOUS [00:03:24]
-03. BREAK YOU AGAIN [00:02:58]
-04. NO EXCUSE [00:03:12](   Читать дальше...   )Жанр: Alt. Metal, Hard Rock, Female VocalПродолжительность: 00:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C08CAD2ECCEF34DFA1EA45F6E5B9CACCFF9769
 ```
 
 

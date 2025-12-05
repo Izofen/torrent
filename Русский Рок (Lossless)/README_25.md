@@ -1,57 +1,3 @@
-###  Публикация: 1431155   (169048) от 12.12.2020
-
-Миссия - 2 Albums (2016-2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_169048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На старт! (feat.Евгений Егоров) [00:04:27]
-02. Легион (feat.Пётр Елфимов) [00:04:30]
-03. Зверь близко! [00:03:59]
-04. Оно (feat.Роман Стамбулджан) [00:05:04](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 2 CD, 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF23D1F4A52462014BC5EE259BD6501DFA5ECCD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672418   (169144) от 28.10.2023
-
-Слот - СимфоСлот - Symphonic Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_169144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра (Symphonic Live) [00:02:27]
-02. Стадия гнева (Symphonic Live) [00:03:54]
-03. Естественный отбор (Symphonic Live) [00:03:51]
-04. Норма (Symphonic Live) [00:04:34](   Читать дальше...   )Жанр: RockПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23794C7576DCCFCD5E4F6DE313A98C2C59E96783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596564   (169211) от 11.12.2022
 
 Princesse Angine - Никому не нужны твои жертвы (2022) [FLAC|Lossless|WEB-DL|tracks] <indy  Rock>
@@ -695,6 +641,60 @@ Durnev - В Мир Иной (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4AC4559D47BE9F26432F0F162F57E30ACE79E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670038   (172356) от 19.10.2023
+
+Crow'near - Full Moon Fever. Anniversary Edition (1992) Compilation, Reissue, Remastered, 2021, BassBoomBang [FLAC|Lossless|image + .cue] <Thrash, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gay ForoBundo
+02. Muscle Brains
+03. Crazy Girl
+04. Lucky Winner(   Читать дальше...   )Жанр: Thrash, Funk MetalПродолжительность: 01:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05B4059B04B13A8DC4661402BC0180192D90D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669446   (172833) от 16.10.2023
+
+Западный Фронт - СанктПитерБлюз (2023) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стратегический блюз
+02. Пора становиться большим
+03. Господин Никто
+04. У пяти углов(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BAE301F09D057F4D54790E7BA8C16C07FA414B
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1725269   (109022) от 24.05.2024
-
-VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_109022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Band of Jocks - Let's All Dance (Italian Version) (5:02)
-02. Marco Martina - Ticket To Shangay (Original English Mix) (6:43)
-03. Sex Band - I Have Got The Answer (Yes I Do) (Vocal) (6:28)
-04. Say When! - Save Me (Original Version) (8:05)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44ECB26E2EB57409B7F3E27716353A444C7C7E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725156   (109055) от 23.05.2024
 
 VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
@@ -694,6 +667,33 @@ Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881796472A8B2231845BE1B427BD9E9A47F8F894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721285   (110122) от 06.05.2024
+
+VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Mareen - Lady Ecstasy (5:36)
+02. Spooky Voice - Light My Light (8:02)
+03. Dj's Project - Birthday Girl (DJ Dance Mix) (6:10)
+04. U.K. - Roadrunner (Voices For The Farm - Dub Mix) (4:47)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD57A3FB90BDDE563E2DA9206CE800D22BC51D5
 ```
 
 

@@ -1,117 +1,3 @@
-###  Публикация: 588832   (151321) от 14.12.2012
-
-Александр Серов - Звездная серия (2001) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_151321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мишель
-02. Ворованная ночь
-03. Ночь
-04. Проклятая
-05. Улыбка
-06. Я люблю тебя до слез
-07. Элен
-08. Музыка венчальная
-09. Эта песня
-10. Ты меня любишь(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AFC5E8FA06CAA3F477D4BA5BC298CB89307CA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825777   (151419) от 17.10.2025
-
-ВИА Сажень - Друзьям в дорогу (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_151419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кто сказал [00:03:44]
-02 - Мир снов [00:02:46]
-03 - У камина [00:02:58]
-04 - На моих глазах [00:03:12](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0008AE25A2C55A1CB8452C9741A39D9DCE6EA3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086306   (151472) от 24.12.2016
-
-Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_151472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's The Most Wonderful Time Of The Year (2:45)
-02. Santa Claus Is Coming To Town (feat. Frank Sinatra) (2:15)
-03. Winter Wonderland (1:53)
-04. Only You (with James Corden) (3:05)(   Читать дальше...   )Жанр: Pop, Jazz, Swing, Easy Listening, Holidays, ChristmasПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C068BA25433CD3D949C4F5D55AFB076757A011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434529   (151473) от 24.12.2020
-
-Disco-Light Orchestra - Disco Sensation (1979) 2LP [MP3|320 Kbps] <Disco, Funk Soul, Pop, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_151473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Bring Me Down (2:11)
-02. Crazy Little Thing Called Love (2:17)
-03. A Walk In The Park (3:10)
-04. Dim All The Lights (3:24)(   Читать дальше...   )Жанр: Disco, Funk Soul, Pop, InstrumentalПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84F1A6E827874783C6CE0F46227954EAC2AF9AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825452   (151598) от 17.10.2025
 
 Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disco, House>
@@ -700,6 +586,114 @@ magnet:?xt=urn:btih:06D7A4A1FC0A4E4F15AD8DDFF3CBBCE46B3B9B1F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CDD33371A6CBEFF4DCCFD2FCC8EAAD103745B4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086121   (152777) от 24.12.2016
+
+Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Lossless|image + .cue] <Pop, Holiday, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Up Christmas (3:47)
+02. I Believe In Father Christmas (3:02)
+03. Have Yourself A Merry Little Christmas (Duet with Kim Wilde) (2:35)
+04. Santa Claus Is Coming To Town (2:57)(   Читать дальше...   )Жанр: Pop, Holiday, ChristmasПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379B6AC52EF4166C66EB7B9FB09ED54D8EEDE9BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707577   (152842) от 23.12.2020
+
+VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя он уже был на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. После серии номерных сборников шведы выстрелили  сборником самых последних "свеженьких" хитов осени 2013.01. Ellie Goulding - Burn (Tiestos Club Life Remix) (5:16)
+02. Avicii - Wake Me Up (Speed Remix) (7:02)
+03. Robin Thicke Feat. Pharrell - Blurred Lines (3:50)
+04. Naughty Boy Feat. Sam Smith - La La La (3:38)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F483275503240F2B5ED2E50E0B0DA37AA51149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194607   (153256) от 26.12.2017
+
+Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop, Soulful, Funk, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153256.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Co'n'Dorn (2 CD)
+2014 - Randorn (Deluxe)
+2017 - Jazzy Funky Dorn  (Live)
+2017 - OTDЖанр: Pop, Soulful, Funk, DanceПродолжительность: 05:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1222EAEA7024408B41CB4BAADD352B51AFEFD848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433909   (153391) от 23.12.2020
+
+Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTF Do I Know
+02. Plastic Hearts
+03. Angels Like You
+04. Prisoner (feat. Dua Lipa)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1A59613F1B54D2B9E04C2545F1AA452992C59B
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1604927   (209877) от 16.01.2023
-
-ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_209877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend (3:00)
-02. Waterfall (4:11)
-03. Arabica (6:00)
-04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661040   (210447) от 14.08.2022
-
-VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_210447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
-02. Scooter - Fire (03:14)
-03. KMFDM - Megalomaniac (04:19)
-04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641449   (210886) от 22.06.2023
 
 Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
@@ -723,6 +669,63 @@ Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084697   (216168) от 20.12.2016
+
+VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_216168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pentatonix – The Christmas Song (Chestnuts Roasting on an Open Fire) [00:03:43]
+ 02. Tom Odell – Real Love [00:02:21]
+ 03. Joshua Radin – Winter [00:03:23]
+ 04. Katy Perry – White Christmas [00:03:20](   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 02:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737280   (216283) от 23.12.2013
+
+Ani Tsering Wangmo - Alokhe (2007) [MP3|320 кб/с]<Folk, Mantras>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:29) 1. Heart Sutra Mantra
+(6:20) 2. Vajra Guru Mantra
+(8:54) 3. Chenrezig Mantra
+(6:33) 4. Vajra Kilaya Mantra
+(8:11) 5. Vajrasattva Mantra
+(4:54) 6. Gochen Tulku Longevity Prayer
+(5:37) 7. Tara MantraЖанр: Folk, MantrasПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F6D47916E8F01CE7A64244DC518885C75AB0E4
 ```
 
 

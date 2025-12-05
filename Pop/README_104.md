@@ -1,84 +1,3 @@
-###  Публикация: 1627757   (239571) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miko Mission - Universal Feeling (Vocal Version)
-02. Boris Zhivago - Love In Russia (ZYX Extended Mix)
-03. Siberian Heat - Pick Up The Phone (ZYX Summer Mix)
-04. TQ  Feat. Ken Laszlo & Fred Ventura - In The Night (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE504609573E8B54CC3F30F2DCE720BA34958AD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627185   (239576) от 18.04.2023
-
-VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239576.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 - Aretha Franklin & George Michael - I Knew You Were Waiting
-102 - Pink - So What
-103 - Backstreet Boys - Everybody
-104 - Anastacia - I`m Outta Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6A4C4E4CA68B346FADECA7E129C1F7B0C3E00F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621910   (239714) от 26.03.2023
-
-Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_239714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schrei der Wildnis [00:03:31]
-02. Magical [00:02:21]
-03. Samurai (feat. Alexander Marcus) [00:02:05]
-04. Fetisch [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294FB572208F05E6E18E129D23916939995911B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627405   (239756) от 19.04.2023
 
 VA - Bravo Hits Vol. 120 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
@@ -694,6 +613,87 @@ VA - Mastermix Crate 034: Old Skool Fusion (2022) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36095BDA068900C1470FE96AB89E508591B040E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636252   (241026) от 29.05.2023
+
+Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_241026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change
+02. Heartbeat
+03. Lost In Paris
+04. The Years (Go By)Жанр: Italo-DiscoПродолжительность: 00:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547913   (241034) от 02.05.2022
+
+Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balls [00:04:23]
+02. More Than a Sex Machine [00:05:03]
+03. Scheherazade [00:04:28]
+04. Aeroflot [00:04:28](   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C128D432CF93F74E9075CD36581B278BE9A676A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625841   (241150) от 12.04.2023
+
+VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy
+02. Taylor Swift - Anti-Hero
+03. OneRepublic - I Ain't Worried
+04. Imagine Dragons - Bones(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2877E8A57198EF222F060AEA7B56BD4EC940A87F
 ```
 
 

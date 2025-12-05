@@ -1,30 +1,3 @@
-###  Публикация: 1727540   (108409) от 03.06.2024
-
-VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_108409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rednex - Old Pop In an Oak
-02. E-Type - Set The World On Fire
-03. Mr. President - Up'n Away
-04. Deuce - Call It Love(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727648   (108439) от 03.06.2024
 
 VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
@@ -694,6 +667,33 @@ Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725269   (109022) от 24.05.2024
+
+VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Band of Jocks - Let's All Dance (Italian Version) (5:02)
+02. Marco Martina - Ticket To Shangay (Original English Mix) (6:43)
+03. Sex Band - I Have Got The Answer (Yes I Do) (Vocal) (6:28)
+04. Say When! - Save Me (Original Version) (8:05)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44ECB26E2EB57409B7F3E27716353A444C7C7E9
 ```
 
 

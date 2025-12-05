@@ -1,165 +1,3 @@
-###  Публикация: 499407   (256474) от 21.05.2012
-
-Хор Московского Сретенского Монастыря - Вижу чудное приволье (2004) [MP3|256 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Вижу чудное приволье (2:46)
-02. Однозвучно гремит колокольчик (3:53)
-03. На горушке, на горе (1:17)
-04. Как-то ранним утром (3:35)
-05. То не ветер ветку клонит (4:58)
-06. У зари-то, у зореньки (4:19)
-07. Вот полк пошел (2:07)
-08. Нiч яка мiсячна (3:24)
-09. Ах ты, степь широкая (3:33)
-10. Черный ворон (5:59)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADDFF60DF957469389693EC4554A62F8CA2B2C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499853   (256923) от 22.05.2012
-
-Кубанцы - Авторский сборник  (1995) [MP3|160 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_256923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Кубанью огни горят (1:20)
-02. Атаман (6:27)
-03. Каким ты был (3:01)
-04. Сказал казак через долину (1:42)
-05. Ой, у вышнэвому саду (3:33)
-06. Ой, ты, Галя (2:51)
-07. Любо, братцы, любо (3:22)
-08. Ой, мий мылый варэнычкив хоче (2:06)
-09. Батько Атаман (2:06)
-10. Мисяць на нэби (3:04)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500025   (257228) от 23.05.2012
-
-Болот Байрышев - Хранитель огня (2008) [MP3|320 кб/с]<Горловое пение>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Кам-Шаман
-02. Таай-шоор
-03. Мен-койонок
-04. Священный-Укок
-05. Кокур
-06. Охота
-07. Jилдыс
-08. Кай-Болот
-09. Хранитель огня
-10. Очыра-Манди-Очы-Бала(   Читать дальше...   )Жанр: Горловое пениеПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62968165B5B199DF8A88C9DC81AC1104C2C647C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500447   (257258) от 23.05.2012
-
-Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Metal>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_257258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Franconian Woods in Winter's Silence (08:34)
-02. A Gentle Grieving Farewell Kiss (01:59)
-03. The Blue Mists of Night (06:26)
-04. Mourners (09:18)
-05. Where at Night the Wood Grouse Plays (05:29)
-06. Dying Brokenhearted (05:34)
-07. The Shepherd and the Maiden Ghost (03:27)
-08. Heimwärts (06:41)
-09. Waldpoesie (13:31)
-10. Die Schwäne im Schilf (05:51)(   Читать дальше...   )1995-2006Жанр: Neofolk, Doom/Folk/Symphonic MetalПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500394   (257395) от 24.05.2012
-
-Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Rock, Dark Acoustic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_257395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subaudition – это молодой финский дуэт, ранее исполнявший progressive metal в рамках малоизвестной команды Manifold Object. Необычный материал содержит не только стандартные и очевидные звуки, но также множество призрачных аллегорий, создающих атмосферу таинственности и загадочности. Полное ощущение сумрака, создаваемое богатым инструментальным рядом, спокойным вокалом и супер-эмоциональностью. Эта финская команда предпочитает создавать в своих произведениях безысходную атмосферу при помощи минимума нот, слов и звуков.01. Alms of the Sun (05:26)
-02. Sнnne (06:05)
-03. Now that we've spent all the Light (05:30)
-04. Feathers Fall (06:05)
-05. The Soul unto Aether (04:00)
-06. Human Abstract (06:12)
-07. Wall of Water (07:49)2006-2009Жанр: Neofolk, Atmospheric Rock, Dark AcousticПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500892   (257453) от 24.05.2012
 
 Ненецкий народный ансамбль Маймбава - Вынгы Сё (2006) [MP3|320 кб/с]<Ethnic, Folk>
@@ -807,6 +645,157 @@ Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Pa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743D14347AD3E09C04738C19586263EAA04D521E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503591   (259919) от 31.05.2012
+
+Dan Gibson's Solitudes - Forest Piano (1996) [APE|Lossless]<New Age, Nature Sounds>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - A Path To Solitude
+02 - Beauty Abounds
+03 - Moody Afternoon
+04 - Ancient Stand
+05 - Summer Sublime
+06 - Chasing The Clouds
+07 - Dreaming By The Stream
+08 - Hymn To The Old GrowЖанр: New Age, Nature SoundsПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503800   (260148) от 31.05.2012
+
+No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, Art Rock, Abstract, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Revange on Seattle (06:02)
+02. Time Travel in Texas (04:50)
+03. All the Blue Changes (06:10)
+04. Pretty Genius (03:58)
+05. Lighthouse (08:15)
+06. Beaten by Love (03:57)
+07. Wherever There Is Light (05:08)
+08. Mixtaped (09:27)
+09. Things Change (08:24)Жанр: Progressive Rock, Ambient, Art Rock, Abstract, ExperimentalПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504462   (260580) от 02.06.2012
+
+VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 And The Heavens Shall Tremble
+2 The Eternal Conflict
+3 New Tristram
+4 Demon Hunter
+5 Black Soulstone
+6 Azmodan
+7 Witch Doctor
+8 Tamoe Highlands
+9 I Am Justice
+10 Barbarian(   Читать дальше...   )2012Жанр: OSTПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838559   (260727) от 23.11.2025
+
+Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Workin' Man Blues (5:17)
+ 02. Silver Wings (5:58)
+ 03. Tonight The Bottle Let Me Down (2:48)
+ 04. Today I Started Loving You Again (3:24)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3C8BB74A800A74453DA2E5FF364DCC310C330C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504972   (260875) от 03.06.2012
+
+I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLAC|Lossless] <Krautrock, Abstract, Psychedelic Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_260875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - I.E.M. (1996): (00:38:38)
+01. The Gospel Acording to the  I.E.M. (12:58)
+02. The Last Will and Testament of Emma Peel (08:10)
+03. Fie Kesh (08:23)
+04. Deafman (09:06)2010Жанр: Krautrock, Abstract, Psychedelic Rock, ExperimentalФормат: 4 × CD, Album, Reissue, RemasteredПродолжительность: 03:18:40
+
+## Скачать торент
+```bash
+нет
 ```
 
 

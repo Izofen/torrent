@@ -1,3 +1,57 @@
+###  Публикация: 1664839   (182376) от 30.09.2023
+
+Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Otherwish - ID
+02. Rinzen - ID
+03. Fever Ray - Shiver (Ivory Remix)
+04. Notre Dame - Yumi (Johannes Brecht Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665439   (182396) от 30.09.2023
+
+VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eligos - Feel Your Body Closer [02:54]
+02. Sam Collins - Pancake [03:29]
+03. Chris Simmons - My Heart [04:15]
+04. Dualhï - Say That You Love Me (Lalala) [02:40](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665168   (182409) от 30.09.2023
 
 Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive>
@@ -634,60 +688,6 @@ Frank Chickens - японская музыкальная группа в сти�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C2766B054F7676A683A92734F5DFC99205EA61C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427166   (184194) от 27.11.2020
-
-VA - Trance 2021 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_184194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Costa & Cathy Burton & Julia Violin - Can I Count On You (Original Mix)
-02. 4 Strings & Susanne Teutenberg - Ocean Wave (Original Mix)
-03. Roxanne Emery & BiXX - Sound of The Alarm (Original Mix)
-04. Nitrous Oxide - One Love (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593297F0A9EA85B01E945D867524568C5629A66D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592244   (184333) от 21.11.2022
-
-Purple Disco Machine - Club Exotica (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_184333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Enough (feat. Sahara Beck) (Monte Remix) (6:41)
- 02. At The Disko (Extended Mix) (6:34)
- 03. Fireworks (feat. Moss Kena & The Knocks) (Club Dub Mix) (6:19)
- 04. Don't Stop (Extended Mix) (6:28)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 01:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8245465621D282FDA0C75B90C3657B4ED6D6D4
 ```
 
 

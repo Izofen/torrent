@@ -1,3 +1,54 @@
+###  Публикация: 1827570   (187864) от 22.10.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 14 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Medina - System 12 (Maywave Remix) [7:30]
+02. Beek - Energy (Original Mix) [5:07]
+03. Alan West - Crossing (Radio Edit) [3:05]
+04. F4T4L3RR0R - Lonely Robot (Original Mix) [3:43](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C61D2B7B597A969B4F3B8C3E895038E35C39526
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699066   (187916) от 17.09.2023
+
+Hot Natured - Different Sides Of The Sun (2013) [FLAC|Lossless]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_187916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep HouseПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76084B04A8C9E953D9E6A846A451E31A129C4E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827555   (187978) от 22.10.2025
 
 VA - Progressive Trance Awakening, Vol. 08 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -635,60 +686,6 @@ VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589670   (189758) от 11.11.2022
-
-NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_189758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (8:39)
- 02. In a Cloudland (9:01)
- 03. Mindscream (8:23)
- 04. Night Call (8:18)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65758414BD860D1E59F2C3D0A3DF5D68561C3A8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589027   (190341) от 09.11.2022
-
-Cyber Space - Future On Mars (2009) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_190341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electronic Dream of a Robot (Ambiente Version)
-02. Dreams
-03. We Fly into Another Galaxy
-04. Give It to Me (Dance Version)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BF9171A5D1353716688240523F8952D3BAA69A
 ```
 
 

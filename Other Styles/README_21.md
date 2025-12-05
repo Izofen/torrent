@@ -1,57 +1,3 @@
-###  Публикация: 1085799   (156695) от 22.12.2016
-
-Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_156695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chanson d'automne (poeme de Verlaine) [0:53]
-02. Une amitie [1:30]
-03. La promenade [1:23]
-04. La lecon de violon [0:48](   Читать дальше...   )Жанр: Score, Soundtrack, ClassicalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433644   (156813) от 21.12.2020
-
-Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_156813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegy 1 (Angels) (02:27)
- 02. Elegy 2 (Forever) (05:01)
- 03. Elegy 3 (Farewell) (04:02)
- 04. Elegy 4 (Clouds) (02:46)(   Читать дальше...   )Жанр: Progressive Rock, New Age, AmbientПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433454   (156856) от 21.12.2020
 
 Giovanni (Giovanni Marradi) - Promises (1993) [FLAC|Lossless|tracks + .cue] <New Age, Easy Listening, Instrumental, Piano>
@@ -715,6 +661,60 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598414   (162541) от 19.12.2022
+
+Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Es Gibt Nur Wasser (Santiano cover)
+02. Star Of The County Down
+03. Scots Wha Hae
+04. Scarborough Fair(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597936   (163021) от 18.12.2022
+
+Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nothing Is Lost (You Give Me Strength) – The Weeknd
+2. Hometree – Simon Franglen
+3. Happiness Is Simple – Simon Franglen
+4. A New Star – Simon Franglen(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
 ```
 
 

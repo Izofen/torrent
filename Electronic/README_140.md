@@ -1,3 +1,57 @@
+###  Публикация: 1648234   (231342) от 23.07.2023
+
+VA - Wonderful Trance Tracks (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gilbert Carrizales - Pale Blue Dot [07:40]
+02. Veselin Tasev - Angelic Stars (Extended Mix) [08:53]
+03. Aj Antares - The Dreamer (4Am Mix) [07:01]
+04. Mauro Rizzo - I Love Trance Music [05:41](   Читать дальше...   )Жанр: TranceПродолжительность: 05:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A88CB71ADF5E5CB694202964ABFB6E2DA8A1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646705   (231369) от 20.07.2023
+
+VA - Summer Mix 2023 Beach Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chico40 - Better Off [03:40]
+02. Abee Sash - When I First Saw You [03:31]
+03. Cristian Ferrer - Not Alone (Radio Edit) [03:53]
+04. Magthegreat - Cry [03:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5761E765D3D44C2D3C3BA08CB276443868E8ACB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648083   (231409) от 23.07.2023
 
 Crowd+Ctrl - Smoke & Mirrors (2023) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ Sola Rosa - Low and Behold, High and Beyond (2012) [WavPack|Lossless|WEB-DLRip|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23BC562E158B3A3429A2E9E4EFF2889EC8754E4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643476   (232745) от 01.07.2023
-
-VA - AMVA Top Trance Collection 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke van Ness - Rainbow In Life (Extended Mix) [7:04]
-02. Vahid Ghandizadeh - Remedy (Original Mix) [5:29]
-03. Krystalmetch - Rise Again (Original Mix) [6:03]
-04. Solo Drive - Apex (Original Mix) [7:22](   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D303D907F29259E9C4AE855E97FCBB10E4552C64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643441   (232751) от 01.07.2023
-
-The Body - I Shall Die Here / Earth Triumphant (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Power Electronics>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_232751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Carry the Seeds of Death Within Me (6:29)
-02. Alone All the Way (5:22)
-03. The Night Knows No Dawn (7:37)
-04. Hail To Thee, Everlasting Pain (5:57)(   Читать дальше...   )Жанр: Industrial, Power ElectronicsПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7775F0144DFA9329970455C6467CE0AE231131A
 ```
 
 

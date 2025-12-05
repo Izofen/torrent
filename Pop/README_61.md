@@ -1,111 +1,3 @@
-###  Публикация: 1678052   (147335) от 20.11.2023
-
-Мэйби Бэйби - Мэйбилэнд (2022) [FLAC|Lossless|WEB-DL|tracks] <Teen Pop, Pop Punk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_147335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nya-Nya-Nya ^ω^ (00:02:20)
-02 - Мэйбилэнд (00:02:22)
-03 - Дакимакура (00:03:20)
-04 - Интимки (00:02:49)(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678059   (147386) от 20.11.2023
-
-Мэйби Бэйби - Shawty (2023) [MP3|320 Kbps] <Teen Pop, Pop Punk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_147386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hello, My Name Is Baby
-02 - Duraga
-03 - Принцесса Диана
-04 - Ice Baby(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D15A91DBDE0D2E1004863F2004493896F26D4F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968635   (147414) от 27.12.2015
-
-a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [FLAC|Lossless|image + .cue] <Pop, New Wave, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_147414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (03:49)
-02. Train Of Thought (04:15)
-03. Hunting High And Low (03:45)
-04. The Blue Sky (02:37)(   Читать дальше...   )Жанр: Pop, New Wave, Synth-popПродолжительность: 02:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678194   (147454) от 20.11.2023
-
-VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_147454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  L.A. Work - Crazy Boy
-02.  2 Unlimited - Jump For Joy
-03.  Mac Project - Everybody
-04.  Optical 2 - Move On Up(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271926   (147457) от 25.12.2018
 
 VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
@@ -691,6 +583,114 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677709   (149107) от 19.11.2023
+
+Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Want to Know (1999 Remaster) (4:07)
+02. N.Y.C. (1999 Remaster) (4:09)
+03. Your Painted Smile (1999 Remaster) (3:14)
+04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677831   (149228) от 19.11.2023
+
+Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf [00:04:05]
+02. How Long [00:03:59]
+03. Lift Us Up [00:04:25]
+04. Don't Judge Me [00:04:37](   Читать дальше...   )Жанр: Pop, Soul, BluesПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677873   (149357) от 19.11.2023
+
+Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Water [00:04:15]
+02. What's Simple Is True [00:03:35]
+03. Hands [00:03:55]
+04. Kiss The Flame [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677847   (149367) от 19.11.2023
+
+Братья Радченко - Малиновый звон (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пора любви
+02. Домик окнами в сад
+03. Синенький платочек
+04. Зорька алая(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
 ```
 
 

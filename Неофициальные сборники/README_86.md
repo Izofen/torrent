@@ -1,3 +1,165 @@
+###  Публикация: 1271473   (150180) от 23.12.2018
+
+VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Emperor Of China (Original Mix) 7:36
+02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
+03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
+04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271247   (150185) от 23.12.2018
+
+VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Gaulin  -  Moonlight
+04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677435   (150341) от 18.11.2023
+
+Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firehouse — самая любимая команда, ещё юности. Первые 2 альбома невероятно сильные. Все песни хитовые. Вокалист улётный, очень круто валит. Гитарные партии просто чума. Энергетика бешеная. Впервые услышал альбом 92 года, Hold Your Fire, в середине 90х, у друга на бобине. И на следующий день купил кассету SONY HF и побежал в звукозапись. У нас в студиях был только (   Читать дальше...   )01. Reach For The Sky
+02. Rock You Tonight
+03. Sleeping With You
+04. You're Too Bad(   Читать дальше...   )Жанр: RockПродолжительность: 05:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00315206AE9089CDEEED58066F1052EC4278003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677519   (150440) от 18.11.2023
+
+VA - Latin Blues (2023) [MP3|320 Kbps] <Blues, Rock, Latino>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delbert McClinton & Dick50 - She's Not There Anymore [03:04]
+02. Tito & Tarantula - After Dark (2015 Remaster) [03:44]
+03. John Mayall - So Hard To Share [06:57]
+04. Vargas Blues Band - Blues latino [05:33](   Читать дальше...   )Жанр: Blues, Rock, LatinoПродолжительность: 06:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F10CC40111FD383B2A4C8C4CA01D4A421EE800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677532   (150503) от 18.11.2023
+
+VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whirlwind - Cannons Of Infuriation
+002. Attest - Reign Of Nil
+003. Ticinum - Il Muto Dall'accia Al Collo
+004. Aphyxion, Immerse - Heavy Shadows(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 09:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691276103A63D83D47D221034C29D49C627CAFA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824156   (150676) от 18.10.2025
+
+VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John O'Callaghan Official - Fragmentos (Original Mix)
+02. Solarstone. - Over The Mountains (Club Mix)
+03. RAM Official, Christina Novelli & Asteroid - All Gone 2025 (Extended Mix)
+04. Andrea Ribeca - Summer Bliss (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413A169CD41C4CFB9E70AFBAE43F7158CEB89B01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825915   (150732) от 18.10.2025
 
 VA - Осень на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
@@ -533,178 +695,6 @@ VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1F82BE4AE2905FFA180D81F64EC8BEFDC0BC0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589095   (152763) от 14.12.2012
-
-Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 J.Viewz - Oh, Something's Quiet (BeatMagik Remix)
-02 La Roux - I'm Not Your Toy (Nero Remix)
-03 J.Rabbit - Ninja GaidenЖанр: Dub StepПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE482057B39F5A40B41201BFCD21370C3E2B78C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434046   (152926) от 23.12.2020
-
-VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152926.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Korol i Shut - Кукла колдуна (3:22)
-002. GAYAZOV$ BROTHER$ - Увезите меня на Дип-хаус (2:56)
-003. Markul - B.I.D (3:12)
-004. Drake - Toosie Slide (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B99E516B0612288459FC366C6C36347658E522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086397   (152964) от 24.12.2016
-
-VA - The Best Lounge Vol.46(Compiled by Sergio) (2016) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_152964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Bonnee - Soundscapes (Lounge Atmosphere Mix)
-02. 2 Illusions - Lone Wanderer
-03. Dancing Fantasy - Midnight Blvd.
-04. Croone - Never Met a Dream(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AD2610055B9328452D1DE9721F007997438100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434218   (153014) от 23.12.2020
-
-VA - Rock Classics 60s-80s: Remastered Version (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_153014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок - это, пожалуй, единственный стиль, интерес к которому не угасает с годами, а рок-хиты никогда не выходят из моды. Подтверждением тому служит большое количество ремиксов и кавер-версий на знаменитые рок-хиты всех времен. Представляем вам сборник рок-композиций, ставших уже классическими, но не утратившими своей популярности среди современных меломанов.001. The Everly Brothers - Cathy's Clown
-002. The Band - This Wheel's On Fire
-003. Genesis - Invisible Touch
-004. The Clash - Police On My Back(   Читать дальше...   )Жанр: RockПродолжительность: 12:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073B42FE511388AF03E6777C10B6F43C984125A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588627   (153138) от 14.12.2012
-
-VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_153138.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aly & Fila Feat. Jwaydan - We Control The Sunlight (Original Mix)
-2. Parka feat. Anna Basel - Momentarily Gone (Mike Nichol Remix)
-3. Trance Arts featuring DaJan - Beneath The Shadows (Astuni Remix)
-4. Steve Allen & Ian Holing Feat. - Control It Down (Aurosonic Mas
-5. Smart Apes Vs DJ Anna Lee - Running Away (Fat Kid Remix)
-6. Noel Gitman - Endless Love Oen Bearen Remix
-7. Shogun Feat Emma Lock - Run To My Rescue (Original Mix)
-8. A.T.M. - Broken Dreams (Mindful Innovations Remix)
-9. Fast Distance - Pacifica (Temple One Remix)Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 06:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3C39835694E25DC0B21699CED7BF9863E2F46D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588013   (153172) от 14.12.2012
-
-VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_153172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Albin Myers feat. Tiesto vs. Depeche Mode - Maximal Hells Bells, Jesus! (Riverhouse Bootleg)
-2. Andrew Bennett - Roadtrip
-3. Arno Cost - Lifetime
-4. Audien - Sup
-5. Benny Benassi - House Music
-6. Benny Benassi feat. Pink Is Punk - Perfect Storm
-7. Duvoh feat. Tess Marie - Come Over (Deorro Remix)
-8. Far East Movement - Dirty Bass (James Egbert Remix)
-9. Fedde Le Grand feat. Nicky Romero vs. Matthew Koma - Sparks (Jochen Miller Remix)
-10. Franky Rizardo feat. Roul And Doors - Elements (Hardwell feat. Dannic Remix)(   Читать дальше...   )Жанр: House/Electro House/ElectroПродолжительность: 02:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
 ```
 
 

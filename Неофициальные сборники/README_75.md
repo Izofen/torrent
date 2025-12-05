@@ -1,3 +1,165 @@
+###  Публикация: 1088422   (139226) от 31.12.2016
+
+VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Kate Louise Smith, Denis Karpinskiy - They Wait For Us (Progressive Mix) 8:00
+02. Ana Criado - Vulnerable (Denis Kenzo Remix) 5:15
+03. Omnia - Hold Me (Extended Mix) 3:53
+04. Luke Bond vs. CARTEL - Once More (Extended Mix) 5:24(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 03:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35BCAD89CA86281B6421DFA941B5A2B012491C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970748   (139256) от 31.12.2015
+
+VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eskova & 2Loop - Raindrops (Original Mix) (06:44)
+02. Aurosonic & Ana Criado - The Force Of The Blow (Original Mix) (07:32)
+03. Aelyn - New Day (Original Mix) (05:15)
+04. Denis Kenzo & Sveta B - Let Me Go (Original Mix) (05:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E9BE0AA4FA6584796D9067C6DFB98B22787565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088451   (139257) от 31.12.2016
+
+VA - Top 50 Uplifting Trance 2016  [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Binary Finary feat. Sylvia Tosun - Believe In Everything (Original Mix) [05:20]
+02. First Sight - Divine Force (Extended Mix) [05:49]
+03. Allen & Envy - Trancefamilia (Original Mix) [06:41]
+04. Unknown Source - Nadjanema (Temple One Remix) [06:05](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E6EF8E16BB9A11347E5B3C35990F8336FD8229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435982   (139314) от 30.12.2020
+
+VA - Say, Turn It Up! (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Trip>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139314.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной компиляции,неформат,андеграунд и реалии нашего времени! Очень разнообразный саунд под лирический трип-речитатив и широкий спектр тематики для взыскательных музыкальных предпочтений!001. Dirt Vonnegut - 1000 Ways To Die
+002. Visual Visions - Airwalk
+003. Mr.Mono - Never Sleeps
+004. 2 Chainz - Southside Hov(   Читать дальше...   )Жанр: Hip-Hop, Rap, TripПродолжительность: 08:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE9CEF1649CDF4549A637903C235B89B3FCFEAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272897   (139324) от 30.12.2018
+
+VA - Зарубежные Хиты-Декабрь (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139324.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker & Julie Bergan- I Don't Wanna Go
+002. Alan Walker & Sorana -Lost Control
+003. Alan Walker & Steve Aoki feat. Isak & Omar Noir-Lonely
+004. Alan Walker feat. Trevor Guthrie-Do It All For You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EC0B944FC1E280E159ED7B48CC546537611DB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520905   (139371) от 30.12.2021
+
+VA - Just music (2017) [MP3|320 Kbps] <Pop, Rock, Instrumental,  Eurodisco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minacelentano - Come Un Diamante Nascosto Nella Neve
+02. Chris Rea - The Road To Hell (Part 2)
+03. Grace Jones - I've Seen That Face Before (Libertango)
+04. Blue System - Sorry Little Sarah (New York Dance Mix)(   Читать дальше...   )Жанр: Pop, Rock, Instrumental,  EurodiscoПродолжительность: 02:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F7A4D4FBDEC17B7581324A7570BC73AE6C1DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088388   (139385) от 31.12.2016
 
 VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
@@ -540,174 +702,6 @@ VA - Умная Электроника (Музыка Поднимающая На
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFB2DE87F042D3C7CAFBE9C0CAE562B7A3E276C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348936   (140304) от 29.12.2019
-
-VA - Radio DFM Top D-Chart Декабрь 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_140304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza feat. GOODBOYS - Piece Of Your Heart 2:33
-02. Billie Eilish - Bad Guy 3:14
-03. Filatov & Karas - Au Au 4:13
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CB7C8616335E48CED0CC73FC44BBA4499E2896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088257   (140385) от 30.12.2016
-
-VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_140385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Exotic Sounds - Nightingale (Intro) (00:50)
-02. Fausto Papetti - Sorry Seems To Be The Hardest Word (03:20)
-03. Kenny G - Songbird (04:49)
-04. Morris Albert - Feelings (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8701CB2DDCD98ED5FE53361262722C227CB535
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590599   (140419) от 18.12.2012
-
-VA - Масть крестовая. Новогодний выпуск (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_140419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Лукьяновка - Снегопад
-002 Юрий Брилиантов - Двойной праздник
-003 Михаил Шуфутинский, Катерина Голицына и Любовь Шепилова - Новый год
-004 Ян Марти - Она красива
-005 Мадам Х - Хочу ребеночка от Путина
-006 Сергей Трофимов - Корпоративная тусовка
-007 В. Токарев, А. Полотно, Ф. Карманов, А. Дюмин, М. Шелег, В. Петлюра, Е. Чужой, Т. Тишинская - Новогодняя!
-008 Братья Радченко - Голубая вешняя вода
-009 Стас Притчин - Счастье
-010 Григорий Заречный - Танцуй, любимая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3AFD196401F89D88CA3018540EB2FC14291775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970585   (140513) от 30.12.2015
-
-VA - Best of Rock Collection (1980-1989) (2015) [MP3|320 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_140513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motorhead - Ace of Spades (02:49)
-02. Angel Witch - Angel Witch (03:26)
-03. The Michael Schenker Group - Armed and Ready (04:09)
-04. Accept - Balls to the Wall (05:44)(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 09:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D1551329679FA1E117ECCC55CD88FE13E0F9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970508   (140600) от 30.12.2015
-
-VA - Новогоднее настроение в СССР (2CD) (1956-1991) от DON Music (2015) [MP3|320 кб/с] <Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_140600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Людмила Гурченко - Пять минут (1956) (03:31)
-02. Майя Кристалинская - Снег идёт (1961) (02:18)
-03. Капиталина Лазаренко - Костёр на снегу (1965) (02:13)
-04. Ирина Бржевская - Полетел снежок над Обью (1965) (02:46)(   Читать дальше...   )Жанр: RetroПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1D2803C117F96D5D1A4C4A438F5B9EFE80954E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970453   (140638) от 30.12.2015
-
-VA - Romantic Collection Gold (2002) [MP3|192 кб/с] <Jazz, Blues, Guitar Music>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_140638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blues
-01 - Gary Moore - Still Got The Blues For You
-02 - Ronnie Earl - Round Midnight
-03 - Patricia Barber - Let It Rain(   Читать дальше...   )Жанр: Jazz, Blues, Guitar MusicПродолжительность: 07:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AC96C7F6807377142CE09DA50D686F2808F1DB
 ```
 
 

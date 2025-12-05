@@ -1,30 +1,3 @@
-###  Публикация: 1721285   (110122) от 06.05.2024
-
-VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_110122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Mareen - Lady Ecstasy (5:36)
-02. Spooky Voice - Light My Light (8:02)
-03. Dj's Project - Birthday Girl (DJ Dance Mix) (6:10)
-04. U.K. - Roadrunner (Voices For The Farm - Dub Mix) (4:47)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD57A3FB90BDDE563E2DA9206CE800D22BC51D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720484   (110334) от 03.05.2024
 
 Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
@@ -688,6 +661,33 @@ Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB8FA081139588403557715184ACC9B9E225460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711903   (112294) от 01.04.2024
+
+Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks + .cue] <Electronic, pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Island (3:53)
+02. Pretty In Possible (3:36)
+03. Bunny Is A Rider (3:14)
+04. Sunset (2:43)(   Читать дальше...   )Жанр: Art pop, alt-pop, electronicПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
 ```
 
 

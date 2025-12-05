@@ -1,84 +1,3 @@
-###  Публикация: 1425119   (222768) от 20.11.2020
-
-The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Rock, New Wave, Synthpop, 80s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_222768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Words (5:17)
- 02. Slow Drowning (4:27)
- 03. In Trouble And Shame (7:05)
- 04. This Means War (3:50)(   Читать дальше...   )Жанр: Electronic, Indie Rock, New Wave, Synthpop, 80sПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585124   (222780) от 21.10.2022
-
-Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_222780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adi Shakti
-02. Ek Ong Kar Sat Gur Prasad
-03. Light Of My Soul
-04. Rakhe Rakhan Har(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3B172DE94EE6A643F3681BCEBF68E953093FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585256   (222832) от 21.10.2022
-
-Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_222832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seasons Change
-02. Left Outside Alone
-03. Time
-04. Sick and Tired(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE909E9CD59B3D4BDA6CE4F0100C7501624F98D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852251   (222982) от 21.12.2014
 
 Selena Gomez - For You (2014) /Scene/ [FLAC|Lossless]<Pop>
@@ -699,6 +618,87 @@ VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Vi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342149   (225274) от 01.12.2019
+
+VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно 11 лет тому назад - 1 декабря 2008 года Австралийский дивизион лейбла EMI выпустил этот сборник для людей любящих в компании пропустить кружечку-вторую, а иногда и третью-четвертую. Головы людей, составлявших этот сборник, были явно этим самым пивом не затуманены, потому как он получился на удивление свежим и интересным. Знатоки вряд ли для себя найдут новые (   Читать дальше...   )CD1:
+01. Lynyrd Skynyrd - Sweet Home Alabama  (4:37)
+02. Choirboys - Run To Paradise  (4:05)
+03. Divinyls - Boys In Town  (2:50)(   Читать дальше...   )Релиз состоялся: 01 декабря 2008 годаЖанр: Pop, Rock, DanceПродолжительность: 03:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341987   (225339) от 01.12.2019
+
+Groove Armada - Twenty One (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225339.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-CLUB MIX:
+01. Oh Tweak To Me (03:22)
+02. Luv 91 (04:22)
+03. You Got To (05:03)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 04:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342040   (225394) от 01.12.2019
+
+Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Afrobeat, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Rhythm (3:26)
+02. Why Did You Do It? (3:25)
+03. It's A Man's World (2:52)
+04. Have You Ever Seen The Rain (2:42)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Afrobeat, DiscoПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AE32EB31A19C31C4534330F620C2D1BBC78FD5
 ```
 
 

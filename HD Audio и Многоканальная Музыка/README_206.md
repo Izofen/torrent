@@ -1,3 +1,83 @@
+###  Публикация: 1657365   (192771) от 03.09.2023
+
+Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192771.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 With A Song In My Heart
+A2 MacNamara's Band
+A3 Keep Right On To The End Of The Road
+A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587390   (192877) от 30.10.2022
+
+Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tankard — немецкая трэш-метал-группа из Франкфурта, основанная в 1982 году. Начиная со своего первого альбома, группа не изменяла взятому в самом начале направлению — создавать быстрые метал-песни, прославляющие алкоголь. В связи с этим получило распространённое мнение, что они изобрели жанр «алкоголик-метал». Сами себя Tankard называют «королями пива». Наряду с (   Читать дальше...   )1986 - Zombie Attack
+1987 - Chemical Invasion
+1988 - The Morning After
+1990 - The Meaning Of LifeЖанр: Thrash MetalПродолжительность: 14:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524571   (193069) от 29.10.2022
+
+A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Synth-pop, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193069.jpg" />
+</div>
+
+
+###  Подробнее
+
+A-ha  -  норвежская музыкальная группа, созданная в 1982 году в Осло и работающая в стиле электро-поп, появившемся на излёте «новой волны». Музыке a-ha присущи графичный, холодноватый («скандинавский») стиль, синтезаторно-гитарное звучание, выразительная балладная мелодика.1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These RoadsЖанр: Synth-pop, Pop-RockПродолжительность: 15:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657298   (193101) от 02.09.2023
 
 Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
@@ -614,87 +694,6 @@ Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633782   (198325) от 18.05.2023
-
-Стерео-Тест (Вега, г. Бердск) (1976) Мелодия СССР [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Samplers, Technical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198325.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 В. Людвиковский - Пояснительный Текст ("Манекены")
-A2 Unknown Artist - Проверка Правильности Сторон
-A3 Unknown Artist - Проверка Баланса Громкоговорителей ("Жизнь Артиста")
-A4 Unknown Artist - Проверка Фазировки Громкоговорителей(   Читать дальше...   )Жанр: Field Recording, TechnicalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633584   (198446) от 15.05.2023
-
-Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, SHM-SACD [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_198446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come An' Get It 03:58
-02. Hot Stuff 03:22
-03. Don't Break My Heart Again 04:03
-04. Lonely Days, Lonely Nights 04:16(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11E7372CCDD148AA3F440945F3F4712DC9356CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221378   (198612) от 10.05.2023
-
-Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_198612.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 В Спокойствии Ночи (In The Still Of The Night)
-A2 Я Мог Танцевать Всю Ночь (I Could Have Danced All Night)
-A3 Это - Великолепно (C'est Magnifique)
-A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
 ```
 
 

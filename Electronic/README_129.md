@@ -1,3 +1,57 @@
+###  Публикация: 1085451   (214703) от 21.12.2016
+
+VA - Uplifting Only: Fan Favorites 2016 (Mixed by Ori Uplift) (2016) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illitheas & Johannes Fischer - Tears of Hope (Intro Mix) (6:17)
+02. Sergey Nevone & Simon O'Shine - In Spite Of Everything (Radio Edit) (4:28)
+03. SoundLift - Long Way Back (Original Mix) (7:06)
+04. Afternova - We Were Meant To Be (Original Mix) (6:41)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F54E30A2D35FF47993B3686F6BB7AD7BBB7798A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586943   (214708) от 28.10.2022
+
+VA - FIVE (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aaron Lewis -  Horizon  (7:22)
+02.  Audioglider -  Hot Jupiters (Tripswitch Remix)  (9:38)
+03.  Benwaa -  Figure You Out (Daniel Klose Remix)  (8:24)
+04.  Blair Malott, Chuck Woodward -  So Far Gone  (7:26)(   Читать дальше...   )Жанр: Progressive House, Deep House, BreaksПродолжительность: 02:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23443AFF6FB618E67218DF66CB56FDB33C2A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085527   (214738) от 21.12.2016
 
 VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive House>
@@ -645,60 +699,6 @@ VA - Winterpearls 06 Chillout for a lovely cold breeze - Presented By Kolibri Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0065771FA6486077D6C586EED17594FB1A262E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343703   (216316) от 07.12.2019
-
-VA - Psytrance 2020: Top 100 Hits DJ Mix (2019) [MP3|320 Kbps] <PsyTrance, Psychedelic, Electronic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_216316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amfion - Take Control (Psytrance 2020 DJ Mix Edit) 4:34
-02. California Sunshine & Har El - Shining Star (Psytrance 2020 DJ Daylight Mix Edit) 5:15
-03. Painters Of Thoughts - Getafix 550 (Psytrance 2020 DJ Mix Edit) 6:03
-04. Sixsense & Alternate Side - Dymatized (Psytrance 2020 DJ Mix Edit) 5:03(   Читать дальше...   )Жанр: PsyTrance, Psychedelic, ElectronicПродолжительность: 11:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84731215B6662AEC1766FA397C0D017203CCFADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270109   (216398) от 17.12.2018
-
-VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_216398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Fragoso - Ilustre Timidez (Original Mix)
-02. Mister Salo - Chicago (Original Mix)
-03. Ero Boy - Vintage (Original Mix)
-04. Chris Park - Tonight (Feel Flow! Remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8550590976B80F1D0AC1ABFAAA847FA3BC4298
 ```
 
 

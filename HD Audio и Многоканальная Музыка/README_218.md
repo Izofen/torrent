@@ -1,3 +1,56 @@
+###  Публикация: 1633384   (243402) от 15.05.2023
+
+Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_243402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blazon Stone - шведская хэви-метал/пауэр-метал группа, образованная в 2011 году.2013 - Return To Port Royal
+2015 - No Sign Of Glory
+2016 - Ready For BoardingЖанр: Heavy/Power/Speed MetalПродолжительность: 04:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626764   (243585) от 15.04.2023
+
+Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243585.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Love You 3:14
+A2 Lost Again 4:18
+A3 No More Words 3:57
+A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542330   (243610) от 06.04.2022
 
 VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Folk>
@@ -636,60 +689,6 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623217   (245973) от 01.04.2023
-
-Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_245973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the blood [4:50]
-02. Getcha ya ya [4:35]
-03. She broke my heart (in 36 places) [3:40]
-04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253090   (246749) от 26.07.2023
-
-Андрей Макаревич и Оркестр Креольского Танго - Старая Машина (2006) [DTS 5.1|1411 kb/s|Апмикс]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_246749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маленький город
-02. Эпоха большой нелюбви
-03. Он был старше ее
-04. Мы расходимся по домам(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5503D66E7ED0D997E73755C03638A82CBEF06703
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1674628   (160843) от 06.11.2023
-
-VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_160843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus Koch - Morning Breeze (3:50)
-02. Lee Lou - Morning (3:47)
-03. Ottis Blake - Pulses (4:49)
-04. Steven Solveig - Relax and Unwind (4:48)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097F8128B9AF5FF1E1BC9127C40B7C2088DF2BD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674160   (160845) от 06.11.2023
 
 VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -690,6 +663,33 @@ Nicolas Barnes - Liquid Tools (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B321B76BA3D2599425934E21D4FAE818BFCABF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598551   (162597) от 19.12.2022
+
+VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Cargo -  Shinichi  (7:08)
+02.  Cream (PL) -  Kaleidoscope  (8:37)
+03.  Leandro Murua -  Nana Child (Seth Vogt Remix)  (7:39)
+04.  Sinan Arsan -  Ekubya (Dhany G Remix)  (7:44)(   Читать дальше...   )Жанр: Deep Progressive House, Organic HouseПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A5DC68EB5D50177F17B3D58CD178ABEDC062F9
 ```
 
 

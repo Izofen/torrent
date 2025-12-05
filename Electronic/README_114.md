@@ -1,27 +1,3 @@
-###  Публикация: 1430326   (174435) от 09.12.2020
-
-VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <EDM, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_174435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kauf & Jerro – Tunnel Vision feat. KaufЖанр: EDM, Melodic House & TechnoПродолжительность: 01:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56962364BA1EA86EF9C9CD80CABB28D65D578C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595865   (174498) от 07.12.2022
 
 VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -346,6 +322,87 @@ magnet:?xt=urn:btih:0C1B4B00C32B1137A76B6479413F6C7969A753EC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429447   (176726) от 06.12.2020
+
+VA - Winter Chillout Lounge 2020 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_176726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manoa - Emotions - Way Back Mix (5:13)
+02. Poolwave - Liquid Affair - Open Water Cut (5:36)
+03. DJ Maretimo, Sky Sergeant - Wingsuit - Dreamwave Cut (5:36)
+04. Frank Borell - Distance Voices - Over the Islands Mix (4:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309A48FB98C9AD9B43FBDD7141C103D2122BF81E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595009   (176776) от 03.12.2022
+
+VA - The Best Of Suanda Voice 2022 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_176776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Cari - I Remember (Original Mix) (3:48)
+02. Adip Kiyoi & Nabil Mj with Liezl - Angels (Extended Mix) (5:31)
+03. Christopher Corrigan - Stay With Me (Extended Mix) (6:15)
+04. Steve Dekay & Nathia Kate feat. Claire Willis - Only You (Tom Exo Extended Remix) (7:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A8DE65222F15214094F45DD34912622EF9F155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667281   (177014) от 08.10.2023
+
+Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Order - Blue Monday w/Claptone ft. Man Parrish - Flashdance
+02. Yolanda Be Cool ft. Jonjon - Segunda
+03. Eminem vs. Afrojack - Without Me vs. Chain Gang (Claptone Edit)
+04. The Chemical Brothers - Galvanize (clavette Reboot)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB2E81D97DE16681B572A97614154B449F48475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667221   (177218) от 07.10.2023
 
 Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, International Pop>
@@ -638,60 +695,6 @@ Altar (Br) - Ancestral (2017) EP [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17338B85ED8CBABD26C685FBF610B88A58DC0A76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429221   (177668) от 05.12.2020
-
-VA - Dirty House Winter '20 (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Future House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_177668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slam The Jam – Dropped Bass (4:20)
-02. Morena Rezzolata – Lovers (4:38)
-03. Fabio Solardo – Hello (4:05)
-04. Jayson Robins – Turn It DownЖанр: EDM, Electro House, Future House, Tech HouseПродолжительность: 02:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23194E457FAFDBFC6C5B7053F047EF31A19FCC8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594441   (177936) от 01.12.2022
-
-VA - Soothing Relaxation Lounge: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_177936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Therese - Contact (Original Mix) (3:56)
-02. Marga Sol - Reflections of You (Original Mix) (3:48)
-03. Malkou - Paris Á L'aube (Original Mix) (3:55)
-04. Roberto Sol - Sensuality (Ballad Mix) (4:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFE8E07CD95415E9810CCAB6CA9BFEC04E0338F
 ```
 
 

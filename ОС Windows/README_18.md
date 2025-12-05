@@ -1,3 +1,57 @@
+###  Публикация: 1836792   (255681) от 12.11.2025
+
+Windows 7 SP1 7601.28021 x64 3in1 by OneSmiLe [12.11.2025] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
+• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
+• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0428A4A081EC85DDF272310F1BBB1BD6828D2854
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836885   (255944) от 13.11.2025
+
+Windows 11 23h2/24h2/25h2 by SURASOFT (v25.11.11) [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов
+26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru.iso
+windows11_business_editions_version_24h2_updated_sep_2025_64_dvd_e1e7fc35.iso
+windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E7889852C1858D68B2D47DF0B66E6D2E8406FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498959   (256545) от 21.05.2012
 
 Windows Server 2003 R2 Standard OEM SP1 (x86) [ENGLISH]
@@ -454,79 +508,151 @@ magnet:?xt=urn:btih:0A192746401F709A644FBABFE3675F91DB8556E1
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006720   (826521) от 12.04.2016
+###  Публикация: 1290511   (675741) от 21.03.2019
 
-Recovery USB-Flash for Lenovo G5080 / Windows 8.1 (х64) [Ru]
+Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
->>Windows OEM Recovery СD/DVD
+>>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_826521.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_675741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_G5080_W81.tib,
-записанный на ноутбуке G5080 (80L000AXRK) с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F10D693BB42C5E629061BA58C5F1D5E7D2B91AD
+magnet:?xt=urn:btih:B10999411D659A26E223F9FBC8261B3CD80E72DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 336864   (832224) от 04.04.2014
+###  Публикация: 1390747   (782194) от 17.06.2020
 
-Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные образы от Microsoft MSDN [Russian]
+Microsoft Windows 10.0.19041.329 Version 2004 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Оригинальные версии Windows
+>>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_832224.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_782194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7 и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ.Язык интерфейса: Русский
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.329.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:591D2FB8C0F14278ADEC25A3E8D6CB3BF9939928
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455663   (1025157) от 21.03.2021
+###  Публикация: 1390746   (782204) от 17.06.2020
 
-Windows 10 Pro x64 3in1 20H2.19042.867 March 2021 by Generation2 [Multi/Ru]
+Microsoft Windows 10.0.18363.900 Version 1909 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
->>Сборки Windows 10
+>>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025157.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_782204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на основе оригинального образа Microsoft Windows 10 20H2 x64.
-В один образ объединены три редакции: две с автоактивацией и одна без.
-Интегрированы обновления по март 2021 года, билд повышен до 19042.867.
-Системы абсолютно чистые.(   Читать дальше...   )Язык интерфейса: Русский, ангийский и др.
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.900.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6F96368DAD13C590342B2D7463130CDF8C6A6C2
+magnet:?xt=urn:btih:1B19AD29923E24C3C842019A63B2167713796980
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390740   (782205) от 17.06.2020
+
+Windows Server, Version 2004 (10.0.19041.329) (June 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_782205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948D2BF98D3E9A924583B0D037A8BB63E0204D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390744   (782223) от 17.06.2020
+
+Microsoft Windows 10.0.18362.900 Version 1903 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_782223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.900.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0E0DB7CE6269BFE26D64DAE74128E0B22A3AE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390745   (782227) от 17.06.2020
+
+Microsoft Windows 10.0.18363.900 Version 1909 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_782227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.900.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5A8C4D70FE503D1E8BBA49E159A13C9CBFBDCD
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1584188   (226624) от 17.10.2022
-
-Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_226624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolling Stone
-02. Sentimentale
-03. Desobeissance
-04. N'oublie pas(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B024630FC77D7F7641B77F154D02720494B3B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583738   (226635) от 17.10.2022
-
-Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_226635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Control (Feat. Amaya) 3:54
-02. A Brighter Day (Extended Mix) 6:15
-03. Baila Bandolera (Extended Mix) 8:58
-04. Forever Young (Extended Mix) 7:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268235   (226808) от 10.12.2018
-
-VA - Schlager Club 2019 (63 Discofox Party Hits) (2018) 3CD [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_226808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Ben Zucker - Was für eine geile Zeit (Single Mix)
-03. Eloy de Jong - Schritt für Schritt (Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 03:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B0DAE392F629DBC395790071DFEA4FFA20CC4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586588   (226829) от 09.12.2012
 
 VA - Italian Golden Ballads (2010) [MP3|320 кб/с]<Pop>
@@ -701,6 +620,87 @@ magnet:?xt=urn:btih:D1F44FC888600538B01B13309D0C102156B41FD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F83DFB765FBB62A48EFA25DDFC10AD417FC7A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423676   (229009) от 16.11.2020
+
+VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229009.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 GIMS - YOLO
+02 OBOY - Cabeza
+03 PLK Feat. Niska - On Sait Jamais(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423877   (229016) от 16.11.2020
+
+New Baccara - F.U.N. (1990) Japanese Edition [FLAC|Lossless|tracks + .cue] <Euro-Disco, Euro-Pop, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F.U.N. (4:57)
+ 02. Say A Little Prayer (3:43)
+ 03. Without You (4:44)
+ 04. Are You Alone Tonight (3:53)(   Читать дальше...   )Жанр: Euro-Disco, Euro-Pop, SynthpopПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D95360B63A5BCD6B5E3996CD143154E5EB089BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649656   (229066) от 28.07.2023
+
+Purple Flash - Greatest Hits 1978-1984 (2006) Compilation [MP3|320 Kbps] <Electronic, Funk / Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_229066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Doing That Thing (5:59)
+02. Creme Souflee (4:58)
+03. We Can Make It (7:17)
+04. Leading Lover (6:18)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, DiscoПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AB9C4ED73DDC48E7862592E901A2448228A9CC
 ```
 
 

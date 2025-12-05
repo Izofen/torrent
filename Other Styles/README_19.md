@@ -1,63 +1,3 @@
-###  Публикация: 1271421   (148556) от 24.12.2018
-
-VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_148556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Gato Montes ( Eric Bouvelle )
-02. Le Plus Beau Tango Du Monde ( Julio Cortazon )
-03. Bucaro ( Jose Caldeiro )
-04. Gallito ( Andre Blot )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 03:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738987   (148594) от 27.12.2013
-
-David Arkenstone - Be Thou My Vision (2008) [FLAC|Lossless]<New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Be Thou My Vision (4:15)
-02. Sanctus (5:04)
-03. Celebration Jig (2:54)
-04. Amazing Grace (3:08)
-05. Deep Peace (5:12)
-06. Just as I Am (4:17)
-07. Lamb of God (5:11)
-08. The Water is Wide (3:58)
-09. In Christ Alone (4:45)
-10. You Are My God (4:21)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C741DD9AB47930B860D1A0C42BA1BDCA9E9E2BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271440   (148693) от 24.12.2018
 
 VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
@@ -755,6 +695,66 @@ David Arkenstone - Caribbean Nights (2009) [FLAC|Lossless]<New Age, Tropical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8640D639A0965A354403BFFB91071BC945ECCF55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968338   (153264) от 24.12.2015
+
+Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Shine
+ 02. Secrets of Life
+ 03. Dolphin Island
+ 04. Paradise Calling(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556C2878445144FA34A5EDFEC0DE405D006B29E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738408   (153379) от 25.12.2013
+
+The Barra MacNeils - Oh Christmas Three (2013) [MP3|320 кб/с]<Folk, Celtic, New Age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:06) 01. Bound for Bethlehem
+(2:24) 02. Maybe This Christmas
+(4:48) 03. Miners’ First Noel
+(2:05) 04. Here We Come a-Wassailing
+(6:25) 05. The Green Tree Set
+(3:51) 06. Oran Nollaig Na Bretainn Bhig (A Breton Carol)
+(3:48) 07. Christmas Belongs to Children
+(3:47) 08. For Mary for Joseph
+(3:04) 09. A-Walkin' Christmas Morning
+(8:44) 10. The Parting SetЖанр: Folk, Celtic, New AgeПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5609A80CDB6500A1D90F095AAF6C02880CF998B
 ```
 
 

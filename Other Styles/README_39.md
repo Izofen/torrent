@@ -1,138 +1,3 @@
-###  Публикация: 1339885   (264008) от 23.11.2019
-
-VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New Age, Folk, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jalan Jalan - Sekar (Spirit of Plants) (6:20)
-02. Hae - Sunset Island (2:17)
-03. Hae - Chikinu Kaishiya (4:10)
-04. Jalan Jalan - Hug With the Wind (5:25)(   Читать дальше...   )Жанр: New Age, Folk, Modern ClassicalПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387C9707801599DE2D2BC8700C7EE77D7FB0ECDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339819   (264210) от 22.11.2019
-
-The Chill Out Orchestra - Another Brick in the Wall (The Pink Floyd Cover Versions) (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Brick in the Wall (Original Mix) (03:57)
-02. The Other Side of the Moon (Original Mix) (05:17)
-03. Wish You Were Here (Original Mix) (04:33)
-04. Mother (Original Mix) (03:19)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F7029A209F6BE60C65139C7244889E60BE35C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338799   (264265) от 22.11.2019
-
-Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Theme
-02. Preparing for battle
-03. The Siege of Osaka
-04. Trouble on the Nakasendo(   Читать дальше...   )Жанр: OSTПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3C78C43132CC7D584B9CA855014B9873F33DB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339737   (264277) от 22.11.2019
-
-Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264277.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Across The Quiet Universe 5:18
-2. Calypso 4:52
-3. Blue World 4:39
-4. Eternal 5:57(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFC523F97C804A5F24AA72736052C275A8978F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339504   (264283) от 22.11.2019
-
-VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_264283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Come All Ye Faithful (2:12)
-2. It's Christmas (2:25)
-3. Christmas Is Near (3:03)
-4. Christmas Time Back Home (3:12)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19861F651A36628C2F6A3E779799E95F84384BD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338783   (264285) от 22.11.2019
 
 Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
@@ -693,6 +558,141 @@ VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:912C0286698E587BFECC6D4183EEDB896FEE1372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189854   (269508) от 07.12.2017
+
+Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_269508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise to Sunset
+02. Twilight Peace
+03. Starlight
+04. Promenade(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA28A37F698FBECCAC2096772B7920AD0A458B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189810   (269510) от 07.12.2017
+
+Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_269510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  A Walk Through the Leaves (4:12)
+2.  Sun on Frost (2:41)
+3.  Constellations (6:12)
+4.  The River in Late Autumn (4:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171792   (269562) от 15.11.2019
+
+Saint-Preux - Le piano d'Abigail (1983) [MP3|320 kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_269562.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Le piano d'Abigail I (2:15)
+2. Les songe d'Abigail (3:40)
+3. Ecstasy (3:59)
+4. Intermede I (0:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24BA3CC5C37CD89AEF596D94965A0378ABFAFF30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338261   (269734) от 15.11.2019
+
+Mokadelic - Gomorra: La Serie (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Experimental, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_269734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust Ring (3:45)
+ 02. Right to the Edge (2:51)
+ 03. Doomed to Live (2:42)
+ 04. Stoke the Baptism of Fire (3:41)(   Читать дальше...   )Жанр: Electronic, Ambient, Experimental, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2302D90ABF3B2150C936D23608A7D24CD6C9124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338516   (269736) от 15.11.2019
+
+Faun - Marchen & Mythen (2019) [MP3|320 Kbps] <Folk, Medievol>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_269736.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Es war einmal...
+2. Rosenrot
+3. Seemann
+4. Hagazussa(   Читать дальше...   )Жанр: Folk, MedievolПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D30D6C4B8803FC3C82F27D5B042075A9E58A3A0
 ```
 
 

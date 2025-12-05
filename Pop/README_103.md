@@ -1,84 +1,3 @@
-###  Публикация: 1623882   (238301) от 03.04.2023
-
-VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_238301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Wake Me Up (Radio Edit)
-02. Imagine Dragons - Radioactive
-03. OneRepublic - Counting Stars
-04. Katy Perry - Roar(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1812BBAC2DD0286A2B340EDC691AE5E80432F416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629295   (238302) от 26.04.2023
-
-VA - Keep It Disco Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_238302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity - Memories (Original Mix)
-02. Discotron & Soul Power - The Same Way (Nu Disco Extended Mix)
-03. Mike Chenery - Love Like This (Original Mix)
-04. Scruscru - Funky Flute (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:19:23 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E9FA69696E6321F8F4E83FED7B87B07A12EE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623902   (238324) от 03.04.2023
-
-VA - Bravo Hits 106 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_238324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Señorita (3:12)
-02. Sarah Connor - Vincent (4:43)
-03. Pedro Capó & Farruko - Calma (Remix) (3:59)
-04. Alvaro Soler - La Libertad (3:13)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA173EB79ED47F73F3E34213F79D54979526BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490675   (238383) от 21.08.2021
 
 Rod McKuen - Amor, Amor - Slide... Easy In (1977) LP [MP3|320 Kbps] <Funk/Soul, Disco>
@@ -694,6 +613,87 @@ GSPD - СПОРТ РЕЖИМ: КРАСНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB82323C30384BB2343EB6E9042A6518226FC7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627757   (239571) от 20.04.2023
+
+VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Universal Feeling (Vocal Version)
+02. Boris Zhivago - Love In Russia (ZYX Extended Mix)
+03. Siberian Heat - Pick Up The Phone (ZYX Summer Mix)
+04. TQ  Feat. Ken Laszlo & Fred Ventura - In The Night (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE504609573E8B54CC3F30F2DCE720BA34958AD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627185   (239576) от 18.04.2023
+
+VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239576.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 - Aretha Franklin & George Michael - I Knew You Were Waiting
+102 - Pink - So What
+103 - Backstreet Boys - Everybody
+104 - Anastacia - I`m Outta Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6A4C4E4CA68B346FADECA7E129C1F7B0C3E00F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621910   (239714) от 26.03.2023
+
+Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schrei der Wildnis [00:03:31]
+02. Magical [00:02:21]
+03. Samurai (feat. Alexander Marcus) [00:02:05]
+04. Fetisch [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294FB572208F05E6E18E129D23916939995911B2
 ```
 
 

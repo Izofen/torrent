@@ -1,3 +1,57 @@
+###  Публикация: 1587699   (192306) от 01.11.2022
+
+VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3|320 Kbps] <Techno, Electro, Euro House, Hardcore>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charly Lownoise & Mental Theo - Wonderful Days
+02. Dune - Hardcore Vibes (Video Mix)
+03. Marusha - Somewhere Over The Rainbow (Short)
+04. Technohead - I Wanna Be A Hippy (Original Mix)(   Читать дальше...   )Жанр: Techno, Electro, Euro House, HardcoreПродолжительность: 05:24:18 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E7187D2D8285AC9E1663B6B6C293FF90FB2C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657612   (192434) от 04.09.2023
+
+Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sea [00:03:04]
+02. Darkout [00:03:05]
+03. Nothing to Regret [00:03:11]
+04. Into the Flames [00:04:08](   Читать дальше...   )Жанр: Dark Electro, EBMПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657610   (192436) от 04.09.2023
 
 The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Dream Wave, Electronic, Songwriter, Synth Pop>
@@ -636,57 +690,6 @@ DJ Грув - Белый альбом (2007) [FLAC|946 kbps]<Electronic, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C45F1278EBCDF7706A2219FFA9F0FFC4DD63B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110104   (197204) от 12.06.2023
-
-John B - Live At 7years Jungle Club Freiburg (28 Ноября 2008) [MP3|192 Kbps]<Drum'n'Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_197204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bloc Party - One Month Off (John B Re-edit)Жанр: Drum'n'BassПродолжительность: 2:56:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 109746   (197220) от 12.06.2023
-
-Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_197220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бенzин – Ромео не умрет (Posh Rmx)
-02. Noize Draft – Believe In My Love
-03. Sequent Industry – Train To Space (Rate Remix)
-04. Alex Pusher feat.Katy Magic – Call Of The Universe(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24F006F78EBA23B5726FD8C157EC8B88D147244
 ```
 
 

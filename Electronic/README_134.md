@@ -1,3 +1,57 @@
+###  Публикация: 965871   (223840) от 15.12.2015
+
+Depeche Mode - Sounds Of The Universe (2009) CD+DVD [FLAC|Lossless|tracks + .cue] <Synth-pop, Alternative Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Chains (6:53)
+02. Hole to Feed (3:59)
+03. Wrong (3:13)
+04. Fragile Tension (4:09)(   Читать дальше...   )Жанр: Synth-pop, Alternative RockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B8029EF38E3A14CFC1606AC2E7CA79231DC23C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965554   (223865) от 15.12.2015
+
+Depeche Mode - Black Celebration (1986) [FLAC|Lossless|tracks + .cue] <Synth-pop, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Celebration (4:57)
+02. Fly on the Windscreen (final) (5:19)
+03. A Question of Lust (4:22)
+04. Sometimes (1:54)(   Читать дальше...   )Жанр: Synth-pop, DarkwaveПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312171C9C8C141AF15298CD29F3FBF7FF689F986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965544   (223925) от 15.12.2015
 
 Depeche Mode - Exciter (2001) [FLAC|Lossless|image + .cue] <Leftfield, Downtempo, Synth-pop>
@@ -650,60 +704,6 @@ VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686B43C34812AA8078E28F50AC8B219DEA21C85A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268782   (225217) от 12.12.2018
-
-VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_225217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Smiley – The Dreamers (Markus Schulz In Bloom Mix)
-02. ID
-03. Markus Schulz & Jam El Mar – The Lotus
-04. ID(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653A2E63B99E3FECE1C33D3A0A107F496CD800D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268787   (225234) от 12.12.2018
-
-VA - Total Trance Selections Vol.14 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_225234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nakhiya - Intersideral (Original Mix)
-02. Gerome - Sky Citizen (Original Mix)
-03. Franco Scaravaglione - Spice (Original Mix)
-04. Running Man - Amnesia (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810D313B4921CED565AAAA322E009995424CF4D0
 ```
 
 

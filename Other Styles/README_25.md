@@ -1,57 +1,3 @@
-###  Публикация: 1591262   (187518) от 17.11.2022
-
-VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_187518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. POLINA - Что-то пошло не так
-2. Люся Чеботина - Главная причина
-3. Николай Ростов - Где ты была вчера?
-4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590974   (187537) от 17.11.2022
-
-Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_187537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babylon (04:05)
-02. Penelope Graves (06:17)
-03. Gambit of Night (Extended) (03:53)
-04. Come Take a Trip in My Airship (04:05)(   Читать дальше...   )Жанр: Progressive Rock, Cinematic RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590719   (187816) от 16.11.2022
 
 Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
@@ -691,6 +637,60 @@ Vol.1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828014   (193752) от 23.10.2025
+
+Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds of Passion
+02. Breathless
+03. Guitanova
+04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654919   (193913) от 24.08.2023
+
+VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atman (US) - Namekia (6:49)
+02. Mikhail Catan - Away (7:23)
+03. Tamer ElDerini - Fagr (5:42)
+04. Michael Simon - Canzul (6:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
 ```
 
 

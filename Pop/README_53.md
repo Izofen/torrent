@@ -1,30 +1,3 @@
-###  Публикация: 1686326   (126587) от 22.12.2023
-
-VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/002/save_picture_126587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J. Bobo - What About My Broken Heart
-02. Snipers - Fire
-03. Black Diamond - Go With Love
-04. D.J. Wondermike - Take Me Away(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8CEACCC3F335BC6AACC12CB0B172FF021150BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686335   (126611) от 22.12.2023
 
 VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tracks + .cue] <Christmas, Compilation>
@@ -696,6 +669,33 @@ EMIN - 44 (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AB0E4C9F7217E4D39C6384CA51F53C8A6B3DC28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683473   (128403) от 11.12.2023
+
+Bananarama - Robert De Niro's Waiting /  Velvet Lies (Remixes) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert De Niro's Waiting (The Reflex Revision - Edit)
+02. Velvet Lies (Luke Million Remix)
+03. Robert De Niro's Waiting (The Reflex Revision)
+04. Venus (Boys Noize Rework Edit)Жанр: PopПродолжительность: 00:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C41A4D5528D3C45DD834E28BD8FE5A642983BA
 ```
 
 

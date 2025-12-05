@@ -481,31 +481,6 @@ magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491932   (246647) от 04.05.2012
-
-Alizee - 5 альбомов (2000 - 2010) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_246647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alizée (Alizée Jacotey) - После победы в телевизионном конкурсе «Начинающая звезда» получила предложение от Милен Фармер (Mylene Farmer) и композитора Лоран Бутонна (Laurent Boutonnat), начать вокальную карьеру.
-Первый сингл «Moi… Lolita» и последовавший за ним альбом «Gourmandises» покорили Францию, а позже и всю Европу. Ализе по итогам 2000 года удостаивается (   Читать дальше...   )Жанр: PopПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 275986   (246750) от 26.07.2023
 
 ABBA - 9CD Box Set Vinyl Replica (2008) [FLAC|Lossless]<Pop>
@@ -702,6 +677,33 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835365   (250936) от 06.11.2025
+
+VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
+03. Racey - Boy Oh Boy (2:53)
+04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
 ```
 
 

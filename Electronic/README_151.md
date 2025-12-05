@@ -1,3 +1,57 @@
+###  Публикация: 1536592   (244113) от 12.03.2022
+
+Timmy Trumpet - Live @ kineticFIELD, EDC Mexico (2022-02-27) [MP3|320 Kbps] <Big Room, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Freaks w/ID - ID
+02. Tiësto & DallasK - Show Me (Timmy Trumpet Remix)
+03. Nirvana - Smells Like Teen Spirit w/ID - ID w/Megan Thee Stallion - Body (Acappella)
+04. GTA & TJR - Mic Check w/Greazy Puzzy Fuckerz & D-Fence - Virgin (Kick Edit) w/Timmy Trumpet - Freaks (Acappella)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E5CFB70182409AB5010A95CB54C35695582F4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610824   (244156) от 09.02.2023
+
+VA - Underground Heroes Of Trance (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.O.M. - Magnetic (Original Mix) [6:24]
+02. Liam Wilson & Will Atkinson - The Hurricane (Original Mix) [7:57]
+03. Allan Morrow feat. Sophie Way - Why We Do This (Original Mix) [8:04]
+04. Paul Todd - Xone (Original Mix) [8:07](   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E78C43DBD3C384F961B83E708B9F7B9E4427902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072513   (244197) от 13.11.2016
 
 Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
@@ -641,60 +695,6 @@ Crunkz - Never Stop Ep. 4 (2022-01-29) [MP3|320 Kbps] <Tech House, Future House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:931E78DC597C16B18B0EDB8918EB95BD0C541CD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067440   (244810) от 29.10.2016
-
-VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_244810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Austin - I.O.U. (Radio Version) 03:33
-02. Winman - Fade To Grey 03:37
-03. Scotty - Westend Girls (2Nd Mix) 03:18
-04. Topaz - The Great Commandment 03:28(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F3888AF411646E070C28844107E40A42AE5CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625072   (244824) от 08.04.2023
-
-VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_244824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Ryasnyansky - Escape From Reality (Original Mix) [5:34]
-02. Miroslav Vrlik & Cold Runner - Rise Above Them (Original Mix) [3:26]
-03. Onstream89 - Infinite Moment (Original Mix) [7:15]
-04. Future State - Alien Escape (Original Mix) [5:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498EA93E1DDE0CE14D8702D8AF41ABD28EC6A1F7
 ```
 
 

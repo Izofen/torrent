@@ -1,82 +1,3 @@
-###  Публикация: 1343032   (221137) от 04.12.2019
-
-Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_221137.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЭДЕЛЬВЕЙС
-2. ДАВИДА ОЛЕНЬ
-3. О'ХЕНРИ
-4. АЛАДДИН(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651696   (221144) от 07.08.2023
-
-Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_221144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Can't Get over You (Demo Version) [00:03:02]
-02 - See White Wishes Fall (A Christmas Song) (Demo Version) [00:03:22]
-03 - Don't Come Crying to Me (Demo Version) [00:03:43]
-04 - Nothing Left for Us (Demo Version) [00:03:54](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342929   (221196) от 04.12.2019
-
-Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_221196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Be Mine
-02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585538   (221281) от 22.10.2022
 
 Mylene Farmer - Greatest Hits (2013) 2 CD, Unofficial Release [OGG Vorbis|480 Kbps] <Pop, Europop>
@@ -693,6 +614,87 @@ Sphinx - Sphinx (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCDF0A56EB67C1966465A446268AF69D0E4C7114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425119   (222768) от 20.11.2020
+
+The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Rock, New Wave, Synthpop, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Words (5:17)
+ 02. Slow Drowning (4:27)
+ 03. In Trouble And Shame (7:05)
+ 04. This Means War (3:50)(   Читать дальше...   )Жанр: Electronic, Indie Rock, New Wave, Synthpop, 80sПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585124   (222780) от 21.10.2022
+
+Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Shakti
+02. Ek Ong Kar Sat Gur Prasad
+03. Light Of My Soul
+04. Rakhe Rakhan Har(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3B172DE94EE6A643F3681BCEBF68E953093FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585256   (222832) от 21.10.2022
+
+Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons Change
+02. Left Outside Alone
+03. Time
+04. Sick and Tired(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE909E9CD59B3D4BDA6CE4F0100C7501624F98D3
 ```
 
 

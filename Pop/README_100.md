@@ -1,86 +1,3 @@
-###  Публикация: 1649342   (230474) от 27.07.2023
-
-Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_230474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Che Dio ti benedica (04:20)
-02. Questa primavera (05:01)
-03. Fatte na pizza (03:27)
-04. Mal di te (04:50)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649448   (230686) от 27.07.2023
-
-Duncan Sisters - The Duncan Sisters (1979) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/003/save_picture_230686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness In My Eyes (6:47)
-02. Outside Love (7:10)
-03. Rock Along Slowly (4:44)
-04. Boys Will Be Boys (7:15)(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182B88753134D65FD08A003A2126A0D4DBDDC4AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637499   (230752) от 04.06.2023
-
-Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/004/save_picture_230752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Right Said Fred - Британская поп-группа, созданная в 1989 году братьями Ричардом и Фредом Фэйрбрассами (Richard and Fred Fairbrass).
-В 1991 году вышел первый хит «I’m Too Sexy», многократно использованный в кино и на телевидении. Песня заняла первое место в хит-парадах США и второе место в Великобритании.
-После The Beatles, они стали второй группой из Англии, три (   Читать дальше...   )01. I'm Too Sexy (2023)
-02. Don't Talk Just Kiss (2023)
-03. Deeply Dippy (2023)
-04. Love For All Seasons (2023 Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637087   (231028) от 02.06.2023
 
 VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -698,6 +615,87 @@ Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634259   (233516) от 19.05.2023
+
+VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Boy - Forget You (2:27)
+02. Felix Jaehn - Call It Love (2:34)
+03. Glockenbach - YEAH (2:38)
+04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644853   (233604) от 07.07.2023
+
+Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [FLAC|24/44.1|WEB-DL|tracks] <Disco, Eurodance, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Get Hurt (3:28)
+02. When Love Takes over You (4:13)
+03. This Time I Know It's for Real (3:39)
+04. The Only One (3:55)(   Читать дальше...   )Жанр: Disco, Eurodance, EuropopПродолжительность: 01:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE56B7FBD7DD6E4B4B87EE9BBF04BF75240FDA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634176   (233636) от 19.05.2023
+
+EMIN - За минуту до... (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233636.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Искал тебя
+2. За минуту до...
+3. Милая
+4. Рано(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0EBC51D159BA237A82E526B03D51A4ADB294B3
 ```
 
 
