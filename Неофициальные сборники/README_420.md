@@ -1,0 +1,702 @@
+###  Публикация: 1469859   (1016055) от 14.05.2021
+
+VA - Most live performances (2021) 10CD [MP3|320 Kbps] <Rock, Pop, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Gabriel - Sledgehammer (Live)
+02. Fleetwood Mac - Go Your Own Way (Live on PBS in Boston 2004)
+03. Billy Joel - Allentown (Live at Shea Stadium, Queens, NY - July 2008)
+04. Seal - Bring It On (Live in Paris)(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 67:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1C5A28A71293AEBD0460460EBEF459FAA599EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469650   (1016277) от 13.05.2021
+
+VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Great Big World, Christina Aguilera - Say Something (3:49)
+02. Harry Styles - Sweet Creature (3:44)
+03. 3 Doors Down - Here Without You (3:58)
+04. Christina Perri - Jar of Hearts (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6031A247E9BDA6C9A6EBDB02104957512A5CE63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469635   (1016291) от 13.05.2021
+
+VA - Deep Is The Breath: Chill House Music (2021) [MP3|320 Kbps] <Chill House, Deep House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неспешная и великолепная фоновая музыка. Придётся кстати как для отдыха, так и для работы и является наилучшим лекарством от хандры. Она печалит и веселит, создает приподнятое настроение и умиротворяет, наполняет жизнь смыслом и просто развлекает.001. Nodo - Kintsugi
+002. Phaze Dee - Heated Point
+003. Invōker - Nami
+004. Bninjas - Evidence(   Читать дальше...   )Жанр: Chill House, Deep House, ChilloutПродолжительность: 11:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438317669A64F48F81D1B676D06CAA7E41D52C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469672   (1016303) от 13.05.2021
+
+VA - Trance Music Collections 2021 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syncbat & Conciliator Project - To The Stars (Conciliator Project Remix)
+02. Damir TC - The Girl's Voice (Original Mix)
+03. Dmitriy Osipov - Sky (Original Mix)
+04. Dream Travel - 2 Chance (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive, ElectronicПродолжительность: 04:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0E2AEE9D18C0CA7B8F27300801B27C1910272D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469622   (1016307) от 13.05.2021
+
+VA - Beatport Techno Electronic: Sound Pack #281 (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистический формат в техно музыке, вразрез всеобщему сужденью, один из самых сложных стилей. Ввиду того, что наименьшим составом нот получить эффектного звучания крайне трудно. Но авторам музыкальных треков этого компилата от Beatport похоже удалось это сделать!001. Cube Andy B - Triangle
+002. Sami Wentz - Monkeyz
+003. Emrah Celik - Blotic
+004. Bruce Zalcer - Requiem(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 09:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA92C4E812E347245B49F9145C1E4C745C1E4AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469321   (1016531) от 11.05.2021
+
+VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016531.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam van Hammer - Self Control (Radio Edit) (3:10)
+002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
+003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
+004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468973   (1016576) от 11.05.2021
+
+TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Юлия Морозова & DJ G-Neo G - Фотообои
+02.Юлия Морозова - Зажигай (Eugene Star Remix)
+03.Юлия Морозова - Всегда с тобой рядом (Eugene Star Remix)
+04.Проект НаЗаре, DJ DimixeR - На Заре 2020 (Extended Mix)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 02:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10BCDD6257044624852C26651AEE0C0999C8427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468974   (1016706) от 10.05.2021
+
+VA - Новички в попсе Vol 8 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MAKF - Все мои здесь (2:56)
+02. Koles, Paha - Звездопад (2:50)
+03. Lima Osta - Без тепла (3:06)
+04. Luverance - Где я (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9908B8F8FEBD8D06E10C75533D0F65716ACCC5C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469010   (1016718) от 10.05.2021
+
+VA - 30(4) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inna - Hot (DJ Ramirez Mike Temoff Radio Remix) (2:50)
+02. Far East Movement ft. The Cataracs DEV - Like A G6 (DBL Remix) (4:03)
+03. DeepSystem - Dame Locura (Robber DJ Remix) (2:56)
+04. Мэвл - Не бои774ся (Glazur XM Remix) (2:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908D836903E6075BBBDDBBA9B956A7B7E8899AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468750   (1016733) от 10.05.2021
+
+VA - Soft Pop Hits 2 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoobastank - The Reason (3:53)
+02. Matchbox Twenty - If You're Gone (4:34)
+03. Macy Gray - I Try (3:51)
+04. Bruno Mars - The Lazy Song (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A1128360FA36296B92BB81634DF70F6F6A8676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469078   (1016746) от 10.05.2021
+
+VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ONI - Barn Burner (04:00)
+ 02. Interloper - Glasshouse (04:31)
+ 03. Monuments - Animus (03:41)
+ 04. Fiends - Keep Me in the Dark (06:35)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9686B02628928B86ED36A967D377F2A561D94155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469104   (1016749) от 10.05.2021
+
+VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция транс музыки с наименованием "Top 100 Euphoric Trance", станет Вашим проводником в мир самой актуальной и нестандартной музыки. Пластичные переходы от агрессивного строю к растянутому лаунжу и резкие амплитудные всплески электронной музыки под аккомпанемент пространственного бита, под который тело само стремиться в движение будут с Вами на протяжении (   Читать дальше...   )001. Spyndl - Dark Spaces
+002. Vinny Degeorge - Forza
+003. Genetic - Revelations
+004. DJ Sakin - Dream Of Eternity(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14C713DB0DA9A512CF4C210242D35611ED98B34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468945   (1016765) от 10.05.2021
+
+VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандальный имидж, распущенная и зачастую агрессивная манера исполнения - это всё панк рок! Вам предлагается послушать эту музыку на сборнике под наименованием "Punk Rock Bulldozer". Любителей этого жанра порадуют мощные синтезаторные рифы, брей бит, новаторские аранжировки и вокал их исполнителей.CD 01:
+
+001. Daysworth Fighting - Warm Hands, Warm Heart
+002. 999 - Doctor Nick(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61586CCDAFFF7B41F35E268DE00C7233D6538AAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468895   (1016768) от 10.05.2021
+
+VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inna - Flashbacks (2:57)
+02. Tiesto - The Business (2:44)
+03. Eneli, Monoir - 3 to 1 (3:39)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468950   (1016781) от 10.05.2021
+
+VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодичность, индивидуальный формат в аранжировке, классические струнные, душевный и виртуозный вокал, кристально возвышенное, отшлифованное до идеала, звучание – всё это охарактеризовывает композиции апрельского 280-го микса Deep House музыки от известного лейбла.001. Librium Project - Ghetto Blessing
+002. Benjamin Bryan - Zonero
+003. Martinoresi - Put Me Out
+004. Controlwerk & Matter - Onyx(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9999EF9FE9FFF955BE13AC41118C9DED6E87C70E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468514   (1016994) от 08.05.2021
+
+VA - Вечный Аншлаг (2021) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1016994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Круг, Михаил Круг - Тебе, моя последняя любовь (3:03)
+002. Александр Розенбаум - Налетела грусть (3:08)
+003. Денис Майданов - Вечная любовь (3:31)
+004. Олег Шаранданов - Танец (2:58)(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DB6D7F8C543DF91AA62D7992195DBC99AFABC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468544   (1017031) от 08.05.2021
+
+Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Black Cat [00:04:11]
+02-Natural Born Loser [00:03:23]
+03-Ain't It Just Like A Woman [00:03:18]
+04-Strange Man [00:04:17](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E0D20A480B7AC84F66F40390D903D5651DB53B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468428   (1017064) от 08.05.2021
+
+VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ONI - Alone (Blacklight Media) (05:46)
+ 02. John Petrucci - Temple of Circadia (07:11)
+ 03. Sons Of Apollo - Fall to Ascend (05:05)
+ 04. Delain - Combustion (05:25)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE8EC8B6D125612CE26A002586FE9149283ACE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467664   (1017186) от 07.05.2021
+
+VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps] <Dance, Electro, Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Amchi - Уже всё равно (DJ Safiter Remix)
+02.Artik - Asti - Бла Бла (Shnaps and Kolya Funk Remix)
+03.Artik and Kacher - Bailame (Yudzhin Remix)
+04.Dabro - Мой Путь (Misha Slam & Alexey Ezh Remix)(   Читать дальше...   )Жанр: Dance, Electro, RemixesПродолжительность: 02:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDC0F78744C3371E486623E2565C6D6B1B9E6F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468298   (1017202) от 07.05.2021
+
+VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Arthur, Anne-Marie - Rewrite The Stars (3:38)
+02. Hozier - Take Me to Church (4:01)
+03. Avril Lavigne - Head Above Water (3:40)
+04. John Mayer - Waiting On the World to Change (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DB1D9E0FF17DD47B1D52C68EA0DCA8EC06451F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467456   (1017648) от 04.05.2021
+
+VA - Shazam & Apple Music Chart (Россия Топ 100 Апрель) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017648.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ramil' - Сон (2:57)
+002. Egor Kreed - (Не)идеальна (2:38)
+003. escape, Konfuz - Не смотри (2:32)
+004. HammAli & Navai - Нет твоей вины (2:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2655371B682BDEE7DA977FB39BAE065F077AB222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467495   (1017695) от 04.05.2021
+
+VA - Gold Italian Hits (2021) [MP3|320 Kbps] <Pop, Italian Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauro - Bueno Sera Ciao (7:24)
+02. Adriano Celentano e Nada Malanima - Il figlio del dolore (6:25)
+03. Umberto Tozzi - Gloria (4:55)
+04. Pupo - Un Amore Grande (4:48)(   Читать дальше...   )Жанр: Pop, Italian PopПродолжительность: 03:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971E11FD3202CEFC6F98F38AF1270E41E95FE178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467571   (1017714) от 04.05.2021
+
+VA - Music News vol.97 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017714.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mariana - Non Stop (03:09)
+ 002. 21 Savage - Spiral (02:53)
+ 003. Adina & Sultan Ilyaz - Как Хочешь (03:16)
+ 004. Alamo & Julia Hallasen - Da Bop (02:45)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6A2A91E2A30396D5222F0A3655D29B6D2F7A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467265   (1017841) от 03.05.2021
+
+VA - Shazam Хит-парад World Top 200 Апрель (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - Talking to the Moon (3:37)
+002. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
+003. Masked Wolf - Astronaut In The Ocean (2:12)
+004. Bruno Mars, Anderson .Paak, Silk Sonic - Leave The Door Open (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BD2423141503C7C1D68A1EE063CD74F1C6CDE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467169   (1017910) от 03.05.2021
+
+VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это крутая музыка, которую невозможно слушать тихо - ибо мощные гитарные запилы, сильный вокал и неиссякаемый драйв попросту не дадут сделать это. Если для вас слово "РОК" не пустой звук, а смысл жизни, - нам с Вами по пути!001. John Paul Keith - Keep On Keep On
+002. Wig Wam - Dirty Little Secret
+003. Møaa - Exist
+004. Superdrone - Find You(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3240C8223785A2221C5FA44BF43FC518802012A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467167   (1017928) от 03.05.2021
+
+VA - The Flowers Jazz's (2021) [MP3|320 Kbps] <Instrumental, Smooth Jazz, Improvisatio>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/007/save_picture_1017928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ненавязчивые звуки рояля подобно струящемуся чёрному бархату обволакивают сознание и создают атмосферу спокойствия и умиротворения. Вашему вниманию новый сборник инструментальной музыки "The Flowers Jazz's". Волшебные звуки клавиш и плач саксофона унесут Вас в страну грёз и райского наслаждения.001. Peggy Lee - Whee, Baby
+002. Mindi Abair - Flirt
+003. Mindi Abair - F L A  Swing
+004. Jarez - Night Life(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, ImprovisatioПродолжительность: 10:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08CA4DF6452F3AB6D215DA065DB1A112EECC560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

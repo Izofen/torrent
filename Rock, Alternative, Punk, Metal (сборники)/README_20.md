@@ -1,565 +1,700 @@
-###  Публикация: 1448611   (1030678) от 18.02.2021
+###  Публикация: 1390043   (783671) от 13.06.2020
 
-VA - Glam Rock 1970 - 1976 (2021) 5CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+VA - Music for You vol.5 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1030678.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_783671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suzi Quatro - 48 Crash
-02. Gary Glitter - I.O.U.
-03. Alice Cooper - Desperado
-04. Slade - I Won't Let It 'Appen Agen(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 16:37:59
+01. Al Joseph - I Just Wish (05:59)
+ 02. Andy Timmons - The Prayer(The Answer) (04:53)
+ 03. Arkentype - Drawning (05:29)
+ 04. Dream Theater - Act Of Faythe (05:01)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 02:31:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FF32D684EF04594CB843CF965C60760CC24A655
+magnet:?xt=urn:btih:33602D70DC9BAEEC4C851D12E13BD5C71BA72677
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448114   (1031151) от 16.02.2021
+###  Публикация: 1389869   (783867) от 12.06.2020
 
-VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
+Led Zeppelin - 100% Live albums (2020) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1031151.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сильный и монументальный вокал, гармонирующий с традиционными музыкальными инструментами и электронной музыкой – изрядная редкость. Оригинальные, атмосферные, трогательные и в то же время напористые композиции были специально отобраны и включены в релизе «The Black Lawender», в котором представлены музыкальные жанры рока и рок альтернативы.001. Coast To Coast - Be Kind (Alternative)
-002. Cymatica - Hours
-003. American Hi-Fi - Oliver's Army
-004. Good Tiger - Animal Mother(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:35:53
+01. You Shook Me (23/3/69 Top Gear; 2016 Remaster)
+02. Communication Breakdown (Live on Tasty Pop Sundae from BBC Sessions; 2016 Remaster)
+03. No Quarter (2007 Remastered Live Version From The Song Remains The Same)
+04. Dazed and Confused (3/23/69 Top Gear; 2016 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 09:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
+magnet:?xt=urn:btih:6873933DD31D960AE142071294A8B67B158B456D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447647   (1031550) от 14.02.2021
+###  Публикация: 1389858   (783893) от 12.06.2020
 
-VA - Rock Drive 12 (2020) от DON Music (2020) [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1031550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miguel Montalban - True Lies
-02. Joe Bonamassa - Royal Tea
-03. Alastair Greene - Living Today
-04. U.D.O. & Das Musikkorps Der Bundeswehr - Mother Earth(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3FD6106A14015C12C971CA7BD5BF0E6B73539C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446913   (1032246) от 11.02.2021
-
-VA - Рок впрок 16 (2021) [MP3|320 Kbps] <Rock>
+Twisted Sister - The Platinum Collection (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1032246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bostan - Всё так сложно
-02. 7линия - Быть, а не казаться
-03. Пепельный Свет - Я выбираю мир
-04. ЯстихиЯ - Задержи весну(   Читать дальше...   )Жанр: RockПродолжительность: 03:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAACF6558643397D542503C10B34E42490D79420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445223   (1033709) от 05.02.2021
-
-VA - Ultimate Rock`n`Roll Party (Vol.02) (2021) [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1033709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный сборник! При прослушивании которого возникает то самое удивительное чувство ностальгии по тем временам, когда музыка поражала многообразием идей, а артисты старались придумать свои уникальные приёмы, не стараясь скопировать друг с друга!001. Josie & The Outlaw - Hipshake
-002. King Salami - Who Do They Watch!
-003. The Red Elvises - Why Why Why
-004. Alex Brown - Fight Tonight(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 05:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626F83CEA022BC492C2594BD5D459F4D7E6E166C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444782   (1034201) от 03.02.2021
-
-VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на праздник настоящей Рок музыки! Ценители качественного звука и мастерского исполнения, радуйтесь! Здесь все по-настоящему! «Thе Jаdеd Hеаrts», «Nеurоtiс Fiсtiоn», «Stаnd Atlаntiс», «Hаllоwееn In Hеll», «Sodom» и многие другие мастера современной рок-сцены громоздят сумасшедшие аккорды и рифы, а также виртуозно исполняют свои партии!001. Maggie Cassidy - S.A.D
-002. Billy Nomates - Modern Hart
-003. Outloved - Hurt Me
-004. Division Of Laura Lee - Sit Up Straight(   Читать дальше...   )Жанр: RockПродолжительность: 11:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757CA35AA69DEBBEF62EE4A19229D4874A81C0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444849   (1034202) от 03.02.2021
-
-VA - Prog Metal Rock Compilation (2021) 2xCD [MP3|320 Kbps] <Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034202.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783893.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD - 1:
- 01. Maestrick - Origami (05:36)
- 02. Pyramid Theorem - Closer to the End (07:11)
- 03. Glasswork - Blackspot (06:07)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:31:06
+ 01. What You Don't Know (Sure Can Hurt You) (04:46)
+ 02. We're Not Gonna Take It (03:41)
+ 03. Love Is For Suckers (03:26)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A9DF365622008048AA023AAE0DC20D0B25B15B2
+magnet:?xt=urn:btih:F78F087FDA03DB3350E0A46C6B682A18FF398C7E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442592   (1036304) от 26.01.2021
+###  Публикация: 1389606   (784214) от 11.06.2020
 
-Frаncine - Golden Anthology Of Rock And Roll Music (2020) [MP3|320 Kbps] <Rock & Roll>
+VA - Music for You vol.4 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1036304.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В течении последних лет музыка Francine поменяла много имён, такие как рокабилли, панкобилли, хард билли, пауэр билли. Сами же они предпочитают, чтобы их музыку называли просто рок-н-ролл, который они мастерски комбинируют с такими стилями как рокабилли, ритм-н-блюз, панк, поп, джаз!001. Almost Alive
-002. Anything You Do
-003. Can't Take It No More
-004. Come On, Let's Go(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 07:14:37
+01. Solence - 4 Good Reasons (03:17)
+ 02. Solence - Animal In Me (03:07)
+ 03. Solence - Blackout (03:20)
+ 04. Solence - Paralyzed (03:52)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 03:21:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01333711803C4082BAB9D12193654B1EF2F2E080
+magnet:?xt=urn:btih:FAAAE3359870B0F1296738FF1F862606D5D98263
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441259   (1037759) от 21.01.2021
+###  Публикация: 1389575   (784240) от 11.06.2020
 
-VA - XV Years Of Doom & Solitude (2021) [MP3|320 Kbps] <Doom Metal,  Drone, Post-Metal>
+VA - 80s Alternative (2020) [MP3|320 Kbps] <Alternative,  Indie Rock, Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1037759.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Elusive God - Silence Is Our Doom (04:52)
- 002. Ekklesiast - Цветок Тревоги - Flower Of Dismay (15th Anniversary Remix) (06:46)
- 003. Restless Oblivion - Mistilteinn (06:49)
- 004. Shattered Hope - In Cold Blood (13:09)(   Читать дальше...   )Жанр: Doom Metal,  Drone, Post-MetalПродолжительность: 28:46:01
+1. The Smiths - This Charming Man (Single Version; 2008 Remaster) (2:43)
+2. The Cure - Pictures Of You (Remastered) (7:28)
+3. Joy Division - Love Will Tear Us Apart (3:26)
+4. David Bowie - Let's Dance (2018 Remaster) (4:09)(   Читать дальше...   )Жанр: Alternative,  Indie Rock, RockПродолжительность: 04:03:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B045314C4A2C6B1AC5AA725011DCE1CCAD6341A8
+magnet:?xt=urn:btih:783C05C9CE2D7E4894DD8E69833FAB038053ABCF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441112   (1037978) от 20.01.2021
+###  Публикация: 1204215   (784886) от 05.02.2018
 
-Zepparella - 100% Zepparella (2021) [MP3|320 Kbps] <Rock, Hard Rock>
+VA - Rock Burning Sounds (2018) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1037978.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Immigrant Song
-02. Song Remains the Same (Live)
-03. The Rover
-04. Whole Lotta Love(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:43:11
+001. The Moles - Out of Control
+002. NRBQ - Yes, I Have A Banana
+003. David West - Reds for the Blues
+004. Guano Apes - Open Your Eyes(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 08:04:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA08F092C27E13274E65E968321D80AFB1A9719C
+magnet:?xt=urn:btih:F3424632F3F64263C07BA066B194C9713961CEDF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440828   (1038252) от 19.01.2021
+###  Публикация: 1388151   (786827) от 05.06.2020
 
-VA - XV Anniversary Compilation (2021) [MP3|320 Kbps] <Doom Metal, Drone, Post-Metal>
+VA - The correct Legend of Rock (2020) 6CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1038252.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_786827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shattered Hope - Prometheus Unbound (28:44)
- 02. S.C.A.L.P. - Третья Весна - The Third Spring (09:14)
- 03. Amederia - Doomed Ground (12:08)
- 04. Invernoir - Cast Away (07:10)(   Читать дальше...   )Жанр: Doom Metal, Drone, Post-MetalПродолжительность: 13:28:53
+01. David Gilmour - What Do You Want From Me (Live At Pompeii 2016)
+02. Sweet - Blockbuster
+03. Uriah Heep - Dreams Of Yesteryear
+04. Suzi Quatro - Shakin' All Over(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 41:23:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3272E725EBE634DD4F2FC27FBE6C78415A2FFCD
+magnet:?xt=urn:btih:DB3B9CBC3F4BDAB931989A1737489F81A39F5628
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439079   (1040286) от 11.01.2021
+###  Публикация: 1388262   (786839) от 05.06.2020
 
-VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock Blues, Blues>
+VA - Rock Ballads About The Sublime (2020) [MP3|320 Kbps] <Rock, Ballads, Metal, Symphonic>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1040286.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_786839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящие ветераны и винтажные мастера рок блюза в очередной раз порадуют своих фанов выпуском полноформатного коллекционного сборника "Private Partners". Выделять какие-то треки в особенности нет смысла – если бы не паузы между песнями, то можно было бы воспринять все как один большой трек, с лирическими перекатами по настроению, но с одним и тем же чувством (   Читать дальше...   )001. Eric Brooke - Movin' Uptown
-002. Don Griffin - Back To Chicago
-003. Dirty Dave Osti - Rebel Run
-004. Robert Randolph - Simple Man(   Читать дальше...   )Жанр: Rock Blues, BluesПродолжительность: 09:09:07
+001. Scheepers - Before The Dawn
+002. Fergie Frederiksen - How Many Roads
+003. Wolfpakk - Cold Winter
+004. Europe - Carrie(   Читать дальше...   )Жанр: Rock, Ballads, Metal, SymphonicПродолжительность: 13:31:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ACFFFE446F686A330A4A97A452D1CACD601F078
+magnet:?xt=urn:btih:31E644EF77CEE1838774EC389853AAE1218142B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437887   (1041448) от 07.01.2021
+###  Публикация: 1276833   (787201) от 18.01.2019
 
-Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
+The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1041448.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unchain Your Brain
-02. You Make Me Feel So Good
-03. Don't Stop
-04. Born Again(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:38
+01. I Still Do
+02. Dreams
+03. Sunday
+04. Pretty(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7EEEB04A004E1FEA8AE8237D61C09DB254CC49D
+magnet:?xt=urn:btih:E5E20A81AD1C341282FB9E09EB3AFA7CEDAFEA11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437542   (1041688) от 06.01.2021
+###  Публикация: 1276661   (787206) от 18.01.2019
 
-Mick Jagger - Angel in My Heart (2021) 2CD, Compilation [MP3|320 Kbps] <Rock>
+Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1041688.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wired All Night
-02. Lucky Day
-03. Out of Focus
-04. God Gave Me Everything(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:39
+001. Marie
+002. Sang pour sang
+003. Ça ne change pas un homme
+004. Diego, libre dans sa tête (Live à Paris-Bercy / 1990)(   Читать дальше...   )Жанр: RockПродолжительность: 05:59:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6368F2E1049B2377E7D20A5F751E571503AC6860
+magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437104   (1042259) от 04.01.2021
+###  Публикация: 1511859   (788373) от 22.11.2021
 
-VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)(1990) Bootleg 3cd-box [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042259.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_788373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pyramaze - Transcendence (04:17)
- 02. Black Fate - Secret Place (04:16)
- 03. Pomegranate Tiger - Maxims (05:06)
- 04. Nevermore - Born (05:58)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:10:32
+01. Paint It Black
+02. 2000 Light Year From Home
+03. Sympathy For The Devil
+04. Gimme Shelter(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7886697AE44328E5C3ED3F2A84F18D46A8E024C2
+magnet:?xt=urn:btih:F038E683F2B3AF1B0D2D86BC3CB1604D602A1642
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606484   (1044373) от 22.01.2023
+###  Публикация: 1203132   (788564) от 01.02.2018
 
-VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
+VA - Return To The 80's and 90's (2018) [MP3|320 Kbps] <Metal, Hard Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044373.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_788564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tom Petty And The Heartbreakers - American Girl (3:34)
-02. The Doors - Roadhouse Blues (4:03)
-03. Whitesnake - Here I Go Again 87 (4:35)
-04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
+001.  Manowar  -  Kings Of Metal  3:45
+002.  Accept  -  Breaker  3:34
+003.  Dio  -  Holy Diver  5:50
+004.  Annihilator  -  The Fun Palace  5:51(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 08:42:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
+magnet:?xt=urn:btih:B0CCED365971C0B7A778C8CF2DEFFF285F3EFBA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605364   (1044953) от 17.01.2023
+###  Публикация: 1202864   (789015) от 31.01.2018
 
-VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
+VA - За Полшага До Зимы (2018) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044953.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_789015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gnarbot - Thrapticious (10:02)
- 02. Soft Machine - Hazard Profile Part 5 (05:29)
- 03. The Groundhogs - Garden (05:24)
- 04. All Them Witches - Real Hippies Are Cowboys (08:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:58:07
+001. Кипелов - Косово Поле
+002. БИ-2 feat. John Grant - Виски
+003. Сплин - Храм
+004. 25-17 - Она не такая, как все(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:03:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
+magnet:?xt=urn:btih:6297466B124669DFCC54FC9FED23310192DD04ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601973   (1045995) от 06.01.2023
+###  Публикация: 876793   (789216) от 13.01.2019
 
-VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
+Rammstein & VA - Unofficial Compilations (2001-2005) [MP3|320 кб/с]<Industrial, NDH, Rock, Metal, Alternative>
 
->>Неофициальные сборники
+>>След.
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045995.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_789216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bb Chung King & the Buddaheads - Still the Rain
-02. Bb Chung King & the Buddaheads - Hear it From You
-03. Bleu Jackson - Some Never Learn
-04. The Buddaheads - Big Time Baby(   Читать дальше...   )Жанр: Blues & RockПродолжительность: 02:16:17
+Rammstein Die Schwarze Tanzen (Remix Album)
+Rammstein Presents Vol.2 (2001)
+Rammstein Presents Vol.3 (2001)
+Rammstein Presents (Special 2002)(   Читать дальше...   )Жанр: Industrial, NDH, Rock, Metal, AlternativeПродолжительность: 21:12:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C77403EBBEEC2B079A90E3A6A9B3AD8BDD9B7D9D
+magnet:?xt=urn:btih:3BAE0C34B852754FB63A5B5FC3B9EA7B34C224EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601290   (1046323) от 02.01.2023
+###  Публикация: 1511104   (789358) от 20.11.2021
 
-Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+VA - Rebel Rock Box (CD1) (2021) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046323.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_789358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hole in My Soul
-02. I'll Be the One
-03. My Oh My
-04. Pressure Under Fire(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:30:04
+001. Bobby Gillespie - Remember We Were Lovers
+002. Snapped Ankles - Shifting Basslines
+003. Mrs. Green Apple - Avoid Note
+004. Mammoth Wvh - Think It Over(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:144118943C4C4F825BD296639DADE54C234DE032
+magnet:?xt=urn:btih:A33E4CA925E1E9602C863EBD81BB2076EC328F0F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839418   (1046666) от 30.11.2025
+###  Публикация: 1275653   (789801) от 12.01.2019
 
-Валерий Кипелов - Voice Of Rock - Compilation (1985-2024) [MP3|320 Kbps] <Heavy metal, Hard rock>
+VA - Rock Select Mix (2019) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046666.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_789801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Жить Вопреки ❂ Жить Вопреки 2011
-02. Вавилон ❂ Вавилон EP 2004
-03. Тореро ❂ Путь Наверх Live 2003
-04. Огненная Дуга ❂ Часы Судного Дня EP 2021(   Читать дальше...   )Жанр: Heavy metal, Hard rockПродолжительность: 10:05:18
+001. Wheatus - Teenage Dirtbag
+002. Lynch Mob - Main Offender
+003. Baddiel, Skinner - Three Lions '98
+004. Cherri Rokkett - Do You Want Me(   Читать дальше...   )Жанр: RockПродолжительность: 08:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:451024278C6593B5FFA516A5D9DB67650EA874D6
+magnet:?xt=urn:btih:B00E4BAE5CC9EF3D36149DE48D5A081964F9E876
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839740   (1046814) от 30.11.2025
+###  Публикация: 1388076   (790091) от 04.06.2020
 
-Мария Варгас - Favorites Collection Part 2 (2025) [MP3|192 Kbps] <Blues, Blues Rock, AI>
+VA - Happy Race: Indie Pop Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046814.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_790091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ты Боль Моя
- 02 - Плачь, Плачь, Мэри
- 03 - Я Тебе Не Верю Ритмичный Блюз
- 04 - Тебя Придумала Сама(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:26:49
+001. Spirit Desire - We Are Everything
+002. Huey Blue - Sugar Mama
+003. Brenn - Ingensteds
+004. Tumppi Varonen - Ihan Sama(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:14:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:874DED9B1122CD3A1635C16FEBF583F82BE3A542
+magnet:?xt=urn:btih:D3370D5F52C24912BD121747A7A8020F9CC84A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510451   (790813) от 17.11.2021
+
+VA - The Purgatory (Vol.03) (2021) [MP3|320 Kbps] <Hardcore, Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_790813.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Primal Age - Adolescent Humanity
+002. Galneryus - Flames Of Rage
+003. Anchors & Hearts - What If God Was One Of Them!
+004. Blood Sermon - Funeral Clown(   Читать дальше...   )Жанр: Hardcore, Metal, Hard RockПродолжительность: 08:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1752D4C60CD27CD813A6AEB34FF8045931D5C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275142   (791030) от 10.01.2019
+
+VA - Melodic Soft Rock (2019) [MP3|320 Kbps] <Melodic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_791030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 10cc - The Things We Do For Love
+002. Belinda Carlisle - Heaven Is A Place On Earth
+003. Eric Carmen - Hungry Eyes
+004. Kenny Loggins - Danger Zone(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 07:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0492BFC43356EB2D81506B0C3506D3E6F3D0A2A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387576   (791259) от 02.06.2020
+
+VA - Rock Driver: Old Classic Rock (2020) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_791259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neil Young With Crazy Horse - Danger Bird
+02. Alice Cooper - School's Out
+03. The Bunnymen - Lips Like Sugar
+04. Montrose - I Got The Fire(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BEEC40EBB092A03CD5D4FB6C3A9DFD6C93739F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274736   (792117) от 08.01.2019
+
+VA - 50 Best of Rock 2018 (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_792117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reef - Revelation
+02. Billy F Gibbons - Missin’ Yo’ Kissin’
+03. Tricklebolt - Come Along
+04. Rammstein - Du hast(   Читать дальше...   )Жанр: RockПродолжительность: 03:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A74AAADFA5A82D972F9B25498909AE6DA8B5AE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386838   (792504) от 31.05.2020
+
+VA - Music for You vol.2 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_792504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Tension Experiment - Acid Rain (06:36)
+ 02. Haken - Nil by Mouth (06:52)
+ 03. Soen - Lascivious (05:37)
+ 04. Arch Echo - Immediate Results! (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4BA591B03AA1B50CB688E9C8CDD98B92576D93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385223   (793295) от 30.05.2020
+
+Linkin Park - Great Artists of My Heart Vol. 04 (2020) [MP3|320 кб/с]<Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_793295.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:46| 01. Linkin Park - Nobody Can Save Me
+|02:47| 02. Linkin Park - Bleed It Out (Uncensored Version)
+|03:59| 03. Linkin Park - Blackout (A Thousand Horizons Version)
+|04:38| 04. Linkin Park - Until It's Gone (Remix By Simple Automaton, Cypher, Broman)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 07:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB64C3E04EE88080378609C57C22DAE98D73C59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386629   (793466) от 30.05.2020
+
+VA - Late Night Vibes Playlist Spotify (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_793466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tame Impala - Posthumous Forgiveness (6:05)
+2. Rayland Baxter - Small Worlds (5:36)
+3. Beach House - Space Song (5:18)
+4. Phoebe Bridgers - Scott Street (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 04:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479B6C0FD49D79AA48EFF502A8D68E0A15958694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274288   (793927) от 06.01.2019
+
+Linkin Park - This Is Linkin Park (2019) [MP3|320 Kbps] <Alternative rock, Nu metal, Alternative metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_793927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In the End
+02 - Papercut
+03 - Heavy (ft. Kiiara)
+04 - Somewhere I Belong(   Читать дальше...   )Жанр: Alternative rock, Nu metal, Alternative metalПродолжительность: 03:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414FA714975E1658694B35B80D62785EF73692CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274385   (794002) от 06.01.2019
+
+VA - Рок впрок 11 (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_794002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Квартет им. Достоевского - Наши глаза
+02. Dругой Ветер - Комбинат
+03. Fun Mode - Наш мир
+04. Ас Вентура - Хорошо!(   Читать дальше...   )Жанр: RockПродолжительность: 03:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F8C49E4971AB3979662B3A1A90B952D7C4C913
 ```
 
 

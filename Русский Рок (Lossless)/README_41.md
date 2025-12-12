@@ -695,28 +695,28 @@ magnet:?xt=urn:btih:023C75CDC4AD9F8715A1372E106623E793077B6E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 899442   (672717) от 19.05.2015
+###  Публикация: 1338345   (270445) от 14.11.2019
 
-Аквариум & БГ - GreAtest Hits (2015) [FLAC|Lossless]<Rock>
+Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672717.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_270445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Поезд в огне (4:01)
-02. Стаканы (2:10)
-03. Сестра (4:22)
-04. Человек из Кемерова (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:44
+01. J2000.0 (4:05)
+02. Лето (3:51)
+03. Joy Stick (3:46)
+04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D12AA2D2D504AA7BACE2D6F8FD914D04215517C5
+magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
 ```
 
 

@@ -1,697 +1,700 @@
-###  Публикация: 1473078   (1013817) от 28.05.2021
+###  Публикация: 1020453   (743693) от 27.05.2016
 
-VA - Top 100 Energetic Dance Club Music (2021) [MP3|320 Kbps] <Club, Dance, House>
+VA - Hot hits Car international (2016) [MP3|256 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1013817.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Struzhkin - Perfect Love
-002. Casaris - The Power Of Harmony
-003. Ozkar Ramirez - Dulces, Alcohol Y Rumba
-004. Jga - Close My Eyes(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:43:36
+001. Ellie Goulding - Don't Need Nobody
+002. Troye Sivan - The Quiet
+003. Fais Feat. Afrojack - Hey
+004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE62150812405C941C3439AAC521C89B932B8767
+magnet:?xt=urn:btih:6C01BC64B5094EA46B6E3009B14D5F895FAA2AFA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472950   (1013822) от 28.05.2021
+###  Публикация: 1020874   (743694) от 27.05.2016
 
-VA - Best of 80's: Anni Ottanta (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+VA - Зарубежная Дискотека ХХ Века - 20 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1013822.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frankie Goes to Hollywood - Relax
-02. Soft Cell - Tainted Love
-03. Katrina & The Waves - Walking On Sunshine
-04. Orchestral Manoeuvres in the Dark - Enola Gay (Remastered)(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 08:20:53
+01. Flo Astaire - Monkey Monkey ( 1986 )
+02. Alan Cook - Bad Dreams ( 1986 )
+03. Queen Of Times - Holiday ( 1999 )
+04. Mike Mareen - Here I Am ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D278F2C3861048BFF38B86633EE14CDF56071217
+magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472954   (1013836) от 28.05.2021
+###  Публикация: 1020859   (743700) от 27.05.2016
 
-VA - Happy Office Hits (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+VA - Зарубежная Дискотека ХХ Века - 18 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1013836.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moby, Gregory Porter, Amythyst Kiah - Natural Blues (Reprise Version / Edit)
-02. Lorde - Team
-03. Selena Gomez - The Heart Wants What It Wants
-04. James Bay - If You Ever Want To Be In Love(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 03:28:05
+01. Flirts - Helpless ( 1984 )
+02. Camaro`s - Companero ( 1985 )
+03. Secret Service - Hey Johnny ( 1979 )
+04. Patto - Black And White ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F2DB22938DAC0517160D9541520BA2D23DC296E
+magnet:?xt=urn:btih:261B1542955404CA8D5229C3E121915C8D19CEF0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472960   (1013853) от 28.05.2021
+###  Публикация: 1020561   (743706) от 27.05.2016
 
-VA - 245 DJ Loaded - Knowledge Dancing (2021) [MP3|320 Kbps] <House, Bassline, Dancehall, R&B>
+VA - Зарубежная Дискотека ХХ Века - 15 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1013853.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. YG & Mozzy - Bompton To Oak Park (Dirty)
-02. Trippie Redd & SOS LO feat. Chris King - Honorable Flex (Intro - Clean)
-03. Tujamo - You Know (Radio Edit)
-04. Trippie Redd & SOS LO feat. Chris King - Honorable Flex (Clean)(   Читать дальше...   )Жанр: House, Bassline, Dancehall, R&BПродолжительность: 14:27:48
+01. Bolero - I Wish ( 1984 )
+02. Fancy - Burn With Impatience ( 1984 )
+03. Bryan Adams - Hidin' From Love ( 1980 )
+04. Fun Fun - Sing Another Song ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:048C23E69A9A35E652C99768FD060787CECEDD3D
+magnet:?xt=urn:btih:0F32F17F670D8E05D7C48E46AF257BA310F99570
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472927   (1013857) от 28.05.2021
+###  Публикация: 1020539   (743707) от 27.05.2016
 
-VA - 35 Spring Step Hits (2021) [MP3|320 Kbps] <Electropop, Dance, Hip Hop, Eurodance>
+VA - Зарубежная Дискотека ХХ Века - 12 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1013857.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Axel Force - Alive (Fitness Version 132 Bpm)
-02. Mc Joe - Levitating (Fitness Version 132 Bpm)
-03. Axel Force - Run Runaway (Fitness Version 132 Bpm)
-04. Mc Ya - Tap In (Fitness Version 132 Bpm)(   Читать дальше...   )Жанр: Electropop, Dance, Hip Hop, EurodanceПродолжительность: 02:31:55
+01. London Boys - Requiem ( 1988 )
+02. Alphaville - Big In Japan ( 1984 )
+03. Lucia - Marinero ( First Version 1985 )
+04. Malibu - Pleasure ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA35636369F296E8CA5EB3D2BEFB35A4EC40AA62
+magnet:?xt=urn:btih:3300E10D7AA4BB08F9FB38B81BC0EBE964894D2D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472878   (1014002) от 27.05.2021
+###  Публикация: 1020867   (743711) от 27.05.2016
 
-VA - A broken heart is all that's left (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+VA - Зарубежная Дискотека ХХ Века - 19 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014002.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duncan Laurence - Arcade
-02. Mary Lambert - So Far Away
-03. Lewis Capaldi - Someone You Loved
-04. Demi Lovato - Stone Cold(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 03:12:49
+01. Lou Sern - Swiss Boy ( 1986 )
+02. New Romantique - Shy Like An Angel ( 1985 )
+03. Blue System - She's A Lady ( Maxi Version 1987 )
+04. A La Carte - Radio ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F309C2D54D347F81F4203D9D1BB893637E3B200A
+magnet:?xt=urn:btih:CAC005868F0697C088D467E2FE05D846E8D9F73E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472876   (1014004) от 27.05.2021
+###  Публикация: 1020548   (743784) от 27.05.2016
 
-VA - The Sound of the 80's (2021) [MP3|320 Kbps] <Pop Rap, Folk Rock, Indie, Synth-pop>
+VA - Зарубежная Дискотека ХХ Века - 13 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014004.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duran Duran - Union of the Snake
-02. New Order - Bizarre Love Triangle (7" Remix)
-03. Gene Pitney / Marc Almond - Something's Gotten Hold of My Heart
-04. Spandau Ballet - Instinction(   Читать дальше...   )Жанр: Pop Rap, Folk Rock, Indie, Synth-popПродолжительность: 02:23:26
+01. Kim Wilde - Cambodia & Reprise ( 1982 )
+02. Silicon Dream - Marcello The Mastroianni ( Radio Mix 1995 )
+03. Blue System - Sorry Little Sarah ( Maxi Version 1987 )
+04. Ottawan - Hands Up ( 1981 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8472D115EBF41CFC333ED7582567F55E061888F8
+magnet:?xt=urn:btih:CB97E537D81B51656A0113775AD48D33303E0927
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472828   (1014011) от 27.05.2021
+###  Публикация: 1020855   (743787) от 27.05.2016
 
-VA - The Evening Of Retro Mania (2021) [MP3|320 Kbps] <Pop, Rock, Disco, Retro>
+VA - Зарубежная Дискотека ХХ Века - 17 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014011.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Silicon - True Faith
-002. Continent Number - Afromerica
-003. DJ Scana - Dream On Me
-004. The B-52's - Channel Z(   Читать дальше...   )Жанр: Pop, Rock, Disco, RetroПродолжительность: 13:07:13
+01. Bad Boys Blue - Hot Girls-Bad Boys ( 1985 )
+02. Aqua - Happy Boys & Girls ( 1997 )
+03. Silent Circle - Sib Dub Dua ( 1986 )
+04. Roy - Destiny Time ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A7E37A4C323322003E36352219FB1DA396B68D8
+magnet:?xt=urn:btih:C639B7BBF34DB041621F534AE865F2E29412C9CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472723   (1014162) от 26.05.2021
+###  Публикация: 1020556   (743793) от 27.05.2016
 
-VA - Simply 90s: Greatest Hits of the 90ies (2021) [MP3|320 Kbps] <Electronic, Pop, Dance, Hip Hop>
+VA - Зарубежная Дискотека ХХ Века - 14 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014162.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eiffel 65 - Blue (Da Ba Dee) (Dj Ponte Ice Pop Radio)
-02. Tom Jones - Sex Bomb (Album Version)
-03. Whigfield - Saturday Night
-04. Salt-N-Pepa - Push It(   Читать дальше...   )Жанр: Electronic, Pop, Dance, Hip HopПродолжительность: 02:30:30
+01. Hot Cold - I Can Hear Your Voice ( 1986 )
+02. J. D. Jaber - Don't Stop Lovin' ( Long Version 1983 )
+03. King & Queen - King And Queen ( Special Queen Remix 1995 )
+04. Fancy - Lady Of Ice ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D78C4ECEB007281FED9AD4CB35D14D876CD9D9C2
+magnet:?xt=urn:btih:5A87151884702F7FA692D346955FC54A7D701BBE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472644   (1014189) от 26.05.2021
+###  Публикация: 1216968   (746123) от 02.04.2018
 
-VA - NRJ Good Vibes Only 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
+VA - All Out 60's (Vol.30) (2018) [MP3|320 Kbps] <Pop, Rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014189.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_746123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ATB - Your Love (9PM)
-02. Black M - Cesar (feat. Maitre Gims)
-03. Clara Luciani - Le reste
-04. Dj jabato - Master kg - jerusalema(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 03:14:22
+01. Dionne Warwick - Anyone Who Had A Heart
+02. The Hollies - Carrie Anne
+03. Buffalo Springfield - For What Its Worth
+04. Cliff Richard - Congratulations(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:55:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5006AD32EE2BEDE365A8FCE718F787FD79AA2CF
+magnet:?xt=urn:btih:D39EB526FFC68FAED39F8ED879461722E7BBDEED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472603   (1014218) от 26.05.2021
+###  Публикация: 1020029   (746614) от 25.05.2016
 
-VA - National Pop Dance Music (Vol.17) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+VA - От Края До Края: Популярный Русский Хит (2016) [MP3|256-320 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014218.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_746614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лето 2021 года уже набирает свои обороты, но лучшая весенняя музыка еще не теряет своей популярности. Представляем вам сборник двести лучших песен последних весенних месяцев года, вместе с которым Вы ощутите всю прелесть солнечных дней и поднимете себе настроение!001. Kate Rusby - If I Had A Boat
-002. Tele Novella - One Little Pearl
-003. Pierre Jomie - Pour Un Sourire
-004. Egerlaender6 - Schlagzeilen(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 11:43:16
+001. Павел Воля - Если Б
+002. T-Killah - Доброе Утро
+003. Профилактика - Это Не Сон
+004. Dr Meaker Feat. Laurent John - Good Fight(   Читать дальше...   )Жанр: PopПродолжительность: 12:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBDD24E0844EB567798F45BD5476D24B625AC6FA
+magnet:?xt=urn:btih:B45DC53DC4A03A4E0D43F0F8115D9621A18070CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472065   (1014675) от 23.05.2021
+###  Публикация: 1282224   (746709) от 11.02.2019
 
-VA - Fresh Pop 2 (2021) [MP3|320 Kbps] <Pop>
+VA - German Top 100 Single Charts 18.02.2019 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014675.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_746709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Wulf - I'm Not Going Anywhere (2:59)
-002. Michael Schulte - Stay (2:52)
-003. Robert Grace - The Hurt You Gave Me (2:31)
-004. Bente - Ga Maar (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:05
+001. Capital Bra - Prinzessa
+002. Mozzik x Loredana - ROMEO & JULIET
+003. Ava Max - Sweet but Psycho
+004. Mero - Hobby Hobby(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3CB1513DED0F09DC024F6369EAD5ADA34C4A1C
+magnet:?xt=urn:btih:CA82C1779B913C9B25E16CC0FBE4583F4F67183F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471524   (1014954) от 21.05.2021
+###  Публикация: 1020080   (746719) от 25.05.2016
 
-Disco Fever - Tribute to.. (2020-2021) 3CD [MP3|320 Kbps] <Disco, Rock, Pop>
+VA - Русский супер-хит (2016) [MP3|256 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1014954.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_746719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Kind Of Magic
-02. Another One Bites The Dust
-03. Friends Will Be Friends
-04. I Want It All(   Читать дальше...   )Жанр: Disco, Rock, PopПродолжительность: 02:53:36
+001. Лайк.А - Адреналином
+002. Артем Пивоваров - Стереосистема
+003. Жемчуг - Я Бы Тебя
+004. Lyuba Almann - Делай Мне Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0437958D67A0BE185A6363AFE21CA15A70BF33C5
+magnet:?xt=urn:btih:0FAB8DD0532769187BC7495EED40EB27DDA5D99C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470906   (1015307) от 19.05.2021
+###  Публикация: 1396514   (746754) от 15.07.2020
 
-VA - Hardcore Dance: Music For Heavy Fitness (2021) [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Dance>
+VA - Новички в попсе Vol 4 (2020) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1015307.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_746754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Занятия спортом и музыка — для многих вещи, друг от друга неотделимые. Особенно это касается бега, где ритм играет едва ли не решающую роль. В настоящей раздаче предлагается скачать хорошую и качественную подборку плейлиста для занятий беговыми тренировками или фитнесом.001. Marius Tiberian - See Yourself
-002. Sasha F - Dead Generation
-003. Jay Reeve - The Nearest Star
-004. Sinister Seven - Ballers(   Читать дальше...   )Жанр: Hardcore, Hardstyle, Hard DanceПродолжительность: 07:44:34
+1. 20n - Сердце Пацана (2:50)
+2. ANIKV - Criminal (Muztrend.net) (2:40)
+3. Cosmo & Skoro, МИЧЕЛZ - Навсегда (Ла Ла Ла) (3:20)
+4. Dancing Bears - Медведь варит (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
+magnet:?xt=urn:btih:A8E15F92807894429103DD06DC23187207EFAE98
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470894   (1015308) от 19.05.2021
+###  Публикация: 1396498   (746839) от 15.07.2020
 
-VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
+VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1015308.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_746839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Саунд микса имеет постоянное развитие, отчего назвать его простым и скучным никак не получиться. Музыка, которой присуща своя харизма. Приобретая восточные и этнические мотивы - музыка въедается в мозг, душу и заставляет себя слушать, унося из обычной цивилизации эпохи электроники куда-то в тропики и пещеры.001. Lewis Del Mar - Fever
-002. Calimeros - Du Bist Meine Koenigin
-003. Mickie Krause - Wir Lassen U
-004. Ferdinant. - World Full Of Color(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:27
+001. Sunner Soul - The Mystery Of Loops
+002. Tj Edit - Xfunk (Original Mix)
+003. Cavego - Rask Gange (Extended Mix)
+004. The Familys Ja - Throught The Night(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 11:42:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72C09CC8523CF20A79E337583B77F273E218241E
+magnet:?xt=urn:btih:4370AB5CF5466AEE59A0B86978338A24E0CB63F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470161   (1015711) от 16.05.2021
+###  Публикация: 1019564   (747865) от 24.05.2016
 
-VA - NRJ 300 % HITS 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
+VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1015711.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_747865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aya Nakamura - Doudou
-02. Ava Max - My Head & My Heart
-03. HATIK - La meilleure (feat. Jok'Air)
-04. Tom Gregory - Rather Be You(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 02:39:36
+01. Kylie Minogue - The Loco-Motion ( 1988 )
+02. Modern Talking - You're My Heart, You're My Soul ( 1984 )
+03. Bad Boys Blue - Pretty Young Girl ( 1985 )
+04. Silent Circle - Sib Dub Dua ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D01DB64D846B9FA734ABBB5C6D34BE0C554E51C5
+magnet:?xt=urn:btih:7CF11C526BBEE87A06A512455B6198E26CB2C260
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469650   (1016277) от 13.05.2021
+###  Публикация: 1019616   (748198) от 24.05.2016
 
-VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
+VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1016277.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Great Big World, Christina Aguilera - Say Something (3:49)
-02. Harry Styles - Sweet Creature (3:44)
-03. 3 Doors Down - Here Without You (3:58)
-04. Christina Perri - Jar of Hearts (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:29
+01. Modern Talking - Diamonds Never Made A Lady ( 1985 )
+02. Grant Miller - Doctor For My Heart ( 1986 )
+03. Les McKeown - It' A Game ( 1989 )
+04. Trans X - Living On Video ( Radio Mix 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6031A247E9BDA6C9A6EBDB02104957512A5CE63
+magnet:?xt=urn:btih:3B5D1E4CA183C4CC1D06CC9F25C601858B72010F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469321   (1016531) от 11.05.2021
+###  Публикация: 1019572   (748332) от 24.05.2016
 
-VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
+VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1016531.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Adam van Hammer - Self Control (Radio Edit) (3:10)
-002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
-003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
-004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
+01. Fancy - Colder Than Ice ( 1985 )
+02. Flirts - Boy Crazy ( 1982 )
+03. Lee Marrow - Shangai ( 1987 )
+04. Modern Talking - You Can Win If You Want ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
+magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468974   (1016706) от 10.05.2021
+###  Публикация: 1019587   (748347) от 24.05.2016
 
-VA - Новички в попсе Vol 8 (2021) [MP3|320 Kbps] <Pop>
+VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1016706.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. MAKF - Все мои здесь (2:56)
-02. Koles, Paha - Звездопад (2:50)
-03. Lima Osta - Без тепла (3:06)
-04. Luverance - Где я (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
+01. O'Kay - The Wild Wild Western ( 1989 )
+02. Al Bano & Romina Power - Felicitа ( 1982 )
+03. Scotch - Delirio Mind ( 1985 )
+04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9908B8F8FEBD8D06E10C75533D0F65716ACCC5C7
+magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468750   (1016733) от 10.05.2021
+###  Публикация: 1019568   (748355) от 24.05.2016
 
-VA - Soft Pop Hits 2 (2021) [MP3|320 Kbps] <Pop>
+VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1016733.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hoobastank - The Reason (3:53)
-02. Matchbox Twenty - If You're Gone (4:34)
-03. Macy Gray - I Try (3:51)
-04. Bruno Mars - The Lazy Song (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:09
+01. Digital Emotion - Don`t Stop ( 1984 )
+02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
+03. C.C.Catch - Cause You Are Young ( 1986 )
+04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5A1128360FA36296B92BB81634DF70F6F6A8676
+magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468298   (1017202) от 07.05.2021
+###  Публикация: 1019605   (748451) от 24.05.2016
 
-VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
+VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1017202.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. James Arthur, Anne-Marie - Rewrite The Stars (3:38)
-02. Hozier - Take Me to Church (4:01)
-03. Avril Lavigne - Head Above Water (3:40)
-04. John Mayer - Waiting On the World to Change (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:40:20
+01. Giorgio Moroder - From Here To Eternity ( 1977 )
+02. Francesco Napoli - Balla.. Balla! ( Italian Hit Connection 1987 )
+03. London Boys - Kimbaley ( 1988 )
+04. Mauro - Buona Sera-Ciao,Ciao ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38DB1D9E0FF17DD47B1D52C68EA0DCA8EC06451F
+magnet:?xt=urn:btih:E4F26D95DDC2ABAE55FA6737795C0FA4D72F7624
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467495   (1017695) от 04.05.2021
+###  Публикация: 1019608   (748452) от 24.05.2016
 
-VA - Gold Italian Hits (2021) [MP3|320 Kbps] <Pop, Italian Pop>
+VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1017695.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mauro - Bueno Sera Ciao (7:24)
-02. Adriano Celentano e Nada Malanima - Il figlio del dolore (6:25)
-03. Umberto Tozzi - Gloria (4:55)
-04. Pupo - Un Amore Grande (4:48)(   Читать дальше...   )Жанр: Pop, Italian PopПродолжительность: 03:16:34
+01. Eddy Huntington - U.S.S.R. ( 12'' Version 1986 )
+02. Fun Fun - Give Me Your Love ( 1984 )
+03. Monte Kristo - The Girl Of Lucifer ( 1985 )
+04. Beloved - Your Love Takes Me Higher ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:971E11FD3202CEFC6F98F38AF1270E41E95FE178
+magnet:?xt=urn:btih:A5456F54AD141F0521E8235BA6E9F1F5B75C310B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466744   (1018262) от 01.05.2021
+###  Публикация: 1019576   (748454) от 24.05.2016
 
-VA - German Top 100 Single Charts 30.04.2021 [MP3|320 Kbps] <Pop>
+VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018262.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Saweetie - Best Friend (feat. Doja Cat & Katja Krasavice)Жанр: PopПродолжительность: 04:59:01
+01. Baltimora - Tarzan Boy ( Extended Version 1984 )
+02. Gazebo - Lunatic ( 1984 )
+03. Dschinghis Khan - Samurai ( 1979 )
+04. Bad Boys Blue - I Live ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFEF8B5695588800890B260F5A443CF89C5514C6
+magnet:?xt=urn:btih:833BA4759159BE53DA7832D8E2E4B04BB32BF016
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464501   (1019761) от 22.04.2021
+###  Публикация: 1019581   (748458) от 24.05.2016
 
-VA - National Pop Dance Music (Vol.15/1) (2021) [MP3|320 Kbps] <Pop, Dance>
+VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1019761.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Музыка, которая всегда будет неотъемлемой частью жизни каждого человека, в большей степени или в меньшей. А если эта музыка еще и отличного качества и понравившегося Вам стиля, то Ваше настроение всегда будет на высоте. Представляет вам сборник из 155 популярных песен со всех концов света, в компании с которыми жизнь покажется гораздо веселее!001. Jonas Blue - Something Stupid
-002. Smith & Thell - Radioactive Rain
-003. Dash Berlin - No Regrets
-004. Benny Benass - Lovelife(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:40:08
+01. Ricchi E Poveri - Mamma Maria ( 1982 )
+02. Latin Lover - Laser Light ( 1986 )
+03. Samantha Fox - Touch Me ( 1986 )
+04. Secret Service - Oh Susie ( 1979 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D5284BFB3BC0B865A6C24D2BE6F2DF9E637E25D
+magnet:?xt=urn:btih:EC845507DDEC6CC59BF12CCF398D4D2CD1ECCCC2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464368   (1019771) от 22.04.2021
+###  Публикация: 1019897   (748558) от 24.05.2016
 
-VA - Disco Is Alive 2 (2021) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+VA - Килобитный взрыв хитов - 5 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1019771.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afric Simone - Casanova Africano (1978) (3:15)
-02. Arabesque - Once In A Blue Moon (1980) (3:19)
-03. Azoto - Anytime Or Place (1980) (6:15)
-04. Black Devil - No Regrets (1978) (5:07)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 05:45:21
+001. Glory - Бог С Тобой
+002. Will.I.Am - Boys & Girls
+003. Наталия Власова - Розовая Нежность
+004. Rita Ora - Poison(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90A904259D601E2BC58DF7D83B6537134C5A5FB9
+magnet:?xt=urn:btih:25875A5EA1089E078BBC1AA7DFC31D9A17AE40FA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464290   (1019783) от 22.04.2021
+###  Публикация: 1522728   (756642) от 08.01.2022
 
-VA - Nu Disco: New Generation And The Remixes (2021) [MP3|320 Kbps] <Nu Disco, Funky, Dance, Disco House>
+Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1019783.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_756642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Взрывная энергетика, яркие образы, аутентичный вокал и дух старого доброго диско в сборнике "Nu Disco: New Generation And The Remixes". Само название лонгплея уже говорит, что здесь Вы услышите не заезженные ретро хита, а новые композиции в стиле диско от наших современников.001. Aldous - Birthday
-002. Probably Shouldnt - Canon
-003. The Beat Broker - Hold Your Horses
-004. Erdinc Erdogdu - Skin(   Читать дальше...   )Жанр: Nu Disco, Funky, Dance, Disco HouseПродолжительность: 09:31:46
+01. Mademoiselle chante le blues
+02. Patou Blues
+03. Space In My Heart
+04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32E3D510422E14214720738268EB74DFE672665D
+magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
 ```
 
 

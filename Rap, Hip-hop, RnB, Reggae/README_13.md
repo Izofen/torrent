@@ -1,700 +1,700 @@
-###  Публикация: 1368596   (909190) от 20.03.2020
+###  Публикация: 1568194   (465900) от 06.08.2022
 
-Pop Smoke - Meet The Woo 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_909190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invincible [02:08]
-02. Shake The Room (feat. Quavo) [02:46]
-03. Get Back [01:48]
-04. Christopher Walking [03:11](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC01567B3805E720ABECE551979DE9B6F55B6094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368592   (909206) от 20.03.2020
-
-Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_909206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet the Woo [02:01]
-02. Welcome To The Party [03:35]
-03. Hawk Em [01:59]
-04. Better Have Your Gun [03:20](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E8985653FDCB4FEEE88FF511B2E0A63434C653
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368624   (909245) от 20.03.2020
-
-Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+Децл aka Le Truk - С закрытыми окнами (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_909245.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_465900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Кладбище [03:47]
-02. Неведомая сила [02:33]
-03. Воин [02:39]
-04. Ван Хельсинг [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:41
+1. Пятница
+2. Чёрный змей
+3. 12 злобных зрителей (feat. ШЕFF)
+4. Надежда на завтра (feat. Bad B. Альянс)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:28:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7011F2544193EFCD0071A92ED560EA0FA13E4782
+magnet:?xt=urn:btih:2C3502980ED73713AD05A1A10471182EB0DF30BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367586   (913891) от 17.03.2020
+###  Публикация: 1407405   (466549) от 07.09.2020
 
-Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_913891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (feat. Panther Modern)
-02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
-03. Da Godz Mus B Krazy
-04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368030   (914245) от 17.03.2020
-
-Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_914245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarro (2:49)
-02. Call Me (2:09)
-03. The Gift That Keeps On... (2:36)
-04. Me's Company (2:15)(   Читать дальше...   )Производство: Silver Age – SIL 011-CDЖанр: Hip-HopПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368027   (914250) от 17.03.2020
-
-2 Chainz - Rap Or Go To The League (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_914250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiven (feat. Marsha Ambrosius) (5:23)
-02. Threat 2 Society (3:46)
-03. Money In The Way (2:42)
-04. Statute Of Limitations (2:29)(   Читать дальше...   )Производство: Def Jam Recordings – B0030006-02Жанр: Hip-HopПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367673   (915508) от 16.03.2020
-
-Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hip-Hop, Electronic, Experimental, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_915508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (feat. Panther Modern) (3:32)
-02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!) (4:06)
-03. Da Godz Mus B Krazy (3:20)
-04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes) (3:56)(   Читать дальше...   )Производство: Zef RecordzЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367552   (915558) от 16.03.2020
-
-RAM (Грязный Рамирес) - Traumatix Ultimate (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_915558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аргонавт [03:20]
-02. Overdose [03:02]
-03. Театр Абсурда (feat. Нуки) [02:36]
-04. Sinister ULT [02:58](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF0262D06D53FB8F894A1D201EE648829AEA2F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367549   (915561) от 16.03.2020
-
-RAM (Грязный Рамирес) - Traumatix (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_915561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мертвецы (prod. Mj Free) [02:54]
-02. Deep Throat (prod. Boris Redwall) [03:23]
-03. Mr. Sinister feat. Killa Sof (prod. MINIGUNPUNK) [02:34]
-04. Doping (prod. Boris Redwall) [02:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC6368AFC3819C61C9C284158C8DD4A34BAF561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367614   (915783) от 16.03.2020
-
-Slimus x ВесЪ - Улей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+Pra(Killa'Gramm) - 39 ROOTS (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_915783.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_466549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро [00:57]
-02. Сектор Приз [03:29]
-03. Улей [02:54]
-04. Обарщение Перзидента [01:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:25
+01. Баварский [03:24]
+02. Башня [03:34]
+03. Когда я смываю грим [01:16]
+04. Тебе не помогут (feat. Bang) [02:54](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:53:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F59383BEF75BFFD0466547437772422247E6F57F
+magnet:?xt=urn:btih:96A05B58BF1C6AD677067704829BCF339425DAC6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367269   (915793) от 16.03.2020
+###  Публикация: 1056677   (468323) от 01.10.2016
 
-P Money - Money Over Everyone 3 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Grime>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_915793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One [02:44]
-02. Where & When [03:23]
-03. About Grinding [04:07]
-04. Lose My Cool [04:21](   Читать дальше...   )Жанр: Rap, Hip-Hop, GrimeПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846ABED00A317388379A3E14617991FAC45D83E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367591   (915821) от 16.03.2020
-
-SharOn - Шарашка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+L'One - Гравитация (2016) [MP3|320 Kbps] <Rap>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_915821.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_468323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Динамит [03:22]
-02. Монолог [04:35]
-03. Бобби Фишер [03:14]
-04. Топчем [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:48
+1. Выход в открытый космос
+2. Дорога ft. Jasmine
+3. Ракета ft. Влади & Баста
+4. Огонь и вода(   Читать дальше...   )Жанр: RapПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EA801DB4B12E0E3387017F4EEA23C343D2B163E
+magnet:?xt=urn:btih:393BEBF91953F2713E759E92D2544D792048370F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367261   (917311) от 15.03.2020
+###  Публикация: 1406392   (473074) от 04.09.2020
 
-Ghostemane - N / O / I / S / E (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro.Desolation [01:42]
-02. Nihil [02:27]
-03. Flesh [01:19]
-04. Bonesaw [01:52](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DF4960A7B3D08D14CEBFDFFB40C7B0E04C372D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367266   (917312) от 15.03.2020
-
-GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
+Полумягкие - Ять (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917312.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_473074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. СЕКТА [03:07]
-02. Интердевочка [03:27]
-03. Кислотный дождь [03:25]
-04. Заряженный [03:54](   Читать дальше...   )Жанр: Rave, Dance, PopПродолжительность: 00:31:32
+01. Бонифаций [02:29]
+02. К небесам [02:29]
+03. Супротив [02:53]
+04. Паладин [02:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60D1D4425ACD411F882EBC38258C047E602762BD
+magnet:?xt=urn:btih:67771D1ADFB376F40FB26B847ED8C45BE8D816B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367280   (917416) от 15.03.2020
+###  Публикация: 1406387   (473080) от 04.09.2020
 
-Lord Infamous x T-Rock x C-Rock - Scarecrow & Da Roc-a-Fellaz (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Illuminati Intro [00:46]
-02. Illuminati [03:14]
-03. Lord Yeah Intro [00:32]
-04. Yeah [03:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9E4E2197C884CC0AB076209B5D3A1BC3C1BDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367268   (917424) от 15.03.2020
-
-Muppy - Burn This Place (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Stuck [02:10]
-02. Fickle Souls [02:11]
-03. Desolate [01:48]
-04. Pressure [01:57](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA09B4E512131A324F02FE7FFF51CA8FCC9DB74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367264   (917425) от 15.03.2020
-
-Token - Between Somewhere (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere In Between [04:36]
-02. Household Name [03:19]
-03. Rich For You [04:00]
-04. Flamingo [03:52](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAC1DE64AB1A87FAEB575FAA38886E863214614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367271   (917426) от 15.03.2020
-
-DOPE D.O.D. - Do Not Enter (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do Not Enter [01:20]
-02. Dead Walk [03:41]
-03. Give Me Your Life [03:28]
-04. Bodybag [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929C883C60F9C3CCDF9831E40CFF53217DF3D8EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367278   (917504) от 15.03.2020
-
-XIII - Город 13 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917504.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_473080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zombi 2.0 [03:27]
-02. Город 13 [04:02]
-03. Квартал Не Выросших Крыльев [04:10]
-04. Сойти С Ума [03:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:35:01
+01. Интро [01:42]
+02. По необъятной [02:38]
+03. Буду [02:13]
+04. Всё в порядке [02:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23B000B7E1FD4C82AB3BD1C14B869A3251F20724
+magnet:?xt=urn:btih:CE4F600B94D1986D5D39D45B637F42777E8B8E1A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367274   (917507) от 15.03.2020
+###  Публикация: 1406388   (473190) от 04.09.2020
 
-Jeembo & Tveth - PAINKILLER III (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917507.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_473190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. HUNGRY FLOW [02:25]
-02. MOLOTOW [02:43]
-03. MAYDAY [02:21]
-04. SOLDIER OF PAIN [02:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:50
+01. Жить правильно [02:05]
+02. Факир [02:52]
+03. Кендрик Ламар (feat. CMH, mediynayablad & N.Masteroff) [02:25]
+04. Мой гэнг (feat. Slava Marlow) [03:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2172E9AB53641D2A47C5AD87703BCDE2616FDD4C
+magnet:?xt=urn:btih:2162F802F49D14382E559DFCA36171DBA7397517
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367277   (917521) от 15.03.2020
+###  Публикация: 1056790   (479394) от 26.09.2016
 
-VELIAL SQUAD - Голову на плаху (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Топлю (prod. by FrozenGangBeatz) [03:09]
-02. Кара (prod. by shawtyglock) [02:31]
-03. Насекомое (prod. by CallMeDevol) [02:32]
-04. Swipe (prod. by KYS, splitmind$) [03:04](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B69572FBBEE000A87648BA285C4453AD8F89711
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367270   (917551) от 15.03.2020
-
-Redo - Underated 2 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NORTH FACE [02:13]
-02. WOODSTOCK [03:03]
-03. ACW [02:51]
-04. KIMONO [02:10](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6090800F0041041F964441AB9E410FC0E33E69B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367276   (917561) от 15.03.2020
-
-Tveth - Caps Lokk (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_917561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VISIONER [02:21]
-02. КРАМОЛА [02:26]
-03. CAPS LOKK [01:45]
-04. PROVOLONE [02:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3C1D414341CD5ED5B060E94AF7C52CF00B0DE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490462   (918841) от 20.08.2021
-
-Creation Rebel - Close Encounters Of The Third World (1978) LP [MP3|320 Kbps] <Dub, Roots Reggae>
+The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Reggae>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_918841.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_479394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Know Yourself (3:09)
-02. Conspiring (4:38)
-03. Beware (4:10)
-04. Dangerous And Deadly (4:11)(   Читать дальше...   )Жанр: Dub, Roots ReggaeПродолжительность: 00:33:11
+01. Monkey Man   (03:48)
+02. 54-46 That's My Number   (03:23)
+03. Pressure Drop   (03:00)
+04. One Eye Enos   (03:01)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:00:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95AF26A4689E99EF537F4757BC93F99CD2B007C7
+magnet:?xt=urn:btih:DFC6D2FCE00047AC6C6E5EFCA0383371BB6856D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366997   (919142) от 14.03.2020
+###  Публикация: 1056448   (481280) от 25.09.2016
 
-King Iso - World War Me (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_481280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бисер
+02 - Пока молодой
+03 - Фильтр
+04 - Тоннель(   Читать дальше...   )Жанр: RapПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878B1CA311DC5FA7D8D0E9FCA726B1BA4AE1768B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244231   (483753) от 31.08.2018
+
+Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_919142.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_483753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Requiem (feat. Tech N9ne) [02:33]
-02. Chopped Liver [03:15]
-03. My First Body [03:57]
-04. World War Me [03:21](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:16:20
+01. The Ringer
+02. Greatest
+03. Lucky You (Feat. Joyner Lucas)
+04. Paul (Skit) (With Paul Rosenberg)(   Читать дальше...   )Жанр: Hip-Hop / RapПродолжительность: 00:45:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0473B113A8D714DC3CC5863753B5E98DC1A7FEE
+magnet:?xt=urn:btih:F68BB30DE8C494C5192D1BC9AAEF78CC5DC5F597
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096181   (920380) от 23.01.2017
+###  Публикация: 1244228   (483755) от 31.08.2018
 
-Noize MC - Царь Горы (2016) [FLAC|Lossless|image + .cue] <Rap, Hip-Hop>
+Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 
 >>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_920380.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_483755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Make Some Noize
-02. Стэнли запишет хит
-03. Царь Горы
-04. Эмпайр Стэйт(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:10
+01. The Ringer (05:37)
+02. Greatest (03:46)
+03. Lucky You (Feat. Joyner Lucas) (04:04)
+04. Paul (Skit) (With Paul Rosenberg) (00:35)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:45:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AF3B42852CCCE5B36E0856C136506E6549D4FB8
+magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244274   (483877) от 31.08.2018
+
+Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Punk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_483877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhymin & Stealin (4:08)
+ 02. The New Style (4:36)
+ 03. She's Crafty (3:35)
+ 04. Posse In Effect (2:26)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, PunkПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8078EDA39A4B12FEC0E5B0FDE78FA79A91429187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405224   (484895) от 29.08.2020
+
+Toni Braxton - Spell My Name (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_484895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance (03:52)
+02. Do It (03:25)
+03. Gotta Move On (04:18)
+04. Fallin' (02:57)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9138D62192D2A4CB1855F5A6ABB950EC50F193C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937987   (485566) от 16.09.2015
+
+Руставели (Многоточие) - Modus Operandi (2015) [FLAC|tracks+.cue]<Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_485566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лодка
+02. Когда деревья были большими (при уч. Санчес)
+03. Паноптикум
+04. Мумия (при уч. Секретный Ингредиент)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC74AE622369461091615D33D7CF19D975F996AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937629   (485710) от 16.09.2015
+
+NANA - Greatest Hits (2005) [APE|image+.cue]<Rap/Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_485710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Intro"
+02. "One second feat. Alex Prince"
+03. "Remember the time"
+04. "He's comin feat T.C. & Ski"(   Читать дальше...   )Жанр: Rap/Hip-HopПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E40B5E5B7325239253C894AA3915072E3DCDA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159075   (485798) от 19.08.2017
+
+Руставели - Зеркало для героя (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_485798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гони прочь
+02. Я уже
+03. Пока мы здесь
+04. Б.Х.Ц.(   Читать дальше...   )Жанр: RapПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C489E7D4CFA5237B2C7A0431D8844B78294C644D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404744   (489379) от 27.08.2020
+
+Макулатура - Место (2019) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_489379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. утро (4:43)
+02. любовь (3:47)
+03. все включено (3:51)
+04. кафедра (4:18)(   Читать дальше...   )Производство: МакулатураЖанр: Abstract Hip-HopПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23C1581899112688A08F41B8970747214BA808D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054888   (491446) от 20.09.2016
+
+MiyaGi & Эндшпиль - HAJIME Part.2 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_491446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люби меня feat. Симптом (НЖН)
+02. Двигайся
+03. ФАЯ
+04. Самая feat. Amigo(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85810B0C198B28AE0B4573E1645F81EB2DED6F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054015   (491946) от 20.09.2016
+
+Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_491946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have Candy
+02. Daddy
+03. Banana Brain
+04. Shit Just Got Real (Feat. Sen Dog)(   Читать дальше...   )Жанр: Hip-Hop, ElectronicПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5504BA87C1C2371A2BA5207F77911A96A7B90AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936132   (493442) от 12.09.2015
+
+25/17 - Пар (2015) EP [MP3|320 кб/с]<Rap-Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_493442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Торт
+02. Каток
+03. Людмила
+04. Пар(   Читать дальше...   )Жанр: Rap-RockПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3DA0A123EFD75016BDF724DC534DAE79D70F41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563790   (502598) от 16.07.2022
+
+UB40 feat. Ali Campbell & Astro - Unprecedented (2022) [FLAC|Lossless|image + .cue] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_502598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Have I Done
+02. We'll Never Find Another Love
+03. Unprecedented
+04. Sunday Morning Coming Down(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCAD409E61DEC1487FFBF793251ACC87F2E96BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933888   (504236) от 03.09.2015
+
+Руставели (Многоточие) - Modus Operandi (2015) [MP3|320 кб/с]<Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_504236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лодка
+02. Когда деревья были большими (при уч. Санчес)
+03. Паноптикум
+04. Мумия (при уч. Секретный Ингредиент)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFD9A65F2D7622E06ABCEE50206C7B9798E3ABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562815   (507055) от 11.07.2022
+
+Guf & Murovei - PART 2 (2022) EP [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_507055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:01:36]
+02 - Firm [00:03:07]
+03 - Зверь [00:04:02]
+04 - Спасибо (feat. DJ Cave) [00:02:52](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7887CCA6FBE397EAFA73245B1A6F6159200C604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561798   (513614) от 06.07.2022
+
+Хмурной Крам - Бипед (2022) [MP3|320 Kbps] <Russian Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_513614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Другая ячейка [00:05:25]
+02 - Незапамятная [00:03:35]
+03 - Антропоморфизм [00:04:47]
+04 - SKISLY (Skit) [00:00:58](   Читать дальше...   )Жанр: Russian Hip-HopПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19E8A7774947BC04D4AAFFF427C63F47A0F5EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560819   (516705) от 03.07.2022
+
+UB40 featuring Ali Campbell & Astro - Unprecedented (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_516705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Have I Done (3:38)
+02. We'll Never Find Another Love (3:33)
+03. Unprecedented (4:59)
+04. Sunday Morning Coming Down (4:53)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170A05F00E2C5B49A3F19F4E58B2A9094A6668BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560780   (518731) от 01.07.2022
+
+Заточка - Вынь да положь (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_518731.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Провинциал
+2. Держи в курсе
+3. Моя роза
+4. Сложно удивить(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD6683858AC8018D3A8D151081D1F2A16DC0A6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560779   (518776) от 01.07.2022
+
+Alai Oli - Снег и пепел, Volume 1: синглы и раритеты (2022) [MP3|320 Kbps] <Reggae, Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_518776.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Буду с тобой
+2. Остаётся дома
+3. Медея
+4. Дома быть заебись(   Читать дальше...   )Жанр: Reggae, RockПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EEAB6700CDF229A3BBB2BE2FF9DD278FB36F76
 ```
 
 

@@ -1,700 +1,700 @@
-###  Публикация: 1095305   (924539) от 21.01.2017
+###  Публикация: 1259028   (323271) от 02.11.2018
 
-Colony House - Only the Lonely (2017) [FLAC|Lossless|tracks] <Indie Rock, Alternative>
+Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_924539.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01|  Cannot Do This Alone  (03:28) 
-02|  1234  (03:23) 
-03|  Lonely  (03:38) 
-04|  You & I  (03:26) (   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:44:40
+01. ACT I : Sea Borne - Liberator of Minds - Dance of the Bacchantes (16:38)
+02. ACT II : The Mountain - The Invocation - The Forest - Psychopomp (19:26)Жанр: Modern Classical, AmbientПродолжительность: 00:36:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94B221F00B2B57DE92B0CF6A9F81B293B1E4D75B
+magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366237   (925894) от 10.03.2020
+###  Публикация: 1259061   (323404) от 02.11.2018
 
-Wyldest - Dream Chaos (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
+Birth of Joy - Hyper Focus (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_925894.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Headrush (03:42)
-02. Rolling Waves (03:38)
-03. Mind Over Body / Slowdance (05:26)
-04. Reverse Tide (04:12)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:39:15
+01. Join The Game
+02. Hyper Focus
+03. You Are Many
+04. I(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:51:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D54E626BF9C5E20DF3520320DB124470A420DC5
+magnet:?xt=urn:btih:7F4318ECBC0228E93F1488D618D23CD9ED0C0A3C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 987263   (925975) от 17.02.2016
+###  Публикация: 1259222   (323406) от 02.11.2018
 
-The Cure - The Head On The Door (1985) Reissue, 2008, Universal/Fiction [FLAC|Lossless|image + .cue] <Alternative Rock>
+Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_925975.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Between Days (2:58)
-02. Kyoto Song (4:16)
-03. The Blood (3:43)
-04. Six Different Ways (3:19)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:47
+01. Flying In A Blue Dream (5:23)
+ 02. The Mystical Potato Head Groove Thing (5:10)
+ 03. Can't Slow Down (4:49)
+ 04. Headless (1:30)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:04:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDB7904AE34B8C5FC919AA9A2482A6FAA7F55E30
+magnet:?xt=urn:btih:5DAB7AD954117F305B6582391FA010B776E20DC7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365870   (927408) от 09.03.2020
+###  Публикация: 1582525   (323479) от 09.10.2022
 
-Noir Reva - Continuance (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Sonic Youth - In/Out/In (2022) [FLAC|Lossless|Web-DL|tracks] <Noise Rock, Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_927408.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fiowia [06:17]
-02. Skyward [06:23]
-03. Goraiko [07:27]
-04. Come Back Apollo [06:01](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:30
+01. Basement Contender (9:35)
+02. In & Out (7:35)
+03. Machine (3:38)
+04. Social Static (11:42)(   Читать дальше...   )Жанр: Noise Rock, Alternative Rock, Post-Punk, Indie RockПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46F263822F5AB0FB9661275D7413C535C5167A87
+magnet:?xt=urn:btih:77974B4D0EC27191FAD5BCE9CA1156100405BB95
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365512   (928936) от 08.03.2020
+###  Публикация: 1259047   (323532) от 02.11.2018
 
-Halestorm - Vicious (Stripped) (2020) [FLAC|Lossless|tracks] <Alternative, Hard Rock>
+The Kooks - Let's Go Sunshine (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Brit Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_928936.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Black Vultures (Stripped) (3:55)
-2. Do Not Disturb (Stripped) (3:21)
-3. Chemicals (Stripped) (4:30)
-4. Heart of Novocaine (Stripped) (3:25)(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 00:19:58
+01. Intro (00:20)
+02. Kids (03:40)
+03. All the Time (04:06)
+04. Believe (04:14)(   Читать дальше...   )Жанр: Pop Rock, Brit PopПродолжительность: 00:53:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:256A8E6011417A21F6A0FB8C3C86269675A4F2B7
+magnet:?xt=urn:btih:4FBF5E22464ECA9A6D04C96B03A9698DCD12FF12
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986726   (929067) от 15.02.2016
+###  Публикация: 1259215   (323544) от 02.11.2018
 
-The Cure - Wish (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Rock, New Wave>
+VA - Dr. Demento Covered in Punk (2018) 2CD [FLAC|Lossless|tracks + .cue] <Punk, Comedy>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_929067.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Open (6:52)
-02. High (3:37)
-03. Apart (6:38)
-04. From The Edge Of The Deep Green Sea (7:45)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 01:06:21
+CD1
+01. Osaka Popstar's Demented Punk Orchestra with The Roto Rooter Goodtime Christmas Band - Dr. Demento Opening Theme (Pico & Sepulveda) (01:42)
+02. Dr. Demento and Osaka Popstar - Demento Segment I (00:26)
+03. Osaka Popstar - Fish Heads (01:43)(   Читать дальше...   )Жанр: Punk, ComedyПродолжительность: CD1 - 01:02:03
+CD2 - 01:02:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:909F7226BDEB1960893E55FE1931786553F797C4
+magnet:?xt=urn:btih:11D9600C5C7D41932E9033C738EDCC3654B72874
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986891   (929154) от 15.02.2016
+###  Публикация: 1582300   (323571) от 09.10.2022
 
-The Cure - Kiss Me Kiss Me Kiss Me (1987) Reissue, 2008, Universal/Fiction [FLAC|Lossless|image + .cue] <Alternative Rock>
+Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_929154.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Kiss (6:17)
-02. Catch (2:44)
-03. Torture (4:17)
-04. If Only Tonight We Could Sleep (4:53)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:14:30
+01. Welcome on board [00:01:43]
+02. Una canzone per disobbedire [00:03:06]
+03. Roma Tiger Punk (vol.2) [00:02:16]
+04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0DA5A62082F8A35CCC3972A356E3087BBF2A1B0
+magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986375   (930442) от 14.02.2016
+###  Публикация: 1582277   (323592) от 09.10.2022
 
-The Cure - Greatest Hits (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, New Wave>
+A Sight in Veracity - Eternity Past (2022) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, Deathcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930442.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Boys Don't Cry
-02. A Forest
-03. Let's Go To Bed
-04. The Walk(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 01:08:08
+01. Divine Guidance [00:00:53]
+02. The Details of Life (feat. Atonalita) [00:04:00]
+03. The Perennial Discord [00:03:30]
+04. Sin Unto Death [00:03:22](   Читать дальше...   )Жанр: Nu Metalcore, DeathcoreПродолжительность: 00:37:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F99C2139BA2649F8A2E7DDA444D711204CBB0972
+magnet:?xt=urn:btih:94C018F7B03EC43E0740A82FFA86607551EAAAB5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365397   (930684) от 07.03.2020
+###  Публикация: 1582278   (323596) от 09.10.2022
 
-Phantogram - Ceremony (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Trip-Hop, Experimental>
+Resist The Ocean - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930684.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_323596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dear God (03:27)
-02. In a Spiral (03:23)
-003. Into Happiness (03:21)
-04. Pedestal (03:11)(   Читать дальше...   )Жанр: Indie Rock, Trip-Hop, ExperimentalПродолжительность: 00:37:28
+01. Awakening [00:01:23]
+02. In Death We Are Equal [00:03:56]
+03. Deadweight [00:03:08]
+04. Umbra [00:04:58](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B384F41AB6FB87566C4A022CF77D51EDF7E0845C
+magnet:?xt=urn:btih:2508970718243394AB5560CAFF99A16FFB745C5B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365413   (930790) от 07.03.2020
+###  Публикация: 1582209   (324592) от 08.10.2022
 
-U.S. Girls - Heavy Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+I Drink My Coffee Alone - Nichts (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Deathcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930790.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_324592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 4 American Dollars [05:42]
-02. Overtime [02:54]
-03. IOU [04:42]
-04. Advice To Teenage Self [00:50](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:29
+01. Die drei Brüder [00:02:56]
+02. Alles [00:04:29]
+03. Adam's Alltag [00:05:14]
+04. Mivina [00:03:39](   Читать дальше...   )Жанр: Experimental DeathcoreПродолжительность: 00:46:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FEF0D83ADAEE92AE5F3DDD9E8D7E946EF774929
+magnet:?xt=urn:btih:F8CBA610DC7845D30B434E112901C852C1D6972D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365427   (930799) от 07.03.2020
+###  Публикация: 1582225   (324685) от 08.10.2022
 
-Wyldest - Redream Chaos (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
+Get The Shot - Merciless Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930799.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_324685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Headrush (Redream) (03:49)
-02. Rolling Waves (Redream) (03:25)
-03. Mind over Body / Slowdance (Redream) (04:56)
-04. Reverse Tide (Redream) (04:21)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:37:52
+01. Ultimate Warfare (02:05)
+02. Seeds of Dissension (03:53)
+03. Survival Denied (04:15)
+04. Deathbound (feat. Rob Watson of Lionheart) (04:39)(   Читать дальше...   )Жанр: Hardcore, Thrash MetalПродолжительность: 00:38:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF46609F98554C0A79C74564980EAC319E1ED7C6
+magnet:?xt=urn:btih:34B3CFA9985E0D87E2237F17BE866EDC38C9F80E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365394   (930809) от 07.03.2020
+###  Публикация: 957898   (324959) от 20.11.2015
 
-Destroyer - Have We Met (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930809.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_324959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crimson Tide (06:09)
-02. Kinda Dark (03:25)
-03. It Just Doesn’t Happen (05:01)
-04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:16
+1. Letters From The Wasteland
+ 2. Hand Me Down
+ 3. Sleepwalker
+ 4. I've Been Delivered(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:786E66C5F324012EB42D66DA3167D59876BEDC8E
+magnet:?xt=urn:btih:7A0FEA293278E8EB05CFC9CB9ECB7AB5401E41FA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986320   (930855) от 14.02.2016
+###  Публикация: 843221   (325380) от 21.11.2014
 
-The Cure - Bloodflowers (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Rock, New Wave>
+In This Moment - Black Widow (Best Buy Deluxe Edition) (2014) [FLAC|Lossless]<Alt.Metal | Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930855.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_325380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Out Of This World (6:44)
-02. Watching Me Fall (11:14)
-03. Where The Birds Always Sing (5:44)
-04. Maybe Someday (5:05)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 01:04:33
+1. The Infection
+02. Sex Metal Barbie
+03. Big Bad Wolf
+04. Dirty Pretty(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Metal | Female VocalПродолжительность: 01:10:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00FA46BC090369F7AF205069C35D005092C4C95D
+magnet:?xt=urn:btih:5172BB727AA955E910DC02A6722C320855F96D69
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986262   (930859) от 14.02.2016
+###  Публикация: 1581855   (325588) от 07.10.2022
 
-Dead Can Dance - Toward The Within (1994) remaster 2008, Vinyl Replica, 4AD, Japan for UK, Europe & US [FLAC|Lossless|image + .cue] <Electronic, Folk, World & Country>
+Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930859.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_325588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rakim (6:25)
-02. Persian Love Song (2:56)
-02. Persian Love Song (1:07:58)
-03. Desert Song (4:21)(   Читать дальше...   )Жанр: Electronic, Folk, World & CountryПродолжительность: 01:07:57
+01. Heavy Is The Ocean [00:05:12]
+02. Slow Me [00:03:48]
+03. More Than Machines [00:03:21]
+04. May Your Love Be Pure [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71693991316BC5552AF6A07F6324F5C87E724E40
+magnet:?xt=urn:btih:1D0589E4619B0F5CE4BBEB4528A5DA5588311B2B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986167   (932480) от 13.02.2016
+###  Публикация: 1569171   (453827) от 12.08.2022
 
-Dead Can Dance - Aion (1990) remaster 2008, Vinyl Replica, 4AD, Japan for UK, Europe & US [FLAC|Lossless|image + .cue] <Electronic, Folk, World & Country>
+Norma Jean - Deathrattle Sing For Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_932480.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_453827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Arrival and the Reunion (1:39)
-02. Saltarello (2:34)
-03. Mephisto (0:54)
-04. The Song of the Sibyl (3:46)(   Читать дальше...   )Жанр: Electronic, Folk, World & CountryПродолжительность: 00:36:11
+01. 1994 (03:32)
+02. Call for the Blood (03:14)
+03. Spearmint Revolt (05:02)
+04. Memorial Hoard (04:49)(   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5FD4B07F1D82F44539AC4DCC8F7A00CA3281B7A
+magnet:?xt=urn:btih:A8B62FFFDBD6AA5B0B2AD91F7BCBA38891F6572C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364862   (933414) от 05.03.2020
+###  Публикация: 1408079   (454019) от 13.09.2020
 
-Noise Box - Every Picture of You Is When You Were Younger (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Mindwake - B-52 (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_933414.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_454019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Transit (04:29)
-02. Magic (03:59)
-03. Broken Teeth (04:51)
-04. Dunes and Trees (04:36)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:47:29
+00. Nil [00:00:56]
+00. Gaïa's Throne [00:04:37]
+00. Hourglass [00:03:41]
+00. Reset [00:03:58](   Читать дальше...   )Жанр: Nu-Metalcore, HardcoreПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9185ECBBE75C44A0A53475BB5178B7F667F4CC8
+magnet:?xt=urn:btih:8B2B48A627E0A2F364031D880CB01B4D3E30A7C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365094   (933809) от 05.03.2020
+###  Публикация: 1408416   (454021) от 13.09.2020
 
-Cornershop - England is a Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Britpop, Alternative>
+Desecration Conflict - Digital Dementia (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_933809.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_454021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. St Marie Under Canon (04:12)
-02. Slingshot (05:15)
-03. No Rock Save In Roll (03:42)
-04. Everywhere That Wog Army Roam (05:09)(   Читать дальше...   )Жанр: Indie, Britpop, AlternativeПродолжительность: 00:48:20
+01. Valor [00:04:17]
+02. Decide to Die [00:03:36]
+03. Grotesque [00:03:33]
+04. Take the Fray [00:03:53](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:22:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EA4C17D3541D290100C211773EF3EDC4A7F220
+magnet:?xt=urn:btih:FBCBBC3EE2FBDE801AEF3A00D6FC2CD342987ED3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365100   (933819) от 05.03.2020
+###  Публикация: 1247110   (454545) от 14.09.2018
 
-Isobel Campbell - There Is No Other… (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Jungle - For Ever (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_933819.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_454545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. City of Angels (03:08)
-02. Runnin' Down a Dream (03:27)
-03. Vultures (03:40)
-04. Ant Life (02:35)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:28
+01. Smile (03:07)
+02. Heavy, California (03:04)
+03. Beat 54 (All Good Now) (04:06)
+04. Cherry (03:16)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D32C91BBDF6AF9D52D276EF7B581F108FDD4DAC
+magnet:?xt=urn:btih:2D4B1A4E85CCF57D5D2684C96B00B4CA5A7E2ECD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364858   (933899) от 05.03.2020
+###  Публикация: 1247299   (454937) от 14.09.2018
 
-Noise Box - Here's That Bliss You Left Behind (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Frank Zappa - Finer Moments (2012) 2CD [FLAC|Lossless|tracks + .cue] <Avantgarde, Psychedelic Rock, Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_933899.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_454937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like a Girl [03:38]
-02. On and Off [03:56]
-03. Glow [03:48]
-04. Smithereens [04:57](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:09
+CD1
+ 01. Intro (1:20)
+ 02. Sleazette (3:33)
+ 03. Mozart Piano Sonata In B♭ (6:22)(   Читать дальше...   )Жанр: Avantgarde, Psychedelic Rock, Prog RockПродолжительность: CD1 - 00:41:54
+CD2 - 00:40:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:467C33F7DDB70C8E13BDEAA1645909AB27562C8D
+magnet:?xt=urn:btih:D7D6D06A35C91A2EA5661D388C5ADFA373966A2C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 985445   (934057) от 12.02.2016
+###  Публикация: 1247114   (454942) от 14.09.2018
 
-Dead Can Dance - Within The Realm Of A Dying Sun (1987) remaster 2008, 4AD, Japan for UK, Europe, US [FLAC|Lossless|image + .cue] <Electronic,  Folk, World & Country>
+Zoot Woman - Redesigned (2018) Anthology [FLAC|Lossless|tracks + .cue] <Acoustic, Alternative Rock, Folk Rock >
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_934057.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_454942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1	Anywhere Out Of The World	5:08
-2	Windfall	3:32
-3	In The Wake Of Adversity	4:14
-4	Xavier	6:15(   Читать дальше...   )Жанр: Electronic,  Folk, World & CountryПродолжительность: 00:38:47
+01. More Than Ever (03:12)
+02. Grey Day (02:49)
+03. Ordinary Face (02:52)
+04. Holiday Home (02:35)(   Читать дальше...   )Жанр: Acoustic, Alternative Rock, Folk RockПродолжительность: 00:43:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:427E406BD083ECF7AACBC6E5CF9F681DB37C9F56
+magnet:?xt=urn:btih:3CB118798E377762F4E36206C4FB57742EE82EBB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 985563   (934060) от 12.02.2016
+###  Публикация: 1568994   (455809) от 11.08.2022
 
-Dead Can Dance - The Serpent's Egg (1988) remaster 2008, Vinyl Replica, 4AD, Japan for UK, Europe & US [FLAC|Lossless|image + .cue] <Electronic, Folk, World & Country>
+Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FLAC|Lossless|image + .cue] <Alternative, Nu Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_934060.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_455809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1	The Host Of Seraphim	6:18
-2	Orbis De Ignis	1:35
-3	Severance	3:23
-4	The Writing On My Father's Hand	3:50(   Читать дальше...   )Жанр: Electronic, Folk, World & CountryПродолжительность: 00:36:15
+01 - Headstones And The Walking Dead
+02 - Big Truck (Hand-On-Wheel Mix)
+03 - Pig (Original Version)
+04 - Bradley (Going Postal Mix)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 01:09:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4AADCB2CB4E0A002328D20BA492D34828B12233
+magnet:?xt=urn:btih:99DF7B0918E8D9446E68166F5E03B18B0E9EEA25
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364613   (935034) от 04.03.2020
+###  Публикация: 1569108   (455811) от 11.08.2022
 
-Envy - Compiled Fragments 1997-2003 (2005) Anthology [FLAC|Lossless|tracks + .cue] <Hardcore>
+Yard Act - The Overload (2022) 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_935034.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_455811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Far-Off Reason (06:18)
-02. An Adventure of Silence and Purpose (06:07)
-03. Invisible Understanding (08:02)
-04. Chacun de tes pas (04:45)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:04:01
+CD - 1 - The Overload:
+01. The Overload (3:16)
+02. Dead Horse (3:39)
+03. Payday (2:54)(   Читать дальше...   )Жанр: Alternative Rock, Post-PunkПродолжительность: 01:21:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:629BE365AFA346E644CEFE9C2DD6BFFE6E5E8155
+magnet:?xt=urn:btih:E00092B0B4BDE44E31EFC7A5B83AE9362772FA09
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364589   (935035) от 04.03.2020
+###  Публикация: 1408404   (456121) от 12.09.2020
 
-Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
+Cel Damage - Runoff of Acid, Oil and Water (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Mathcore, Noise Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_935035.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_456121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Statement of Freedom (03:49)
-02. Swaying Leaves and Scattering Breath (04:13)
-03. A Faint New World (05:28)
-04. Rhythm (06:21)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:54:22
+00. Imitation of a Crow [00:02:20]
+00. Parallelogram [00:01:18]
+00. The Sun, the Moon, the Stars and Mars (feat. Graham Steele of Sad Park) [00:02:58]
+00. Should've Been a Cowboy, but I Didn't Like Riding Horses [00:02:35](   Читать дальше...   )Жанр: Hardcore, Mathcore, Noise RockПродолжительность: 00:10:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
+magnet:?xt=urn:btih:3B40DE4334906964AFEC4321743E83C63C6F8B67
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364608   (935039) от 04.03.2020
+###  Публикация: 1408025   (457853) от 11.09.2020
 
-Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+Skillet - Victorious: The Aftermath (2019) Deluxe Edition, 2020 [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock, Christian>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_935039.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_457853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guidance (03:21)
-02. Last Hours of Eternity (07:04)
-03. Rain Clouds Running in a Holy Night (08:32)
-04. Pieces of the Moon I Weaved (04:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:05:58
+01. Legendary [00:04:04]
+02. You Ain't Ready [00:03:18]
+03. Victorious [00:04:05]
+04. This Is the Kingdom [00:03:27](   Читать дальше...   )Жанр: Alt. Rock, Modern Rock, ChristianПродолжительность: 01:17:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
+magnet:?xt=urn:btih:2F3B7EEE4732AD63825757A793580D0654F509FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364598   (935040) от 04.03.2020
+###  Публикация: 1408033   (458018) от 11.09.2020
 
-Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
+Eskimo Callboy - MMXX (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_935040.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_458018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zero (02:05)
-02. Farewell To Words (02:47)
-03. Lies, And Release From Silence (04:49)
-04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
+01. Hypa Hypa [00:03:33]
+02. Hate/Love [00:03:08]
+03. MC Thunder II (Dancing Like a Ninja) [00:04:08]
+04. Monsieur Moustache [00:02:55](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:20:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
+magnet:?xt=urn:btih:DAC8F048D2FBB907DC27DF93029D5970B7D02F78
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364607   (935041) от 04.03.2020
+###  Публикация: 1407918   (459958) от 10.09.2020
 
-Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
+Gorillaz - Song Machine Episode 6 (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Electronic, Alternative>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_935041.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_459958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Further ahead of warp (06:51)
-02. Shield of selfishness (04:30)
-03. Scene (07:08)
-04. Crystallize (10:34)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:57:53
+01. Song Machine: Machine Bitez #12 [00:00:30]
+02. Song Machine: Strange Timez (feat. Robert Smith) [00:03:47]
+03. Machine Bitez #13 [00:00:46]
+04. Strange Timez (Robert Smith AURORA Remix) [00:04:58]Жанр: Trip-Hop, Electronic, AlternativeПродолжительность: 00:10:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
+magnet:?xt=urn:btih:7AF2A1F40252CC4143EFD67AF798E7C3504A6EDC
 ```
 
 

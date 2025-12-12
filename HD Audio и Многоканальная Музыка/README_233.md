@@ -1,0 +1,704 @@
+###  Публикация: 1502119   (826499) от 15.10.2021
+
+Nazareth - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_826499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Love Hurts
+A2 Razamanaz
+A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502747   (826501) от 15.10.2021
+
+Patricia Barber – Clique! (2021) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DXD-DL] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_826501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Town 04:34
+02. Trouble is a Man 03:53
+03. Mashup 08:05
+04. Samba de Uma Nota So – One Note Samba 04:28(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A5AF6E5D1C57BE7F46AB0DBEE001708D2AFC66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502492   (828144) от 14.10.2021
+
+Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Compilation, Country Music>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_828144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Could Only Win Your Love
+02. Boulder To Birmingham
+03. One Of These Days
+04. Too Far Gone (with Dolly Parton & Linda Ronstandt)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56869ECB38837400D90DD66019A09AC07318887C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653761   (828796) от 08.05.2013
+
+Moya Brennan – Two Horizons (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <celtic, new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_828796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Show Me    04:58
+02.    Bright Star    04:15
+03.    Change My World    03:46
+04.    Bi Liom    04:32(   Читать дальше...   )Жанр: CelticПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8715DEFA91F7A2131948E0B5D5407F02BB17546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774533   (829271) от 06.04.2014
+
+Electric Light Orchestra - Eldorado (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_829271.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Eldorado Overture (2:12)
+A2. Can't Get It Out Of My Head (4:23)
+A3. Boy Blue (5:20)
+A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115091   (829699) от 16.03.2017
+
+The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_829699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Strange Days (3:04)
+A2. You're Lost Little Girl (2:58)
+A3. Love Me Two Times (3:12)
+A4. Unhappy Girl (1:56)(   Читать дальше...   )Производство: Elektra - K 42 016Жанр: Psychedelic RockПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E586865A43EDCEEA57DA00059E2385A2DC694C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312323   (829947) от 22.03.2011
+
+Bad Haggis - Span [DTS 5.1 CD-Audio] (2004) <Celtic, Irish, International>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_829947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  Mysterious IntegrationЖанр: InternationalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380911   (830963) от 04.05.2020
+
+Andrea Bocelli ‎– Andrea [Special Edition] (2004) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_830963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dell’Amore Non Si Sa 03:44
+02. L’Attesa 04:31
+03. Un Nuovo Giorno 04:12Жанр: popПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DF119E875426465AF55DEAF176838AADC71DE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380696   (831231) от 04.05.2020
+
+Frank Sinatra - Some Nice Things I've Missed (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_831231.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You Turned My World Around
+Kaempfert, Rehbein, Carnes, Ellingson
+A2. Sweet Caroline
+Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380819   (831443) от 04.05.2020
+
+Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_831443.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 On The Street Where You Live
+A2 I've Grown Accustomed To Her Face
+A3 I Could Have Danced All Night
+A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114400   (831490) от 15.03.2017
+
+The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_831490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wouldn't Want To Be Like You (3:11)
+02. Eye In The Sky (4:35)
+03. Games People Play (4:20)
+04. Time (4:58)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773795   (832753) от 04.04.2014
+
+Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_832753.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ocean Breakup / King of the Universe (4:06)
+A2. Bluebird Is Dead (4:43)
+A3. Oh No Not Susan (3:07)
+A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380624   (832820) от 03.05.2020
+
+The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_832820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You (4:49)
+ 02. When the Whip Comes Down (4:21)
+ 03. Imagination (4:39)
+ 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380462   (832949) от 03.05.2020
+
+Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_832949.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
+Norman Gimbel, Michel Legrand, Jaques Demy
+A2. Didn't We
+Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501854   (833536) от 11.10.2021
+
+Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_833536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic (Remixed Extended Version) [00:05:09]
+02. Radiate (Remix) [00:04:22]
+03. Radio Station (Extended Version) [00:05:02]
+04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005102   (834167) от 08.04.2016
+
+Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_834167.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Когда Умирают Мечты · Wenn Träume Sterben
+A2	Ловцы Жемчуга · Perlenfischer
+A3	Буревестник · Sturmvogel
+ A4	Время Жизни · Lebenszeit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772304   (834257) от 03.04.2014
+
+Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_834257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. We Will Rock You  2:03
+2. We Are The Champions  3:00
+3. Sheer Heart Attack 3:27
+4. All Dead, All Dead  3:10
+5. Spread Your Wings  4:35
+6. Fight From The Inside  3:05
+Сторона 2
+1. Get Down, Make Love  3:53
+2. Sleeping On The Sidewalk  3:08(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380220   (834908) от 02.05.2020
+
+Frank Sinatra - Close To You (1957) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_834908.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Close To You
+Hoffman - Livingston - Lampi
+A2. P.S. I Love You
+Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501310   (835028) от 10.10.2021
+
+Nirvana - Легенды Зарубежного Рока (2001) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_835028.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 About A Girl
+A2 Aneurysm
+A3 Come As You Are
+A4 Frances Farmer Will Have Her Revenge On Seattle(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879054   (835414) от 19.03.2015
+
+Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_835414.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 2014 Stereo Remaster
+
+01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
+02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652123   (835489) от 04.05.2013
+
+Nightwish - Once (2004) 2006, Nuclear Blast [LPCM 2.0 24/48, DTS 5.1 24/48 |Audio-DVD (DVD-Audio)]<Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_835489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Chest Of Wonders
+02. Wish I Had An Angel
+03. Nemo
+04. Planet Hell(   Читать дальше...   )Жанр: MetalПродолжительность: 01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78629A79689ACF90D9A8F891A335A610622D5865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500871   (837869) от 08.10.2021
+
+Rainbow - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_837869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Catch To Rainbow
+02. All Night Long
+03. Starstruck(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112731   (839546) от 10.03.2017
+
+VA - RETROспектива, часть XIV. Мелодии и песни из кинофильмов III (1946-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_839546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женск. вок. ансамбль - Песня подруг (из к.ф. ''Девчата'')
+02. Валентина Дворянинова - Прощайте, голуби (из к.ф.  ''Прощайте, голуби'')
+03. Оркестр п.у. Виктора Кнушевицкого - Медленный танец (из к.ф. ''Моя любовь'')
+04. Ефим Нейд (худ. свист) - Мелодии (из к.ф. ''Вернись в Соренто'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004105   (839899) от 05.04.2016
+
+Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napoli/Неаполь (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_839899.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Душа И Сердце (Anema E Core)
+A2	Идёт Дождь (Chiove)
+A3	Неблагодарное Сердце (Core' Ngrato)
+A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793368   (841272) от 04.04.2016
+
+Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_841272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Secret Messages (4:45)
+A2. Loser Gone Wild (5:24)
+A3. Bluebird (4:09)
+A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500378   (841290) от 06.10.2021
+
+Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_841290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Don`t Know What You Got
+02. Heartbreak Station
+03. Hard To Find The Words(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

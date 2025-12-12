@@ -484,217 +484,214 @@ magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190197   (268569) от 08.12.2017
+###  Публикация: 1190681   (267034) от 10.12.2017
 
-VA - Дискотека Руки Вверх 65 (2017) [MP3|320 Kbps] <Pop>
+VA - De Top 100 Aller Tijden 1970 (Radio Veronica) (2017) [MP3|320 Kbps] <Rock, Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268569.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Сергей Жуков - Конфета (Lucoveros Cover)
-02. Владимир Лучников - Задержи дыхание
-03. Potehin Band - Чужая
-04. НашеVrемя - Хулиганка(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:12
+001. Corry & De Rekels - Huilen Is Voor Jou Te Laat (3:04)
+002. Golden Earring - Back Home (3:52)
+003. Simon & Garfunkel - El Condor Pasa (3:07)
+004. Mungo Jerry - In The Summertime (3:32)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:59:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CEA0315477F31784C724DD6199C88C146DAF6A7
+magnet:?xt=urn:btih:8749C82F62A67A2D61F10AB61DD39B8F3B1AC51A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298538   (268589) от 16.11.2019
+###  Публикация: 1190632   (267091) от 10.12.2017
 
-VA - По волне моей памяти  70', 80', 90' (2019) [MP3|254-320 Kbps] <Советская эстрада, Ретро, Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анатолий Могилевский - Романс 04:36
-02. Виктор Шульман - Письмо в Одессу 02:53
-03. Анатолий Днепров - Радовать 2 05:50
-04. Виктор Березинский - Секс 02:07(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрада, ШансонПродолжительность: 205:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B790CE513B78528294F1073B0540FEF2F6EEB089
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190240   (268658) от 08.12.2017
-
-VA - По волне моей памяти 2: Том39 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Иванушки International  -  Тучи  4:13
-02.  Маша и Медведи  -  Любочка  4:22
-03.  Секрет  -  Привет  3:06
-04.  Русский Размер & Профессор Лебединский  -  Бегут года  4:07(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D9747E0AF13A9007690DA3EED5FDA4C73AA50F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190018   (268705) от 08.12.2017
-
-VA - По волне моей памяти 2: Том38 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Браво  -  Чёрный кот  2:52
-02.  Ногу свело!  -  Лилипутская любовь  3:01
-03.  Рок-Острова  -  Ничего не говори  4:25
-04.  Божья коровка  -  Гранитный камушек  5:08(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500CEE114879D22DE402EE07125E76EF5BA6B6CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190001   (268811) от 08.12.2017
-
-VA - Romantic Drum (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
+VA - Лучшие клубные новинки Vol.6 (2017) [MP3|320 Kbps] <Uplifting Trance, Deep House, Drum & Bass>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268811.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Furia - Good Vibrations
-02. Katya Slok - Story of my life (Original Mix)
-03. Felix Raymon & Smuskind Ft. Luna Morgenstern - Love & Devotion
-04. Samone - Here I Am(   Читать дальше...   )Жанр: Dubstep, Drum & BassПродолжительность: 03:58:54
+01. Aaliyah - Try Again (Hakan Akkus Remix) 4:17
+02. Adam Ellis vs. Talla 2XLC feat. Crystal Blakk - Feel You (Extended Mix) 7:24
+03. Adip Kiyoi & ELV - Backlight (Extended Mix) 5:35
+04. Adrien Rux & Bedmar, David Tuck, Kuaigon - Set Me Free (Extended Mix) 4:35(   Читать дальше...   )Жанр: Uplifting Trance, Deep House, Drum & BassПродолжительность: 14:38:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:414F85F964C8F91F9DF8D84EF0193D1E13785D48
+magnet:?xt=urn:btih:FA3AE335B72EBF7928A48202E7E52E82E346DE14
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190137   (268812) от 08.12.2017
+###  Публикация: 1190601   (267102) от 10.12.2017
 
-VA - Cosmic Eguana: Psybient Space (2017) [MP3|320 Kbps] <Ambient, Psybient, Other>
+VA - Record Super Chart #515 (2017) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268812.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pensees - Morfin
-02. K.Markov - Golden Age
-03. AndAWan - Time Machine
-04. Banco de Gaia - Nine Hearts(   Читать дальше...   )Жанр: Ambient, Psybient, OtherПродолжительность: 05:20:54
+01.  Don Diablo  -  Momentum  3:28
+02.  EKTONIX  -  Vuono Matyn  2:30
+03.  Alan Walker  -  The Spectre  3:14
+04.  Firebeatz feat. Vertel  -  Till The Sun Comes Up  3:11(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:56:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B664F8C0540A02B4621CDFC4C3381BA27A3C2BA
+magnet:?xt=urn:btih:25AB6E1622CFACA804BE50C901DD1DD429DBA379
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190188   (268889) от 08.12.2017
+###  Публикация: 1190570   (267104) от 10.12.2017
 
-VA - Underwater Dance: 130 Downtempo Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - The Official UK Top 40 Singles Chart 08.12.2017 [MP3|320 Kbps] <Alternative, Indie, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect 4:23
+02. Rak-Su Feat. Wyclef Jean & Naughty Boy - Dimelo (X Factor Recording) 3:02
+03. Rita Ora - Anywhere 3:35
+04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF75CCAFF88AD80B65341A928A7EF6BBCFBF6521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190549   (267131) от 10.12.2017
+
+VA - Project Deep House: Sky Flower Mixtape (2017) [MP3|320 Kbps] <Deep House, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268889.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. James Butler - Montmartre Impressions
-002. Sonic Scope - Kryshen (Original Mix)
-003. 2 Placid - Return from Angkor Wat
-004. Ludwig Armstrong - Constanza (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:24:12
+001. Derek Christopher - Mojave (Original Mix)
+002. Ajda Pekkan - Hayk?racak Nefesim (Ali Arsan Rework)
+003. Discoplex - Losing My Mind (Original Mix)
+004. DJ Unprotected - Midnight Lover (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:53:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F78DE3322EE60736248B659E02E6458895F5CECF
+magnet:?xt=urn:btih:FEFF2006A1435596F6E8FC24FC8E9C405A20A440
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189798   (269328) от 07.12.2017
+###  Публикация: 172628   (267270) от 05.12.2018
 
-VA - Melody Instrumental Classic (2017) [MP3|320 Kbps] <Instrumental Classic, Neo Classic>
+VA - Мировые инструментальные хиты. Тома 101 - 150 (2009) [MP3|320 kbps]<Instrumental>
 
 >>Неофициальные сборники
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_269328.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Elo - Another heart breaks 3:46
-002. Azyl Y Negro - Isadora 4:03
-003. Vangelis - Love theme 4:56
-004. Goran Bregovic - Old home movie 5:06(   Читать дальше...   )Жанр: Instrumental Classic, Neo ClassicПродолжительность: 09:34:27
+Перед вами сборник лучшей инструментальной музыки. Тут собраны хиты всех времён и народов. Для тех, кто любит инструментальную музыку - коллекция Мировые инструментальные хиты придется как раз по вкусу.Жанр: InstrumentalПродолжительность: 67:27:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5340F2C2EC0548DE3EEDD18D75380544521172B3
+magnet:?xt=urn:btih:2A6DE7D7F63A6C09080A388571E57C5A27169CCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 108400   (267426) от 05.12.2018
+
+Дживан Гаспарян и др. - Armenian Duduk (2006) [MP3|192 kbps]<Folk>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Djivan Gasparyan - Soorp Soorp (Holy, Holy) (5:17)
+          2. Ludvik Garibian - Strange and empty (4:28)
+          3. Ludvik Garibian - The call of the shipherd (3:37)
+          4. Ludvik Garibian - The world is a window (3:56)(   Читать дальше...   )Жанр: FolkПродолжительность: 03:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B615103484DBC8D10DFE9EF7CF847AA77794F6AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190369   (267665) от 09.12.2017
+
+VA - Clubland House: The Diamond Edition (2017) [MP3|320 Kbps] <Electro, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267665.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Versus 5 - Locked (Original Mix)
+002. TimeKube - Sordid (Original Mix)
+003. Antrim - Niger Mulier
+004. Save The Rave - Drugstore (Original Mix)(   Читать дальше...   )Жанр: Electro, Progressive HouseПродолжительность: 08:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F249EB8E411C31D43C7C518AF8FA4E345BE3141
 ```
 
 

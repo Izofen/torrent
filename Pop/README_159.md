@@ -1,697 +1,700 @@
-###  Публикация: 1446498   (1032728) от 09.02.2021
+###  Публикация: 1214696   (763293) от 23.03.2018
 
-Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1032728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Have Some Fun (5:03)
-02. Love House (4:36)
-03. Your House or My House (3:56)
-04. Next to Me (5:26)(   Читать дальше...   )Жанр: Synth-pop, Pop, DanceПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446610   (1032735) от 09.02.2021
-
-J.J. Mack - You Can Make It Dancin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1032735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Dancin' (5:02)
-02. Hang On Sloopy (5:34)
-03. You Can Make It Dancin' (5:01)
-04. Na, Na, Hey, Hey, Kiss Him Goodbye (5:01)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AADE04907E3F75F10023F3BD30039467B72996
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446095   (1033024) от 08.02.2021
-
-VA - Acoustic Versions of Rock Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1033024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Django Wallace - My Hero (03:46)
-02. Shannon & Keast - Wake Me up When September Ends (04:10)
-03. Karizma Duo - Everybody’s Changing (02:35)
-04. Nora & Will - Creep (04:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B27F89AA9AB9E8CD1B924210B26DEDC2B9D3B85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445885   (1033045) от 08.02.2021
-
-VA - Dream Pop 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1033045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rupert Pope, Giles Palmer & Lucy Underhill - All Comes True (3:51)
-02. Raphael Lake - Cruise (3:05)
-03. Rupert Pope, John Robertson & Eller - Foolish Path (3:52)
-04. Extreme Music - Passing Love (4:16)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE385415E0A2D59DB3F9D4C68C9BA44F90E228B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445883   (1033049) от 08.02.2021
-
-VA - Dream Pop (2012) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1033049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raphael Lake - Turn It Up (3:20)
-02. Jason Tarver, Lucy Underhill & Mark Williams - Just Drive (2:57)
-03. Lee Richardson, Richard Macklin & Tom Ford - Said and Done (3:23)
-04. Raphael Lake - Forever Young (3:28)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94356F6157F59D771F6FEFE0B61A03F6FFD0D635
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445797   (1033549) от 06.02.2021
-
-Aphelion - Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Synth, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1033549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey Beyond the Sky (6:05)
-02. Cosmic Hereos (6:07)
-03. Land of My Dreams (6:47)
-04. Where Ends the Light of the Sun (6:11)(   Читать дальше...   )Жанр: Spacesynth, Italo-Synth, Italo-Disco, Italo-DanceПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96D5C07F09FE0C5D118AAC2D1111275428F3248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444879   (1034181) от 03.02.2021
-
-Mia Boyka & Би-2 - Последний герой (2021) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Последний геройЖанр: PopПродолжительность: 00:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49063675623F1718690EB0FD4B03C94B41559416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444766   (1034203) от 03.02.2021
-
-VA - New Italo Disco Music Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - My Heart Belongs To You (Extended Version) (6:33)
-02. Chito - The Long Tomorrow (Maxi Version) (6:46)
-03. D. White - No Connect (Extended Version) (7:04)
-04. Lenroy - Give Me A Night (Extended Version) (6:09)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCBCBEA2F74E9C4D70024BE7B6D377CF65330A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444833   (1034206) от 03.02.2021
-
-Annie Lennox - Songs Of Mass Destruction (2007) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Road [3:47]
- 02. Love is Blind [4:19]
- 03. Smithereens [5:17]
- 04. Ghosts in My Machine [3:31](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3801A3E3E8B69D861A0148AD0A57749440807DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444866   (1034208) от 03.02.2021
-
-M. A. 3 - M. A. 3 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gee's Mania (Medley) (13:40)
-02. If You Wanna Dance (5:15)
-03. Music (4:13)
-04. When Will I See You Again (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BC22B5D4DC672BC97376133CEA228302E41C2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444733   (1034217) от 03.02.2021
-
-The Persuaders - It's All About Love (1976) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Love (2:57)
-02. Count The Ways (4:58)
-03. I Need Love (4:15)
-04. Quickest Way Out (Vocal) (4:11)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B886262AAB7C476F05300D84D4DB0E88C201586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444943   (1034229) от 03.02.2021
-
-C.O.D. - Tears (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears (3:20)
-02. Groovin' (2:52)
-03. Good Time (3:21)
-04. I Just Want To Be With You (3:21)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59580E61C026A14B5EFE8654D6977BFCA7123E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444692   (1034435) от 02.02.2021
-
-VA - Modernation, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kid Machine - Music Inside (8:43)
-02. Luca Dell'orso - Pulsario (5:15)
-03. Adrian Marth - New Vision (6:50)
-04. Ali Renault - Maghtab Mirror (5:19)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A16286C44DE6189CBC19EA228281689541EEBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444691   (1034436) от 02.02.2021
-
-VA - Modernation, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sophie Du Palais - I Don't Wanna Go to Work Today (5:40)
-02. Adrian Marth - Sintesis Analogica (5:07)
-03. Antoni Maiovvi - Edge of Knowle (4:36)
-04. Black Light Smoke - Work for Love (5:56)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C2D7A204D1F21324CDA60BEE360C2BB95C1906
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444662   (1034454) от 02.02.2021
-
-Henri-Michel Raschle - Daemonia: The Magic Trip Through Your Soul (1981) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magic Trip (7:53)
-02. 666 (2:16)
-03. Voodoo (5:31)
-04. The Serpent (2:15)(   Читать дальше...   )Жанр: Electronic, Prog Rock, DiscoПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F951270C6793A17C1315C47433667A188E2468F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444170   (1034647) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven42 - Just Tonight (Extended Version) (7:25)
-02. Birizdo I Am - Melinda (EP Version) (7:33)
-03. Nikita Fomin - Stranger (Dream Version) (6:23)
-04. Fancy - Moscow Is Calling (On The Line Mix) (7:16)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA8B85DCB9552ED8B1FDFD51719EFA9C4A72262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444310   (1034653) от 01.02.2021
-
-VA - Acoustic Versions of Pop Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talisha Karrer - Hazard (03:30)
-02. Shannon & Keast - Jealous (04:32)
-03. Landa - Nothing Breaks Like a Heart (03:44)
-04. Logan York - Stay with Me (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2D8947FDDB4E485A2FEF0A3B58AE682D322DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444144   (1034656) от 01.02.2021
-
-VA - New Italo Disco Music 1 (Selected by DJ Adamski) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Mirrors - The Right Time (Digimax Remix) (5:23)
-02. Amaretto - Through the Night (Extended Version) (8:00)
-03. Estimado - Your Eyes (Extended Version) (9:29)
-04. Birizdo I Am - I Love Italo Disco (Extended Version) (6:48)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8012F8F9D72E5DCA72F1D8B79E2E5E24D2635660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444163   (1034661) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - A Voice in the Dark (Bringing The Light Mix) (6:49)
-02. TDHDriver - Leave Russia (4:17)
-03. Digitalo - Say Yes (Extended Version) (6:52)
-04. Birizdo I Am - Unbelievable (Extended Version) (7:11)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074BE9222363B9903AA1BFD7A28A99500E067C13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444167   (1034662) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crosslines - To The Space (Extended Version) (5:15)
-02. Diamond Rain - Follow The Rainbow (Extended Version) (5:14)
-03. Birizdo I Am - Just Tonight (Maxi Version) (5:45)
-04. Nikita Fomin - When You Said Goodbye (Extended Version) (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510820729A69B51402EE176A6E5D170E64221B59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444405   (1034668) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Tight (2:51)
-02. The Wreck of the Antoinette (3:24)
-03. Save Me (3:19)
-04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444158   (1034672) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - I Bridge New Life (7:07)
-02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
-03. The Crosslines - Starlight (Maxi Version) (5:17)
-04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444164   (1034674) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
-02. Birizdo I Am - Dont Go (Extended Version) (6:11)
-03. Diamond Rain - Mystic Night (Extended Version) (6:11)
-04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444417   (1034678) от 01.02.2021
-
-VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take - Remastered 2003 (4:14)
-02. Lady A - Need You Now (3:56)
-03. James Morrison - You Give Me Something (3:32)
-04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444145   (1034680) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Slice Me Nice (Split Mirrors Remix) (5:49)
-02. Digitalo - Beautiful Day (Extended Mix) (9:18)
-03. Maxthor - Hunters (Extended Mix) (4:50)
-04. Loreana C. - Dangerous Love (Extended Mix) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444057   (1034681) от 01.02.2021
-
-VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
+Max Berlin - 2 Albums, 2 Singles & EPs (1978-1987) Vinyl [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034681.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_763293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Cardigans - Lovefool (03:18)
-02. Keane - Somewhere Only We Know (03:56)
-03. Jackson 5 - I'll Be There (03:57)
-04. Marvin Gaye - Ain't No Mountain High Enough (02:27)(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:21
+Он-же: M. Berlin's, Max, Max B, Max Berlin's и Jean-Pierre Cerrone. Является братом всем известного Jean-Marc Cerrone, выпустил на его студии Malligator первые синглы.Список альбомов:
+1978 - Dream Disco
+1979 - World Wide Party
+1980 - New Wave(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 01:24:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
+magnet:?xt=urn:btih:FBEE61EB085C962F3ACAD4C03F1D3FD5E8A989E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214660   (763295) от 23.03.2018
+
+Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214651   (763302) от 23.03.2018
+
+Bosson - RockStar (2004) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3C346D81E6AD66797BA6B4B34AF6A631F61519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280075   (763423) от 01.02.2019
+
+Оля Полякова - Королева ночи (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Королева ночи
+2. Лёд тронулся
+3. Любовница
+4. Звонила(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8773DF7BB5F23C46C13712D4136DCE695E2CF114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279973   (763520) от 01.02.2019
+
+Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763520.jpg" />
+</div>
+
+
+###  Подробнее
+
+VOLUME 1:
+01. Venus (3:49)
+02. I Heard a Rumour (3:24)
+03. Love in the First Degree (3:31)(   Читать дальше...   )Жанр: Dance-pop, New WaveПродолжительность: 02:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280090   (763522) от 01.02.2019
+
+The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving Feeling (3:44)
+02. Satellite (4:15)
+03. Ease the Pressure (4:20)
+04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279937   (763524) от 01.02.2019
+
+Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson) (03:32)
+02. Baby (feat. Marina & Luis Fonsi) (03:25)
+03. Solo (feat. Demi Lovato) (03:43)
+04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280074   (763638) от 01.02.2019
+
+Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Твоя девочка
+2. Без ума
+3. Под красной луной
+4. По приколу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFECDB9D2349F7058FC94439AD73509ED29F0567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280078   (763639) от 01.02.2019
+
+Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sola (3:24)
+02. Apaga la Luz (3:32)
+03. Le Pido al Cielo (4:07)
+04. Luis Fonsi & Ozuna – Imposible (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA6AC37E87D10C99DCCC7CEC8B0392EF2C29C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280162   (763642) от 01.02.2019
+
+VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763642.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Ava Max - Sweet But Psycho 3:08
+02. HUGEL feat. Amber Van Day - WTF 2:41
+03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280082   (763650) от 01.02.2019
+
+НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рай
+02 - Проснись
+03 - Ау
+04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394477   (763750) от 05.07.2020
+
+The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOMO (05:06)
+02. Angel Of My Life (04:00)
+03. So Did I (04:12)
+04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214523   (763972) от 22.03.2018
+
+VA - 44 Hits Latino (2018) [MP3|320 Kbps] <Reggae Fusion, Salsa, Bachata, Dembow>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763972.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Camilla Cabello - Havana 3:37
+02. Maluma Feat. Nego Do Borel - Corazon 3:04
+03. Luis Fonsi Feat. Demi Lovato - Echame La Culpa 2:54(   Читать дальше...   )Жанр: Reggae Fusion, Salsa, Bachata, DembowПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7BD56BB3127FB7C33658EF6075C9F70B2AEE1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214553   (763988) от 22.03.2018
+
+VA - NRJ Future Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_763988.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Maitre Gims & Super Sako feat. Hayko  -  Mi Gna (Maitre Gims Remix)  3:35
+02.  Luis Fonsi & Demi Lovato  -  Echame La Culpa  2:54
+03.  Madame Monsieur  -  Mercy  3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4625D88457D4C534438FAC45945C8179EE4F8C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214578   (764058) от 22.03.2018
+
+Motion - Make My Feet Wanna Dance (1997) The Best Of [MP3|320 Kbps] <Electronic, Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop (6:23)
+02. Forever (5:07)
+03. Emotion (4:24)
+04. Make My Feet Wanna Dance (4:51)(   Читать дальше...   )Жанр: Electronic, Disco, ElectroПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA99C16D53F66589E49E48E6790D35FDBCAAACA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279854   (764232) от 31.01.2019
+
+Тима Белорусских - Твой первый диск - моя кассета (2019) [MP3|320 Kbps] <Pop, Rap>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я больше не напишу 3:11
+02. Витаминка 2:56
+03. Возвращаться уже поздно 3:20
+04. Цветочный сад 3:02(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FA412C41FBD9E7A0B0200FCD34A4737EF53277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521627   (764340) от 03.01.2022
+
+VA - THE BEST OF EFFECTIVE RECORDS 2021 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. MORGENSHTERN/Imanbek/Fetty Wap/KDDK - Leck
+2. Ramil'/Rompasso - Убей меня
+3. Imanbek/Sean Paul/Sofia Reyes - Dancing On Dangerous
+4. Alan Walker/Imanbek - Sweet Dreams(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D728E3755DA535DBEAA731AB7ABABC85D1AD37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521711   (764349) от 03.01.2022
+
+VA - Hooked On Number Ones-100 Non Stop Hits (1988) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Medley 1
+Medley 2
+Medley 3
+Medley 4Жанр: PopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1136CF9857B88453B0DD0CB5F67033395D3B9AD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126958   (764483) от 19.04.2017
+
+The Three Degrees - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственные два знаменитых альбома известной американской поп-группы The Three Degrees (основана еще в 1963м. году, сменный состав) в которых, поднимая их угасающий рейтинг, автором и продюсером стал Giorgio Moroder.01. Giving Up, Giving In (6:09)
+02. Falling In Love Again (5:34)
+03. Looking For Love (5:29)
+04. The Runner (6:19)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA879A0963C64B3052488FE03314B0342EF1DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126960   (764486) от 19.04.2017
+
+VA - The Best Of Pop Dance 80 Vol.1 (2010) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Creatures - Inspiration  5:31
+02.  Kano - She's A Star (Original Version)  5:55
+03.  Patty & Orlando Johnson - Woman Is Light  5:30
+04.  Peter Richard - Marlene  4:31(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A69379E92008F9ED415086BF323BBC18B7FCDDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126963   (764605) от 19.04.2017
+
+The Great Disco Bouzouki Band - Disco Bouzouki (1978) LP [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio (4:14)
+02. Greek Magic (Instrumental-Medley): Never On Sunday, Zorba The Greek, Pireas (5:06)
+03. Ouzo & Retsina (3:32)
+04. Disco Bouzouki (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F985522DCCA290FC7371C0A418EA950FBB9D2DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214444   (764921) от 21.03.2018
+
+Bosson - One In A Million (2001) Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (3:34)
+02. I Believe (3:51)
+03. We Live (3:46)
+04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C8423497F63AB0E9182A67C1BE2AA30657554F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214293   (764964) от 21.03.2018
+
+Don Bernini - Telepatia (1979) [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snake-Dance (4:20)
+02. Ikebana (5:20)
+03. Huntsman Of Thought's (4:38)
+04. Richiamo (3:36)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E92835A5EF5AB473C77D13DEE512C77F83380A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214429   (764970) от 21.03.2018
+
+Bosson - One In A Million (2001) [MP3|320 Kbps] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_764970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (3:34)
+02. I Believe (3:51)
+03. We Live (3:46)
+04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1F0F64EA1E21F78AA3EFB4A114BC724F9F0C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126598   (765184) от 18.04.2017
+
+ESTRADARADA - Дискотека Века (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_765184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дауншифт (5:12)
+02. Love Is (Асфальт) (3:30)
+03. Лайф из лайф (#Lifeislife) (2:59)
+04.Жанр: Pop, DanceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EA0C8E4B7378D4AE6D88E3F1190BBC02DADF0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279590   (765253) от 30.01.2019
+
+Ottawan - The Very Best Of Ottawan (1992) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_765253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.I.S.C.O. 04:56
+02. You're Ok 05:09
+03. Hands Up 04:48
+04. Help, Get Me Some Help 04:25(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A5C39966FBE8FE988529319624F7141AD9FB7E
 ```
 
 

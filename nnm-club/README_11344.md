@@ -1,682 +1,685 @@
-###  Публикация: 1467088   (1018096) от 02.05.2021
+###  Публикация: 1523802   (748474) от 13.01.2022
 
-Своя игра (02.05.2021) WEBRip [H.264/1080p-LQ]
+Clipboard Manager 2.3.4 [En]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018096.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:40:57
+Менеджер истории буфера обмена для Mac.
+Сохраняет все, что вы копируете для последующего использования.
+Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2016-2022 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25F99A3A3B01006B511470818DD300B6FD66EC06
+magnet:?xt=urn:btih:B6DC3414D1660200D0521D01D1B9A93340021FBD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467042   (1018097) от 02.05.2021
+###  Публикация: 1523764   (748475) от 13.01.2022
 
-Strange Affair - Strange Affair (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+VA - Sunset Emotions 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018097.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Connection (6:20)
-02. No, No, No (5:54)
-03. Love Is A Strange Affair (5:50)
-04. Medley - I'm Ready & Disco Star (6:53)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:54
+01. Finland & Aaskoven - Beauty and the Abyss (5:40)
+02. Mirage Of Deep - Shabanna (5:46)
+03. Marga Sol - Calma (5:28)
+04. Der Waldläufer - Sensimea (Original Mix) (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C164CAEC4C76762B4FEE8FAD8245B7F4F3B166F1
+magnet:?xt=urn:btih:CF10BBA0EDB3C783E8C9755018F4B0075D778B0D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466831   (1018098) от 02.05.2021
+###  Публикация: 1523775   (748476) от 13.01.2022
 
-VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
+VA - Sun Travellers, Vol. 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018098.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duki - Chico Estrella (2:50)
-02. Bhavi, Pi’erre Bourne - CINEMA (3:04)
-03. Daddy Yankee - EL PONY (3:32)
-04. Sech - 911 (3:35)(   Читать дальше...   )Жанр: Pop, Latin, OtherПродолжительность: 05:21:08
+01. FIN Project - At a Distance (6:12)
+02. G.Pantelidis - East to West (4:33)
+03. Magmatunes - Right There (4:43)
+04. Tony Garviz - Passionate Kiss (Original Mix) (4:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F138D24F88C6FD9D425E651287F4D328D9F39C1
+magnet:?xt=urn:btih:6F5B396F40FDD0792E032B15B9716D2CC9513B0E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467006   (1018099) от 02.05.2021
+###  Публикация: 1523759   (748477) от 13.01.2022
 
-Мономах & Красная площадь - Русский Хард-Рок (1990/ 2014) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard'n' Heavy>
+VA - Sunset Emotions 2 (2020) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018099.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-МОНОМАХ / Monomakh
-01. Our God is with Us (4:48)
-С Нами Наш Бог
-02. We'll Fly with You (5:22)(   Читать дальше...   )Жанр: Hard Rock, Hard'n' HeavyПродолжительность: 01:09:14
+01. La Estación Del Mar - The Comeback (3:14)
+02. Jens Buchert - Cocoon (4:33)
+03. Gushi & Raffunk - Eia Mariposa (4:30)
+04. Clelia Felix - Under the Moonlight (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B7FA97DEABB5CD568B83BCAFE2BE144C99ED132
+magnet:?xt=urn:btih:E1BEDA0875E0B98C9D70B6FB1ACA6EE837B6EC5C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467080   (1018100) от 02.05.2021
+###  Публикация: 1523761   (748478) от 13.01.2022
 
-Альбина Нури | Гости из тьмы (2021) [MP3, Татьяна Винтер]
+VA - Sunset Emotions 3 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018100.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Магда едва выжила после аварии, пережила клиническую смерть и совсем не помнит того, что случилось в тот день. Но самое страшное еще впереди: вкусы Магды меняются, появляются воспоминания о том, что ей никак не может быть известно, к тому же она начинает видеть призраков, и те пытаются дотянуться до нее из небытия! Знания и видения приходят внезапно, управлять ими (   Читать дальше...   )Жанр: Мистика, Современные детективы, ТриллерыПродолжительность: 06:50:37
+01. Marga Sol - Be Mine (Original Mix) (5:04)
+02. Michael e - Balearic Soul (Original Mix) (6:01)
+03. DMTunes - White January (Original Mix) (6:10)
+04. Nicholas Gunn - Bridal Falls (Original Mix) (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F50E04C0F3C2C076E94EFA8FCBE3E3A0AE55A3A
+magnet:?xt=urn:btih:04C7499597A0F3B531DB00CECE2467B7582178AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466866   (1018101) от 02.05.2021
+###  Публикация: 1523729   (748479) от 13.01.2022
 
-VA - Electropop Dance Party (2021) [MP3|320 Kbps] <Pop Dance, Electropop>
+Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 2 (2018) [AAC|~323 Kbps] <Jazz-Pop>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018101.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лёгкий, незаезженный саунд, стильная атмосфера, оригинальное и запоминающееся звучание, красивый вокал почти в каждом треке – всё вместе звучит очень круто и небанально – как минимум в рамках нашего портала. Настроение во время прослушивания этого микса поднимается на максимум! А это значит, что автор подборки постарался на славу!001. Andrew Spencer - It's A Rainy Day 2021
-002. Carlosh Garzat - Obrigado
-003. Lonnel & Brsg - Alone
-004. Cirrel Sneer - Blue Monday(   Читать дальше...   )Жанр: Pop Dance, ElectropopПродолжительность: 07:41:48
+01. Scott Bradlee's Postmodern Jukebox, Wayne Brady - Thriller (3:56)
+02. Scott Bradlee's Postmodern Jukebox, Amber Eyes - Bad At Love (4:43)
+03. Scott Bradlee's Postmodern Jukebox, Annie Bosko - Complicated (4:10)
+04. Scott Bradlee's Postmodern Jukebox, Jennie Lena - Crazy Train (4:51)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 01:02:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66A7B107459FC59C4A74F609F424AF2C59313FBD
+magnet:?xt=urn:btih:53DBBFE47CFC39EB8C66F25199621D8284FEA93D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467095   (1018102) от 02.05.2021
+###  Публикация: 1523839   (748480) от 13.01.2022
 
-Melodic Malady - My Inner Pain (2021) [MP3|320 Kbps] <Metalcore>
+VA - Delicious Chill: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018102.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - My Inner Pain [00:05:23]
-02 - Gambit [00:04:48]
-03 - Hope Dies Last [00:04:23]
-04 - Devourer [00:04:21](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:33:31
+01. Digby Jones, Lushlo - Beaulieu (Mellow Mix) (2:25)
+02. Living Room - Evening Groove (3:42)
+03. Gary B - Havana Soul (Original Mix) (4:29)
+04. Lounge Groove Avenue - Soul Cream (Original Mix) (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEA3F417EF0775F5474E9F96F5A213C5F769D609
+magnet:?xt=urn:btih:8D0472F27B1A48934428F1FBFE7AC3C369879D43
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466781   (1018104) от 02.05.2021
+###  Публикация: 1523733   (748481) от 13.01.2022
 
-Vienna Circle - Secrets Of The Rising Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+VA - Bar Lounge Costes, Vol. 4 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018104.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Golden Sunset Roulette (10:04)
-02. Ghost Town Hideaway (2:21)
-03. Carnival (2:04)
-04. That Night (4:31)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:44:17
+01. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
+02. Lounge Groove Avenue - Count the Days (4:21)
+03. Frank Neo - Time and Space (4:33)
+04. Simply Chill, Maison Musiq - I Go Now (Original Mix) (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:11:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B15CE12A1B49A78E25972A02AFE6C1E581994CBA
+magnet:?xt=urn:btih:1B06FFC4A1254754F05A0D1E27EF750DF5FA150F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466869   (1018105) от 02.05.2021
+###  Публикация: 1523731   (748482) от 13.01.2022
 
-VA - EDC Radio: Beat Dance Set (2021) [MP3|320 Kbps] <EDM, Dance, House, Electro>
+VA - Bar Lounge Costes, Vol. 2 (2019) [AAC|~299 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018105.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот микс изначально нацелен на клубный драйв, нежели на прослушивание в наушниках дома за чашкой кофе. Однозначно, придется по вкусу любителям заводных ритмов и тем, кто до без ума от воскресных тусовок.001. Relanium - Home Alone
-002. Munez - Tonight
-003. Stompy & Eazyvibe - I Just Wanna Party
-004. Laconic - Laconic & Deanna(   Читать дальше...   )Жанр: EDM, Dance, House, ElectroПродолжительность: 08:02:12
+01. Chillson, Marc Hartman - Inner Voices (Original Mix) (4:26)
+02. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)
+03. Soul Trend - You Got Me Wrong (Original Mix) (4:55)
+04. Airily - Manhattan City Lights (Latin Fragrance Mix) (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:13:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:337E473D7DBB835689DF3170B9A47075A7892D76
+magnet:?xt=urn:btih:8A3527BC91E2FB9074CA878E00F4078FF84418E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467079   (1018106) от 02.05.2021
+###  Публикация: 1523732   (748483) от 13.01.2022
 
-Electric Gypsy - Electric Gypsy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+VA - Bar Lounge Costes, Vol. 3 (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018106.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Echoes
-02. Hit And Run
-03. Shoot 'Em Down
-04. Modern Love(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:40:13
+01. Marga Sol - Starry Night (Original Mix) (5:47)
+02. Eivissarts - The Unknown (Original MIx) (5:54)
+03. Chris le Blanc, Florito - Time to Go (Revisited Remix) (4:33)
+04. Chillson, Marc Hartman - Like the River Flows (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:19:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B7E3A3ED437F168B6BD4745BD214E6E65557CC6
+magnet:?xt=urn:btih:102EFA2C59EF1E89ACE5F48D5AB855729DF468DE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467120   (1018107) от 02.05.2021
+###  Публикация: 1523739   (748484) от 13.01.2022
 
-VA - Continental Drift (2021) IDEAL EUROPA [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
+VA - Deep Voyage 1 (2019) [AAC|~326 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow - Myth of Living (Original Mix) (6:18)
+02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
+03. Deep Spelle - My Heart (Ilias Katelanos Remix) (7:22)
+04. Cedric Salander - Feel Your Touch (Original Mix) (7:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334D61AAF68E802F3B009ACB6015E47DA27CCDBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523744   (748485) от 13.01.2022
+
+VA - Deep Voyage 3 (2021) [AAC|~321 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Luke - Commodious (Original Mix) (5:29)
+02. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
+03. Soulfreqtion - Altered State (Original Mix) (8:45)
+04. Matías Delóngaro - Viaje Nocturno (Original Mix) (7:32)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419082BC99FAC2EA66896594A09AD53E0D454EBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782664   (748486) от 02.05.2014
+
+Спирит: Душа прерий / Spirit: Stallion of the Cimarron (2002) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот приключенческий мультфильм рассказывает историю дикого жеребца мустанга Спирита, путешествующего по территории всей Америки. Храбрый Спирит заводит дружбу с молодым индейцем Лакотой и находит любовь с красивой кобылой по имени Дождь. Все счастливы до тех пор, пока на жеребца не положили глаз люди, которые хотят сделать из него военную лошадь…Производство: DreamWorks Animation (США)Жанр: мультфильм, мелодрама, комедия, приключения, семейный, вестернРежиссер: Келли Эсбёри, Лорна КукПерсонажи: Лошади, индейцы, янкиПеревод: Дублированный, Многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45256A2FC46C818A52A106705CD9D757F4069B63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782720   (748495) от 02.05.2014
+
+Алексей Черкасов, Полина Москвитина | Сказания о людях тайги [3 книги] (1993) [PDF, FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман-трилогия Алексея Черкасова и Полины Москвитиной.
+Это роман о конфликте веры и цивилизации, нового и старого, общественного и личного… Перед глазами читателя возникают написанные рукой мастера картины старинного сибирского быта, как живая, встает тайга, подвластная только сильным духом. Именно такие герои действуют в исторической трилогии А.Черкасова…
+...Жанр: Историческая прозаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B186A05B54D0192CE15A0CD4585B4B6C009D451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780982   (748496) от 02.05.2014
+
+Быстрее, чем кролики (2013) WEB-DLRip [Unrated Cut]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое друзей после бурной вечеринки просыпаются в совершенно незнакомом месте в компании незнакомых людей и пытаются понять, как они здесь оказались, кто все эти люди, и что на самом деле произошло накануне… Что делают и о чем говорят мужчины в такой необычной ситуации?Производство: Россия, СтрелаЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Леонид Барац, Александр Демидов, Камиль Ларин, Ростислав Хаит, Игорь Золотовицкий, Екатерина Кузнецова, Артем Смола, Григорий Данцигер, Дмитрий Дибров, Валдис ПельшПеревод: Не требуется (Русский язык)Продолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416B6D3E0D26B488D8EAA0F79FB45B8588BB0DE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499461   (748498) от 02.05.2014
+
+BBC. Секс по интернету. Безопасно? / BBC. Websex: What's the Harm? (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общение по веб камере стало популярным. То, что люди не могут сделать в реальной жизни: раздеться перед незнакомым, открыто флиртовать с первым встречным, все это реально в Интернете. Звезда мыльных опер Натали Эммануэль пытается разобраться в этой тенденции. Почему для многих молодых людей это единственный способ удовлетворения в жизни? Как много людей занимаются сексом по интернету?Жанр: Документальный,  научно-познавательный,  исследованиеРежиссер: Анна МишконПеревод: Двухголосый закадровый (профессиональный)Продолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0480C285DC9693C43E8516B49E09995ED3318F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282023   (748506) от 10.02.2019
+
+VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro House>
 
 >>Electronic
->>IDM (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018107.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apparat - Daniel (03:47)
- 02. Rone & Cubenx - Conifera (04:13)
- 03. Cee feat. Abdullah Siddiqui - Nonconfine Dub (04:20)
- 04. The Field - Soft Numbers IV (06:59)(   Читать дальше...   )Жанр: Leftfield, IDM, AmbientПродолжительность: 01:12:37
+01. Spikaa feat. Deja - Home (Radio Mix) 03:10
+02. Geo Da Silva - Tonight Is The Night (Radio Edit) 03:25
+03. Michael Fall feat. Jodie Topp - Sunshine (Radio Edit) 03:26
+04. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit) 03:14(   Читать дальше...   )Жанр: House,  Progressive House, Electro HouseПродолжительность: 01:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1D0D04837157C9642381F4F5ECA0B7E3C34EE69
+magnet:?xt=urn:btih:E5E57557A6EA85D58A065352158BED8B96E4223B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467068   (1018108) от 02.05.2021
+###  Публикация: 1281956   (748507) от 10.02.2019
 
-Fleesh - 4 Albums (2019-2021) [MP3|320 Kbps] <Progressive Rock>
+Côte Déserte (Cote Deserte) - Dale Cooper's Case (2011) EP [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Experimental, Soundscapes>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dale Cooper's Theme (6:10)
+02. In The Red Room (5:20)
+03. The Red Room Revisited (6:33)
+04. The Owls Are Not What They Seem (5:05)(   Читать дальше...   )Производство: Aquarellist – aquarel 19-11Жанр: Electronic, Dark Ambient, Dark Jazz, Experimental, SoundscapesПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74A0B8EBE76476CED9560CBE169132CEB6F438D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282117   (748508) от 10.02.2019
+
+Phlebotomized - Immense Intense Suspense / Skycontact (2014) Compilation, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Death Metal, Doom Metal, Avantgarde Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018108.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Holy Land [00:05:58]
-02. Red Rain [00:06:10]
-03. I Wish It Would Rain Down [00:05:18]
-04. Stay On These Roads [00:04:38](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 4CD, 07:26:27
+01. Immense Intense Suspense / Barricade (5:54)
+02. Desecration Of Alleged Christian History (6:30)
+03. Dubbed Forswearer (8:56)
+04. In Search Of Tranquillity / Subtle Disbalanced Liquidity (8:52)(   Читать дальше...   )Производство: Hammerheart Records – HHR 2014-19Жанр: Death Metal, Doom Metal, Avantgarde MetalПродолжительность: 01:48:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15F6BF5F9C34F8C5F3223909A4E7B770C292CD7F
+magnet:?xt=urn:btih:EFE9551A8565E75C27DA08F34304E5577D4F4F0D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466791   (1018109) от 02.05.2021
+###  Публикация: 1281891   (748509) от 10.02.2019
 
-Albert Bouchard (ex-Blue Oyster Cult) - Re Imaginos (2020) [FLAC|Lossless|tracks + .cue] <Classic Rock>
+VA - Psychedelic Electronic Party: Trance Set (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance, Electronic>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018109.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Quandary
-01. I Am The One You Warned Me Of
-02. Del Rio Song
-03. In The Presence Of Another World(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:04:49
+01. Atomo - Vaporia
+02. Flowwolf - Alpha Centauri
+03. Jacob - Where All Begins
+04. Magnosis - Heat Seeker(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, ElectronicПродолжительность: 08:26:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA46B105C7481293D012265D6BFE0EA6705586C7
+magnet:?xt=urn:btih:A068A239FC273F5ED6D6FAA93BB8A19795D7C922
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466954   (1018110) от 02.05.2021
+###  Публикация: 1281950   (748510) от 10.02.2019
 
-Siggi Schwarz - Тhе Firе Insidе (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+О. И. Косенко | Производственная демократия: факты и вымыслы (1981) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018110.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spend The Night With Me
-02. Activated
-03. Badass
-04. Give It To Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:00
+В работе ученого-социолога раскрывается апологетическая сущность буржуазных моделей производственной демократии, призванных скрыть за суррогатными формами привлечения трудящихся к управлению производством деспотическую природу капиталистического хозяйствования и фактическое бесправие производителей в решении принципиальных вопросов производства.Жанр: История, политология, социология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAEE366498DA09C21ACBA20FD26D09C7E3DB0502
+magnet:?xt=urn:btih:8F7AB0BAC09E04F8EC9F586F3F701B6233ED3EB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467105   (1018111) от 02.05.2021
+###  Публикация: 1281967   (748511) от 10.02.2019
 
-DiskCatalogMaker 8.3.5 [Multi/Ru]
+VA - Sounds Of Instruments 03 (Mixed by Terry Lee Brown Jr.) (2007) [FLAC|Lossless|image + .cue] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Karimani - Realtime Island (Ndru Remix) (3:57)
+02. Dan Drastic - Somebody's Touching Me (5:25)
+03. Trentemoller - Moan (Radio Slave's Remix for K) (6:10)
+04. H.O.S.H. - Steppenwolf (4:37)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E978370DA95C11F0AC40AE73919A7E413623F3DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281999   (748512) от 10.02.2019
+
+VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GotSome - Everybody Know Now (Ben Pearce Remix) 03:31
+02. MistaJam - Rotate 03:46
+03. Low Steppa - Heard It All Before (Scott Diaz Remix) 03:30
+04. Tube & Berger - E Samba 2018 (Josh Butler Remix) 03:05(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A0B91FF42BECE24B4B588C84810524393DA528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281931   (748513) от 10.02.2019
+
+The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sure Don't Miss You (02:54)
+02. Best Believe (03:56)
+03. Advertising (feat. Jimmy James & Delvon Lamarr) (03:00)
+04. Adeline (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282039   (748514) от 10.02.2019
+
+VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_748514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - You and Me (Original Mix) 03:52
+02. Teknova - Katyusha 2K19 (Melbourne Bounce Mix) 03:16
+03. FLGTT - Por Que No 2K19 (Extended Mix) 04:34
+04. Martial Flowz - Forever (Original Mix) 04:37(   Читать дальше...   )Жанр: Big Room, Progressve House, Future HouseПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C4EB385936DF08AE6302B8B044D52AA619A570
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281854   (748515) от 10.02.2019
+
+SnapNDrag Pro - organize and edit screenshot 4.3.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018111.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DiskCatalogMaker  - простая утилита для управления и каталогизации дисков. Приложение умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 01.05.2021Разработчик: Fujiwara SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+SnapNDrag - органайзер, нарезка скриншотов, редактирование, шаринг.
+SnapNDrag - Небольшая утилита для создания скриншотов. SnapNDrag позволяет делать снимок экрана всего одним нажатием кнопки, и сразу перетащить готовый результат в другое приложение для дальнейшей работы с ним.
+SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если на первом месте стоит качество, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2019Разработчик: Yellow Mug SoftwarПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48F06E64FEF11B22A70091E1FCF89B34F9FCBC55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467064   (1018112) от 02.05.2021
-
-Serial Box & SerialSeeker 05.2021 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018112.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial.
-В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.05.2021Разработчик: iSerialПоддерживаемая ОС: OS X 10.5 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67E5EDBA87641AB45FC3E96E3771CDAE2228043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467043   (1018113) от 02.05.2021
-
-Юлия Кузнецова | Дом «П» (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Кузнецова – популярный автор книг для детей и подростков, лауреат литературных премий «Заветная мечта», «Книгуру» и Международной детской премии имени В. Крапивина.
-
-Повесть «Дом П» – история обычной большой семьи. Бабушка Женя очень любит сына и внуков и больше всего на свете боится их огорчить. Однажды друг отца семейства рассказывает ему, что теперь он директор (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 04:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349C5A17416162D9AF4927639E12EE138635A8C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467018   (1018114) от 02.05.2021
-
-Mission Jupiter - 2 Albums (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Dream Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billion Miles Away [00:03:26]
-02. Amen [00:04:21]
-03. Blizzard [00:05:35]
-04. On My Own [00:04:44](   Читать дальше...   )Жанр: Progressive, Dream Rock, Female VocalПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C78BD20949280A90C9DCDD283291BDD377CEACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467046   (1018115) от 02.05.2021
-
-Гаррет Уейр | Язык заклинаний. Повесть о последнем драконе (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гриш – дракон, который живет в нашем мире, где люди почти потеряли способность его видеть. Мэгги – девочка, которая любит отца и прогулки по городу. Однажды повстречавшись в отеле в Вене, они обрели дружбу и новую цель в жизни – узнать, куда делось большинство прекрасных собратьев Гриша, которых люди прогнали из городов по научению злого колдуна…Жанр: Детская литература/СказкаПеревод: Александра Самарина, Анна ТихоноваПродолжительность: 06:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C8C4473D2AF7CC461FC9617321487492D1921F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466923   (1018116) от 02.05.2021
-
-Phil Ochs - Greatest Hits (1970) 1986,  Edsel Records [FLAC|Lossless|tracks + .cue] <Folk Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One way ticket home
-02. Jim Dean of Indiana
-03. My kingdom for a car
-04. Boy in Ohio(   Читать дальше...   )Жанр: Folk Rock, Rock & RollПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63C0A910B41DBED36207E8455E49C6F99351B53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467038   (1018117) от 02.05.2021
-
-Лада Кутузова | Первое слово съела корова (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лада Кутузова – популярная детская писательница, дважды финалист международного литературного конкурса «Корнейчуковская премия».
-Как же порою сложно делать уроки и учить наизусть стихи, когда хочется заниматься совсем другим делом! Никита, как и многие сверстники его, думал именно так. Однажды от скуки он нарисовал корову – прямо в учебнике литературы. Но вот неожиданность: (   Читать дальше...   )Жанр: Детская прозаПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95F114AF5C36FAE6FFB52387F80671BAD386F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466864   (1018118) от 02.05.2021
-
-Kreek - Kreek (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Bottom Of Hell
-02. Missiles
-03. Meet Your Maker
-04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E53B17C1074F8709A8A05F5D1ADC45378E7080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466991   (1018119) от 02.05.2021
-
-Bud Freeman - Swingin' With The Eel (1927 - 1945) 1998, ASV [FLAC|Lossless|tracks + .cue] <Swing, Dixieland, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. China Boy [2:49]
-02. Nobody's Sweetheart [3:11]
-03. Fare Thee Well [3:17]
-04. Crazeology [3:00](   Читать дальше...   )Жанр: Swing, Dixieland, Big BandПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D11B9E88B50BD1BBE86B0253972445DA4AB7930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466836   (1018120) от 02.05.2021
-
-Escape - Unbreakable (2012) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Alive
-02. Unbreakable
-03. Best Of Me
-04. Living On The Wrongside(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D5B7BD8F637B5CBA1BB052FCCEAEB7EEC1C33B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466982   (1018121) от 02.05.2021
-
-PhotoSweeper X 4.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018121.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoSweeper — отличный способ поиска дубликатов изображений
-Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01.05.2021Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9A411B7123D5016D870167C026E3350B0C7A18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466834   (1018122) от 02.05.2021
-
-Escape - Borderline (2013) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1018122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost And Found
-02. Coming Home
-03. Marianne
-04. Restless Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE09E8D1DE6ADC0CDA78C916C67CC1B183BE872D
+magnet:?xt=urn:btih:0BCE51EC06354F380A46AEF2C0F54567D03E3366
 ```
 
 

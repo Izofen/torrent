@@ -1,676 +1,690 @@
-###  Публикация: 1208925   (779664) от 24.02.2018
+###  Публикация: 1083343   (274972) от 15.12.2016
 
-Big Mean Folder Machine 2 v2.37 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Mean Folder Machine - утилита для управления файлами и папками. Big Mean Folder Machine может "раскидать" файлы по папкам, согласно вашим указанным критериям или наоборот, объединить файлы из разных папок в одну. Приложение незаменимо для всех, кто оперирует большим количеством файлов.
-Big Mean Folder Machine отлично подойдет для управления коллекцией (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2018Разработчик: publicspace.netПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367A503E1A4F03F7B3B08B1ED33030AD75E6D42F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209070   (779665) от 24.02.2018
-
-MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
+Tyron - Rebels Shall Conquer (2016) [MP3|320 Kbps] <Heavy Metal ,Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779665.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Thunder Thrash (Title And Bosses Medley), Thunder Force IV
-02 - Metal Squad, Thunder Force IV
-03 - Rising Blue Lightning, Thunder Force V
-04 - Stand Up Against Myself, Thunder Force IV(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
+01. Mens Fate
+02. From Prey To Predator
+03. Murder
+04. Maverick(   Читать дальше...   )Жанр: Heavy Metal ,Thrash MetalПродолжительность: 00:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
+magnet:?xt=urn:btih:F915C9EB7AF58E466D30CABC6575DBCB04E5FE62
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209084   (779666) от 24.02.2018
+###  Публикация: 1083305   (274973) от 15.12.2016
 
-Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
+MarkdownD 3.7.3 [Multi/Ru]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779666.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sky 04:00
-02. Pearl 03:31
-03. Working Like a Crow 04:05
-04. From One Another 02:54(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208579   (779667) от 24.02.2018
-
-Максим Горький | Русские сказки (1912) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок для младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD91DF74E766547BEE1DEB66A6E5FB6D6B973CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208890   (779668) от 24.02.2018
-
-Москва (изд.) | Утешения старца Паисия в болезнях и скорбях. Беседы. Наставления. Молитвы (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779668.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюру вошли краткие рассказы о том, как утешал всех приходящих к нему и подавал исцеления от самых разнообразных телесных и духовных недугов преподобный Паисий Святогорец.
+MarkdownD - полнофункциональный редактор Markdown для OS X.
+Удобный редактор Markdown, что позволяет вставлять теги форматирования в свои документы с помощью легко доступных кнопок.
 
-В конце брошюры приведено молитвенное воздыхание матери о своих детях, а также редкая молитва Архангелу Михаилу — нашему верному заступнику от козней диавола, избавителю от всякого зла и целителю (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+MarkdownD предлагает возможность форматирования текстовых документов с помощью Markdown тегов без необходимости ручного ввода соответствующих тегов или беспокоиться о правильном синтаксисе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2016Разработчик: Romanysoft LABПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8A94CCD27F7568F1BF49F7DF353A7300FA66540
+magnet:?xt=urn:btih:23BECB39B0E6BDD23FA7D6E911FBEDFD79C78900
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208355   (779669) от 24.02.2018
+###  Публикация: 1083403   (274975) от 15.12.2016
 
-К. Маркс, Ф. Энгельс, В. Ленин | О научном коммунизме (1965) [DJVU, PDF]
+Право голоса. Россия – Турция: взаимный интерес? (15.12.2016) SATRip
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779669.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая хрестоматия представляет собой сборник высказываний К. Маркса, Ф. Энгельса и В. И. Ленина о научном коммунизме. Распределение материала по главам и внутри глав по отдельным вопросам осуществлялось по тематическому принципу, поэтому расположение высказываний не всегда соответствует хронологической последовательности.
-
-При расположении материала по возможности (   Читать дальше...   )Жанр: История, политология, экономика, хрестоматияФормат: DJVU, PDF
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Турция призывает Москву быстрее восстанавливать и даже расширять двустороннее экономическое сотрудничество. Премьер республики Бинали Йылдырым призвал российское правительство "наверстать упущенное время". Вслед за турецким парламентом Эрдоган подписал документы по "Турецкому потоку". Насколько Турция надёжный партнёр для России?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1F2653FAA47E7AA99461AE6D8B34C9A719724C9
+magnet:?xt=urn:btih:EA61D3A497457F023FE25AE272685D9B6C7BA83F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208855   (779670) от 24.02.2018
+###  Публикация: 1083360   (274976) от 15.12.2016
 
-Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, Promo [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. The Fang... Sings! 0:18
-02. Find My Way Back Home 13:22Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:12:49 (CD1), 00:51:01 (CD2), 00:13:41 (Bonus CD)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209060   (779671) от 24.02.2018
-
-VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
+VA - Осенний динамит. 50Х50 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779671.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
-02.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02
-03.  Holl & Rush  -  Don't Know  3:49
-04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:03
+001.Shami Feat. Тахмина Умалатова - Обними Покрепче 3:34
+002.Shermanology - Sweet Surrender 3:25
+003.Atesh - Самая Сильная 3:07
+004.Eric Prydz Feat. Rob Swire - Breathe 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34F521F89B167313EA0C9B3AD5E011916106E75C
+magnet:?xt=urn:btih:E667B60BDF47B875B74CD75178855D1C90996EA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208859   (779672) от 24.02.2018
+###  Публикация: 1083248   (274978) от 15.12.2016
 
-FileZilla 3.31.0 Portable by Baltagy  [Multi/Ru]
+VA - Отрывайся с лучшими хитами выпуск 5 (2016) [MP3|256 Kbps] <Pop>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779672.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+001.Fickle Friends - Brooklyn 3:11
+002.Пропеллер Брокен - Фанданго 4:22
+003.Turbotronic - Booty Shake 4:37
+004.Dj Jedy Feat. Олеся Май - Natural Blues 4:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1CA41C138EDBB488413A53AD8A1EF6FD9DA6FF
+magnet:?xt=urn:btih:F452A288B8E4B00A2EA917F0420F35DBD1BF2BFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208738   (779673) от 24.02.2018
+###  Публикация: 1083171   (274980) от 15.12.2016
 
-Б.Д. Есипов (ред.) | Основы дидактики (1967) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является наиболее полным обобщающим трудом по теории образования и обучения. В ней рассматриваются основы содержания образования, методы и организационные формы обучения в общеобразовательной школе, освещаются методологические, психологические и дидактические основы обучения.
-
-Книга рассчитана на научных работников, аспирантов, преподавателей педвузов и педучилищ, (   Читать дальше...   )Жанр: История, искусство, педагогика, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E88E040BC8934ABF6A330135D8E2A45C2CFB870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208309   (779674) от 24.02.2018
-
-MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ballad Of The Goddess (Skyward Sword)
-02 - Song Of Storms (Ocarina Of Time)
-03 - Hyrule Castle (A Link To The Past)
-04 - Gerudo Valley (Ocarina Of Time)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209040   (779675) от 24.02.2018
-
-Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dovahkiin (Deepkomplekt Remix) (07:04)
- 02. Dovahkiin (Metzler Remix) (05:57)
- 03. Dovahkiin (Overcast Sound Remix) (07:58)
- 04. Dovahkiin (Rich Weller Remix) (05:42)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208843   (779676) от 24.02.2018
-
-Старше всех! (2017-2018) WEB-DLRip [H.264] (5 выпусков из ??) [MP4|1280x720] (Обновляемая)
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Старше всех!» — новое шоу талантов на Первом канале. Его участники, несмотря на возраст, бодры, веселы и готовы к приключениям. Все герои нового шоу старше 55 лет! Среди них уникальные гимнасты, повара, певцы, гримеры, силачи, танцовщики, токари, блогеры, путешественники… Бабушки и дедушки, чьи истории волнуют и напоминают нам, что возраст — бесценное богатство, (   Читать дальше...   )Производство: Первый каналЖанр: ТелешоуСубтитры: ОтсутствуютПродолжительность: ~ 01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041E3D51FCF0BAA4BD19C66E7D38B1BE67911C57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208924   (779677) от 24.02.2018
-
-Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Hanging In The Balance 18:03
-02. Working On Mystery Train (On A Bus) 1:49
-03. We All Need Some Light 5:25
-04. Dance With The Devil 9:03(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208842   (779678) от 24.02.2018
-
-Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. It's Not Too Late 6:27
-02. All The Young Girls Cry 5:00
-03. Leah 4:02
-04. The Angels Will Remember 4:34(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208364   (779679) от 24.02.2018
-
-И.А. Каиров и др. | Педагогика (1939) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является учебным пособием для педагогических институтов и университетов.
-
-Авторский коллектив дает систематическое изложение курса педагогики, читаемого в вузах.
-(   Читать дальше...   )Жанр: История, политология, искусство, педагогика, психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6072ED38822BD46C264AD3644F16C9EB007C2AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208883   (779680) от 24.02.2018
-
-VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+VA - Global Chillounge Revolution, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779680.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Florito  -  Konja Tokyo De (feat. Anna Y.)  5:33
-02.  L'Art Mystique  -  Underwater Twilight  4:27
-03.  Maksim Biserov  -  Rumination  6:28
-04.  Madhukar  -  When Love Rules  5:04(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 03:06:22
+01. Reflex Artists - Leben Furwahr 1 (Kathedrale Mix) (05:39)
+02. Seyhan Canyakan - Bab-I Ali (Orchestra Version) (02:14)
+03. Red Richards & Peter Milos Mccarthy - Elevation (05:26)
+04. Davstr3k - In The Afternoon (08:20)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:43:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1067442C442051109C7BC591FA6B455C82F7883
+magnet:?xt=urn:btih:E4916FE71302CE15CC6F7E2C69D7E5AFA045E80F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208943   (779681) от 24.02.2018
+###  Публикация: 1083344   (274982) от 15.12.2016
 
-John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
+VA - Thirty Ways To Chill Vol.1 (Relaxed Chill Out & Lounge Grooves) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779681.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Passing Through
-2. Hello L.A., Bye Bye Birmingham
-3. Oobleedooblee Jubilee
-4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
+01. Breezz Studio - Ornament 4:49
+02. Svendaq - Cosmic Sweeper 4:33
+03. Mirko Firzlaff - India 4:09
+04. Sunyata Project - Ko Samui Nights 4:49(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:17:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
+magnet:?xt=urn:btih:ECA96F8DFACF8977F49489808E78DC364B9E4FE0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208927   (779682) от 24.02.2018
+###  Публикация: 1082769   (274984) от 15.12.2016
 
-VA - Swing Trumpet Kings: Harry Edison, Buck Clayton, Red Allen, Roy Eldridge (1956, 1958, 1960) 2CD, 1996, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, New Orleans Jazz>
+VA - Best Vocal Trance (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W.L.C. Project - Like Forever Day (Original Mix) 4:31
+02. Muza & Daedra - Life Is Only A Game (Original Mix) 5:20
+03. Korenevskiy & Maijena - Free Voice (Original Mix) 5:34
+04. DJ Quadradex - Me Would (Progressive Future Mix) 5:54(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD612AFDA876846FF0D92507BC8BDA82E374D25C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083391   (274986) от 15.12.2016
+
+The Zawinul Syndicate - Lost Tribes (1992) Sony[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_779682.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Harry Edison, Buck Clayton, Red Allen:
-01. Memories for the Count [08:53]
-02. Come With Me [05:54]
-03. Critics' Delight [06:51](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, New Orleans JazzПродолжительность: 02:35:18
+01.Patriots [04:53]
+ 02.South Africa [06:42]
+ 03.Lost Tribes [03:48]
+ 04.Rua Paula Freitas [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B6507B9EDB328447A2AF37A0054C2633E96A95
+magnet:?xt=urn:btih:1884D0F17CF29E51306F45393531644308A94616
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390980   (781077) от 20.06.2020
+###  Публикация: 1083354   (274989) от 15.12.2016
 
-I Break Horses - Warnings (2020) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn (09:01)
- 02. Silence (04:29)
- 03. l a r m (01:04)
- 04. I'll Be The Death Of You (04:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7604A3839FCC03B8C69F55407B0D0D33312E9358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391475   (781078) от 20.06.2020
-
-Valentina Studio Pro 10.4.6 [En]
+VA - Trance Asylum 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781078.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01. Hoyaa & Joakim Sjoberg - Stardust (Rene Ablaze Radio Re 03:01
+02. Skyvol - Werewolf's Heart (Radio Cut) 03:55
+03. Michael Milov - Voice of an Angel (Radio Cut) 03:36
+04. Manida - Always Alone (Radio Cut) 03:33(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92F479FCD263B90C2B3AAA600778FDA52E0B8D07
+magnet:?xt=urn:btih:F30AB51DFF6CFA2E0AA585FC6835C908925FF9C2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391492   (781079) от 20.06.2020
+###  Публикация: 1083463   (274991) от 15.12.2016
 
-VA - The Great Drum Wave (2020) [MP3|320 Kbps] <D&B, Bassline>
+VA - Mountain Ski-Lounge Beats (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Echo of Koenigssee - Entirely Retrospective
+02. Soda Lounge - The Love We Share - Radio Edit
+03. Dr. Diver - Landing
+04. Oliver Backstrom - Up to You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1811EBC4F580C8F37698344553DBE55FDDFFAEA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083379   (274992) от 15.12.2016
+
+VA - Trance Elegance On This Year 002 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Stadium Trance, Progressive>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781079.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Absence Of Self - Get Lower
-002. Akcess - Gothyk (Original Mix)
-003. Alex Slk - Skitz
-004. Aperio & Lowr - Perspectives(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 12:00:00
+01. Richard Durand - Proxima C (Original Mix) 6:29
+02. Ana Criado - Vulnerable (Denis Kenzo Remix) 6:45
+03. Binary Finary - The Vortex (Original Mix) 6:56
+04. Quervo - Velocity (Original Mix) 5:32(   Читать дальше...   )Жанр: Trance, Tech Trance, Stadium Trance, ProgressiveПродолжительность: 02:39:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93AB8025FCE82B87D3326E31C2AFA740E6F625F7
+magnet:?xt=urn:btih:0B29B97EDE20C6D9C2A9C2D2D8725CE1982C0A3A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391390   (781080) от 20.06.2020
+###  Публикация: 1083384   (274994) от 15.12.2016
 
-Folder Tidy 2.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно часто бывает так, что на рабочем столе скапливается большое количество файлов и папок, которые хочется всегда иметь под рукой и до которых не "доходят руки", чтобы навести порядок.
-Утилита Folder Tidy предназначена именно для таких пользователей, помогая навести порядок на вашем рабочем столе.Тип издания: OS X SoftwareРелиз состоялся: 19.06.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: MacOS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202978F97FFC1ED7B8649166B2C3FC61CF625447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391408   (781081) от 20.06.2020
-
-Amadeus Pro  2.8.4 (build 2501) [Multi]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.06.2020Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391429   (781082) от 20.06.2020
-
-Xibalba - Anos En Infierno (2020) [MP3|320 Kbps] <Hardcore, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Injusticia (04:55)
- 02. Corredor de la Muerte (02:12)
- 03. Santa Muerte (04:31)
- 04. Saka (04:24)(   Читать дальше...   )Жанр: Hardcore, MetalПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D52E826D535A5CBC1D96DA05DF4E2ED5E2D4F70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391384   (781083) от 20.06.2020
-
-Archie Shepp - Blase & Live at the Pan-African Festival 1969 (2004) 2CD, Charly Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Soul-Jazz>
+Carl Allen - The Pursuer (1994) Atlantic Recording Corporation[FLAC|Lossless|image + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_781083.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_274994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. My Angel [10:11]
-02. Blase [10:27]
-03. There Is a Balm in Gilead [6:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Soul-JazzПродолжительность: 01:28:25
+01.The pursuer [05:23]
+ 02.Hidden agenda [07:05]
+ 03.Pinocchio [05:04]
+ 04.Alternative thoughts [08:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:285CACD0C0CA7FFECCB5FFEB958D23DFB7A91149
+magnet:?xt=urn:btih:E27703121EDC9C171278C85F215E0D860CD827CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188429   (274997) от 02.12.2017
+
+Stan Kenton - Kenton's West Side Story (1961) 1994, Capitol Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [04:06]
+02. Something's Coming [03:40]
+03. Maria [04:30]
+04. America [04:41](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B40425CF1A68EC674E1BBEAC76EF4EB31D70B5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188439   (274998) от 02.12.2017
+
+Paul Desmond Quartet - First Place Again (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "I Get a Kick Out of You" (Cole Porter) – 8:38
+02. "For All We Know" (J. Fred Coots, Sam M. Lewis) – 5:33
+03. "Two Degrees East, Three Degrees West" (John Lewis) – 7:28
+04. "Greensleeves" (Traditional) – 2:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF25E7DBF976CF5262819D599D1B24D24BBF1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188644   (274999) от 02.12.2017
+
+VA - Trance Favorites EPisode #010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ER7E - Revelation (Original Mix)
+02. Airosource - Rising Love (Original Mix)
+03. Dave Deen - Forgotten Promise (Original Mix)
+04. Hartrone - Crossroad (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF18B8FBDB08FFF3A96CD11295D3D8E58402D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188643   (275000) от 02.12.2017
+
+To Travel Without Any Certain Destination - Traveling For The Pleasure Of It (2013) SEALT [FLAC|Lossless|tracks] <Tribal, IDM, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Traveling For The Pleasure Of It (03:08)
+A2. And Then She Lied Again (03:14)
+A3. Scared To Say Farewell (04:50)
+A4. Brave At Life (04:42)(   Читать дальше...   )Тип издания: Vinyl, CompilationЖанр: Tribal, IDM, AmbientПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9521512F106A01570DB55DCDB98CB9007723C7AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188280   (275001) от 02.12.2017
+
+Mirzadeh - Desired Mythic Pride (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets
+02. The Forger Of Celestial Sphere
+03. Aino
+04. Ukon Vakka(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3FD39A445ADF3871D30F8864FB979FA0093B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188054   (275002) от 02.12.2017
+
+VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rene Ablaze & Universal Sense  -  Island Of Dreams (Original Mix) 7:04
+02.  8 Wonders & Arnej  -  Together We Will Rise (Jak Aggas Remix) 6:22
+03.  Eryon Stocker  -  Skyscrapers (Perrelli & Mankoff Remix) 7:02
+04.  Amy Kirkpatrick & Dark Fusion  -  Be There For You (Original Mix) 4:33(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188559   (275003) от 02.12.2017
+
+VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgan & YokoO – Spiraling (07:03)
+02. Franca – Vortex (Genii Interpretation) (08:06)
+03. Milez – Questions feat. Chappell (Gumz Remix) (08:32)
+04. Kotelett & Zadak – Rebrand (07:19)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337411   (275004) от 10.11.2019
+
+Т.И. Королёва, В.Ю. Перелешина | Регентское мастерство: Учебное пособие (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие рассматривает основные положения спецкурса «Регентское мастерство», разработанного на кафедре регентования ПСТГУ. В книге рассматриваются концептуальные, историко-теоретические и практические вопросы церковного пения и руководства церковным хором. Подробно анализируются специфика церковного пения и чтения, система регентского показа, принципы подбора (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030116CE110E97C8FF85CAE4147580A565A37B8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337445   (275005) от 10.11.2019
+
+Elimisoft App Uninstaller 2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elimisoft App Uninstaller разумно находит ВСЕ оставшиеся файлы (кеши, журналы, настройки, отчеты о сбоях) приложения и очищает ваш Mac. Освободите это ценное дисковое пространство.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188391   (275006) от 02.12.2017
+
+310 - The Dirty RoPE (1999) Leaf [FLAC|Lossless|tracks+.cue] <Leftfield, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila Priest (02:08)
+02. NOD (07:58)
+03. Frosty Bardum (02:57)
+04. Me Head Is Light (05:36)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2331519223D49F1DBE897F73D952AF6DD971840F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337228   (275007) от 10.11.2019
+
+Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Waterfall 04:22
+2. Yoga Mat Sessions 02:02
+3. Serenity  02:44
+4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188458   (275008) от 02.12.2017
+
+Nepal - Manifiesto (1997) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Saga
+02. Perfil Siniestro
+03. Besando La Tierra
+04. Más Allá Del Asfalto(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BB6D7D42985445829131E716417D79CC518470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188383   (275009) от 02.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Женщины. Спринт (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 декабря 2017 года, пятница. 19:45 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7AC1894C08CC784A1CF4A4F7E5984085822EA5
 ```
 
 

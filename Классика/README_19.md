@@ -1,486 +1,697 @@
-###  Публикация: 1446721   (1032504) от 10.02.2021
+###  Публикация: 1210354   (778671) от 03.03.2018
 
-Autumn Tears - The Air Below The Water (2020) 2xCD [FLAC|Lossless|image + .cue] <NeoClassical, Darkwave>
+Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, New Age>
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1032504.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_778671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1:
-01. The Calling (Instrumental)
-02. Sentient Idols
-03. Dreaming Deeper(   Читать дальше...   )Жанр: NeoClassical, DarkwaveПродолжительность: 01:28:12
+01. Almach 5:00
+02. Selene (with I Muvrini) 6:22
+03. Alhena 3:33
+04. Nodus 4:10(   Читать дальше...   )Жанр: Classical Crossover, New AgeПродолжительность: 00:52:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8DB29C0AFBBE688C6408BE84756B6A00B0D6C12
+magnet:?xt=urn:btih:4175965F790365987195C7E2EDD3BB10BAE3F454
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443917   (1034899) от 31.01.2021
+###  Публикация: 1208125   (779749) от 23.02.2018
 
-Jef Martens - Building A Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+Paul Van Nevel & Huelgas Ensemble - Дискография (1990-2017) 53 альбома [APE\FLAC|Lossless|image+.cue] <A Cappella, Choral, Sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_779749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Huelgas Ensemble — основал Поль Ван Невель в 1970 г. в Высшей школе старинной музыки в Базеле (Schola Cantorum Basiliensis, Basel).
+Название ансамбля взято по названию цистерцианского монастыря 12-го века близ Бургоса (Испания).
+Mузыкальный коллектив концентрируется на аутентичном исполнении музыки эпох Средневековья и Возрождения, представляя неожиданные проекты (   Читать дальше...   )Жанр: A Cappella, Choral, SacredПродолжительность: 60:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA83CA9366DE1B06BF86848B136040592D0E92D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208354   (779781) от 23.02.2018
+
+Jacqueline Leung - In Sunshine or In Shadow (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1034899.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_779781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She Lives In My Dreams (1:34)
- 02. When We're On The Mountain (2:28)
- 03. How She Speaks Of The Sea (1:30)
- 04. Her Castle is Magnificent (1:10)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:17:30
+01. By the Sleepy Lagoon
+02. Aragon
+03. Irish Tune from County Derry
+04. Duport Variations in D Major, K. 573: Variations 1-9(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:59:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80419808910DF6A73DC5C7DE8F8D05A9895FD618
+magnet:?xt=urn:btih:F369BF6238CA08B171C98038829A2EADD51F977C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443257   (1035688) от 28.01.2021
+###  Публикация: 1207030   (780515) от 18.02.2018
 
-Lindsey Stirling - Warmer In The Winter (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Classical Crossover, Modern Classical>
+Akira Kosemura - In The Dark Woods (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Minimal>
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1035688.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_780515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dance Of The Sugar Plum Fairy
-02. You’re A Mean One, Mr. Grinch (feat. Sabrina Carpenter)
-03. Christmas C'mon (feat. Becky G)
-04. Carol Of The Bells(   Читать дальше...   )Жанр: Pop, Classical Crossover, Modern ClassicalПродолжительность: 00:49:51
+01. Dna (5:16)
+ 02. Resonance (2:01)
+ 03. Between the Trees (3:29)
+ 04. Sphere (4:22)(   Читать дальше...   )Жанр: Modern Classical, Ambient, MinimalПродолжительность: 00:58:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEAE6D041A307FA342993715E294A9FAD4345652
+magnet:?xt=urn:btih:FD55593FDC4C506BFE2B29DF5A37616A0B213950
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440944   (1037723) от 21.01.2021
+###  Публикация: 1391493   (781000) от 20.06.2020
 
-Ilya Beshevli (Илья Бешевли) - Touch of Miracle (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1037723.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_781000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dissonance (3:57)
-02. Two Worlds (3:54)
-03. Silent Sky (3:08)
-04. Doubts (4:45)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:32:04
+01. Sea (3:20)
+02. В лесу родилась ёлочка... (russian christmas song) (2:28)
+03. Mountains of Adygea (3:16)
+04. Your Eyes (1:50)(   Читать дальше...   )Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:40:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5A4F8388D3E0C509ACDFA184F443EED1EDEF3E5
+magnet:?xt=urn:btih:45F1595F7D23EBB3FA5EE2435B579DDB4D6E9A04
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440942   (1037731) от 21.01.2021
+###  Публикация: 1391496   (781016) от 20.06.2020
 
-Ilya Beshevli (Илья Бешевли) - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1037731.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_781016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Defenseless Flower (3:58)
-02. Compassion (3:07)
-03. God Stop the War (3:00)
-04. Parting (3:22)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:43:40
+01. Embracing the Universe (6:22)
+02. Transforming Fire (13:24)
+03. Moon Bear (14:10)
+04. Immersion (3:54)Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:37:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F886B6243445C42E0B9420A7C1CF707EF0187FD
+magnet:?xt=urn:btih:98C19181F0487815A9E0062DED546570E38A11D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440940   (1037734) от 21.01.2021
+###  Публикация: 1206194   (782511) от 13.02.2018
 
-Ilya Beshevli (Илья Бешевли) - Wanderer (Deluxe Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburgs - The Concertos 1, 2 & 3 (A Tom Parker Project) (1995) 1997 [FLAC|Lossless|image + .cue] <Classical, Neo ...
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1037734.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_782511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wanderer (feat. The Imperalis Orchestra) (3:28)
-02. Embers (3:53)
-03. To Solitude (4:05)
-04. Covenant (4:34)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 01:07:36
+Concerto No. 1
+1	Allegro	4:37
+2	Adagio	3:36
+3	Allegro	5:10(   Читать дальше...   )Жанр: Classical, Neo-ClassicalПродолжительность: 00:46:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AD95FCC4EE8C72FCEFD7D195BA5F2C2CF26AECD
+magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439705   (1039529) от 14.01.2021
+###  Публикация: 1205369   (783464) от 10.02.2018
 
-Haydn - Die Tageszeiten (La Petite Bande, Sigiswald Kuijken) (2012) [FLAC|Lossless|image + .cue] <Classical symphonies>
+Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_783464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/18. Hent I (2:56)
+ 02/18. Pern (4:27)
+ 03/18. Hent II (1:15)
+ 04/18. Porz Goret (4:56)(   Читать дальше...   )Жанр: Neoclassical, Contemporary, PianoПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203972   (784019) от 08.02.2018
+
+Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto In D Major, Op. 61
+
+A	Allegro Ma Non Troppo
+B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204264   (784031) от 08.02.2018
+
+Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
 
 >>Классика
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1039529.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Symphony No. 6 In G Major 'Le Matin'
-1 Adagio, Allegro 3:04
-2 Adagio, Andante, Adagio 7:04
-3 Menuet 4:10(   Читать дальше...   )Жанр: Classical symphoniesПродолжительность: 01:11:50
+Symphony No. 100 G Major "Military"
+A1	Band 1: Adagio; Allegro
+A2	Band 2: Allegretto
+A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34A0B5951E9CE230B0241E1CFFBC0F9EA4706925
+magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439399   (1039825) от 13.01.2021
+###  Публикация: 1204738   (784272) от 07.02.2018
 
-Schubert - Rosamunde (Elly Ameling, Kurt Masur) (1985) [FLAC|Lossless|image + .cue] <Classical orchestral ,  choral>
+The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Daniel Harding (2017)2CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Die Meistersinger von Nürnberg (1868)
+01.Vorspiel (III)
+02.Sachs: Was duftet doch der Flieder so mild (II, “Fliedermonolog”)
+Tristan und Isolde (1865)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6023A457FB85AAD13FC7A9705F9BA521D5B4B8CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204816   (784278) от 07.02.2018
+
+Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classical>
 
 >>Классика
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1039825.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 Overture 9:57
-2 Entr'acte No. 1 8:02
-3 Ballet Music No. 1 8:59
-4 Entr'acte No. 2 3:20(   Читать дальше...   )Жанр: Classical orchestral ,  choralПродолжительность: 01:00:35
+01.Scene 1: Introduction
+02.Scene 2: Cosa dite! Ma cosa dite! (Tarabotto, Isabella)
+03.Scene 3: Ebben, che ascondi a Tarabatto (Isabella, Tarabotto)
+04.Scene 4: Qual tenero diletto (Bertrando)(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 01:25:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB4C84A4F58AA33543419F701A713DBC4EC60BED
+magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438444   (1040581) от 10.01.2021
+###  Публикация: 1204760   (784286) от 07.02.2018
 
-The Neon Philharmonic Orchestra - Switched On Classics (1995) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No. 1, Overture
+02 Act I, No. 2, "Tocchiamo! a gaudio insolito" (Chorus)
+03 Act I, No. 3, "Ciel, ch'io respiri!"
+04 Act I, No. 4, "Salvami to, gran Dio"(   Читать дальше...   )Жанр: Opera,ClassicalПродолжительность: 02:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204032   (785233) от 04.02.2018
+
+The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics (1998) [FLAC|Lossless|image + .cue] <Instrumental, Classical, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_785233.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Habanera From 'Carmen' (Bizet) (2:30)
+02. O My Beloved Daddy (O Mio Babbino Caro) From Gianni Schicchi (Puccini) (2:41)
+03. 'Tis the Last Rose of Summer (Flotow) (3:47)
+04. Adagio From Spartacus (Khachaturian) (3:33)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCFBE216704AE39F73CE577040DC07ECE4AC175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124107   (785757) от 11.04.2017
+
+Bing & Ruth - No Home of the Mind (2017) [FLAC|Lossless|tracks + .cue] <Electronic,modern.classical,piano,experimental>
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1040581.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_785757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Classics On 45: (5:32)
-02. Rachmaninoff-Paganini: Fantasy (2:17)
-03. Bach, Liszt, Beethoven, Mozart, Handle (6:16)
-04. Tchaikovsky Suite (5:41)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:02:00
+01. Starwood Choker
+02. As Much As Possible
+03. Scrapes
+04. Chronchos(   Читать дальше...   )Жанр: Electronic,modern.classical,piano,experimentalПродолжительность: 00:59:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE6109F734F4DBD3DE9CC2D9D4BB7F2681188C20
+magnet:?xt=urn:btih:7E5397C41B7876B329EADBFFB749DBB6897276B6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438438   (1040609) от 10.01.2021
+###  Публикация: 1512274   (787091) от 25.11.2021
 
-VA - Metal Opera (1991) [FLAC|Lossless|image + .cue] <Classical>
+The Planets - Дискография (2002) [FLAC|Lossless|tracks + .cue] <Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rodrigo (3:28)
+02. Carmen Caprice (5:59)
+03. Grassland Theme (3:09)
+04. Classical Graffiti (3:03)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D772310AAA0581FC53F4724899EA24B04955E082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512391   (787094) от 25.11.2021
+
+VA - Winter Classical Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1040609.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hans Vonk: Staatskapelle Dresden - Tchaikovsky: Eugene Onegin - Polonaise (4:44)
-02. Georges Bizet - Carmen - Auf In Den Kampf (4:49)
-03. György Lehel: Budapest Symphony Orchestra - Wagner: Lohengrin - Act 3: Prelude (3:08)
-04. Charles Gounod - Faust - La Das Gold Regiert Die Welt (2:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:00
+01. Berlin Symphony Orchestra - Nocturno, Op. 54: I (05:42)
+02. Rising Philharmonic Orchestra - Ancient Dances and Arias 3. Suite, Op 40: I (03:00)
+03. Tatjana Franova - Etude in D sharp minor, Op 2-12: I (02:09)
+04. Rising Philharmonic Orchestra - Ancient Dances and Arias 2. Suite, Op 40: IV (05:44)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F731FE80BEC5E39396D1FF16FD10A26450E4CFCC
+magnet:?xt=urn:btih:25DB36D1CCB204A7933E39EBF7F016A1CA5F438D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437692   (1041997) от 05.01.2021
+###  Публикация: 1203364   (787662) от 03.02.2018
 
-Mendelssohn - Symphony No. 3, Symphony No. 4 (Georg Solti) (1986) [FLAC|Lossless|image + .cue] <Classical symphonies>
+Julien Marchal - INSIGHT (2015) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
 
 >>Классика
->>Оркестровая (Lossless)
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1041997.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Symphony No.3 In A Minor, Op.56 "Scottish"
-1 Andante Con Moto 3:31
-2 Allegro Un Poco Agitato 12:24
-3 Scherzo: Vivace Non Troppo 4:19(   Читать дальше...   )Жанр: Classical symphoniesПродолжительность: 01:10:13
+01. INSIGHT: I (2:24)
+ 02. INSIGHT: II (3:12)
+ 03. INSIGHT: III (2:04)
+ 04. INSIGHT: IV (1:26)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:57:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:422B2F7CC2AE81E0C19B436070359C63C3FF5CD9
+magnet:?xt=urn:btih:F0CA67A0C4DA7DA06DF8928CF7BEE2BE22F53693
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 75657   (1042134) от 04.01.2021
+###  Публикация: 1203659   (787668) от 03.02.2018
 
-Сергей Рахманинов - Всенощное бдение (1986) Мелодия, Грамзапись [FLAC|Lossless|tracks] <Classical>
+Julien Marchal - INSIGHT II (2016) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
 
 >>Классика
->>Вокал (Lossless)
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042134.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Богослужение Рождества Христова имеет значительные отличия от богослужения прочих двунадесятых праздников. Так, в состав всенощного бдения накануне праздника входит великое повечерие (как и в канун Богоявления) вместо Великой вечерни (как в остальные двунадесятые праздники).
-Солисты: Ирина Архипова - меццо-сопрано (2), Виктор Румянцев - тенор (4, 5, 9)
-Записано в (   Читать дальше...   )01. Приидите, поклонимся
-02. Благослови, душе моя
-03. Блажен муж
-04. Свете Тихий(   Читать дальше...   )Жанр: Хоровое пениеПродолжительность: 01:07:22
+01/10. Insight XIV (2:34)
+ 02/10. Insight XV (4:02)
+ 03/10. Insight XVI (3:35)
+ 04/10. Insight XVII (3:28)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:31:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:682047CBB32775DDD1B93989EF7A3C0705C68DB0
+magnet:?xt=urn:btih:2ABEBE93308070B306EC0177D0433C7747F97F00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437110   (1042242) от 04.01.2021
+###  Публикация: 1512022   (787832) от 23.11.2021
 
-VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
+The Planets - Classical Graffiti (2002) [MP3|320 Kbps] <Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rodrigo (3:28)
+02. Carmen Caprice (5:59)
+03. Grassland Theme (3:09)
+04. Classical Graffiti (3:03)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735E838B094BDDDA9005E5C7C0D44C7FDAC16AC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202035   (788042) от 02.02.2018
+
+Andres Segovia - My Favourite Works (1987)  [FLAC|Lossless|tracks] <Classical, Classical Guitar>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_788042.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Recuerdos De La Alhambra(Francisco Tarrega)
+A2 Tonadilla(Enrique Granados)
+A3 Estudio(Fernando Sor)
+A4 Romanza(Manuel Ponce, Niccolo Paganini)(   Читать дальше...   )Жанр: Classical, Classical GuitarПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A768C6DB87E3A3079E947FF231D292D1C519D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510251   (790769) от 17.11.2021
+
+VA - The Holiday Season Classical Selection (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042242.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_790769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Claude Debussy, Arturo Benedetti Michelangeli. Preludes Book 1, L. 117 8. La fille aux cheveux de lin (2:50)
-002. Frederic Chopin, Maria Joao Pires. Nocturne No. 1 in B-Flat Minor, Op. 9, No. 1 (5:36)
-003. Frederic Chopin, Maria Joao Pires. Nocturne No. 2 in E-Flat, Op. 9, No. 2 (4:29)
-004. Claude Debussy, Alexis Weissenberg. Suite bergamasque, L. 75 III. Clair (   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:04:35
+01. Rising Philharmonic Orchestra - Ancient Dances and Arias 1. Suite, Op 40: I (03:07)
+02. Rising Philharmonic Orchestra - Ancient Dances and Arias 1. Suite, Op 40: II (04:22)
+03. United Baltic States Orchestra - Symphony No. 2 in D major, Op 73: II (08:30)
+04. United Baltic States Orchestra - Symphony No. 2 in D major, Op 73: III (06:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
+magnet:?xt=urn:btih:617A2652A360360715B1078CB7B485DAA07CD8C0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436995   (1042249) от 04.01.2021
+###  Публикация: 1012185   (793379) от 01.05.2016
 
-J. S. Bach ‎ - Organ Works (Lionel Rogg) (1998) [FLAC|Lossless|image + .cue] <Classical, Baroque>
+James Galway, Marisa Robles, Neville Marriner - Mozart: Flute Concertos; Concerto for Flute & Harp (2004) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
 
 >>Классика
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042249.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_793379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Toccata And Fugue, BWV 565
-1 Toccata. Adagio 2:29
-2 Fugue 5:49
-3 Chorale "Wachet Auf, Ruft Uns Die Stimme", BWV 645 4:29(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:09:11
+Flute Concerto no. 1 in G major, K 313
+01. (1) Allegro maestoso  8:58
+02. (2) Adagion ma non troppo  10:11
+03. (3) Rondo. Tempo di menuetto  7:15(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:17:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91C27F9AAEFD528E94A9AC658FC63FA2C11EE001
+magnet:?xt=urn:btih:C2EAC3CC4736EFB78D6431299475ABA1EF3C275B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437006   (1042771) от 02.01.2021
+###  Публикация: 1012078   (795344) от 29.04.2016
 
-Schubert - Symphony No. 8 'Unfinished' & Symphony No. 5 (1985) [FLAC|Lossless|tracks + .cue] <Classical>
+Andrew Lawrence-King - Harp Music of The Italian Renaissance (1987) reissue  2004 [APE|Lossless|image + .cue] <Chamber music, Renaissance>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_795344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Toccata Seconda & Ligature (Giovanni Maria Trabaci)  2:57
+02.  Gagliarda a 4, la Talinella (Giovanni Maria Trabaci)  2:20
+03.  Ancidetemi pur (Giovanni Maria Trabaci)  7:22
+04.  Gagliarda Terza a 5, sopra La Matoana (Giovanni Maria Trabaci)  3:34(   Читать дальше...   )Жанр: Chamber music, RenaissanceПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656188F787666D8EF06460DA29D0535C6D497984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011080   (796756) от 27.04.2016
+
+Aram Khachaturian / Арам Хачатурян - Spartacus / Спартак  (1992) [FLAC|Lossless|tracks + .cue] <Classical, ballet>
 
 >>Классика
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042771.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_796756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Symphony no. 8 in B minor, D 759 "Unfinished":
-01. I. Allegro moderato (15:51)
-02. II. Andante con moto (13:42)
-Symphony no. 5 in B-flat major, D 485:(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:14
+Продолжительность: 01:02:46
+Act 2Жанр: Classical, balletПродолжительность: 01:03:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:354208CB9BFB3CA36947D1EC36D9EB85EC6B3DD9
+magnet:?xt=urn:btih:A2D74E9B04F4845EC1F6608CB43EA4941C220D72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605988   (1044431) от 22.01.2023
+###  Публикация: 1011302   (796935) от 27.04.2016
 
-Hélène Grimaud - Hélène Grimaud plays Rachmaninoff and Shostakovich (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 
 >>Классика
->>Фортепиано (Lossless)
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044431.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_796935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Rachmaninoff Vocalise, Op. 34 No. 14 (Arr. for Violin and Piano) (with Lisa Batiashvili) (5:38)
-2. Cello Sonata in G Minor, Op. 19 Rachmaninoff Cello Sonata in G Minor, Op. 19 - III. Andante (with Jan Vogler) (5:21)
-3. Piano Sonata No. 2 in B Flat Minor, Op. 36 Rachmaninoff Piano Sonata No. 2 in B Flat Minor, Op. 36 - I. Allegro agitato (9:50)
-4. Piano Sonata (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:08
+01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
+02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
+03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
+04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DDDDC6461395FB3D215BF544F3F26917BE236F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604639   (1044936) от 17.01.2023
-
-VA - Handel's Young Messiah (1990) [FLAC|Lossless|tracks + .cue] <Classical Crossover, Gospel, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. And the Glory of the Lord
-03. Matthew Ward - Comfort Ye My People
-04. First Call - Every Valley Shall Be Exalted(   Читать дальше...   )Жанр: Classical Crossover, Gospel, PopПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFA919DCA435502C3AD643E88FE9503E245532A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598576   (1046421) от 01.01.2023
-
-Megumi Yoshida, Bach - Organ Works Vol. 1. (2016) [OGG Vorbis|480 Kbps] <Classical, Baroque>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuga in G BWV578
-02. Ach Gott, vom Himmel sieh darein BWV741
-03. Herr Jesu Christ, dich zu uns wend BWV709
-04. Fantasie et Fuga in G BWV542 - Fantasie(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9723A91285C13EE7F0C6BE80B62B827E44F118
+magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
 ```
 
 

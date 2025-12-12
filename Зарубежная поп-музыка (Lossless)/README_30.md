@@ -376,6 +376,114 @@ magnet:?xt=urn:btih:8072159E4EE0BEB3CB2BEE2022AB20F081677ADD
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339269   (267055) от 18.11.2019
+
+VA - Top 40 Latino Caliente (The Ultimate Top 40 Collection) (2019) [FLAC|Lossless|tracks + .cue] <Latin Pop, Electro, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267055.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi - Despacito
+02. Shakira feat. El Cata - Rabiosa
+03. Alvaro Soler - La Cintura(   Читать дальше...   )Жанр: Latin Pop, Electro, DanceПродолжительность: 02:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338676   (268052) от 17.11.2019
+
+Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_268052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vision Of Love [3:31]
+ 02 - Love Takes Time [3:51]
+ 03 - Someday [4:08]
+ 04 - I Don't Wanna Cry [4:51](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339057   (268066) от 17.11.2019
+
+VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_268066.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, 8 ноября 2019 г. вышел очередной сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальный трейлер к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )01. Tones and I - Dance Monkey  (3:29)
+02. Kygo, Whitney Houston - Higher Love  (3:48)
+03. Regard - Ride It  (2:38)
+04. Ed Sheeran - Take Me Back to London (feat. Stormzy)  (3:10)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 02:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00D55CC646A9B5B615B0EB7262DD781C4304737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339018   (268216) от 17.11.2019
+
+The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_268216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Don't Cry
+02. I Found Out
+03. Greenbank Drive
+04. All Talk(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B06E06D1AB075DE2FFA0669E0B92E7EC6D6ADB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267048   (268373) от 04.12.2018
 
 VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -587,114 +695,6 @@ Akcent - King of Disco (2007) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266460   (270042) от 02.12.2018
-
-Lily Allen - No Shame (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_270042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Then (03:10)
-02. Trigger Bang (feat. Giggs) (03:32)
-03. What You Waiting For? (03:06)
-04. Your Choice (feat. Burna Boy) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266462   (270046) от 02.12.2018
-
-Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_270046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Pains
-02. Not Today
-03. I Don't Want To
-04. 7 Days(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290084   (672143) от 23.03.2019
-
-Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop - Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (Mackay, Dunne)
-02. Battle Of The Sexes (with Rod Stewart) (Norman, Carline)
-03. Slow Walk (Cadd, Belland)
-04. Seven Waves Away (A.Gibb, B.Gibb, Emery, S.Gibb)(   Читать дальше...   )Жанр: Pop - RockПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4AB5EB23BDFD5F642A8EBEDD267AD73A285094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291275   (672222) от 23.03.2019
-
-VA - Car Hits: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Minds – Don’t You Forget About Me (04:21)
-02. Dexys Midnight Runners – Come On Eileen (04:07)
-03. The Human League – Don’t You Want Me (04:00)
-04. Soft Cell – Tainted Love (02:37)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 6:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C746C14CAA19084DFC65CEE6FE7525D61EFC6D7
 ```
 
 

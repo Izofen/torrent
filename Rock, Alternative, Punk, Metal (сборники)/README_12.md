@@ -490,6 +490,33 @@ magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338734   (268129) от 17.11.2019
+
+VA - Welcome Aboard: Advanced Rock Box (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_268129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Black Mamba - My Blood Diamond
+002. Hank Erix - Turn To Darkness
+003. Broken Sun - On
+004. Rich Davis - Faceless(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 11:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743EDC05477724DAF856F8AD7BACCC4DF7DEBEB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338407   (269556) от 15.11.2019
 
 Within Temptation - Edge of the World (Compilation) (2019) 2CD [MP3|320 Kbps] <Symphonic Rock, Symphonic Metal>
@@ -517,190 +544,161 @@ magnet:?xt=urn:btih:BE437DB8802A6F4E8B850399499D41D39F063AF3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291138   (672135) от 23.03.2019
+###  Публикация: 847800   (270742) от 01.12.2018
 
-VA - Rock Drive 6  (2019) 4CD, от DON Music[MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal, Blues Rock>
+VA - 50 Лучших Баллад Навсегда (2014) [MP3|320 кб/с]<Rock, Metal, Art>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672135.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_270742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 01:
+01 Rainbow - Temple of the king
+02 Uriah Heep - Sunrise
+03 UFO - Belladonna
+04 Shoking Blue - Daemon Lover(   Читать дальше...   )Жанр: Rock, Metal, ArtПродолжительность: 04:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6166ACDD1403D5DBE069FBB8DBF7523FE6BD2ACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 48749   (271779) от 30.11.2018
+
+Moscowallica - A Russian Tribute to MetallicA '2000
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_271779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ROSSOMANHAAR - The Call Of Ktulu
+2. E-ZONE - Harvester Of Sorrow
+3. AZEROTH - The Thing That Sould Not Be
+4. SULTAN - Fade To Black and No Leaf Clover(   Читать дальше...   )Жанр: Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DDC2FAB0B9E3E46FFFC99354C5D31017F3BD81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337496   (273699) от 11.11.2019
+
+VA - End Time Vision: Hard Rock And Metal Selection (2019) [MP3|320 Kbps] <Hard Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_273699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dedicate - A Reason
+002. Minus - Action
+003. Dprive - Sub-Version
+004. Choice To Make - Think Twice(   Читать дальше...   )Жанр: Hard Rock, Metal, AlternativeПродолжительность: 07:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B717CDF50802C65080C49AB966A2566F08C73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942786   (274124) от 02.12.2017
+
+Prodigy & Rammstein - 1000% (2002-2003) [MP3|320 кб/с]<Electronic, Breakbeat, NDH, Industrial Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prodigy 1000% (2002)
+Rammstein 1000% (2003)Жанр: Electronic, Breakbeat, NDH, Industrial MetalПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA4B676D94CF093B7A907353A58FB00C212C192
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083441   (274732) от 15.12.2016
+
+VA - Ramification Rock Gallery (2CD) (2016) [MP3|128-320 Kbps] <Rock, Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_274732.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+001. Sky Architects - Alleviate 4:39
+002. In Mourning - Fire And Ocean 6:19
+003. Kari Rueslatten - Battle Forevermore 3:51(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 15:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BE911BB6728C17883524F05EA6C36BE2AF9794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083105   (275597) от 14.12.2016
+
+VA - Rock Collection 1996 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_275597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
 
-01. Jan Lindqvist - Tonight
-02. Gathering Of Kings - The Gathering+Forever & A Day(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Blues RockПродолжительность: 04:55:58
+01. Ayreon - Actual Fantasy
+02. Opeth - Advent(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:13:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2905B7C6D2CE8BB1FCC7D0F82C17F0078B76FA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290912   (672331) от 23.03.2019
-
-VA - Ashes Of My Enemies: Hard Rock And Metall Compilation (2019) [MP3|320 Kbps] <Hard Rock, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672331.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. '77 - Bread & Circus
-002. Audium - Alive
-003. Costas Varras - The Swedish King
-004. Diabolical Mental State - Long Way Down(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B435BADDF13E4945EDF1CE04896581C6127BA0D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128124   (672428) от 23.05.2017
-
-VA - Greatest Ever! Rock The Collection Vol.1 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Marilyn Manson - The Beautiful People  3:43
-002.  Monster Magnet - Space Lord  5:58
-003.  Atomic Rooster - I Can't Take No More  3:33
-004.  Queens Of The Stone Age - Go With The Flow  3:09(   Читать дальше...   )Жанр: RockПродолжительность: 11:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA373ECC643FA52583F88D341B4F5705911DCE63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993805   (672542) от 23.05.2017
-
-VA - Russian Metal Ballads (2016) [MP3|197-320 кб/с] <Rock, Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_672542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adventus - Небеса (03:15)
-02. Ультиматум - Хозяин Царства Слёз (06:27)
-03. Легенда - С Тобой Навсегда (04:19)
-04. Ангел-Хранитель - Художник (05:09)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 03:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7361870825DC5897EB023B79A86CBD672BBA3FB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013026   (777642) от 04.05.2016
-
-VA - Strictly Pop Classics (2016) [MP3|320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_777642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC5 - Kick Out The Jams
-02. Velvet Underground The - I'm Waiting For The Man
-03. Stooges The - No Fun
-04. Doors The - L.A. Woman(   Читать дальше...   )Жанр: RockПродолжительность: 03:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636ADFFBD29F0B3922EA498F539344781A93978D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210760   (778469) от 04.03.2018
-
-VA - Союз. Rock 4 (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Би-2 - Пора возвращаться домой
-02. Ночные Снайперы - ЦОЙ
-03. Алиса - Дети последних дней
-04. Сплин - Тепло родного дома(   Читать дальше...   )Жанр: RockПродолжительность: 02:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B953F346ED6F16C45EF87FD43CC23126811868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210834   (778545) от 04.03.2018
-
-VA - The Last Note Of Life (2018) [MP3|320 Kbps] <Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Queensryche  -  Empire  5:24
-002.  Kamelot  -  Silent Goddess  4:14
-003.  Liquid Tension Experiment  -  Acid Rain  6:36
-004.  Threshold  -  Avalon  4:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 08:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFEDD8E4270282F7336B379389D59410B0770B2
+magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
 ```
 
 

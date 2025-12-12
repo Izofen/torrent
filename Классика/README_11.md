@@ -224,6 +224,33 @@ magnet:?xt=urn:btih:E0D2286440289180143CAD47942E280B5BDE279B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338767   (268122) от 17.11.2019
+
+Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classical Crossover, Modern Classical, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_268122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Fine Day (Un Bel Di From Madame Butterfly) (3:01)
+02. Sempre Ricordo (Grieg Piano Concerto In A Minor) (5:23)
+03. There's A Place (From The New World Symphony) (4:37)
+04. Beyond Imagination (From A Midsummer Night's Dream) (5:04)(   Читать дальше...   )Жанр: Classical Crossover, Modern Classical, ElectronicПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266505   (269147) от 03.12.2018
 
 Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal>
@@ -278,432 +305,401 @@ magnet:?xt=urn:btih:16205515053E587A2C13AF4275118F630330F2DC
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013269   (777536) от 04.05.2016
+###  Публикация: 1189382   (270187) от 06.12.2017
 
-Waka Hasegawa, Samuel Coleridge - Taylor: Undiscovered Piano Works (1875-1912) 2013, Naxos [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_777536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cameos, Op. 56 
-01. I. Allegro ma non troppo    04:55
-02. II. Allegro moderato    04:18
-03. III. Andante    03:53Жанр: Classical, KeyboardПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B245D95CA6B5F9CE3CF3AC56E9C1B240333038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012772   (778176) от 02.05.2016
-
-Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata for Piano and Violin in F, K.377
-01. 1. Allegro (3:52)
-02. 2. Tema (Andante) con variazioni (10:08)
-03. 3. Tempo di menuetto (5:57)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72EF12A7507236CDF95FAF476B90F4437FE30DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012785   (778257) от 02.05.2016
-
-Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [MP3|320 кб/с] <Classical, Piano>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata for Piano and Violin in F, K.377
-01. 1. Allegro (3:52)
-02. 2. Tema (Andante) con variazioni (10:08)
-03. 3. Tempo di menuetto (5:57)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1A42F347D05C04F68865216ADF33C9D976CE60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210336   (778623) от 03.03.2018
-
-VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778623.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Isaac Stern, Zubin Mehta & Israel Philharmonic Orchestra  -  Vivaldi (Concerto For Violin And Strings In E, Op.8, No.1, RV.269 'La Primavera'-1.) Allegro (Live)  3:24
-002.  James Levine, Vienna Philharmonic Orchestra & Itzhak Perlman  -  Mozart (Violin Concerto No.1 In B Flat, K.207-Cadenzas; Itzhak Perlman-1. Allegro Moderato)  6:47
-003.  Nathan Milstein & (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7164DEA7AD82CF48C537C3B186DB3FE18A78F3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210354   (778671) от 03.03.2018
-
-Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_778671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almach 5:00
-02. Selene (with I Muvrini) 6:22
-03. Alhena 3:33
-04. Nodus 4:10(   Читать дальше...   )Жанр: Classical Crossover, New AgeПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4175965F790365987195C7E2EDD3BB10BAE3F454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203972   (784019) от 08.02.2018
-
-Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_784019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto In D Major, Op. 61
-
-A	Allegro Ma Non Troppo
-B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204264   (784031) от 08.02.2018
-
-Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_784031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 100 G Major "Military"
-A1	Band 1: Adagio; Allegro
-A2	Band 2: Allegretto
-A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204738   (784272) от 07.02.2018
-
-The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Daniel Harding (2017)2CD [FLAC|Lossless|image + .cue] <Classical>
+Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|Lossless|image + .cue] <Classical, Romantic, World>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_784272.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_270187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Die Meistersinger von Nürnberg (1868)
-01.Vorspiel (III)
-02.Sachs: Was duftet doch der Flieder so mild (II, “Fliedermonolog”)
-Tristan und Isolde (1865)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:02:05
+Сольный альбом Энни Хаслам — "Still Life" (1985), записанный вместе с Royal Philharmonic Orchestra под управлением Луи Кларка сделавшего аранжировки для оркестра. Кларк дирижировал Королевским филармоническим оркестром в процессе записи на Эбби Роуд и продюсировал альбом.
+На наиболее известные классические произведения Баха, Шуберта, Вагнера, Чайковского, (   Читать дальше...   )01. Forever Bound (3:55)
+02. Still Life (3:00)
+03. One Day (2:59)
+04. Ave Verum (2:44)(   Читать дальше...   )Жанр: Classical, Romantic, WorldПродолжительность: 00:39:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6023A457FB85AAD13FC7A9705F9BA521D5B4B8CD
+magnet:?xt=urn:btih:858350A5FD1EFEC86986ED95F0315C1D4BB12B5B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204816   (784278) от 07.02.2018
+###  Публикация: 1337459   (273624) от 11.11.2019
 
-Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_784278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Scene 1: Introduction
-02.Scene 2: Cosa dite! Ma cosa dite! (Tarabotto, Isabella)
-03.Scene 3: Ebben, che ascondi a Tarabatto (Isabella, Tarabotto)
-04.Scene 4: Qual tenero diletto (Bertrando)(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204760   (784286) от 07.02.2018
-
-Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_784286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 No. 1, Overture
-02 Act I, No. 2, "Tocchiamo! a gaudio insolito" (Chorus)
-03 Act I, No. 3, "Ciel, ch'io respiri!"
-04 Act I, No. 4, "Salvami to, gran Dio"(   Читать дальше...   )Жанр: Opera,ClassicalПродолжительность: 02:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116201   (822482) от 20.03.2017
-
-L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_822482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ireneu Sagarra (1917)
-1. Salve Regina “Germinans” 8:02
-
-Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007210   (823119) от 14.04.2016
-
-Andre Rieu - Romantique (1998) [FLAC|Lossless|tracks] <Classical>
+New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Ballad>
 
 >>Классика
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_823119.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_273624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Theme d'amour de ''Romeo et Juliette''    03:49
-02. O Lune d'argent    04:56
-03. Im Chambre Separee    03:38
-04. Tristesse    05:15(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:32
+01. All Alone (Moonlight Sonata) - Ludwig Van Beethoven (3:52)
+02. You Know Him Well - Wolfgang Amadeus Mozart (3:30)
+03. Ave Maria - Franz Schubert (3:55)
+04. The Stage Is Set - Peter Ilyich Tchaikovsky (4:26)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:01:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:526A5E5AECAA2488D2B8BEB374BDE174AFA17250
+magnet:?xt=urn:btih:37D94727272AD052AF5E68483A48B66EDD056C90
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006347   (824902) от 13.04.2016
+###  Публикация: 1337117   (276028) от 09.11.2019
 
-Ravel - Romantic Classic: Le Tombeau de Couperin, Piano Concerto in G, La Valse, Bolero (Nanut, Pantelli, Adolph) (2003) [MP3|320 кб/с] <Classical, Concerto>
+Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover>
 
 >>Классика
->>Концерты
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_824902.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_276028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bolero, op. 81
-01 - tempo di bolero moderato assai
-Valses nobles et sentementals, op. 61 (fragmentes)
-02 (fragmentes)(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:19:50
+01. Alla Gioia (Ode To Joy)
+02. Return To Love (feat. Ellie Goulding)
+03. Un Rêve De Liberté ("Ali di Liberta'" French Version)
+04. Ragazzo Mio (Danny Boy)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:59:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53E64E6242FDAD5B05A54C4675D98457E8C23FDA
+magnet:?xt=urn:btih:62EF8AA170066A7063C57084844A1D7EACB75EED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006657   (824996) от 13.04.2016
+###  Публикация: 73873   (276069) от 26.11.2018
 
-Han de Vries - Appassionato (1989) [FLAC|Lossless|tracks] <Classical, Romantic>
+Федор Иванович Шаляпин-Полное собрание граммофонных записей 1907-1936 гг.[2002][mp3|192]<Классическая музыка>
 
 >>Классика
->>Камерная (Lossless)
+>>Вокал
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_824996.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_276069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel's Oboe    02:40
-02. Sinfonia    02:54
-03. Canzone    03:37
-04. Coloriet    02:30(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:40:34
+CD1Жанр: Классическая музыкаПродолжительность: 12ч:24мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B032C3714CC038687E894C65A836AF5CA80B69D
+magnet:?xt=urn:btih:F11636096599C932E19896EDD27A69DD805AAA82
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115260   (827694) от 17.03.2017
+###  Публикация: 1336956   (276106) от 09.11.2019
 
-2Cellos - Score (2017) [MP3|320 Kbps] <Symphonic, Neoclassical>
+New London Chorale - Christmas with the New London Chorale (1994) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
 
 >>Классика
->>В обработке/Classical Crossover/Neoclassical
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_827694.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_276106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Game of Thrones Medley
-2. May it Be
-3. For the Love of a Princess
-4. Love Story(   Читать дальше...   )Жанр: Symphonic, NeoclassicalПродолжительность: 01:01:11
+01. Kumbaya (4:31)
+02. Joseph, Dearest (3:10)
+03. What Child Is This (3:15)
+04. Mary's Boy Child (3:09)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:54:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C85EE451A718C4363F99F0FD4DA71D0D5073FFF
+magnet:?xt=urn:btih:DCBD34399022FFAA96CE7905D2DED9A2E1DD184F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006438   (828386) от 11.04.2016
+###  Публикация: 1336953   (276223) от 09.11.2019
 
-Mozart - Horn Concertos (Tuckwell, Marriner - ASMF) (2001) [MP3|320 кб/с] <Classical, Concerto>
+New London Chorale - The Collection  Vol.1 (2000) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
 
 >>Классика
->>Концерты
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_828386.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_276223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hornkonzert Nr. 1 D-dur, KV 412
-01 -1- Allegro
-02 -2- Rondo. Allegro
-Hornkonzert Nr. 2 Es-dur, KV 417(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:59:29
+01. Dancing On Air - Tchaikovsky (4:26)
+02. Stay with me 'til the morning - Wolfgang Amadeus Mozart (3:47)
+03. Anthem For The World - Giuseppe Verdi (4:31)
+04. Denied - Tchaikovsky (5:18)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:04:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F9213E134FFBB093A9A238B4B75AA4C046C066
+magnet:?xt=urn:btih:30E486382F949713B45E1F571B2568431BD1466B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336941   (276246) от 09.11.2019
+
+New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_276246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stay With Me 'Til The Morning (3:48)
+02.  Schubert: The Uprising (4:01)
+03.  Schubert: Love Will Find A Way (3:48)
+04.  Wings Of Gold (3:26)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187739   (276947) от 30.11.2017
+
+Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996) [FLAC|Lossless|tracks] <Vocal, Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_276947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Walked Today Where Jesus Walked
+02. Panis Angelicus
+03. O Joyful Children
+04. The Christmas Song(   Читать дальше...   )Жанр: Vocal, ClassicalПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15060C72299E48E36D145E8B5B915BD6713D93A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335394   (277338) от 08.11.2019
+
+New London Chorale - Celebration: 25 Years The New London Chorale (2004) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_277338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wings Of Gold - Giuseppe Verdi (3:26)
+02. Every Valley - George Frideric Handel (3:26)
+03. Stay With Me 'Til The Morning - Wolfgang Amadeus Mozart (3:48)
+04. Say Goodbye - Wolfgang Amadeus Mozart (4:05)(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D15FE297030CE300A644F160C2BB1ED14345D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849603   (279092) от 14.12.2014
+
+Wolfgang Amadeus Mozart - Symphonies Nos. 21-41:  Josef Alois Krips & Royal Concertgebouw Orchestra (1972-1973) remastering /2007, Decca 6CD [FLAC|Lossless]<Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_279092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди записей выдающегося дирижера Йозефа Крипса выделяется осуществлённая им в 1960 г. вместе с Лондонским симфоническим оркестром запись всех девяти симфоний Бетховена, получившая высокую оценку критики и публики и многократно переиздававшаяся в дальнейшем.01. Symphony No.40 in G minor, KV.550 I.Molto allegro (09:35)
+02. Symphony No.40 in G minor, KV.550 II.Andante (07:35)
+03. Symphony No.40 in G minor, KV.550 III.Menuetto (Allegretto) (04:46)
+04. Symphony No.40 in G minor, KV.550 IV.Finale (Allegro assai) (07:18)(   Читать дальше...   )Жанр: SymphonyПродолжительность: 06:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CCFF5BEF4F99C67CA8D92C4A7330E6351FD4A8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336157   (282192) от 05.11.2019
+
+Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|image + .cue] <Classical oratorio,  pastoral ode>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_282192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical oratorio,  pastoral odeПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FB87B0EC55144273A22DC0100DBDAFC43DD14C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335914   (282393) от 05.11.2019
+
+Kriemhild Maria Siegel - Schwanensee (Swan Lake) (2013) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_282393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Schönten Lieder In Mir (4:00)
+02. Schwanensee (4:57)
+03. Hijo De La Luna (4:36)
+04. Am Ufer Der Erinnerung (2:57)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03B00B765ECB17F50DDF0621B1E15CC5BDE29CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081132   (282675) от 10.12.2016
+
+Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2000) 2004, JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_282675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. O Vierge Sainte, rejouis-toi, Luc 1, 28 & 42 (1:41)
+2. Les Mages. rois de Perse (2:20)
+3. Dieu est avec nous (4:18)
+4. Benis le Seigneur. ô Mon âme. Psaume 102. 1-22 (5:24)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186554   (285853) от 25.11.2017
+
+Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_285853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dichterliebe Op. 48
+1. Im wunderschönen Monat Mai
+2. Aus meinen Tränen sprießen
+3. Die Rose, die Lilie(   Читать дальше...   )Жанр: vocalПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080997   (286081) от 08.12.2016
+
+Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory Of Byzantium (1994-2004) 2006 JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_286081.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске духовные распевы 15 века в аутотентичном исполнении греческого хора чередуются с Богослужебными песнопениями  в исполнении Дивны Любоевич и хора Melodi под ее управлением.
+1. Hail Mary, Luke 1, 28 and 42. Byzantine chant (at vespers) (1:43)
+2. Sticheron of the Vespers of the Dormition of the Mother of God (2:51)
+3. Hail Mary, Luke 1, 28 and 42. Byzantine (   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
 ```
 
 

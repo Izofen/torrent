@@ -1,702 +1,712 @@
-###  Публикация: 989015   (918389) от 21.02.2016
+###  Публикация: 1078258   (302655) от 30.11.2016
 
-Круиз - 4 альбома (1987-2013) Мелодия, WEA, Мирумир [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_918389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Radiation Victims
-02 - Killer Logic
-03 - Get Serious!
-04 - Child Of Pride(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 02:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CEA259AE67F4D733C6ED3B63CAAF489AD2EBC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989049   (918670) от 21.02.2016
-
-Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
+Станислав Нейгауз - Полонез-фантазия, ноктюрны... (Ф. Шопен) (1992) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Romantic>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_918670.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_302655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Season Of The Dead (7:22) (DR14)
-02. Cry All Night (6:58) (DR13)
-03. Take Me Home (4:57) (DR13)
-04. Isolated Man (5:31) (DR13)Жанр: RockПродолжительность: 00:24:48
+Сторона1
+1. Полонез-фантазия  11:32
+Ля бемоль мажор, соч. 61
+2. Ноктюрн  5:10(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:42:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D0BBCB9B9DB801246F8D8EDC51250207E660174
+magnet:?xt=urn:btih:C7B377FDD261F4989558F46599696B5353BAF621
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490232   (920531) от 19.08.2021
+###  Публикация: 1333522   (302814) от 25.10.2019
 
-Pendulum - Hold Your Colour (Reissue 2018) (2005) Breakbeat Kaos [FLAC 2.0 16/44.1|tracks|Vinyl-Rip] <Drum n Bass>
+Кино - Группа Крови (1988) [DSD 128 1bit/5,64 MHz |Vinyl-Rip] <Рок>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_920531.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_302814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prelude / Slam (06:33)
- 02. Plastic World (feat. Fats/TC) (06:19)
- 03. Fasten Your Seatbelt (feat. The Freestylers) (06:32)
- 04. Through The Loop (06:11)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:24:01
+A1. Blood Type
+A2. Shut The Door Behind Me
+A3. War
+A4. Good Night(   Читать дальше...   )Жанр: РокПродолжительность: 00:48:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:034E7F5014F40410E1CED1645AFAF56121A552F8
+magnet:?xt=urn:btih:29184FB8A2EF14AB26579DF28D4EC828E0C3B32F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366628   (921559) от 12.03.2020
+###  Публикация: 1261605   (302952) от 11.11.2018
 
-Various Artists – Total Music Immersion – Philips Super Audio CD Sampler (2002) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <sampler>
+Steve Hackett – Wolflight (2015) [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <progressive rock, folk rock>
 
 >>HD Audio и Многоканальная Музыка
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_921559.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_302952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Destiny’s Child – Independent woman N°1 -03:41
-02. Céline Dion – It’s all coming back to me now -05:31
-03. Carel Kraayenhof, Bandoneon – Astor Piazzolla : Adiòs Nonino -04:39
-04. Herbert Grönemeyer – Halt Mich -03:58(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Latin, Funk / Soul, Pop, ClassicalПродолжительность: 01:04:14
+01. Out Of The Body (02:31)
+02. Wolflight (07:58)
+03. Love Song To A Vampire (09:18)
+04. The Wheel's Turning (07:23)(   Читать дальше...   )Жанр: Prog Rock, Folk RockПродолжительность: 00:55:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E4E4448D5D474015443F9FBE0B52BE43FF77D7A
+magnet:?xt=urn:btih:78DE2C5C5045732249C0CB2D16B0AEA4095A551A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095775   (922581) от 22.01.2017
+###  Публикация: 730880   (303017) от 05.12.2013
 
-Amon Amarth - Jomsviking (2016) 2xLP [FLAC|192/24|image + .cue|Vinyl-Rip] <Melodic Death Metal>
+БГ и Сева Гаккель - Концерт на Таганке (1984) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_922581.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_303017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 First Kill
-A2 Wanderer
-A3 On A Sea Of Blood
-B1 One Against All(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:04
+C1. Пока не начался джаз (2:41)
+C2. Рождественская песня (5:13)
+C3. 25 к 10 (2:12)
+C4. Электрический пес (3:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:51:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:811D3A75EA3E04041C998E0890522424D4E80BB0
+magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095519   (924184) от 21.01.2017
+###  Публикация: 1184149   (303058) от 16.11.2017
 
-The Alan Parsons Project - Ammonia Avenue (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_924184.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_303058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Prime Time (5:03)
-A2. Let Me Go Home (3:21)
-A3. One Good Reason (3:37)
-A4. Since The Last Goodbye (4:35)(   Читать дальше...   )Производство: Arista - AL8 8204Жанр: Progressive RockПродолжительность: 00:40:11
+01. Happiness (4:05)
+02. The Pop Kids (3:56)
+03. Twenty-something (4:23)
+04. Groovy (3:30)(   Читать дальше...   )Жанр: Synth-pop, BalladПродолжительность: 00:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:861617EFD97521794ACA0E892739A677A524BC5E
+magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366026   (925052) от 10.03.2020
+###  Публикация: 1184079   (303202) от 16.11.2017
 
-Dire Straits - Brothers in Arms (2005) 1985 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_925052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Far Away                              [05:13]
-  02. Money For Nothing                        [08:26]
-   03. Walk Of Life                             [04:12]
-   04. Your Latest Trick                        [06:33](   Читать дальше...   )Жанр: rockПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52415CCA8C7849D1914A96FAB9CA11A87CED8CD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366254   (925285) от 10.03.2020
-
-Mark Knopfler – Shangri-La (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Folk Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_925285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    5:15 a.m.    05:55
-02.    Boom, Like That    05:49
-03.    Sucker Row    04:56
-04.    The Trawlerman’s Song    05:02(   Читать дальше...   )Жанр: roots rock, country folk, bluesПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82E678A012D4DA5609CDC2DE8879C4F9067418A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987552   (925762) от 17.02.2016
-
-Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
+Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_925762.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_303202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Woman (5:45)
-02. Rocket (6:39)
-03. Animal (4:05)
-04. Love Bites (5:48)(   Читать дальше...   )Производство: Mercury – 830 675-1 Q-1Жанр: Hard RockПродолжительность: 01:02:52
+A1 Daddy Daddy 3:15
+A2 Bad Boy You 4:06
+A3 Baciami (Kiss Me) 4:14
+A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
+magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986948   (928765) от 15.02.2016
+###  Публикация: 1261463   (303385) от 11.11.2018
 
-Владимир Кузьмин - Моя любовь (1985) 1987, Мелодия ТЗГ [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
+Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Opera>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_928765.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_303385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Только ты и я (4:43)
-02. Влюблённый в музыку (5:15)
-03. Ты, ты, ты (3:57)
-04. Моя любовь (3:25)(   Читать дальше...   )Производство: Мелодия ТЗГ - C60 25375 009Жанр: RockПродолжительность: 00:35:29
+Side A:
+01 Overture
+02 Libiamo Ne' Lieti Calici
+03 Un Di' Felice, Eterea (Duet)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:10:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:303EBE4045F4ACB6E8E3BC5B50AF9F369B49513A
+magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986813   (928780) от 15.02.2016
+###  Публикация: 1077900   (304303) от 29.11.2016
 
-Оркестр Поля Мориа - Бабье лето (1981) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Romantic, Ballad>
+The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_928780.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_304303.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-1. Бразильский карнавал · Brasilia Carnaval  2:44
-2. Бабье лето · L'ete Indien «Africa»  3:30
-3. Мелиза · Melisa  2:56(   Читать дальше...   )Жанр: Romantic, BalladПродолжительность: 00:35:08
+01. Two Of Us 3:34
+02. Dig A Pony 3:52
+03. Across The Universe 3:46(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25EBD896D2DE870517140CC1B3FE3CB6487D3C98
+magnet:?xt=urn:btih:3FF96293ACB9ED3145F0912AE7D6CC171C5BE3E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093948   (930129) от 17.01.2017
+###  Публикация: 1077995   (304306) от 29.11.2016
 
-VA - RETROспектива, часть VIII: Эстрадные оркестры VIII (1930-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+Manfred Mann's Earth Band - Angel Station (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930129.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_304306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Оркестр п.у. П. Урмузеску - Кумушки
-02. Оркестр п.у. Депрайнс - Дождь идет (танго)
-03. Инстр. квартет п.у. Б. Тихонова - Белорусская полька (танец)
-04. Э. Пибоди - Хороший день (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:55:48
+A1. Don't Kill It Carol (6:18)
+A2. You Angel You (4:03)
+A3. Hollywood Town (5:10)
+A4. 'Belle' Of The Earth (2:47)(   Читать дальше...   )Производство: Bronze - 200 367-320Жанр: Progressive RockПродолжительность: 00:38:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6578E7B6701879EA24E97E97C93A31DD24FA782
+magnet:?xt=urn:btih:A7D4913D488836DAB72FCC3B0969BE67811AAEA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093929   (930459) от 17.01.2017
+###  Публикация: 1261194   (305322) от 10.11.2018
 
-Камерный оркестр Латвийской государственной филармонии, скрипка В. Зариньш, дирижер Т. Лифшиц - Антонио Вивальди - Времена года (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
+VA - Сергей Рахманинов - Золотая коллекция (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Neo-Classical, Romantic>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930459.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_305322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 18 Вариаций На Тему Рапсодии Паганини Для Фортепиано с Оркестром соч. 43
+02. Итальянская Полька Для Фортепиано в Четыре Руки
+Концерт Для Фортепиано с Оркестром №2 соч. 18
+03. I Allegro Moderato(   Читать дальше...   )Жанр: Classical, Neo-Classical, RomanticПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077561   (306599) от 28.11.2016
+
+Московский камерный оркестр - В.А.Моцарт. Симфония №41 до мажор, KV 551 "Юпитер" (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_306599.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-Концерт №1 Ми Мажор «Весна»
-01. Allegro  3:20
-02. Largo E Pianissimo Sempre  2:36(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:39:16
+1. Allegro vivace  11:16
+2. Andante cantabile  11:38
+Сторона 2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:589C997DF13C3AB2E0145E339B178A345581DFFA
+magnet:?xt=urn:btih:667EED501812EE8E43984624F8A6CEB3206B44E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986285   (930906) от 14.02.2016
+###  Публикация: 846032   (306813) от 30.11.2014
 
-Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+Gillan - Double Trouble (1981) 2LP [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_930906.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_306813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Тропы в Китай
-02 - По-прежнему
-03 - Даждо (Для его стрелы)
-04 - Колывань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:45
+A1. No Laughing In Heaven (Live) (6:26)
+A2. No Easy Way (Live) (10:33)
+A3. Trouble (Live) (3:10)
+B1. Mutually Assured Destruction (Live) (5:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
+magnet:?xt=urn:btih:E1796E721D60DCA059F5A81EB25D43527FD3474F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365290   (931488) от 06.03.2020
+###  Публикация: 1260899   (307448) от 09.11.2018
 
-Pink Floyd - The Dark Side of the Moon (2003) 1973 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Psychedelic Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_931488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Speak To Me    01:08
-02.    Breathe    02:49
-03.    On The Run    03:51
-04.    Time    06:50(   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1EE1C70F09CF273920ECA5BF97E0E1BBF264F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986278   (932468) от 13.02.2016
-
-VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+The Camerata Romana, Eugen Duvier Conducting - Vivaldi - Famous Concerti (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_932468.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_307448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Чай Ф - Не спеши
-02. БГ - Китай
-03. Джоанна Стингрей - Бум-бум
-04. Наутилус Помпилиус - Синоптики(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:06
+Side A
+Concerto Grosso in C. RV 558
+01. Allegro Molto
+02. Andante Molto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:54:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7E1B51AA84A88AA25A804CBFF584C8F30C0F778
+magnet:?xt=urn:btih:8872EBA9B73A060C86B6D649719B590EA03041D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986225   (932473) от 13.02.2016
+###  Публикация: 1077139   (308748) от 27.11.2016
 
-Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+Bad Company - Dangerous Age (1988)  [FLAC 2.0|192/24|image|Vinyl-Rip]<Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_932473.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_308748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Let It Go
-02 - Another Hit And Run
-03 - High'N'Dry
-04 - Bringin' On The Heartbreak(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:16
+A1. One Night (4:41)
+A2. Shake It Up (3:59)
+A3. No Smoke Without A Fire (4:39)
+A4. Bad Man (3:49)(   Читать дальше...   )Производство: Atlantic Records - 1A-81884Жанр: Hard RockПродолжительность: 00:40:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1B6F5468CC3B0923BFE6B06257685E5D6D16A8A
+magnet:?xt=urn:btih:FA475E5CE2F3EEFAF18C64652D1AB21CF0516EB5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 985520   (933975) от 12.02.2016
+###  Публикация: 583293   (309586) от 03.12.2012
 
-Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Hard-rock>
+Claire Martin - Too Darn Hot! (2002) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Vocal, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_309586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something's Coming
+02. Love at Last
+03. The Gentleman Is a Dope
+04. These Foolish Things
+05. It's Raining in My Heart
+06. Too Darn Hot!
+07. Black Coffee
+08. Noir
+09. Love is a Necessary Evil
+10. When I Fall in Love(   Читать дальше...   )Жанр: Vocal, JazzПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3074BDB59008AD4C4DFB6298FC65EE30BCF1E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182106   (309678) от 13.11.2017
+
+Amy Winehouse - Frank (2003) Reissue, 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rhythm & Blues, Soul>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_933975.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_309678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Man On The Silver Mountain
-02 - Self Portrait
-03 - Black Sheep Of The Family
-04 - Catch The Rainbow(   Читать дальше...   )Жанр: Hard-rockПродолжительность: 00:37:16
+A1 Intro / Stronger Than Me 3:54
+A2 You Sent Me Flying / Cherry 6:50
+A3 Know You Now 3:03
+A4 Fuck Me Pumps 3:20(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:54:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DB2F78D40949239894E3EBFA48A132A840EA78A
+magnet:?xt=urn:btih:D546F61EC79A4342BEB2B4D0408C8E616B677079
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 169817   (934333) от 04.03.2020
+###  Публикация: 1182184   (311476) от 12.11.2017
 
-The Crystal Method - Divided By Night (Upmix) (2009) [DTS]<Breakbeat/Electronic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_934333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divided By Night (5:01)
-02. Dirty Thirty (feat Peter Hook) (5:24)
-03. Drown In The Now (feat Matisyahu) (5:47)
-04. Kling To The Wreckage (feat Justin Warfield) (4:04)(   Читать дальше...   )Жанр: Breakbeat, ElectronicПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C059CC51ED6EE319A76CE477EF4C9FE3B1B993
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364812   (934344) от 04.03.2020
-
-Pink Floyd - Wish you were here (2011) 1975 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Psychedelic Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_934344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Shine On You Crazy Diamond (Parts I – V)    13:31
-02.    Welcome To The Machine    07:25
-03.    Have A Cigar    05:08
-04.    Wish You Were Here    05:33(   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D14AAB7C825E882A9F6D425B9A48896F330B719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205976   (937547) от 02.03.2020
-
-Europe - The Final Countdown (Upmix) (1986) [DTS]<ROCK>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_937547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Countdown (5:13)
-02. Rock The Night. (4:06)
-03. Carrie (4:33)
-04. Danger On The Track (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983234   (939704) от 08.02.2016
-
-Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk / Soul, Pop>
+Depeche Mode - Spirit (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synth pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_939704.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_311476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:23
+A1. Going Backwards (5:45)
+A2. Where's The Revolution (5:00)
+A3. The Worst Crime (3:49)
+A4. Scum (3:16)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
+magnet:?xt=urn:btih:6800C77B2BEB33CD758A625001D679E935D41D26
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983264   (939717) от 08.02.2016
+###  Публикация: 1260413   (311650) от 07.11.2018
 
-Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.1 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_939717.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_311650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Ma Baker
-02 Love For Sale
-03 Belfast
-04 Gloria, Can You Waddle(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:14
+A1. Take On Me (3:48)
+A2. Cry Wolf (4:07)
+A3. Touchy (4:37)
+A4. You Are The One (Remix) (3:46)(   Читать дальше...   )Производство: Not On Label - RGM 7029Жанр: New WaveПродолжительность: 00:31:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CECA1DC88959E5B08A4C21111C5F6133239EBEB1
+magnet:?xt=urn:btih:1E8A8F44560EBACDA0A64357F300B3771D2EFA6C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092259   (939750) от 11.01.2017
+###  Публикация: 1182168   (312046) от 12.11.2017
 
-Fiona Joy Hawkins - Blue Dream (2009) 2008 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
+ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Europop>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_939750.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_312046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fiona Joy Hawkins (род. 1964) австралийская композитор и пианистка. Она родилась в Cessnock (Новый Южный Уэльс) в творческой семье, получила профессиональное классическое образование по классу фортепьяно.
+Сторона А
 
-Ее первый альбом, Portrait of a Waterfall (Портрет у водопада), занял первое место в хит-параде New Age Reporter (NAR) в 2005 году. Ее классический релиз, Angel (   Читать дальше...   )01. Freedom (1:51)
-02. Feeling Sunshine (2:54)
-03. From the Outside (4:32)
-04. Sapphire Interlude (1:43)(   Читать дальше...   )Жанр: new ageПродолжительность: 01:09:06
+1. The Visitors [5:45]
+2. Head Over Heels [3:48](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FA2430EC69D99EE7C46050088112CC5F3335F12
+magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 144897   (940464) от 29.02.2020
+###  Публикация: 1182741   (312076) от 12.11.2017
 
-Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
+Joy - Joy And Tears (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_940464.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_312076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1   Sing An Ode To Love   (4:12)
-A2   Midnight Is The Time I Need You   (3:03)
-A3   I'll Be Your Friend (Schön Wie Mona Lisa)  (4:12)
-A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:37:16
+A1 Touch Me My Dear 3:39
+A2 Gimme Gimme All Of You 3:53
+A3 Kisses Are The Doctor's Order 3:29
+A4 Korean Girls 3:33(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:36:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
+magnet:?xt=urn:btih:DE1F8ABE11E698A8EC725E9E8D7186EA9F99343C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983980   (941862) от 07.02.2016
+###  Публикация: 1182011   (312191) от 12.11.2017
 
-Владимир Кузьмин - ...пока не пришел понедельник... (1986) 1989, Мелодия, ТЗГ [FLAC 2.0|96/24|image|Vinyl-Rip]<Rock>
+Duran Duran - Paper Gods (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_941862.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_312191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ...пока не пришел понедельник... (3:49)
-02. Странные дни (4:57)
-03. Симона (4:05)
-04. Шлифовщик (4:24)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27993 009Жанр: RockПродолжительность: 00:34:41
+A1. Paper Gods
+A2. Last Night In The City
+A3. You Kill Me With Silence
+(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:57:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
+magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260193   (313628) от 06.11.2018
+
+John Lennon – Imagine: The Ultimate Collection (2018) 1971 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <pop rock, art rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_313628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (3:04)
+02. Crippled Inside (3:49)
+03. Jealous Guy (4:12)
+04. It's So Hard (2:27)(   Читать дальше...   )Жанр: Pop Rock, Art RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7661D6B2F0B3B4FCAE3889334BBDCB92BCD59550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583118   (314232) от 13.10.2022
+
+Центр - Сделано В Париже (1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_314232.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Привет Тебе
+A2 Навсегда
+A3 Тургеневские Женщины
+A4 Бесполезная Песня(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182684   (314251) от 11.11.2017
+
+Deep Purple - Machine Head (1972) Reissue, 1976 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_314251.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Highway Star (6:09)
+A2. Maybe I'm A Leo (4:51)
+A3. Pictures Of Home (5:06)
+A4. Never Before (4:00)(   Читать дальше...   )Производство: Warner Bros. Records - P-10130WЖанр: Hard RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182160   (314339) от 11.11.2017
+
+VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_314339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смысловые галлюцинации - Разум когда-нибудь победит
+02. Танцы минус - Не меняй меня
+03. Сплин - Пластмассовая жизнь
+04. Сегодня ночью - Между роскошью и тоской(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 728549   (314498) от 30.11.2013
+
+ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_314498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Mamma Mia  3:33
+2. Hey, Hey Helen  3:17
+3. Tropical Loveland  3:05
+4. SOS  3:22
+5. Man In The Middle  3:02
+6. Bang-A-Boomerang  3:03
+Сторона 2
+1. I Do, I Do, I Do, I Do, I Do  3:18
+2. Rock Me  3:06(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
 ```
 
 

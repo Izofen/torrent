@@ -511,190 +511,190 @@ magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266877   (268349) от 04.12.2018
+###  Публикация: 1339042   (267009) от 18.11.2019
 
-VA - Новый год в стиле Ретро (2016) [MP3|320 Kbps] <Pop>
+Евгения Смольянинова - Старинные Романсы (2009) [FLAC|Lossless|image + .cue] <романс>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда печаль слезой невольной...
+02. Вчера я видел Вас во сне...
+03. Лесом мы шли
+04. Вам 19 лет(   Читать дальше...   )Жанр: романсПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A36E7845064A43B89077653958987CDD4E0C5BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339269   (267055) от 18.11.2019
+
+VA - Top 40 Latino Caliente (The Ultimate Top 40 Collection) (2019) [FLAC|Lossless|tracks + .cue] <Latin Pop, Electro, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267055.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi - Despacito
+02. Shakira feat. El Cata - Rabiosa
+03. Alvaro Soler - La Cintura(   Читать дальше...   )Жанр: Latin Pop, Electro, DanceПродолжительность: 02:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339268   (267116) от 18.11.2019
+
+Мохито - Refresh (2019) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268349.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Николай Басков - Вот пришёл Новый год
-02. Натали - Снежная роза
-03. Игорь Николаев - Выпьем за любовь
-04. Игорь Саруханов - Карнавал(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
+1. Разрывай танцпол
+2. Незаменимых нет
+3. Smoking My Life
+4. Жёлтое такси(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:002670627B5AA56DBC48B8DBE1161DA8A2E00043
+magnet:?xt=urn:btih:AD799A64A536762FECED71765AC1D4EF87A67115
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267048   (268373) от 04.12.2018
+###  Публикация: 1190485   (267678) от 09.12.2017
 
-VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+Plazma - Indian Summer (2017) [MP3|320 Kbps] <Рор>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268373.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kygo & Imagine Dragons - Born to Be Yours
-02. Shawn Mendes - In My Blood
-03. Tiesto, Dzeko, Preme & Post Malone - Jackie Chan
-04. Cecilia Krull & Gavin Moss - My Life Is Going on(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:08
+01. Tame Your Ghosts
+02. Angel Of Snow
+03. Brilliant Water
+04. Mystery (The Power Within)(   Читать дальше...   )Жанр: РорПродолжительность: 00:57:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
+magnet:?xt=urn:btih:82C6C078919C9BE9ACCFFC3C67526FE735D00D3B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267030   (268382) от 04.12.2018
+###  Публикация: 1190495   (267756) от 09.12.2017
 
-Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite (2:56)
- 02. Let The Music Play (3:14)
- 03. It's Not Easy (3:13)
- 04. The Zoo Song (3:21)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266988   (268391) от 04.12.2018
-
-VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tw3lv, Jack Wilby - Together
-02. Lulleaux, Giang Pham - Contact
-03. Afsheen, Rebecca Ferguson - Uncrazy
-04. Lny Tnz, Catali - Secrets(   Читать дальше...   )Жанр: Club, Vocal, Groove, Indie DanceПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266865   (268425) от 04.12.2018
-
-Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Bring Me to Life
-02 – Flames
-03 – Life Is a Rollercoaster
-04 – Don’t Stop Believin’(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338760   (268843) от 16.11.2019
-
-VA - Best Of Eurobeat Hi - Nrg Style (2019) [MP3|320 Kbps] <Funky, Club House>
+VA - Первый танцевальный, Vol. 14 (2017) [MP3|320 Kbps] <Pop, Dance>
 
 >>Pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268843.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Irene – Sunday (radio version) (3:19)
-02. Ricky Visconti – Man Is For Woman (radio version) (3:04)
-03. Masha – Never Before (radio version) (2:43)
-04. Riki Visconti – You Make Me Feel So Blue (radio version) (3:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:17
+01. Ева Польна - Глубокое синее море
+02. Градусы - Выходи за меня
+03. Нюша - Не боюсь
+04. MONATIK - То, от чего без ума(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E62296F9E4DADA5EFDC8619F7F00E4D5880B14EE
+magnet:?xt=urn:btih:CB38BFEF491FDC9644216B66BEEEB2A7EAE56631
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190098   (268892) от 08.12.2017
+###  Публикация: 1190505   (267764) от 09.12.2017
 
-Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
+Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_268892.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Outside Your Love (3:01)
-02. Lost In Wonderland (4:12)
-03. Don't Make It So Hard (3:20)
-04. Love Insight (5:01)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:41:45
+01. Ruleta (feat. Erick)
+02. Gimme Gimme
+03. My Dreams
+04. Tropical(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:46:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:542671E7DC8D4819C81A5C2212B30F12960B2EAE
+magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190086   (267769) от 09.12.2017
+
+VA - I love Italo Dance (Best Hits 90's Remixes) (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Disco Galera  -  The Sign (Zorro Version)  5:52
+02.  Ali Ba Ba  -  Hocus Pocus (Extended Version)  7:12
+03.  Angelo Branduardi  -  Ballo In Fa Diesis Minore (Celtika Extended Version)  6:15
+04.  B-1  -  Indian Summer (Solero Mix)  9:28(   Читать дальше...   )Жанр: Eurodance, Euro-House, DanceПродолжительность: 02:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FF3C073613E8C8D84A516626702B20BAF8FF7E
 ```
 
 

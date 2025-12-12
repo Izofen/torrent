@@ -1,680 +1,683 @@
-###  Публикация: 1603425   (1045757) от 09.01.2023
+###  Публикация: 1277247   (787007) от 19.01.2019
 
-VA - Keep It Disco Vol. 06 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
+Марина Серова | Талисман царя Дария (2009) [FB2]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045757.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. D.P.V. - Mosey Disco
-02. House Punkz - Spanish Disco
-03. Chemars - Love Is All Around
-04. Claudio Tempesta - Sex & Sun (Nu Disco Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:27:43 hrs
+Над талисманом, созданным жрецами персидского царя Дария, с самого начала тяготело проклятье. Его история была обагрена кровью и слезами. И в наши дни талисман продолжает свое кровавое шествие. На этот раз он был похищен у умершего ветерана войны. Расследование ведет частный детектив Татьяна Иванова. Ясно одно, похитил древнюю реликвию кто-то из родственников. Через (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5BFBC52B639347556EC854232597EACA359629B
+magnet:?xt=urn:btih:5010FC1F9ED7126F2D157257B27B5D09DB4B0E29
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603371   (1045758) от 09.01.2023
+###  Публикация: 1277236   (787008) от 19.01.2019
 
-Jim MacLeod and his band - 60 Minutes de danses écossaises (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Celtic, Folk>
+Линда Ла Плант | Флэш-Рояль (2018) [FB2]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045758.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Face 1:
-01.Duke And Duchess Of Edinburgh
-02.McDonald Of Sleat
-03.Circassian Circle(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603360   (1045759) от 09.01.2023
-
-Bobby Watson - Made In America (2017) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aviator (For Wendell Pruitt) [5:42]
-02. The Guitarist (For Grant Green) [5:12]
-03. The Butterfly (For Butterfly McQueen) [6:18]
-04. The Cyclist (For Major Taylor) [7:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB0BE7138195AAF64CE1927AB4E34773375A6D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603453   (1045760) от 09.01.2023
-
-Симона Вилар | Майсгрейв (2022) [MP3, Наталья Беляева]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граница между Англией и Шотландией – место непрекращающихся войн и столкновений. И вот, благодаря браку короля Шотландии и английской принцессы, появилась надежда, что в истерзанном краю наконец настанет мир.
+У миллионера Эдварда де Джерси есть все, что нужно для счастья: красавица-жена вдвое моложе его, любящие дочери, поместье, в котором он разводит скаковых лошадей. Но главная его страсть – скачки, и к призовому жеребцу по кличке Флэш-Рояль он относится почти как к сыну, мечтая увидеть его победу на главных соревнованиях – Дерби.
 
-На это надеется и рыцарь из Пограничья Дэвид Майсгрейв. Однако оказалось, что кажущееся благополучие обманчиво и шотландцы получают от французов оружие и деньги, (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 22:48:43
+Внезапно оказавшись на грани разорения (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1AEE3139C9F492D7EA256549363C0DFBC5656C7
+magnet:?xt=urn:btih:BCEDC65D6B842A01672CEFFA997C639988B0E5F8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603483   (1045761) от 09.01.2023
+###  Публикация: 1277109   (787009) от 19.01.2019
 
-Лев Кузьмин | Капитан Коко и Зеленое Стеклышко (2005) [MP3, Олег Шубин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это повесть-сказка известного пермского писателя Льва Кузьмина «Капитан Коко и Зелёное Стёклышко».
-Герои этой повести-сказки отправляются в увлекательное путешествие. Много приключений ожидает их в дальних странствиях. А в конце своего путешествия по волшебному Серебряному Меридиану они попадут в Самую Лучшую Страну…
-Доп. информация: Одна из самых первых записей (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D75DBBC03D48AA4593058357100E590EC54D1B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603419   (1045762) от 09.01.2023
-
-Мередит Митчел | Эмили (Книга 4). Пансион благородных убийц (2022) [MP3, Анастасия Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть невиннее благотворительного пансиона для юных барышень? Однако под крышей респектабельного на вид учебного заведения происходят по-настоящему жуткие дела, а воспитанниц его убивают. Берегитесь заглядывать в этот тихий омут, потому что там водятся настоящие черти!Жанр: детектив, триллерПродолжительность: 08:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB36FF4043284FA0A099DFFD9A763117B0FE6BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603158   (1045763) от 09.01.2023
-
-DJ Viper - 33 Oborota Compilation (2009) [MP3|~245 Kbps (V0)] <Progressive House>
+Robert Rich - Tactile Ground (2019) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045763.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Levente feat Shirley Levi - Vonat (07:48)
-02. Solila - Atlantis (Acos CoolKAs Night Mix) (05:18)
-03. Loverush UK & Molly Bancroft - Fountains Of Youth (Hybrid Heights Dub Mix) (05:05)
-04. Tristan Del Ray - Leaving The 80s (05:04)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:18:45
+Tactile Ground Part 1: Location
+01. The Sentience of Touch (09:02)
+02. Eroding Columns (07:58)
+03. Shrouded Latice (09:20)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:56:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E043920DE639D8AF9BC1FEA3A1119C76D29C6E4
+magnet:?xt=urn:btih:E27E85BF516606E5CD0E1D5EA1E7DBAE068CBBFF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603521   (1045764) от 09.01.2023
+###  Публикация: 1277031   (787010) от 19.01.2019
 
-After All - Eos (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+VA - Fokuz Recap (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lenzman - String City (Artificial Intelligence Remix)
+02.  Macca (DNB) - Always Yours (S.P.Y Remix)
+03.  The Vanguard Project - Still Together (Feat Pat Fulgoni)
+04.  Satl - Forward Thinking (Calibre Remix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B892517B25CCF6F3EA0F77C41F2EB693344E8F3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277086   (787011) от 19.01.2019
+
+Ultra Mood - Gatherings (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GatheringsЖанр: HardstyleПродолжительность: 00:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BC70B3E437F62DAA94096D8C9673E7BC685F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277155   (787012) от 19.01.2019
+
+Bay City Rollers - Best Of (1994) Series Music Reflexion [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On Dancing
+02. Remember
+03. Shang A Lang
+04. Summerlove Sensation(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB4E8CC3E11D11DFFF194EA70409E053E3BB705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277085   (787013) от 19.01.2019
+
+мАксима - Пароль Лир (2018) [MP3|320 Kbps] <Blues Rock, Blues, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лето
+02. Ты
+03. 9200
+04. Deja Vu(   Читать дальше...   )Жанр: Blues Rock, Blues, RockПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836E7501EDA45A35896ABE5254F007774420ECAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277258   (787014) от 19.01.2019
+
+С. Кудрявцев (ред.) | FARC-EP. Революционная Колумбия. История партизанского движения. (2003) [FB2].
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Революционные вооруженные силы Колумбии - Армия народа (FARC-EP)- крупнейшая повстанческая организация в мире. 40 лет борьбы под знаменем Боливара и Ленина. Что в итоге? Каковы перспективы? Партизаны рассказывают о себе.Жанр: политическая, военная, документальнаяПеревод: А.М. МайскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68077B9957FEEDB0716581C17FB626606C06A0CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277228   (787015) от 19.01.2019
+
+Аттракцион Воронова (A.V.) - Стар'ё (2018) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Два колеса
+02. Валенки
+03. Весёлый бог
+04. Всё ништяк!(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068D293C2842488C72D0C7E8A10618EA81520D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277080   (787016) от 19.01.2019
+
+Annie Moscow - Passing Trains (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone to Walk with Me
+02. What Everybody Else Wants
+03. He Paints Cats
+04. It's Just Water(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E6FB34D356624B4E94B37A23792C8013948B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277126   (787017) от 19.01.2019
+
+VA - The Official UK Top 40 Singles Chart 18.01.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Sweet But Psycho
+02. Mark Ronson, Miley Cyrus, Chris Elliott - Nothing Breaks Like a Heart
+03. Post Malone - Wow
+04. Sam Smith, Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2147A931E138FA72F230060C54EAE13DE269AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277246   (787018) от 19.01.2019
+
+VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Body Disconnect - Rise Of The Dormant Host (07:07)
+02. Hoshin - Souvenir From The Sacred (06:56)
+03. Keosz - Low Down (05:48)
+04. Sabled Sun - Overgrown (04:11)(   Читать дальше...   )Жанр: Electronic, Dark AmbientПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F675A0629649F14C5941AF837D35413C20AA90F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276909   (787019) от 19.01.2019
+
+VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Please Forgive Me
+02. Mariah Carey - Without You
+03. Michael Bolton - Said I Love You ... But I Lied
+04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277035   (787020) от 19.01.2019
+
+TrashMe 2.1.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787020.jpg" />
+</div>
+
+
+###  Подробнее
+
+TrashMe - утилита для удаления приложений, виджетов и связанных с ними файлов. Перетяните не нужное приложение на иконку TrashMe, а все остальное она сделает за вас, быстро и качественно. TrashMe представляет собой мощный деинсталлятор с дополнительными и полезными инструментами.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Jean-Baptiste ZEDDAПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D40AD100CE919065D1CD0777F7FE25682B359B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277069   (787021) от 19.01.2019
+
+VA - German Top 50 Official Dance Charts 18.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz;Erika Sirola - Speechless (feat. Erika Sirola)
+02. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Hugel;Amber Van Day - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4436E40D25E9491CFFA5BD8515CADC0841AF9EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277072   (787022) от 19.01.2019
+
+Б. И. Горев, Б. П. Козьмин (ред.) | Революционное движение 1860-х годов (1932) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник, подготовленный к печати в начале 1930-х гг. Секцией по изучению революционного движения в России 1830–1870-х гг. Всесоюзного Общества политкаторжан и ссыльнопоселенцев, включает в себя несколько крупных статей и ряд источников личного происхождения (в основном переписки), связанных с событиями в революционном движении 1860-х гг. Как отмечали в предисловии (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0E51807D78B298911710787D7817AACEE241C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277269   (787023) от 19.01.2019
+
+VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CDJ Dima Donskoi - They Need A Happy Childhood (Original Mix) 4:05
+02. Stas Exstas - Needz You (Original Mix) 3:35
+03. Red Sensor - Need (Original Mix) 6:13
+04. Alternative Experience - I Need You (Alex B-Cube & Simon Pagliari Mix) 5:04(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C913010639727F1C916DB3CBE5CB6172A2D256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277218   (787024) от 19.01.2019
+
+Mum & Dad - Castle Heights (2001) Single [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Pen 1 (0:42)
+ 02. Castle Heights (2:41)
+ 03. 6 Week Holiday (3:18)
+ 04. Big Pen 2 (1:59)(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD574775FA01820F568C35AD508543C96CFBCF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277133   (787025) от 19.01.2019
+
+Realmac 8 8.1 RapidWeaver Final Candidate 7 (build 20573b) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787025.jpg" />
+</div>
+
+
+###  Подробнее
+
+RapidWeaver 8 - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
+
+RapidWeaver отлично подойдет тем, кто ищет ПО для разработки красивого веб-сайта. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Realmac Software LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D5B93AF9CF1A46F113524AE984560D8CAFB4FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277157   (787026) от 19.01.2019
+
+VA - Schlager Aktuell 14 (2019) 2CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787026.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Michelle - Nicht verdient
+02. Beatrice Egli - Was geht ab
+03. Maite Kelly - Die Liebe siegt sowieso(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9509BE6BFC37565D848EC796823FAD74056B7B65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277230   (787027) от 19.01.2019
+
+VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Hertz - When It Happens (Original Mix) 3:52
+02. Israel Toledo & Lathan - When The Sun Goes Down (Paul Feris Remix) 6:57
+03. Israel Toledo & Lathan - When The Sun Goes Down (Otalora Remix) 7:02
+04. Nacim Ladj - When The End Comes (Original Mix) 6:18(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCED6C595754207308D2BBA415B9F47273045FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277217   (787028) от 19.01.2019
+
+Joseph Arthur & The Lonely Astronauts - Let's Just Be (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Ring (3:26)
+ 02. Good Life (4:24)
+ 03. Precious One (3:29)
+ 04. Spacemen (4:33)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957D0BD734ADF1EE64F525130C75B9B9332FF972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277235   (787029) от 19.01.2019
+
+VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unhappiness - Leaving Behind The Darker Days (Original Mix) 5:08
+02. March - Behind The Dark Matter (Original Mix) 1:36
+03. Roberth - Behind (Original Mix) 7:30
+04. Fortune - Behind You (Original Mix) 5:22(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECA1F74586435EA1C2B5D6C59AA7E8F06A109AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277248   (787030) от 19.01.2019
+
+VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caleb Weiss - Crowd Control (Original Mix) 7:33
+02. Nacim Ladj - Mind Control (Original Mix) 5:53
+03. Guido Bruzzese - Time Control (Original Mix) 6:38
+04. Umai Move & Kamikaze Bird Squad feat. Ellena Grace - Control Issues (Original Mix) 6:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063F08019A7E51B6A22DA9AB4371B6367ED8F7D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277152   (787031) от 19.01.2019
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts Vol.11 (2019) 2CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_787031.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Eloy de Jong - Regenbogen (Remix)
+02. Nicole - Traumfänger
+03. Jörg Bausch - Erst wenn's im Sommer schneit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D0CDAE7E7CC9104DF377997A3148A4D663BC3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277234   (787032) от 19.01.2019
+
+Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045764.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Premonition
-02. The Judas Kiss
-03. Deceptor
-04. Kindred Spirits(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:21
+01. T.L.C. (Tight 'lil Cunt) (4:22)
+ 02. Coated With My Semen (3:23)
+ 03. Unrelenting Homicidal Obsession (3:31)
+ 04. A Woman's Place Is on My Face (3:00)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC7A996B671055747C49E12DBD446EBBF6D160AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603366   (1045765) от 09.01.2023
-
-Red Norvo - 1944 - 1945 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [4:16]
-02. Seven Come Eleven [4:10]
-03. Which Switch Witch [2:45]
-04. The Bass On The Barroom Floor [3:12](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567A9EB0BC591984F2751581ECFAC82D1673D2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602966   (1045766) от 09.01.2023
-
-Unfound Reliance - We Are The Plague (2022) [FLAC|Lossless|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise (03:55)
-02. Fuck The System (03:17)
-03. Legacy (04:14)
-04. Sacrament (02:58)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B33CD0FFA735729B3F20BED132EE8658DC8EA22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603318   (1045767) от 09.01.2023
-
-Necrophobic - The Nocturnal Silence (1993) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening...
-02. Before The Dawn
-03. Unholy Prophecies
-04. The Nocturnal Silence(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5EACE74214523EA4768CA2A45DBE02D67631C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603298   (1045768) от 09.01.2023
-
-Angelic Forces - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture (00:31)
-02. Armageddon (04:18)
-03. Through the Fire (03:47)
-04. Against (04:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C85A47CB84A4FEE9184CCCF9B9AB959A27EA55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603363   (1045769) от 09.01.2023
-
-Beegie Adair - By Request (2017) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking a Chance on Love [3:05]
-02. East of the Sun [3:34]
-03. Autumn in New York [3:49]
-04. Love Nest [3:10](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01056836ED6FA400AB25B635B0B98E77A247E504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603384   (1045770) от 09.01.2023
-
-Antecantamentum - Saturnine December (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In the Green Petrichor (06:21)
-02 - Will You Save Yourself (05:21)
-03 - Valley of Deathly Reveries (13:49)
-04 - Wraith (07:27)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6C25315B9B5765C6DE40B6FCFC9F5BB7D6C7C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603297   (1045771) от 09.01.2023
-
-Nuclear Vomit - Bitches, Drugs and Broken Dreams (2021) [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diarrhoea since 1998
-02. Alconarcolepsy Burden
-03. Bukkake Blitzkrieg
-04. Analbusstop(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F156E756AFC28A13EB16E435798DD4F2DDC4EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603294   (1045772) от 09.01.2023
-
-Algol - Gorgonus Aura (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omniscient
-02. Restraint From My Desire
-03. The Quest for Archaism
-04. Exodus(   Читать дальше...   )Жанр: Melodic Death Metal, Black MetalПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE39AD0892E1389FFB624BB63648A14B598EE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603364   (1045773) от 09.01.2023
-
-Rex Stewart - 1947 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Cried For You [2:56]
-02. Stompin' At The Savoy [2:59]
-03. Madeleine [2:50]
-04. Muskrat Ramble [2:19](   Читать дальше...   )Жанр: SwingПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D4A37D03DD9BA321B6D4E60D2A045C177224E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603296   (1045774) от 09.01.2023
-
-Relevant Few - The Art Of Today (2004) [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There No Hope?
-02. No Savior
-03. The White Disease
-04. Pressure's On(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A9A904BEF535A2F063604641302374AF10E456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603292   (1045775) от 09.01.2023
-
-Nails - You Will Never Be One Of Us (2016) [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Will Never Be One of Us
-02. Friend to All
-03. Made to Make You Fail
-04. Life Is a Death Sentence(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3BA23EAF158F8880CFF9D1ABF9ABA6AE7D96E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603313   (1045776) от 09.01.2023
-
-Nervochaos - Quarrel In Hell (2006) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horde Of Demons
-02. Cursed Soul
-03. Televangelism
-04. Evocations(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4291DF40E182335560DD5EA7905EB1D0E7F258F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603328   (1045777) от 09.01.2023
-
-Zubrowska - One On Six (2003) [FLAC|Lossless|image + .cue] <Brutal Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 1:09
-02. Forkebabh 2:17
-03. Sex Drugs Basketball 2:26
-04. Do i Look Well 3:16(   Читать дальше...   )Жанр: Brutal DeathcoreПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20961B46A4F9F24A23C1C03CF7122CA4E6AE94B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029554   (1045778) от 08.01.2023
-
-Королева Юга / Queen of the South (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тереза покидает Мексику после того, как убивают её приятеля-наркокурьера. Обосновавшись в Испании, она стремится стать всевластным в стране контрабандистом наркотиков и отомстить за смерть своего любовника.Производство: США / Frequency Films, Friendly Films (II), Latina PicturesЖанр: триллер, драма, криминалРежиссер: Шарлотта ЗилингАктеры: Алиси Брага, Хемки Мадера, Питер Гадиот, Вероника Фалькон, Молли Барнетт, Джозеф Томас, Кампос, Ник Сагар, Жоакин де Алмейда, Сэнди Валлес, Фелипе БарриентосПеревод: Многоголосый профессиональный - LostFilmЯзык озвучки: русский, английскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7DDCA14C1440AC179CAEBF3D52A8916F1ABF48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418538   (1045779) от 08.01.2023
-
-Чародеи (1982) HDTV [H.264/1080i] (серии 1-2 из 2)
-
->>След.
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодняя сказка о том, что настоящая любовь может творить чудеса. В институте «НУИНУ» (научный универсальный институт необыкновенных услуг) кипит бурная работа по изготовлению волшебной палочки. Презентация изобретения намечена на 31 декабря, в Новогодний вечер. Но тут в дело вступают противники директора института, преследующие свои цели…Производство: СССР / Гостелерадио, Одесская киностудияЖанр: мюзикл, фантастика, мелодрама, комедияРежиссер: Константин БромбергАктеры: Александра Яковлева, Александр Абдулов, Екатерина Васильева, Валентин Гафт, Семён Фарада, Валерий Золотухин, Эммануил Виторган, Михаил Светин, Роман Филиппов, Анна Ашимова, Евгений Весник, Евгения Абрамова и др.Субтитры: отсутствуютПродолжительность: 01:10:20 + 01:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7AEA76E8ECE27ABDA338E8D0E1B5F1C026AA3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603068   (1045780) от 08.01.2023
-
-Пять дьяволов / Les cinq diables / The Five Devils (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вики обладает волшебным даром: она может унюхать и воспроизвести любой запах по своему выбору. Она собирает их в тщательно промаркированные банки. У одинокого ребенка очень сильная связь со своей матерью Джоанной. Когда в их жизни появляется сестра ее отца Джулия, Вики также начинает воспроизводить ее запах. Джулия недавно была освобождена из тюрьмы и Вики переносится (   Читать дальше...   )Производство: Франция / Angoa, Auvergne Rhône-Alpes CinémaЖанр: фэнтези, драма, мелодрамаРежиссер: Леа МисиусАктеры: Адель Экзаркопулос, Swala Emati, Sally Dramé, Moustapha Mbengue, Патрик Бушите, Daphne Patakia, Юго Дийон, Антония Буреси, Ноэ Абита, Charlotte Bon BornierПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FCF0E356B45FD6A0388DE1DF46B72AE6805CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591088   (1045781) от 08.01.2023
-
-С нуля (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045781.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2008 году двоюродные сестры, студентки Лена и Наташа, мечтают о красивой жизни, и каждая по-своему пытается покорить Москву, теряя по пути друзей, семью и достоинство. Через 13 лет сестрам вновь предстоит встретиться на похоронах отца одной и мужа другой. Лена не верит в несчастный случай и хочет отомстить Наташе, которую подозревает в убийстве. Тем более, что (   Читать дальше...   )Производство: Россия / Good Story MediaЖанр: драмаРежиссер: Василий БархатовАктеры: Надежда Калеганова, Маруся Фомина, Павел Табаков, Виктория Клинкова, Максим Виторган, Екатерина Волкова, Иван Фоминов, Тереза Диуро, Сергей Чонишвили, Марина КондратьеваПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5561AF26ACD0ECB192AE0D69AB2F07C67264D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412159   (1045782) от 08.01.2023
-
-Atomicrops (2020) [Ru/Multi] (1.6.1f1-g/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устал от городской суеты? Дядя как раз завещал тебе свою ферму. Собрал вещи, перебрался за город и готов наслаждаться мирной жизнью на лоне природы? Человек предполагает, а ядерная боеголовка располагает. Теперь твоя ферма – единственный источник пищи посреди ядерной пустоши, а вокруг толпы мутантов, тянущих загребущие лапы к выстраданному урожаю. Что делать? То (   Читать дальше...   )Тип издания: LicenseРазработчик: Bird Bath GameЖанр: Экшны, Симулятор, RoguelikeЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6A8670B9DB27C3E25B6999933E7F7C678929FD
+magnet:?xt=urn:btih:9CE3819334B6E5469A085DFC9173E580A7C3389F
 ```
 
 

@@ -1,700 +1,700 @@
-###  Публикация: 1362615   (948217) от 24.02.2020
+###  Публикация: 1319417   (484727) от 11.08.2019
 
-Little Scream ‎ - Cult Following (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Hapax - Monade (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, Gothic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948217.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_484727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome to the Brain (00:53)
-02. Love as a Weapon (04:53)
-03. Dark Dance (04:21)
-04. Introduction to Evan (00:31)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:13
+01. Creature Of Distance (04:55)
+02. Elegy (04:44)
+03. Parallel Words (04:16)
+04. Shining Lover (04:23)(   Читать дальше...   )Жанр: Synthwave, Gothic RockПродолжительность: 00:45:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90BF3FBEED5AC99157534564EAE3DC32E90FB5DD
+magnet:?xt=urn:btih:BE3AFD348D82A5E408726758ACB23371DF45B50A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362567   (948321) от 24.02.2020
+###  Публикация: 1319385   (484790) от 11.08.2019
 
-Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Operators - Radiant Dawn (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Synth-pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948321.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_484790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All I Ask
-02. Capital Letters
-03. Cut Up
-04. Grey Cell Green(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:09
+01. Days (04:12)
+02. I Feel Emotion (03:41)
+03. Faithless (06:33)
+04. (Public Void) (00:23)(   Читать дальше...   )Жанр: Indie Rock, Synth-popПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:377F92E86345E7EEA301D74CC6876811591CF781
+magnet:?xt=urn:btih:B8CCC80DE6B074E882F589587F7C914A64D43546
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982197   (948329) от 03.02.2016
+###  Публикация: 1319395   (484793) от 11.08.2019
 
-Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+Blisses B - Tell Your Friends You Love Them And Why (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948329.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_484793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rawkfist
-02. Fire It Up
-03. Phenomenon
-04. This Is A Call(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:36
+01. Twin Geeks (03:31)
+02. Pedals & Bam Bam (03:29)
+03. Cubic Zirconium (03:03)
+04. Six Plus One (02:36)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C4675F74C24357898744F6D11DC40E30EF4821F
+magnet:?xt=urn:btih:FE6C9883B9AD28D7522D130C796F4C4F8C7ABB99
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362764   (948504) от 24.02.2020
+###  Публикация: 1319423   (484798) от 11.08.2019
 
-Klangstof - Close Eyes to Exit (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948504.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_484798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Doolhof (05:16)
-02. Sleaze (03:53)
-03. Close Eyes to Exit (03:01)
-04. Hostage (04:31)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:15
+01. Birds in Train Stations (04:58)
+02. Lazy (04:35)
+03. Battlefords (05:16)
+04. Italy (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 51:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFD12781ACF6382F03A46D76EA2B8ECD610D7D72
+magnet:?xt=urn:btih:594FA6F5FF4F95E84DCBD0E3C776729383C1AB9B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362571   (948505) от 24.02.2020
+###  Публикация: 1404969   (487131) от 28.08.2020
 
-Indoor Pets - Be Content (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternative Metal, Rap-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948505.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_487131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hi (03:12)
-02. Teriyaki (02:13)
-03. Thick (03:26)
-04. Spill (My Guts) (03:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:35
+01. Scars that I'm Hiding [00:02:55]
+02. Brick [00:03:23]
+03. What I Get [00:03:03]
+04. Blind [00:02:45](   Читать дальше...   )Жанр: Post Hardcore, Alternative Metal, Rap-RockПродолжительность: 00:35:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B530ED3A07AAE61006B7A91ACB23660EE8A2A56
+magnet:?xt=urn:btih:A354D44179FAD9FD691387B85846D84202F6D37D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362474   (949585) от 23.02.2020
+###  Публикация: 1404936   (487285) от 28.08.2020
 
-The Amity Affliction - Everyone Loves You… Once You Leave Them (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_949585.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_487285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Coffin (01:55)
-02.All My Friends Are Dead (03:48)
-03.Soak Me In Bleach (03:46)
-04.All I Do Is Sink (03:34)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:36:25
+01. Metropolis [00:04:43]
+02. Gottficker [00:03:53]
+03. Blut [00:04:17]
+04. Die Krähe mit dem Schädelbauch [00:04:27](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:49:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A1FFA0CC9449E41BE731411E0D91745A0C2210F
+magnet:?xt=urn:btih:D459BBC513EDC1109E603832966D4722CDD61861
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361740   (952197) от 21.02.2020
+###  Публикация: 1319112   (488733) от 09.08.2019
 
-Agnes Obel - Myopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_952197.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_488733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Camera's Rolling (04:43)
-02. Broken Sleep (04:55)
-03. Island Of Doom (05:29)
-04. Roscian (02:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:47
+01. Time Won't Go Slowly (03:41)
+02. Chocolate (Reworked) (03:47)
+03. Crack The Shutters (Reworked) (03:16)
+04. Open Your Eyes (Reworked) (04:14)Жанр: Indie Pop, Indie RockПродолжительность: 00:14:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1FBB986E668F184947DEAACBBAA4B7E08F4FB37
+magnet:?xt=urn:btih:3B9BFCC0BF1BDAE3836B33D0831EE1BD9004E564
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361735   (954301) от 20.02.2020
+###  Публикация: 1055106   (490336) от 21.09.2016
 
-Best Coast - Always Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Baxter Dury - It's a Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_954301.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_490336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Different Light (03:12)
-02. Everything Has Changed (03:33)
-03. For The First Time (03:38)
-04. Graceless Kids (03:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:28
+1 - Pleasure
+2 - Palm Trees
+3 - Other Men's Girls
+4 - Police(   Читать дальше...   )Жанр: Indie Rock, Dream PopПродолжительность: 00:33:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D560341909C9D2685526576246F1F65DA1EBB525
+magnet:?xt=urn:btih:15191582211F8B2D9DAB177837190EA2D18B5BEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361505   (955923) от 19.02.2020
+###  Публикация: 1565492   (490440) от 25.07.2022
 
-Guided By Voices - Surrender Your Poppy Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Palisades - Reaching Hypercritical (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_955923.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_490440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Year of the Hard Hitter (04:01)
-02. Volcano (03:05)
-03. Queen Parking Lot (01:28)
-04. Arthur Has Business Elsewhere (02:54)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:38:43
+01. My Consequences (2:59)
+02. Reaching Hypercritical (3:22)
+03. Invincible (Die Down) (3:59)
+04. Your Misery (3:53)(   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:39:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE4395793B3B176DAC66384B6B2A34FE1F510D6
+magnet:?xt=urn:btih:D5DAEF897B37ECD1A6A1A55C9F720622A9664594
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 978842   (960682) от 25.01.2016
+###  Публикация: 1404561   (491179) от 26.08.2020
 
-Red Hot Chili Peppers - Greatest Hits (2006) 2CD, Compilation, 2008, Star Mark [FLAC|Lossless|image + .cue] <Alternative Rock>
+Guided by Voices - Mirrored Aztec (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_960682.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_491179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Warped 05:05
-02. Scar Tissue 03:38
-03. Tell Me Baby 04:09
-04. Around The World 04:00(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:23
+01. I Think I Had It. I Think I Have It Again (01:53)
+02. Bunco Men (02:21)
+03. Citizen's Blitz (01:58)
+04. To Keep an Area (02:20)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD3BCC20CDE506F19285A4EE52E2AAC501B4940D
+magnet:?xt=urn:btih:D3F25F409AA91F384C8B0E86F5368C7FA7371ADF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360129   (961852) от 14.02.2020
+###  Публикация: 1404555   (491312) от 26.08.2020
 
-Hollywood Undead - New Empire, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore>
+The All-American Rejects - Rejects Faves (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_961852.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_491312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Time Bomb (3:37)
- 02. Heart Of A Champion (3:30)
- 03. Already Dead (3:57)
- 04. Empire (3:59)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 00:32:09
+01. Dance Inside
+02. Damn Girl
+03. Another Heart Calls
+04. Stab My Back(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:54:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B527224A9D03F5A4B05E3BE6A598949BC7849E8
+magnet:?xt=urn:btih:A2270FDD0EE39D9F210073A8357DD8DA3DB456CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359701   (963157) от 13.02.2020
+###  Публикация: 1404651   (491475) от 26.08.2020
 
-Khruangbin & Leon Bridges - Texas Sun (2020) EP [FLAC|Lossless|tracks + .cue] <Psychedelic, Soul>
+Glasswork - Metabole (2020) [FLAC|Lossless|image + .cue] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_963157.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_491475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Texas Sun [04:16]
-02. Midnight [05:17]
-03. C-Side [04:45]
-04. Conversion [06:48]Жанр: Psychedelic, SoulПродолжительность: 00:21:06
+01. Blackspot (06:05)
+02. Tales From The Cave (05:38)
+03. The Decision (07:39)
+04. Barbarian Assimilation (02:40)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:04:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D335CFE54BF217AAB661A5F9A2CF5E48BF3BB680
+magnet:?xt=urn:btih:5E6C87B9F4FC0FE50A589EA73F631CE0CF9CF0F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359685   (963211) от 13.02.2020
+###  Публикация: 1404569   (491477) от 26.08.2020
 
-Julian Cope - Self Civil War (2020) [FLAC|Lossless|tracks + .cue] <Krautrock, Alternative Rock, Experimental>
+Spun Out - Touch the Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_963211.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_491477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10. That Ain’t No Way to Make a Million [07:22]
-02. A Cosmic Flash [06:40]
-03. You Will Be Mist [05:32]
-04. The Great Raven [05:54](   Читать дальше...   )Жанр: Krautrock, Alternative Rock, ExperimentalПродолжительность: 01:12:02
+01. Another House [04:25]
+02. Such Are the Lonely [03:5]1
+03. Dark Room [04:07]
+04. Running It Backwards [04:21](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDCF625566114DC258330BF748558AD8E7E093E5
+magnet:?xt=urn:btih:85E092DE83D099B66D548F91D2D77FDD2CD0E2B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359390   (964312) от 12.02.2020
+###  Публикация: 936619   (491531) от 13.09.2015
 
-Arborist - Home Burial (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Country-Alt>
+Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_964312.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_491531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Crow [02:12]
-02. Dark Stream [03:54]
-03. A Man of My Age [06:39]
-04. I Heard Him Leaving [03:52](   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Country-AltПродолжительность: 00:43:45
+01. Doomed
+02. Happy Song
+03. Throne
+04. True Friends(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:45:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE6BAECC863F2318B56156A8C45EAE638E10888F
+magnet:?xt=urn:btih:1FF3221BB4FC45A535A7876DA84651DB9D6CF49F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359206   (965180) от 11.02.2020
+###  Публикация: 1243285   (492114) от 27.08.2018
 
-Arborist - A Northern View (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Country-Alt>
+The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_965180.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_492114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Stranger Heart [04:11]
-02. Here Comes the Devil [03:49]
-03. The Guttural Blues [04:01]
-04. Taxi [05:20](   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Country-AltПродолжительность: 00:46:26
+01. Ivy (Doomsday)
+02. Feels Like I'm Dying
+03. Holier Than Heaven
+04. Burn Alive(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:43:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED6640B7969271F37EAAEB47B6AA30F3BF63CA6A
+magnet:?xt=urn:btih:347624CDFBC82A9A7DBF81BBEF1D07E9B85F50E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 977692   (965690) от 21.01.2016
+###  Публикация: 1054154   (492237) от 20.09.2016
 
-The Dead Weather - Dodge & Burn (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
+The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] <Industrial Rock, Synth-Gothic>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_965690.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_492237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Feel Love (Every Million Miles) (03:16)
-02. Buzzkill(er) (03:08)
-03. Let Me Through (04:18)
-04. Three Dollar Hat (03:24)(   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:42:47
+01. Over (04:03)
+02. Remember Me (04:59)
+03. Under the Stairs (03:59)
+04. The Birthday Massacre (03:36)(   Читать дальше...   )Жанр: Industrial Rock, Synth-GothicПродолжительность: 00:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2BB3B83D1C4329F8A8D720198DBFEAA0BE2B906
+magnet:?xt=urn:btih:E2D55B6095EE505F09560EA9053B315E742E1C0F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358708   (967226) от 09.02.2020
+###  Публикация: 1318570   (492836) от 07.08.2019
 
-Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_967226.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_492836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Father Of All... (02:31)
-02. Fire, Ready, Aim (01:53)
-03. Oh Yeah! (02:51)
-04. Meet Me On The Roof (02:40)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:26:17
+01. Son of Sam (03:04)
+02. Somebody That I Used to Know (02:09)
+03. Junk Bond Trader (03:49)
+04. Everything Reminds Me of Her (02:37)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:10:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFF8DD668DCFFA493F76ADF49B04CFC8B83D199F
+magnet:?xt=urn:btih:D169D0C31DF3D3277DC42967FA52915C92F0D8FA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358751   (967425) от 09.02.2020
+###  Публикация: 1318691   (492841) от 07.08.2019
 
-Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave, 80s>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_967425.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_492841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little God                                                            [04:59]
-02. Strangers with Nothing to Lose                                        [04:48]
-03. Lonely Man                                                            [03:36]
-04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
+01. Upstairs (3:17)
+ 02. Bruises (3:40)
+ 03. Influenza (Release) (3:46)
+ 04. Always a Flame (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New Wave, 80sПродолжительность: 01:14:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
+magnet:?xt=urn:btih:552165209756096B791D6F2ABA7DF708565CE268
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358581   (967498) от 09.02.2020
+###  Публикация: 1242655   (496028) от 25.08.2018
 
-Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop>
+Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, British Trad Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_967498.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_496028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afterglow (Alternative Version) (Bonus Track) (04:49)
-02. Unbound (Alternative Version) (Bonus Track) (03:52)
-03. Where Is My Mind? (Bonus Track) (04:06)
-04. Trust (Bonus Track) (03:11)Жанр: Indie PopПродолжительность: 00:59:35
+01. Madame Helga (3:54)
+02. Bank Holiday Monday (3:12)
+03. Rewind (4:27)
+04. My Friends (3:36)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, British Trad Rock |Продолжительность: 01:19:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
+magnet:?xt=urn:btih:A3AAC67C21EE8671C95867D079545430D4959375
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 428789   (968435) от 08.02.2020
+###  Публикация: 1243141   (496099) от 25.08.2018
 
-Mando Diao - 11 альбомов (2002 - 2019) [FLAC|Lossless|tracks + .cue]<Indie Rock, Garage>
+The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_968435.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_496099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mando Diao - шведская рок-группа, история котрой начинается в 1999 году в Бурленге. Название группы, по словам самих музыкантов, не имеет определённого смысла, однажды лидеру банды Бьорну Диксгорду приснился странный человек, который бежал ему навстречу и кричал "Мандо Диао". Дебютный альбом Bring 'Em In, вышедший в сентябре 2002 года получил хорошую критику, (   Читать дальше...   )Список альбомов:
-2002 - Bring 'Em In
-2004 - Hurricane Bar
-2006 - Ode To OchrasyЖанр: Indie Rock, GarageПродолжительность: Кодек: FLAC
+01. Nervous Mary (2:29)
+ 02. Wait in the Car (2:03)
+ 03. All Nerve (2:11)
+ 04. MetaGoth (3:09)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:33:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F31EB36219E440B478BA1EFAD7FE555CC4F0F12
+magnet:?xt=urn:btih:B187ABDC4F3CAA163733FB46540D3803D67A879A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357747   (970741) от 06.02.2020
+###  Публикация: 1564874   (497734) от 21.07.2022
 
-Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
+Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_970741.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_497734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get Up (02:33)
-02. Is It Real (03:05)
-03. Everything Else Has Gone Wrong (04:09)
-04. I Can Hardly Speak (03:59)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:41:40
+01. Wake Me Up
+02. Paranoia
+03. Enough (feat. Will King)
+04. Without You(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:28:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E4A66DD764AF3059FF07DC7C71F30DF4C869AED
+magnet:?xt=urn:btih:53584BBC2653DA15C8AC349786D2F7CAA2834555
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356010   (979123) от 30.01.2020
+###  Публикация: 935447   (498415) от 09.09.2015
 
-Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_979123.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_498415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crimson Tide (06:09)
-02. Kinda Dark (03:25)
-03. It Just Doesn’t Happen (05:01)
-04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 42:11
+1	Get Away
+2	T-Shirt Weather
+3	Fossils
+4	Lost It(   Читать дальше...   )Жанр: Alternetive Rock, Indie RockПродолжительность: 00:49:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
+magnet:?xt=urn:btih:CE3F97B5B5F26A6D822E702072C8BA6C7718B864
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356013   (980563) от 29.01.2020
+###  Публикация: 935364   (499404) от 08.09.2015
 
-TORRES - Silver Tongue (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Hail The Ghost - Forsaken (2015) [FLAC|Lossless|WEB-DL]<alternative rock, indie>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_980563.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_499404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good Scare (03:35)
-02. Last Forest (03:44)
-03. Dressing America (03:59)
-04. Records of Your Tenderness (02:47)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:31
+01. Nostalgia 04:24
+02. Colony of Ants 03:46
+03. Ink & Blood 03:39
+04. Gabriel 03:52(   Читать дальше...   )Жанр: alternative rock, indieПродолжительность: 00:41:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24514E825593D651AB991E1B6F42AF699F401C2A
+magnet:?xt=urn:btih:FFCCF8BFBFB8B7FB381B905485C391EA0F479ACC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355995   (980568) от 29.01.2020
+###  Публикация: 935207   (499456) от 08.09.2015
 
-We Are the City - RIP (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+British India - Nothing Touches Me (2015) [FLAC|Lossless]<Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_980568.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_499456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Killer B-Side Music (04:05)
-02 - Song in My Head (02:57)
-03 - Night Guest (03:07)
-04 - Obviously (04:27)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:08
+01. Spinderchords
+02. Angela
+03. Suddenly
+04. Wrong Direction(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:47:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD839E77BE42B31E8B090DAA275A11BB3ED4D589
+magnet:?xt=urn:btih:C6CE957DF3CAE3093B0362D63AFCBFB59B3E4779
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355382   (983620) от 26.01.2020
+###  Публикация: 1317591   (500281) от 01.08.2019
 
-Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] <Krautrock, Alternative Rock, Experimental>
+Skillet - Victorious (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_983620.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_500281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sandoz
-02. Positive Drug Test
-03. John Balance Enters Valhalla
-04. John Valour(   Читать дальше...   )Жанр: Krautrock, Alternative Rock, ExperimentalПродолжительность: 00:49:44
+01. Legendary
+02. You Ain't Ready
+03. Victorious
+04. This Is the Kingdom(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3EB2E544CC1E226140197E16DE30B0134B0DE49
+magnet:?xt=urn:btih:76D4DC822C1EA618A1803D1859CFA7B5590E96BD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354813   (986166) от 24.01.2020
+###  Публикация: 1564197   (500653) от 18.07.2022
 
-Andy Shauf - The Neon Skyline (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
+black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progressive Rock, Experimental>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_986166.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_500653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neon Skyline (03:38)
-02. Where Are You Judy (03:21)
-03. Clove Cigarette (02:55)
-04. Thirteen Hours (02:58)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:34:50
+01. Hellfire (01:24)
+02.Sugar/Tzu (03:50)
+03.Eat Men Eat (03:08)
+04.Welcome To Hell (04:09)(   Читать дальше...   )Жанр: Avant-Garde, Progressive Rock, ExperimentalПродолжительность: 00:38:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D8334A1E4623A544F27809C0B2B3F3E0C6EDE04
+magnet:?xt=urn:btih:68ED904C1D0397729C8CF7A241F33479B54223CE
 ```
 
 

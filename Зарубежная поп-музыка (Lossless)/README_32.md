@@ -1,696 +1,697 @@
-###  Публикация: 1389636   (783921) от 12.06.2020
+###  Публикация: 1186431   (284239) от 26.11.2017
 
-Frankie Goes To Hollywood - Welcome To The Pleasuredome (1984) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_783921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Is My Oyster-Snatch Of Fury (Stay) (1:58)
-02. Welcome To The Pleasure Dome (13:39)
-03. Relax (Come Fighting) (3:56)
-04. War (And Hide) (6:14)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7781725183440E0E0F3367E2C2E7A3F3913CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389748   (783930) от 12.06.2020
-
-Mariah Carey - Music Box (1993) Columbia CCK 53205 [FLAC|Lossless|image + .cue]<Pop, R&B>
+Charlotte Gainsbourg - Rest (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_783930.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamlover (3:54)
- 02. Hero (4:20)
- 03. Anytime You Need A Friend (4:26)
- 04. Music Box (4:58)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:41:59
+01. Ring-a-Ring o' Roses (4:30)
+ 02. Lying with You (3:19)
+ 03. Kate (3:41)
+ 04. Deadly Valentine (6:05)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:48:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D73EFA954A7631F66948BDE5E662B8D4712E00E3
+magnet:?xt=urn:btih:6543205967D66DC6474069D022EB27ADE710D7AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389639   (783937) от 12.06.2020
+###  Публикация: 1264014   (284334) от 21.11.2018
 
-The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cue] <Rock & Roll>
+Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [FLAC|Lossless|tracks] <Pop Rock, New Wave>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_783937.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Will Dare (3:17)
-02. Favorite Thing (2:20)
-03. We're Comin' Out (2:21)
-04. Tommy Gets His Tonsils Out (1:54)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:59
+01. Doesn't Really Matter
+02. Standing in the Dark
+03. Sad Sad Rain
+04. Take It From Me(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:37:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88650D50D2EDCA4B9C4BE9E49E2E5D131C1BDA96
+magnet:?xt=urn:btih:F71AF4CD92D6A0934DBD7AE48644BB4EB88A12FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007168   (823490) от 14.04.2016
+###  Публикация: 1264002   (284359) от 21.11.2018
 
-Kiley Dean - Scream (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
+VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Jazz, Easy Listening>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_823490.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scream
-02. Lockdown
-03. Backseat
-04. A Million Miles(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:18:03
+01. Frankie Valli - Can't Take My Eyes Off You
+02. Shirley Bassey - (Where Do I Begin) Love Story
+03. Fred Astaire - My Eyes Adored You
+04. Vera Lynn - Besame Mucho (Kiss Me)(   Читать дальше...   )Жанр: Pop, Vocal Jazz, Easy ListeningПродолжительность: 01:19:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA918717F6C61A6A7738D8099F50493F82B94F8B
+magnet:?xt=urn:btih:BEC4DFEB769746577FCCE5D255EE20141468B106
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 775372   (823617) от 09.04.2014
+###  Публикация: 1335844   (284391) от 04.11.2019
 
-VA - Pure... Love (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
+Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_823617.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляю вашему вниманию очередной боксет от Sony Music (остальные части серии по ссылке ниже). Добавить к названию можно только то, что весной, конечно, найдутся у этого сборника благодарные слушатели. Ну и на здоровье!CD1:
-Продoлжитeльность: 01:06:38
- 01. Whitney Houston - Greatest Love Of All (Remastered 2000) (4:50)
-02. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:19:16
+01. Flying On My Own
+02. Lovers Never Die
+03. Falling In Love Again
+04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A003FEAF672D7028F928380C45A8C44422AD70
+magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116424   (824429) от 19.03.2017
+###  Публикация: 1263821   (284498) от 21.11.2018
 
-VA - 12 Inch Dance: 80s Remix (2017) [FLAC|Lossless|WEB|tracks] <Pop, Synthpop, Eurodance>
+VA - Love Songs (1999) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_824429.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
-02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
-03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
-04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:16
+CD1:
+01 Youssou N'dour & Neneh Cherry - 7 Seconds 04:09
+02 Wham! - Where Did Your Heart Go 05:44
+03 Fugees - No Woman, No Cry 04:19(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66497F42D254B320A46739731BE1DB6C01FCD48F
+magnet:?xt=urn:btih:1C0A8B6E994E506714B877D2E5B825040EEEFCE6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381651   (824809) от 08.05.2020
+###  Публикация: 1263968   (284505) от 21.11.2018
 
-I Break Horses - Warnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+Platinum Blonde - Now & Never (2012) [FLAC|Lossless|tracks + .cue] <Electronic Pop Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_824809.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turn (09:00)
-02. Silence (04:28)
-03. l a r m (01:03)
-04. I'll Be The Death Of You (04:37)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:06
+01. Valentine
+02. Beautiful
+03. Satellite
+04. From Here(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:38:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3963F03240E3653A6F34A1BEC467A2C972DBA2F0
+magnet:?xt=urn:btih:611D7B03A92C2DB6891632AFAB314793EB83B4D6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006804   (825176) от 13.04.2016
+###  Публикация: 1335650   (284548) от 04.11.2019
 
-Alexandra Stan - Cliche (Hush Hush) (2013) Japanese Limited Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop, Euro House>
+Celine Dion - Courage (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_825176.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_284548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mr. Saxobeat (03:15)
-02. Ting Ting (03:56)
-03. Show Me The Way (03:44)
-04. Lollipop (Param Pam Pam) (03:55)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, Europop, R&B, BalladПродолжительность: 00:53:15
+01. Flying On My Own 3:32
+02. Lovers Never Die 2:51
+03. Falling In Love Again 3:51
+04. Lying Down 3:59(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65877C0CE5388CD9135F31F966FB678F2F08E0E0
+magnet:?xt=urn:btih:5B8CFD2A6E280E2CF578E5D0E498D28C810C65D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006775   (825180) от 13.04.2016
+###  Публикация: 963642   (285321) от 09.12.2015
 
-Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk & Soul, R&B, Dancepop>
+Enrique Iglesias - Sex and Love (2014) Deluxe Edition [FLAC|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_825180.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_285321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sax (3:56)
-02. Breakfast (3:24)
-03. More And More (3:55)
-04. Gold Watch (3:32)(   Читать дальше...   )Жанр: Pop, Funk & Soul, R&B, DancepopПродолжительность: 00:54:23
+01. I'm A FreakЖанр: PopПродолжительность: 01:14:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F0C6607913384E0F4422419ED8129E3068CBA0F
+magnet:?xt=urn:btih:7205D77FCB6710E46E7963C2E0995D90E36D9ED0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007037   (825482) от 13.04.2016
+###  Публикация: 963929   (285493) от 09.12.2015
 
-Camp Claude - Swimming Lessons (2016) [FLAC|Lossless|tracks] <Indie Pop, Electro-pop>
+Gloria Estefan - Unwrapped (2003) [FLAC|tracks+.cue]<Latin, Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_825482.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_285493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hurricanes 04:03
-02. Don't Hold Back 03:12
-03. In the Middle 03:36
-04. Golden Prize 03:06(   Читать дальше...   )Жанр: Indie Pop, Electro-popПродолжительность: 00:35:56
+Документальный фильм о Глории Эстефан на английском языке01. Tu Fotografía (3:49)
+02. Te Amaré (3:03)
+03. Mientras Tanto (3:38)
+04. Hoy (3:28)(   Читать дальше...   )Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:57:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B640546D045CEAA0651BEE02ACE692D8F83A246
+magnet:?xt=urn:btih:7C6C67E9175281FBF87B4564FFB97BAEA27ACDF6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 774651   (827145) от 07.04.2014
+###  Публикация: 963885   (285504) от 09.12.2015
 
-VA - 100 Hits: 70s (2007) [FLAC|Lossless]<Top 40, Pop, Rock, Disco, Funk & Soul, New Wave, Glam>
+Demis Roussos - The Singles+ (2003) 2CD [FLAC|image+.cue]<Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_827145.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_285504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carly Simon - You're So Vain (1972) - 4:20
-02. Alvin Stardust - My Coo Ca Choo (1973) - 2:47
-03. Guys & Dolls - There's A Whole Lot Of Loving (1974) - 3:15
-04. Michael Nesmith - Rio (1976) - 4:31(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Classic Rock, Pop Rock, Disco, Funk &Soul, Folk, World, & Country, Folk Rock, Prog Rock, Punk, New Wave, Glam, Doo-wop, RockabillyПродолжительность: 01:15:09
+01. We Shall Dance 3:33
+02. Fire And Ice 4:33
+03. No Way Out 3:10
+04. My Reason 3:58(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECEA1FDE1129EF77C5695E41C7652731ECEC0478
+magnet:?xt=urn:btih:F8C79EAFC44F9E7B1099D4068516415160C76222
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 773336   (829011) от 06.04.2014
+###  Публикация: 963754   (285786) от 09.12.2015
 
-VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
+Demis Roussos - Attitudes + Bonus tracks from Reflection (1995) [FLAC|image+.cue]<Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_829011.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_285786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В ответ на американские санкции публикую очередной сборник американских песен, изданных Sony Music в 2011 году. Интересно, что на ebay его жанр определили как Country, а уж на AllMusic разошлись - здесь целый букет: Adult Contemporary, Adult Contemporary R&B, AM Pop, Contemporary Pop/Rock, Country-Pop. Так что выбирайте, что вам хочется послушать больше из списка.01. Boston - More Than A Feeling  (3:31)
-02. The Calling - Wherever You Will Go  (3:29)
-03. Train - Drops Of Jupiter (Tell Me)  (4:21)
-04. Phantom Planet - California  (3:15)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:17:43
+01.Follow Me 7:21
+02.Pretender 5:02
+03.Planet Earth Is Blue 5:42
+04.Deepest Of All 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
+magnet:?xt=urn:btih:1EB0DBB04E1F493C61C986259DB2F76AFF8ACAC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381200   (829668) от 05.05.2020
+###  Публикация: 1186660   (286017) от 25.11.2017
 
-VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, Italo-Disco>
+Bjork (Björk) - Utopia (2017) [FLAC|Lossless|tracks + .cue] <Pop, Experimental>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_829668.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_286017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 -	Party Time/Salsa Mix	10:06
-1.1	Piano Groove
-1.2	Ritmo De La Noche
-1.3	Everybody Salsa(   Читать дальше...   )Жанр: Medley, Cover, Italo-DiscoПродолжительность: 00:48:50
+01. Arisen My Senses
+02. Blissing Me
+03. The Gate
+04. Utopia(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 01:11:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95F9B61CD4B3B88377D28001D699F67103EBA8BA
+magnet:?xt=urn:btih:119D8BA42D42380B4FFC9CBEA336A56D83B35BB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114835   (829704) от 16.03.2017
+###  Публикация: 1263683   (286296) от 20.11.2018
 
-Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
+Die Priester - Das Beste (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Crossover, Gregorian Chant>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_829704.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_286296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. African Bood
-02. Fly With Me
-03. It Ain't Easy
-04. Ain't Gonna Feel(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:21
+01. Spiritus Dei
+02. Hallelujah
+03. Glorificamus Te
+04. Die Moldau(   Читать дальше...   )Жанр: Pop Crossover, Gregorian ChantПродолжительность: 01:12:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13810043CC0B4A9C8AB816016ABA9E0F21005B63
+magnet:?xt=urn:btih:990A1A7A68C271567DC187FB9236A8C31F3AAB27
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381187   (829753) от 05.05.2020
+###  Публикация: 1263731   (286303) от 20.11.2018
 
-VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+SX - Eros (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_829753.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_286303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Montez - Lets Dance (2:08)
-02. Mungo Jerry - In the Summertime (3:28)
-03. Safaris - Wipe Out (2:16)
-04. Rubettes - I Can Do It (3:14)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:25
+01. Designed/Desire 03:18
+02. Devotion 03:55
+03. Real Life 03:50
+04. Give 04:05(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89CEBFA9805DDE543556672D021B7E84E8B58577
+magnet:?xt=urn:btih:7CA7C6128ABC9481D62BEF0E89EDB7C457C8B780
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381177   (829843) от 05.05.2020
+###  Публикация: 1335379   (287358) от 02.11.2019
 
-Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_829843.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_287358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Medley 1960: Theme song - Shop around - He will break your heart - Stay - Chain gang - Cathy's clown - It's now or never - Let the little girl dance (9:12)
-02. Medley 1961: Please Mr. postman - Some kind of wonderful - Will you love me tomorrow - Raindrops - Ya ya - Mother-in-law - A hundred pounds of clay (7:01)
-03. Medley 1962: Zip a dee doo dah - Twist and (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:45:07
+CD1:
+1. The Sign (3:11)
+2. All That She Wants (3:32)
+3. Wheel Of Fortune (3:42)(   Читать дальше...   )Жанр: Synth-Pop, Euro PopПродолжительность: 02:57:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67DD20058D1C6E5507C32CF46C3D839AEF3D916F
+magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502072   (830215) от 13.10.2021
+###  Публикация: 963387   (287443) от 08.12.2015
 
-Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French Hip-Hop, Chillwave>
+Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Europop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830215.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_287443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Premier (2:22)
- 02. Neige (2:15)
- 03. Loues (2:19)
- 04. Magic berber (feat. Merwan) (3:45)(   Читать дальше...   )Жанр: Alternative Pop, French Hip-Hop, ChillwaveПродолжительность: 00:24:46
+01. If Ya Gettin Down (Live) (3:12)
+02. Keep On Movin' (Live) (4:01)
+03. Don't Wanna Let You Go (Live) (2:55)
+04. Everybody Get Up (Live) (3:41)(   Читать дальше...   )Жанр: Pop Rap, Ballad, EuropopПродолжительность: 00:56:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADFA2E17F47FD82D03C26FBDD8BCD5A1948B090D
+magnet:?xt=urn:btih:A5597C9708B5CBF544F90F9BA3927013C6896570
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005871   (830808) от 10.04.2016
+###  Публикация: 1335340   (287544) от 02.11.2019
 
-All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
+Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830808.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_287544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четвёртый альбом выпущенный с промежутком в 10 лет.01. One Strike (03:34)
-02. One Woman Man (04:01)
-03. Make U Love Me (03:46)
-04. Summer Rain (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:41
+01. Norman Fucking Rockwell [04:08]
+02. Mariners Apartment Complex [04:07]
+03. Venice bitch [09:37]
+04. Fuck It I Love You [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C49B615B8D234EB76E132734A425B3AF4D06786
+magnet:?xt=urn:btih:8B78A5CD76071BE4D016EC125FB99CF596298744
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 133754   (830999) от 15.03.2017
+###  Публикация: 1263376   (287807) от 19.11.2018
 
-Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Funk>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_830999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курт ХАУНСТЕЙН родился в Вене и еще в юности увлекся музыкой. Однако, поняв, что в Австрии особого успеха на этом поприще не добьешься, он решил перебраться в Германию. Там Курт познакомился с Фрэнком ФАРИАНОМ, продюсером BONEY M, и какое-то время поработал с ним. Также ХАУНСТЕЙН участвовал в различных танцевальных и фанк-проектах. Особенно ему нравились выступления (   Читать дальше...   )Жанр: Soul, Reggae / Electronic, Funk
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380767   (831360) от 04.05.2020
-
-VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+VA - BRAVO The Hits 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831360.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_287807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
-02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
-03. Halsey - Graveyard  (3:01)
-04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
+01. Dynoro & Gigi D'Agostino - In My Mind (3:03)
+02. Calvin Harris & Dua Lipa - One Kiss (3:33)
+03. Rudimental feat. Jess Glynne, Macklemore & Dan Caplen - These Days (3:31)
+04. DJ Snake feat. Selena Gomez, Ozuna & Cardi B - Taki Taki (3:32)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 02:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
+magnet:?xt=urn:btih:5069137C11219A31AD5161562B0C83FE3558E41E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380531   (831451) от 04.05.2020
+###  Публикация: 963284   (288949) от 07.12.2015
 
-VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
+Kim Wilde - Wilde Winter Songbook (2015) Deluxe Edition [FLAC|tracks] <Pop, Holiday>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831451.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_288949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. UB40 - (I Can't Help) Falling In Love With You (3:24)
-02. Bryan Ferry - Slave To Love (4:18)
-03. Cat Stevens - Wild World (3:20)
-04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
+01. Winter Wonderland (Feat.Rick Astley) (2:47)
+02. Hope (3:56)
+03. One (3:30)
+04. Have Yourself a Merry Little Christmas (3:14)(   Читать дальше...   )Жанр: Pop, HolidayПродолжительность: 01:03:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
+magnet:?xt=urn:btih:7F1EBD79D85380CBA2947B9D295510D7DD4CB854
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380697   (831666) от 04.05.2020
+###  Публикация: 1185975   (289670) от 23.11.2017
 
-Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+Dalida - Music Box (2004) [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831666.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_289670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Crash My Car [0:03:53.70]
-02. Rich People [0:04:32.20]
-03. Empty Rooms [0:04:23.55]
-04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
+01. Femme (Smile)
+02. Soleil Soleil
+03. Darla Dirladada
+04. Laisser-Moi Dancer(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
+magnet:?xt=urn:btih:F62DAD451BE53C6F8E6D83D9D759BD8A54841F77
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114657   (831980) от 15.03.2017
+###  Публикация: 1335262   (289740) от 01.11.2019
 
-VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
+Celine Dion - D’elles (2007) [FLAC|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_831980.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_289740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ike & Tina Turner - Please, Please, Please [06:57]
-02. Jerry Thomas - Feel So Good [03:22]
-03. Vanetta Fields - The Love Of My Man [04:01]
-04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
+01 - Et sТil nТen restait quТune (je serais celle.la) [3:30]
+ 02 - Immensite [3:35]
+ 03 - A cause [3:14]
+ 04 - Je cherche lТombre [3:13](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
+magnet:?xt=urn:btih:0E3127D31A9636D826CC28312603298853C93DD6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114344   (832156) от 15.03.2017
+###  Публикация: 1263018   (291398) от 17.11.2018
 
-Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+Hooverphonic - Looking For Stars (2018) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Trip-Hop, Lounge>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_832156.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_291398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Give Up On Your Health
-02. Do Harm
-03. Small Towns
-04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
+01. Lethal Skies (3:56)
+02. Paranoid Affair (3:05)
+03. Romantic (3:15)
+04. Uptight (3:25)(   Читать дальше...   )Жанр: Dream Pop, Trip-Hop, LoungeПродолжительность: 00:37:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
+magnet:?xt=urn:btih:41134BA4F8FE2D65E4013A98606FC3E3DE9B1F93
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501761   (833543) от 11.10.2021
+###  Публикация: 1334936   (291513) от 31.10.2019
 
-VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
+Julio Iglesias - Fidele & 1100 Bel Air Place (1995) 1981 и 1984, Star Ltd. [FLAC|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_833543.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_291513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
-01. The Weeknd - Blinding Lights  (3:23)
-02. Sheppard - Die Young  (3:24)
-03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
+01. Viens M'Embrasser [03:31]
+02. Une Chanson Qui Revient [04:39]
+03. Les Derobades [03:33]
+04. L'Amour Au Grand Soleil [03:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
+magnet:?xt=urn:btih:81AEFF323574BD998EEB9B78EA24D25E9B712DBC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501756   (833546) от 11.10.2021
+###  Публикация: 962554   (292841) от 05.12.2015
 
-VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+Tanita Tikaram - The Best Of Tanita Tikaram (1996) [FLAC|tracks+.cue]<Pop Rock, Soft Rock, Ballad>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_833546.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_292841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как то давно на трекере не было выпусков от известной нидерландской радиостанции 538. Последний был 91-й аж почти два года назад. Между тем Sony Music с завидной периодичностью выпускает сборники хитов по итогам ротации на радиостанции. А Universal Music сборники лучших треков по итогам года (следите за анонсами трекера, скоро появиться лучшее за 2020).01. Coldplay - Higher Power  (3:30)
-02. Chef'Special - Afraid of the Dark  (3:08)
-03. Majestic X Boney M. - Rasputin  (3:06)
-04. Tom Grennan - Little Bit of Love  (3:45)(   Читать дальше...   )Тип издания: CD, CompilationРелиз состоялся: 2 июля 2021Жанр: Pop, Rock, DanceПродолжительность: 01:18:43
+01. Twist In My Sobriety (4:51)
+02. Cathedral Song (2:52)
+03. World Outside Your Window (4:52)
+04. Good Tradition (2:51)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, BalladПродолжительность: 01:09:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
+magnet:?xt=urn:btih:0A02A022AF17693FC7008C83CC90429F31EA4CDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334634   (292912) от 30.10.2019
+
+The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] <EuroDance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_292912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (03:52)
+02. Super Trooper (04:22)
+03. Chiquitita (05:40)
+04. This Time (04:31)(   Читать дальше...   )Жанр: EuroDance, PopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A502BF9C8A4A95A3D692EEEC2C07B4721F1C62C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262687   (293320) от 16.11.2018
+
+Vanessa Paradis - Les sources (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_293320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les sources 0:58
+02. Kiev 3:52
+03. La plage 4:06
+04. Ces mots simples 2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437E29528CAF6376B3F42D51884C6FCD6146380F
 ```
 
 

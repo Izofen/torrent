@@ -651,55 +651,52 @@ magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839120   (287217) от 27.11.2025
+###  Публикация: 101957   (267273) от 05.12.2018
 
-The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_287217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Big Country (From The Film Of The Same Name)
-A2 Moon River (From The Film ''Breakfast At Tiffany's'')
-A3 Lara's Theme ''Somewhere My Love'' (From The Film ''Dr. Zhivago'')
-A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше...   )Жанр: Soundtrack, ThemeПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030761   (671730) от 01.07.2016
-
-Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic, Ambient>
+Vivaldi - Flute Concerti, Op. 10 (2005) [MLP 5.1 48/24 |DVD-Audio]<Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/006/save_picture_671730.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_267273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oxygene (Part I) (7:40)
-02. Oxygene (Part II) (8:20)
-03. Oxygene (Part III) (2:50)
-04. Oxygene (Part IV) (3:50)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:39:49
+Жанр: ClassicalФормат: DVD-Audio, MLP 5.1 48/24, DD 5.1, DTS 5.1Продолжительность: 1:07:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
+magnet:?xt=urn:btih:4326582C7AF522858631E014508B6B98605F0029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154483   (267329) от 05.12.2018
+
+Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [MLP 5.1 96/24 |DVD-Audio]<Classical, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_267329.jpg" />
+</div>
+
+
+###  Подробнее
+
+I. Musical Demonstration Section: Classical
+1. Richard Strauss: Also Sprach Zarathustra (2001, A Space Odyssey) - Opening - Herbert Blomstedt conducting the Staatskapelle Dresden Orchestra
+2. Ludwig van Beethoven: Symphony No. 5 - Opening - Otmar Suitner conducting the Saatskapelle Berlin
+3. Georg Friedrich Handel: Music from the Royal Fireworks - The I Solisti Italiani (   Читать дальше...   )Жанр: Classical, JazzПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9FB46C50AC457080CCCE4DB3E0ADACE17AE624
 ```
 
 

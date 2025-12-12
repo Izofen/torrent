@@ -1,700 +1,697 @@
-###  Публикация: 1358977   (966143) от 10.02.2020
+###  Публикация: 1217326   (743236) от 04.04.2018
 
-VA - Survival Techniques (2020) [MP3|320 Kbps] <Hard Rock, Metal>
+VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_966143.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poppy - Fill The Crown
-02. Fear - Beautiful Side
-03. Fetid Zombie - Necromanced From The Grave
-04. Devil's Witches - Love Is Doom(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 05:02:00
+001. Burning Witches - Black Widow
+002. Esclavitud - This Time
+003. Dark Sarah - Breath
+004. Ghost of Mary - The Moon and the Tree(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:14:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:770110E3255277F39DBBB012761AE0386A1D1E28
+magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357941   (970466) от 06.02.2020
+###  Публикация: 1282694   (743389) от 13.02.2019
 
-VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
+Pink Floyd - Pink Floyd Deep Cuts (2019) [MP3|320 Kbps] <Progressive & Art-Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_970466.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_743389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Van Halen - Eruption
-002. Jimi Hendrix - All Along the Watchtower
-003. AC/DC - Thunderstruck
-004. Thin Lizzy - The Boys Are Back In Town(   Читать дальше...   )Жанр: RockПродолжительность: 08:25:22
+01. One Slip
+02. When The Tigers Broke Free
+03. Not Now John
+04. Take It Back(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 02:30:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
+magnet:?xt=urn:btih:423D91DFDD1FE56BE9E92AF0ED4D88C83BE9D6B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357582   (973002) от 04.02.2020
+###  Публикация: 783349   (744054) от 05.05.2014
 
-Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
+VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_973002.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_744054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die For Me Only (Black Widow)
-02. Hungry
-03. Back To The Cave
-04. Ready, Willing And Able(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:38:49
+Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EE2411DEC8074ACDD1FA966A49763D57FE836C5
+magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356548   (976676) от 01.02.2020
+###  Публикация: 1217172   (744356) от 03.04.2018
 
-VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
+Григорий Лепс - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_976676.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_744356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mitch Rivers - Reconsider Me
-002. The Quill - Hammerhead
-003. Dead Express - Nightmare On High Heels
-004. Louden Swain - Mrs. Vance(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:49:57
+В сборник вошли лучшие песни самого мощного отечественного вокалиста. Весь материал взят с оригинальных CD альбомов. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK001 Люди (Полный вперед!)
+002 Парус
+003 Бессонница
+004 Водопад(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 05:05:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
+magnet:?xt=urn:btih:2A65DDD83FA7BD3C24B71AAA3E603F03D7FB0E25
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356531   (977533) от 31.01.2020
+###  Публикация: 1216922   (745840) от 02.04.2018
 
-VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
+VA - Перфоратор 2: Русский Рок (2018) [MP3|320 Kbps] <Рок, Альтернатива>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_977533.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_745840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Acres - Lonely World (4:48)
-2. Alter Bridge - Wouldn't You Rather (3:49)
-3. Animal ДжаZ - Чувства (3:40)
-4. Asking Alexandria - The Violence (3:28)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:05:09
+001. Твёрдый ЗнакЪ - День
+002. Воздухоплавательный парк - Звезда по имени солнце
+003. Зоопарк - Позвони мне рано утром
+004. Инкогнито - Небо и трава(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:45:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C9A0A0D9841ACB1B139BE6C31B3D76C01716DEB
+magnet:?xt=urn:btih:37DE6BAB4EDB045695D9CF8E939851DABA03C7F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354699   (986880) от 23.01.2020
+###  Публикация: 1281889   (748305) от 10.02.2019
 
-AC/DC - Brian Johnson Hits (2016) Bootleg [MP3|320 Kbps] <Hard Rock>
+VA - Just An Illusion: Hard Rock Songbook (2019) [MP3|320 Kbps] <Alternative, Rock Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_986880.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thunderstruck
-02. Who Made Who
-03. Guns For Hire
-04. You Shook Me All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:01
+001. Dream On - Let It In
+002. Thousand Foot Krutch - Running With Giants
+003. Against The Current - Strangers Again
+004. Asbest - Driven(   Читать дальше...   )Жанр: Alternative, Rock AlternativeПродолжительность: 09:29:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1B618910226B2638D3819463EE596DC0D47A5E1
+magnet:?xt=urn:btih:51D3325C59A3C288A1849FD293AAD26B294A72AD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354737   (986940) от 23.01.2020
+###  Публикация: 1396302   (748677) от 14.07.2020
 
-Barclay James Harvest - Greatest of All Time (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock, Art Rock>
+VA - The Night In Question (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_986940.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_748677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love On The Line
-02. Alone In The Night
-03. Alright Down Get Boogie
-04. Paper Wings(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Art RockПродолжительность: 00:51:26
+001. Anna Jarvinen - Psalm
+002. The Slow Readers Club - Jericho
+003. John Vanderslice - Fireworks
+004. Mumrunner - Remember Me(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 06:04:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8501F4390EE322F03091C139573EFBAC5965F591
+magnet:?xt=urn:btih:B0D20659FB424B388CCAECB70F2F672012F3F367
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353773   (990547) от 19.01.2020
+###  Публикация: 1522727   (756498) от 08.01.2022
 
-VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
+Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_990547.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_756498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Nirvana - Smells Like Teen Spirit
-002. Rage Against the Machine - Killing In The Name
-003. Green Day - Basket Case
-004. Red Hot Chili Peppers - Under the Bridge(   Читать дальше...   )Жанр: RockПродолжительность: 07:07:23
+01. Boogie Street
+02. The Letters
+03. Darkness
+04. The Law(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:45:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5C1E5837208ACF9AB7C6495DA235506778F9220
+magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352962   (993117) от 16.01.2020
+###  Публикация: 1215527   (757851) от 26.03.2018
 
-VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
+Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_993117.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_757851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Judas Priest - Ram It Down
-02. Rammstein - You Hate (''Du Hast'' English Version)
-03. Slade - Thanks For The Memory
-04. Ringo Starr - It's Not Love That You Want(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 07:44:28
+01 Александр Маршал - Дай мне руку
+02 Александр Маршал - Обещай мне
+03 Александр Маршал - Погоди, постой
+04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
+magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352250   (1001006) от 14.01.2020
+###  Публикация: 1522573   (758384) от 07.01.2022
 
-Steppenwolf - Greatest Hits (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1001006.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get Into The Wind
-02. A Girl I Knew
-03. Born To Be Wild
-04. Hootchie Cootchie Man(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:04:22
+01. Feels Like Forever
+02. Every Time it Rains
+03. Too Cool
+04. Soul Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D208CBAE9A3D5E54C74793F66D869D49251E7D2C
+magnet:?xt=urn:btih:4C1D77AA282AB3D570D0ABD1FFB20C2FC0CCEF87
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352404   (1001041) от 14.01.2020
+###  Публикация: 1280764   (758605) от 04.02.2019
 
-VA - Free Spirit: Advanced Rock Collection (2020) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
+VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1001041.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ashbury - Good Guitar
-002. Andrew Mcmahon - Ohio
-003. Wild Romance - You
-004. Disturbed - A Reason To Fight(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 10:34:14
+CD 1:
+
+01. Thobbe Englund - Heart of Metal (2018) (0:41)
+02. Stormwitch - The Choir of the Dead (2018) (4:41)(   Читать дальше...   )Жанр: Heavy - MetalПродолжительность: 03:09:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D5B9247A76AA7906F90FADE1768EE338AC07AD1
+magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488956   (1001174) от 14.08.2021
+###  Публикация: 1280759   (758626) от 04.02.2019
 
-VA - Rebel Rock Indie (Vol.01) (2021) [MP3|320 Kbps] <Indie, Alternative, Rock>
+VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1001174.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Chris Garneau - So Slow
-002. The Natvral - New Year's Night
-003. Still Corners - Bad Town
-004. Bark - Merrick(   Читать дальше...   )Жанр: Indie, Alternative, RockПродолжительность: 08:28:49
+CD 1:
+
+01. Dark Sky - Into The Arena (2018)(1:36)
+02. Mob Rules - Ghost Of A Chance (2018)(4:45)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F45311C8A81BD3AC469C6A888DF516C691CC0CCE
+magnet:?xt=urn:btih:5D88FD183E0E0EDF034176CE6D3D6AD4E3125357
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488680   (1001617) от 12.08.2021
+###  Публикация: 1280761   (758631) от 04.02.2019
 
-VA - 100 Greatest Heavy Metal Songs (2021) [MP3|320 Kbps] <Metal, Rock>
+VA - Heavy Metal Collections Vol. 11 (3CD + 1CD LIVE) (2019) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1001617.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Sabbath - Paranoid (2012 - Remaster)
-02. Metallica - Master of Puppets (Remastered)
-03. Iron Maiden - Hallowed Be Thy Name (1998 Remaster)
-04. Black Sabbath - Iron Man (2012 - Remaster)(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 09:35:32
+CD 1:
+
+01. Beast In Black - Blood Of A Lion (2017) (5:04)
+02. Thobbe Englund - Sold My Soul (2017) (2:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 04:17:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E68EC110D8934C6B3C11EF0F8D39D59C4EB8E2B2
+magnet:?xt=urn:btih:1F6B71943DCAE6475A1692883D51C2828C7A33F7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488414   (1002042) от 11.08.2021
+###  Публикация: 1280753   (758644) от 04.02.2019
 
-VA - The Lives Rock (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
+VA - Heavy Metal Collections vol. 6 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1002042.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. El Pistolero - El Pistolero
-002. Poorstacy - I Can't Sleep
-003. Magic Castles - Valley Of Nysa
-004. The Offspring - This Is Not Utopia(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 08:23:54
+CD 1:
+
+01. Nemesea - Time To Make It (2016) (3:16)
+02. Pentakill - Blade of the Ruined King (2017) (7:00)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:26:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:471C394618854C66EF343403B39B076077C978EB
+magnet:?xt=urn:btih:68E247FB065ED2D24B86B80D4C10C8DACA4F5E23
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488056   (1002566) от 09.08.2021
+###  Публикация: 1280756   (758647) от 04.02.2019
 
-VA - Prog Rock Essentials (2021) [MP3|320 Kbps] <Symphonic Prog, Prog Rock, Neo-Prog, (Psychodelic Prog, Proto-Prog, Other)>
+VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1002566.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King Crimson - 21st Century Schizoid Man (Including _Mirrors_) (07:23)
- 02. Keith Emerson - Fanfare for the Common Man (09:43)
- 03. Soft Machine - Save Yourself (02:25)
- 04. Genesis - Watcher of the Skies (New Stereo Mix) (07:23)(   Читать дальше...   )Жанр: Symphonic Prog, Prog Rock, Neo-Prog, (Psychodelic Prog, Proto-Prog, Other)Продолжительность: 13:12:57
+CD 1:
+
+01. Painful Pride - Visions (2016)(4:08)
+02. Dee Snider - American Made (2018)(3:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:06:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:720DD70CF4C482CC6610E013DB7E2C21F5250403
+magnet:?xt=urn:btih:6D74C7FE2EDF3269F2D0D32329F98F124B88EAA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487655   (1002810) от 08.08.2021
+###  Публикация: 1280754   (758721) от 04.02.2019
 
-VA - Indie Rock Club (2021) [MP3|320 Kbps] <Rock, Indie, Alternative>
+VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1002810.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_758721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cohle - Palms And Beaches
-002. Banny Grove - Sure Enough
-003. A Crystal Clear Moment - In The Light Of The Sun
-004. Supergrass - Rebel In You(   Читать дальше...   )Жанр: Rock, Indie, AlternativeПродолжительность: 08:31:05
+CD 1:
+
+01. Grave Digger - The Commandments Of Metal (2017) (3:28)
+02. Visions of Atlantis - Winternight (2016) (5:37)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:09:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:121A83042AF6B632896AF632557EBB494E74BF05
+magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350789   (1002907) от 07.01.2020
+###  Публикация: 1215165   (759463) от 25.03.2018
 
-VA - Classic Rock timeless! 2 (2020) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
+VA - Перфоратор: Сборник Русского Рока (2018) [MP3|320 Kbps] <Рок, Альтернатива>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1002907.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_759463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. L.A. Guns - Merry Xmas Everybody
-02. Ohsama - Instrumental
-03. Jimi Hendrix - Message To Love (Live at the Fillmore East, NY - 1/1/70 - 2nd Set)
-04. John Fogerty - Rock and Roll Girls (Live at Red Rocks)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 08:54:47
+001.  Северный Флот  -  Революция на вылет  4:10
+002.  Вячеслав Бутусов  -  Бедная птица  4:06
+003.  Северный флот  -  Время любить  4:15
+004.  Аквариум  -  Двери травы  3:13(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F4E80E40C05509609640A016F4E108D99793914
+magnet:?xt=urn:btih:DBAC3213D6C4E5C90890D3F70F69E0F6684B4673
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487522   (1003315) от 06.08.2021
+###  Публикация: 1215317   (759609) от 25.03.2018
 
-VA - The Purgatory (Vol.02) (2021) [MP3|320 Kbps] <Hard Rock, Metal>
+VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Rock, Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1003315.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_759609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Be All End All - End Sequence
-002. Soul Of Ears - Invincible We Are
-003. Vestindien - Beerenberg
-004. Values - Temperance(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 10:35:25
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK121 Joe Satriani - Summer Song
+122 Ozzy Osbourne - Zombie Stomp
+123 3 Doors Down - Kryptonite
+124 Aerosmith - Cryin'(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33ED0ECAC3823F2D97A1644FCEC7A1B7E6DF73D2
+magnet:?xt=urn:btih:720D2FDCE4D5680B006C6DF1AA2015ECDD21797B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349964   (1003451) от 05.01.2020
+###  Публикация: 1280581   (760427) от 03.02.2019
 
-VA - 2020 Rock Factory (2020) [MP3|320 Kbps] <Rock, Indie, Folk, Alternative>
+VA - Heavy Metal Collections Vol. 7 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1003451.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_760427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Kelsy Karter - Harry
-002. Dasher - Nightmares
-003. Von Baltzer - Better Days
-004. Joy In Velm - The Nineteen Lie(   Читать дальше...   )Жанр: Rock, Indie, Folk, AlternativeПродолжительность: 10:00:10
+01. Beast In Black - Beast In Black (2017) (4:29)
+02. Excalion - Divergent Falling (2017) (5:18)
+03. Visions of Atlantis - Seven Seas (2016) (4:11)
+04. Nocturnal Rites - Before We Waste Away (2017) (4:46)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64107CF240E6A32CD7E9712FE37608AB8E8DF34B
+magnet:?xt=urn:btih:7CB70195E327A5C82F5FDE0001956DC99B969678
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487493   (1003544) от 05.08.2021
+###  Публикация: 1394825   (760514) от 07.07.2020
 
-VA - Rock Classics (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock, Metal>
+VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, Hard, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1003544.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_760514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 03Electric Light Orchestra - Evil Woman (04:36)
- 002. 38 Special - Hold On Loosely (04:40)
- 003. AC-DC - Back In Black (04:16)
- 004. AC-DC - Hells Bells (05:13)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 14:49:13
+001. The Silence - Sarabande
+002. Stonefield - The Eyes Of The Dawn
+003. Gatsby In A Daze - Summer Mushi
+004. The Morganatics - Gloria(   Читать дальше...   )Жанр: Rock, Hard, AlternativeПродолжительность: 08:05:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77FCA245448C13E25A41924A6ED539CEA3762AAB
+magnet:?xt=urn:btih:25E3212C7D0B1F49FC4977942FBC454BB8F85BB2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349375   (1003664) от 04.01.2020
+###  Публикация: 1215020   (761146) от 24.03.2018
 
-The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] <Rock & Roll>
+VA - Наше Радио: Чартова дюжина Top13  Март (2018) [MP3|320 Kbps] <Рок, Поп-Рок>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1003664.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_761146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Rock & RollПродолжительность: 00:38:26
-05-01 - In Spite Of All The Danger (Feat. The Quarrymen) (1958) (02:44)
-05-02 - That'll Be The Day (Feat. The Quarrymen) (1958) (02:08)
-05-03 - Cayenne (Feat. The Quarrymen) (1960) (02:30)(   Читать дальше...   )
+01.  Ундервуд  -  Ракеты на Марс  3:27
+02.  СерьГа  -  Я люблю поезда  3:24
+03.  Сплин  -  Тепло родного дома  3:51
+04.  Zdob Si Zdub feat. Loredana & Лигалайз  -  Балкана мама  2:42(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
+magnet:?xt=urn:btih:E5DDB66FC4FCA057E5544E87EBEBDC462E16E216
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350013   (1003674) от 04.01.2020
+###  Публикация: 1521638   (761780) от 05.01.2022
 
-Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
+Opus - Compilation (2019) [MP3|320 Kbps] <Rock, Pop Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1003674.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_761780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Illegal Alien
-02. Many Too Many
-03. In The Cage
-04. Silver Rainbow(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:47
+01. Live Is Life
+02. Crazy World
+03. Walking Along With You
+04. Follow Me(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 04:38:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
+magnet:?xt=urn:btih:571004B03CBBD8B6FA3C08E925E5C9E215067456
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350005   (1003723) от 04.01.2020
+###  Публикация: 1394624   (762218) от 06.07.2020
 
-The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock, Folk>
+VA - Rock Indie NME Station (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1003723.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_762218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Why Why Why
-02. Father's Nose
-03. Cover The Road
-04. Let My People Go(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 01:16:36
+001. The Slow Readers Club - All I Hear
+002. Still House Plants - Long Pass
+003. Becca Stevens - I Wish
+004. Halloweens - My Baby Looks Good With Another(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:37:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28FE8058F1A7C61F50743FE5CC4592D77A2C3C54
+magnet:?xt=urn:btih:24960434D361F88FFBA2BDCA153E4708301E3759
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349592   (1004295) от 02.01.2020
+###  Публикация: 1214845   (762987) от 23.03.2018
 
-VA - Animalistic Vol.02 (2019) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <Rock, Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1004295.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_762987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Beyond The Grey - Unthinkable Tragedy
-002. Vitaform - Devil's Mirror
-003. Hands Of God - 2 Shotz
-004. Primal Fear - Apocalypse(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 08:33:10
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK061 Europe - All Or Nothing
+062 Suicidal Tendencies - Send Me Your Money
+063 Skid Row - Get The Fuck Out
+064 Nickelback - Lullaby(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0AFD90A2141979EF82A080F0C8042C9973D0C40
+magnet:?xt=urn:btih:4CB256B84FA438DF616AC971B3CE90177F2358C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486604   (1004552) от 01.08.2021
+###  Публикация: 1394387   (763713) от 05.07.2020
 
-VA - Greatest Hard Rock And Metal Songs (2021) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
+VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1004552.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_763713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Bushido Code - Stench Of Cowards Rot
-002. Nailwound - On Sight
-003. Purgatory - Disease
-004. Lamb Of God - Memento Mori(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 10:02:52
+01. Sergey Golovin - Charger (04:05)
+ 02. Stellar Circuits - Skylights (03:57)
+ 03. Nova Collective - Dancing Machines (09:47)
+ 04. Thank Your Scientist - Wrinkle (02:32)(   Читать дальше...   )Жанр: Rock, Progressive Metal, OtherПродолжительность: 04:27:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D531839A88CFB96AA247D98E4DDA4535F4ADF857
+magnet:?xt=urn:btih:31789775D45ADEFFFEC5CAB893C98BBB1FA32D4B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486601   (1004573) от 01.08.2021
+###  Публикация: 1394473   (763732) от 05.07.2020
 
-VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
+VA - Love You to Death (2020) [MP3|320 Kbps] <Rock, Hard Rock, Pop>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1004573.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_763732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Sketchy Trench - Greater
-002. Kolossus Däächt - Fast Food
-003. Lice - R.D.C.
-004. Tocotronic - Stürmt Das Schloss(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:43:56
+1. Type O Negative - Love You to Death (7:08)
+2. Paradise Lost - Mouth (3:43)
+3. Ghost - Nocturnal Me (5:13)
+4. A Perfect Circle - Judith (4:07)(   Читать дальше...   )Жанр: Rock, Hard Rock, PopПродолжительность: 02:40:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
+magnet:?xt=urn:btih:CF257FC31D008919292F4EE4511E744A60C88BAF
 ```
 
 

@@ -1,700 +1,700 @@
-###  Публикация: 1364601   (935042) от 04.03.2020
+###  Публикация: 940988   (460056) от 28.09.2015
 
-Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+XXI - Inside Out (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_935042.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_460056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chain Wandering Deeply [08:28]
-02. Distress of Ignorance [05:45]
-03. Evidence [03:16]
-04. Color of Fetters [07:19](   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:02:21
+01. Say It Again
+02. Hanging by a Thread
+03. Counting Me Out
+04. Wasn’t Enough(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Rock | Post-HardcoreПродолжительность: 00:37:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C47541FF72F4E68E82370478F6936A6193062AC2
+magnet:?xt=urn:btih:DFC77DF289864D15818E23AF2AE06DEF92E72054
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364464   (936494) от 03.03.2020
+###  Публикация: 941076   (460190) от 28.09.2015
 
-North by North - Get Weird (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+The Bloodline - We Are One (2015) [FLAC|Lossless|WEB-DL]<Melodic Metalcore | Modern Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_936494.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_460190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Vibes (03:19)
-02. Get Weird (04:13)
-03. Hiss Hiss Rattle (04:24)
-04. My Friends (Will Hurt Your Friends) (04:32)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:38:11
+01. The Bloodline
+02. We Are One
+03. Divided
+04. The Blackout(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic Metalcore | Modern MetalПродолжительность: 00:42:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FB5748115C64D51C911B41972185A2F29EB1935
+magnet:?xt=urn:btih:ED2390A51509788D6EF098091CBFC2D3198DD16C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364432   (936497) от 03.03.2020
+###  Публикация: 940983   (460198) от 28.09.2015
 
-Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Boysetsfire - Boysetsfire (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_936497.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_460198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hologram (03:46)
-02. New World (02:55)
-03. Grains of Salt (03:54)
-04. The Joke of Life (03:19)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:32:25
+01. Savage Blood
+02. Cutting Room Floor
+03. Don't Panic
+04. Ordinary Lives(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Rock | Post-HardcoreПродолжительность: 00:44:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06C2878171C05774C4FB9EE72E9F7FAFED100B31
+magnet:?xt=urn:btih:53C270C1C2FC1584BDECAE08392D62A5C78B6C1E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364596   (936498) от 03.03.2020
+###  Публикация: 1321313   (461214) от 23.08.2019
 
-Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_936498.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_461214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Moonlight (04:09)
-02. Ignorant Rain at the End of the World (03:29)
-03. Shining Finger (07:04)
-04. Ticking Time and String (06:28)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00: 43:32
+01. Over My Head (Cable Car) (3:58)
+ 02. How To Save A Life (4:24)
+ 03. Look After You (4:28)
+ 04. All At Once (3:49)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:47:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
+magnet:?xt=urn:btih:9F3DF5F958E7347ABDCAB28CB2F66064D27B820B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984671   (936897) от 10.02.2016
+###  Публикация: 1321207   (461217) от 23.08.2019
 
-Sex Pistols - Flogging a Dead Horse (1979) Reissue, 1986, Virgin [FLAC|Lossless|tracks + .cue] <Punk rock>
+Oso Oso - basking in the glow (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie, Pop Punk, Emo>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_936897.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_461217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anarchy in the UK (03:34)
-02. I Wanna Be Me (03:07)
-03. God Save the Queen (03:22)
-04. Did You No Wrong (03:15)(   Читать дальше...   )Жанр: Punk rockПродолжительность: 00:48:09
+01. intro (02:35)
+02. the view (03:25)
+03. basking in the glow (03:59)
+04. dig (04:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie, Pop Punk, EmoПродолжительность: 00:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2519A7A18BFC520C4F3941CE8F36D6711095933
+magnet:?xt=urn:btih:B39B0DA006C860E841D4C89ED92205B884D7BF88
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984776   (938591) от 09.02.2016
+###  Публикация: 1321380   (461218) от 23.08.2019
 
-Siouxsie And The Banshees - The Best Of Siouxsie And The Banshees (2004) Box Set 2CD+DVD5, Polydor, Universal. [FLAC|Lossless|image + .cue] <New Vawe, Punk>
+The Night Cafe - 0151 (2019) TNC Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_938591.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_461218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-1	Dear Prudence 3:49
-2	Hong Kong Garden	2:55
-3	Cities In Dust	4:04(   Читать дальше...   )Жанр: New Vawe, PunkПродолжительность: CD1 - 00:57:11, CD2 - 01:04:00, DVD - 00:52:35
+01. 0151 Intro (1:54)
+ 02. Finders Keepers (3:31)
+ 03. Felicity (3:14)
+ 04. Please (3:50)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 01:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A241EB8A3024F023EAA0ED7A6DBE81EF0B4D5EB8
+magnet:?xt=urn:btih:BDFC0E18D8A3BA79B267F75D7837D68B53F98BE0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092571   (938860) от 12.01.2017
+###  Публикация: 1162136   (461346) от 31.08.2017
 
-Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [FLAC|Lossless|WEB-DL]<Celtic Punk, Punk-Rock>
+Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.cue] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_938860.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_461346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[02:42] 01. The Lonesome Boatman
-[03:00] 02. Rebels With A Cause
-[04:01] 03. Blood
-[03:44] 04. Sandlot(   Читать дальше...   )Жанр: Celtic Punk, Punk-RockПродолжительность: 00:38:44
+01. Underdog (06:09)
+ 02. Bumblebee (04:33)
+ 03. Shoot The Runner (03:50)
+ 04. Eez-eh (03:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E856F61F4E81F49F622D19135F8500C74F667141
+magnet:?xt=urn:btih:C425A318E59E503D52BBC9E909A67EA7CFAFDD7A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984619   (938936) от 09.02.2016
+###  Публикация: 1246439   (461566) от 11.09.2018
 
-The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
+Better Than Ezra - Friction, Baby (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_938936.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_461566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Defying Gravity
-02. Watch You Lose
-03. You Can't Have It All
-04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
+01. King Of New Orleans (4:08)
+ 02. Rewind (3:07)
+ 03. Long Lost (3:41)
+ 04. Normal Town (3:40)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
+magnet:?xt=urn:btih:968EB881028FC8142FEAF9B27CCF726006B248DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364145   (939615) от 01.03.2020
+###  Публикация: 1321210   (463387) от 22.08.2019
 
-Refused - Songs to Fan the Flames of Discontent (1996) [APE|Lossless|image + .cue] <Hardcore>
+Florist - Emily Alone (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_939615.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_463387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rather Be Dead
-02. Coup D'Etat
-03. Hook, Line & Sinker
-04. Return To The Closet(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:30:26
+01. As Alone (04:01)
+02. Moon Begins (03:04)
+03. Celebration (04:26)
+04. I Also Have Eyes (04:16)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBEA4722A3CFB97EA12C636EEF2BB231EA923164
+magnet:?xt=urn:btih:EA45DA40CE4769D8719CB49074C1D41896D347BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364079   (939696) от 01.03.2020
+###  Публикация: 1246414   (463620) от 10.09.2018
 
-Frances Quinlan - Likewise (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Red Hot Chili Peppers - Freaky Styley (1985) 2003, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_939696.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_463620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Piltdown Man (03:15)
-02. Your Reply (04:19)
-03. Rare Thing (03:30)
-04. Detroit Lake (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:34
+01. Jungle Man (4:09)
+ 02. Hollywood (Africa) (5:04)
+ 03. American Ghost Dance (3:51)
+ 04. If You Want Me to Stay (4:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97EB9E8611989428E6D971B2241D440953A1E0A2
+magnet:?xt=urn:btih:339E29FA7281189F5219238644BAFA9A34D8C3ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984325   (940215) от 08.02.2016
+###  Публикация: 1246041   (465754) от 09.09.2018
 
-Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock, Britpop>
+JJ72 - October Swimmer (2001) Japan Promo [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_940215.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_465754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When You Are Young (04:17)
-02. Outsiders (03:54)
-03. No Tomorrow (03:52)
-04. Pale Snow (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art Rock, BritpopПродолжительность: 00:47:43
+01. October Swimmer (3:22)
+ 02. Blood Tests (2:18)
+ 03. Guidance (3:59)
+ 04. Black Eyed Dog (2:59)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:23:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
+magnet:?xt=urn:btih:D332BDA0CC42EB83C5CDE474CB59FE00DDBFCC1F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984298   (940616) от 08.02.2016
+###  Публикация: 1246034   (465756) от 09.09.2018
 
-Textures - Phenotype (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Math Metal>
+JJ72 - I To Sky (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_940616.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_465756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oceans Collide
-02. New Horizons
-03. Shaping A Single Grain Of Sand
-04. Illuminate The Trail(   Читать дальше...   )Тип издания: АльбомЖанр: Progressive Math MetalПродолжительность: 00:43:55
+01. Nameless (2:26)
+ 02. Formulae (4:14)
+ 03. I Saw a Prayer (5:00)
+ 04. Serpent Sky (3:18)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:54:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7345CE8A35281E4F737EA16EED0A02F1CE2A9787
+magnet:?xt=urn:btih:4877FDA240C909F3F418BE8513C28CDD36907DFC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983831   (942199) от 07.02.2016
+###  Публикация: 1568075   (466037) от 06.08.2022
 
-The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave>
+The Flatliners - New Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk,New Wave>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_942199.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_466037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Midnight Summer Dream
-02 - It's a Small World
-03 - Ships That Pass in the Night
-04 - The European Female (In Celebration of)(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:42:06
+01. Performative Hours (2:58)
+ 02. Rat King (3:31)
+ 03. Big Strum (3:09)
+ 04. Top Left Door (3:08)(   Читать дальше...   )Жанр: Punk,New WaveПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
+magnet:?xt=urn:btih:BD8AD1815C87E85ECBC65DCA5AE0711D93CB9F20
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983731   (942236) от 07.02.2016
+###  Публикация: 1246035   (467902) от 08.09.2018
 
-Siouxsie - Mantaray (2007) [FLAC|Lossless|image + .cue] <Alternative Rock, PostPunk>
+JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_942236.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_467902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Into A Swan 4:12
-2.About To Happen 2:50
-3.Here Comes That Day 4:02
-4.Loveless 4:24(   Читать дальше...   )Жанр: Alternative Rock, PostPunkПродолжительность: 00:41:00
+01. October Swimmer (3:23)
+ 02. Undercover Angel (3:45)
+ 03. Oxygen (3:43)
+ 04. Willow (4:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66D34883B3F45ACBA67C771817A27D827498B449
+magnet:?xt=urn:btih:701A4FAFB3B7C59B2206C0DD762572F4CFCB3486
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363480   (942582) от 28.02.2020
+###  Публикация: 1058530   (468846) от 01.10.2016
 
-Real Estate - The Main Thing (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+New Years Day - Malevolence (2015) [FLAC|Lossless|tracks] <Alternative Rock, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_942582.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_468846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Friday (04:57)
-02. Paper Cup (feat. Sylvan Esso) (04:30)
-03. Gone (03:13)
-04. You (03:52)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:48:34
+1. 	"Kill or Be Killed"
+2. 	"I'm About to Break You"
+3. 	"Alone"
+4. 	"Left Inside"(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30BC83685B288B6C062931CB99B551E236FB2698
+magnet:?xt=urn:btih:A8C2CE46800171F7A0007C0B27D38AE8A8048D43
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363438   (943901) от 27.02.2020
+###  Публикация: 1320577   (468904) от 19.08.2019
 
-Greg Dulli - Random Desire (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock, Britpop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_943901.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_468904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pantomima [03:25]
-02. Sempre [03:33]
-03. Marry Me [04:00]
-04. The Tide [04:36](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:50
+01. Snowed Under (3:50)
+02. Walnut Tree (3:37)
+03. Fly To Me (5:33)
+04. To The End Of The Earth (3:03)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Britpop |Продолжительность: 01:15:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3DB5BBD0FE02D9DA87746AE32923851547874EB
+magnet:?xt=urn:btih:4B0A3988DF8AA832D77EBF2A8A836446E4837207
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363440   (943903) от 27.02.2020
+###  Публикация: 1320078   (473267) от 17.08.2019
 
-Greg Dulli - Amber Headlights (2005) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lossless|tracks] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_943903.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_473267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So Tight (02:56)
-02. Cigarettes (03:34)
-03. Domani (03:54)
-04. Early Today (And Later That Night) (03:34)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:31:10
+01. Planet B (03:56)
+02. Mars for the Rich (04:11)
+03. Organ Farmer (02:39)
+04. Superbug (06:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C8C63E1D320A507283CDD8DC1612343329622E0
+magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363187   (945304) от 26.02.2020
+###  Публикация: 1567363   (474250) от 02.08.2022
 
-Anna Calvi - Hunted (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
+Sex Pistols - The Original Recordings (2022) [FLAC|Lossless|tracks + .cue] <Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_945304.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_474250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Swimming Pool (feat. Julia Holter) (05:02)
-02. Hunter (04:25)
-03. Eden (feat. Charlotte Gainsbourg) (04:18)
-04. Away (04:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:30:01
+01. Pretty Vacant (3:18)
+02. God Save The Queen (3:19)
+03. Bodies (3:03)
+04. No Feelings (2:51)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3B23401D5BBE5CF8E6D0E51AAB395951E8F058D
+magnet:?xt=urn:btih:BF7F892AB9CFFC43E63B359A1071E9EC2A91D274
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363012   (945317) от 26.02.2020
+###  Публикация: 1567367   (474433) от 02.08.2022
 
-Ash ‎ - Teenage Wildlife: 25 Years Of Ash (2020) 3 CD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Brit Pop>
+The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_945317.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_474433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Here Comes the Music (03:11)
-02. Spellbound (03:17)
-03. Teenage Wildlife (06:01)
-04. I Shall Not Die (03:23)(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 03:41:20
+01. Life's a Bitch (but I like it so much) (2:51)
+02. Hung Up (3:25)
+03. Reeling (3:09)
+04. Old Friends Die Hard (2:18)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1C5982E44B58D9A5FD0E4340B21024CEF4D913E
+magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362786   (946573) от 25.02.2020
+###  Публикация: 939592   (475587) от 21.09.2015
 
-The Toms - Life Raft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Shinedown - Threat To Survival (2015) [FLAC|tracks+.cue]<Alternative Metal, Hard Rock, Post-Grunge>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_946573.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_475587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Wish I Went to Princeton (03:57)
-02. Life Raft (04:06)
-03. Accident (03:15)
-04. Another Happy Ending (03:32)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:36
+01. Asking For It
+02. Cut The Cord
+03. State Of My Head
+04. Outcast(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Post-GrungeПродолжительность: 00:40:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83DCFF61CA24A929DE1797CA3BF121C3CBEC5310
+magnet:?xt=urn:btih:BC3DD8453D270BBC61886C8945C798BE573926D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362988   (946586) от 25.02.2020
+###  Публикация: 1124934   (475640) от 04.09.2018
 
-Soccer Mommy - Color Theory (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Milky Chance - Blossom (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_946586.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_475640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bloodstream (05:38)
-02. Circle the Drain (04:41)
-03. Royal Screw Up (04:08)
-04. Night Swimming (04:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:19
+01. Blossom (04:12)
+02. Ego (03:52)
+03. Firebird (03:41)
+04. Doing Good (04:10)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 01:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD7B47D647489B1AE501860C63F65F9A24600AE4
+magnet:?xt=urn:btih:F6755230D4FF190997E0C3B19F957060C88233D3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982724   (946905) от 04.02.2016
+###  Публикация: 1056731   (479610) от 26.09.2016
 
-Bury Tomorrow - Earthbound (2016) [FLAC|Lossless|tracks+.cue] <Melodic Metalcore>
+Taking Back Sunday - Tidal Wave (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_946905.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_479610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Eternal
-02. Last Light
-03. Earthbound
-04. The Burden(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic MetalcoreПродолжительность: 00:36:37
+1. Death Wolf
+2. Tidal Wave
+3. You Can't Look Back
+4. Fences(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:53:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9C505E36D88A3F12D8CBEC8762F25982104D655
+magnet:?xt=urn:btih:1F3AC681B080D48CE84B0B9FE0863E0BF1419893
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090281   (947322) от 06.01.2017
+###  Публикация: 1319523   (481215) от 13.08.2019
 
-Dropkick Murphys - Going Out In Style (2011) [FLAC|Lossless|tracks+.cue]<Celtic Punk, Punk-Rock>
+Chumbawamba - Tubthumper (1997) [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_947322.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_481215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[03:59] 01. Hang 'Em High
-[04:08] 02. Going Out In Style (feat. Fat Mike, Chris Cheney and Lenny Clarke)
-[03:26] 03. The Hardest Mile
-[04:21] 04. Cruel(   Читать дальше...   )Жанр: Celtic Punk, Punk-RockПродолжительность: 00:45:47
+01. Tubthumping (4:39)
+02. Amnesia (4:08)
+03. Drip Drip Drip (5:09)
+04. The Big Issue (4:38)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, PunkПродолжительность: 01:08:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9A15968972D16B08E4D1042AA2B971527FEEEF2
+magnet:?xt=urn:btih:BA4A38296765764092D813B145BF277D230A399F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362614   (948116) от 24.02.2020
+###  Публикация: 1319603   (481223) от 13.08.2019
 
-Little Scream - Speed Queen (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Mermaidens - Look Me In The Eye (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948116.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_481223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dear Leader (05:24)
-02. One Lost Time (03:42)
-03. Switchblade (04:58)
-04. Disco Ball (03:25)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:57
+01. Crying in the Office (04:25)
+02. Sleeptalker (04:17)
+03. Millennia (04:06)
+04. I Might Disappear (03:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8702F3BDA83A3994004FD55AE2255649292FCBBE
+magnet:?xt=urn:btih:8ECEFE41ED37F7E8249023407B919CA6F346D0F5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362682   (948213) от 24.02.2020
+###  Публикация: 1319601   (481225) от 13.08.2019
 
-Pixies - Beneath the Eyrie (2019) Deluxe Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Louise Connell - Squall Echo Rale (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk, Dream Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948213.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_481225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In the Arms of Mrs. Mark of Cain (04:12)
-02. On Graveyard Hill (03:25)
-03. Catfish Kate (03:08)
-04. This Is My Fate (03:20)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:04:16
+01. Ten Feet Tall (03:21)
+02. Rope (03:48)
+03. We Night (04:29)
+04. Ilo (03:22)(   Читать дальше...   )Жанр: Indie Rock, Folk, Dream PopПродолжительность: 01:13:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:844929662C73C9006D4934A70D5DFF1F0EFE93B9
+magnet:?xt=urn:btih:3AD3D495CB1584653F760F62776C35F4B6CE3611
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362617   (948214) от 24.02.2020
+###  Публикация: 1405330   (483548) от 30.08.2020
 
-Little Scream - The Golden Record (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Point North - Brand New Vision (2020) [FLAC|Lossless|tracks] <Alternative, Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_948214.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_483548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Lamb (03:37)
-02. Cannons (03:48)
-03. The Heron And The Fox (05:02)
-04. Your Radio (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:46:32
+01. Brand New Vision (feat. DE’WAYNE) [03:35]
+02. Into The Dark (feat. Kellin Quinn) [03:18]
+03. Personal [03:19]
+04. A Million Pieces [04:02](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:38:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0D26C9A6A1BFC041336EA97D0E937EA5344E4B4
+magnet:?xt=urn:btih:184CB5AB81377A9B48016B4832FBD39CFF3A7089
 ```
 
 

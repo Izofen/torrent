@@ -1,643 +1,710 @@
-###  Публикация: 1438895   (1040575) от 10.01.2021
+###  Публикация: 1207665   (780404) от 19.02.2018
 
-Павел Смеян - Коллекция  2CD, (2017-2020)   [FLAC|Lossless|tracks] <Рок, Рок-опера>
+Лёд 9 - Холодная Война (2011) [FLAC|Lossless|tracks + .cue] <Rapcore, Experimental Hip-Hop, Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1040575.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_780404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Рок, Рок-операПродолжительность: 01:21:02
+01. Вкл Пульт (01:07)
+ 02. Лёд Девять (01:35)
+ 03. Ад Холода (ft. Константин Кинчев)(02:30)
+ 04. Котята Один (03:22)(   Читать дальше...   )Жанр: Rapcore, Experimental Hip-Hop, PunkПродолжительность: 00:32:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45F67BD9D7F06436BEA62537DE5A176B4E4031B5
+magnet:?xt=urn:btih:67D648587A9BF4056AF4C2EDC71357B1E3834388
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438655   (1040921) от 09.01.2021
+###  Публикация: 1207383   (780782) от 17.02.2018
 
-Mirror Morionis - Mirror Morionis (-The Afterdeath Connection) (2020) [FLAC|Lossless|image + .cue] <Atmospheric Gothic/Doom Metal>
+Пилот - Пандора (2018) [FLAC|Lossless|image + .cue] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1040921.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_780782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Monochrome (03:04)
-02. Inside The Maze Of Deadlock (08:48)
-03. Acontium Waters (11:27)
-04. The Astralnauts (03:08)(   Читать дальше...   )Жанр: Atmospheric Gothic/Doom MetalПродолжительность: 00:58:22
+01. Гаятри (Пайлот Бабаджи)
+02. Пандора
+03. Нелюбовь
+04. 4 на 4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B37CAB5D5AC154DC2445CD0BA99E3D6E5AAC65AE
+magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438527   (1040949) от 09.01.2021
+###  Публикация: 1207104   (781202) от 16.02.2018
 
-Vjuga - Aeternum (2021) [FLAC|Lossless|tracks + .cue] <Post-Black Metal, Shoegaze>
+Борис Гребенщиков - Время N (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1040949.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_781202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aeternum [00:01:01]
-02. Rotten: Thousand Times 'Good Night' [00:05:31]
-03. Rotten: Godforsaken [00:04:20]
-04. On a Vision or in None [00:04:16](   Читать дальше...   )Жанр: Post-Black Metal, ShoegazeПродолжительность: 00:30:03
+01. Время N
+02. Тёмный как ночь
+03. Сякухачи
+04. На ржавом ветру(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA8CDB94C0886D0A4202AC8986C10470663D3EA9
+magnet:?xt=urn:btih:20581F30E89E02B5EF219909647EEC3F224BAB0A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438403   (1041195) от 08.01.2021
+###  Публикация: 1391203   (781413) от 19.06.2020
 
-Season - Sangvis (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metalcore>
+СЛОТ - Ин да хаос. Re-play (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1041195.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_781413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cure for the Soul [00:04:07]
-02. Femme Fatale [00:03:30]
-03. Last Day Home [00:04:38]
-04. Every Bit of Pain [00:04:23](   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:07:17
+1. 2 войны (2020 Re-play)
+2. Хаос (2020 Re-play)
+3. Кукла вуду (2020 Re-play)
+4. Если (2020 Re-Play)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF89032DBD4274FFF3DA753119D23C74AB2D25F1
+magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438107   (1041476) от 07.01.2021
+###  Публикация: 1206390   (782124) от 14.02.2018
 
-Калинов мост - Оружие (1998) Remastered, 2020, Отделение ВЫХОД [FLAC|Lossless|image + .cue] <Rock>
+Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1041476.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_782124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Сны сбываются
-2. Иного не надо
-3. Рудники свободы
-4. Родная(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:32
+01. Чёрный флаг (3:08)
+ 02. Великий Джордано (6:05)
+ 03. Russian Rock Brothers (4:59)
+ 04. Один в поле воин (2:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35359462E76E4C4CB2FBF89405F1B56B898A5C72
+magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437729   (1042042) от 05.01.2021
+###  Публикация: 1205558   (783213) от 11.02.2018
 
-Хмарь - Мгла (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Blackgaze, Post Black Metal>
+Вежливый Отказ - Вежливый Отказ 1985 - 1995 (1995) Антология [FLAC|Lossless|tracks + .cue] <Jazz Rock, Folk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042042.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_783213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Когда деревья заговорят (7:39)
-02. Пыль (7:52)
-03. Сон (5:40)
-04. Колыбель леса (7:53)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Blackgaze, Post Black MetalПродолжительность: 00:56:58
+01. Летаргический сон 3:45
+02. Несу я украдкой 2:53
+03. Эй! 4:00
+04. Голодная песня 5:41(   Читать дальше...   )Жанр: Jazz Rock, Folk RockПродолжительность: 00:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33B882C42430D43134A27CD7847B8E0ED79B8D96
+magnet:?xt=urn:btih:5DB34FF8F7224E6FB34CA523A26079CD8B406844
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437398   (1042045) от 05.01.2021
+###  Публикация: 1389765   (783909) от 12.06.2020
 
-Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
+Найк Борзов - Капля Крови Создателя (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042045.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_783909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Earthcult (14:58)
-02. Everywhere And Nowhere (17:58)
-03. The Heart Of Time (16:06)
-04. Thaw (16:50)Производство: Not On Label (Trna Self-released)Жанр: Atmospheric Black Metal, Post Black Metal, Blackgaze, Ambient Black Metal, Post RockПродолжительность: 01:05:52
+01. Не предел
+02. Слышу тьму
+03. Фрагмент
+04. Пойми и прости(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFE9CDB5C395923817A92CC579FB5CF5F70FFB26
+magnet:?xt=urn:btih:AD62684E7B52AFB29FA8207DADAA8E27E6D45F47
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437374   (1042301) от 04.01.2021
+###  Публикация: 1204440   (784609) от 06.02.2018
 
-Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+Гарик Сукачев и Неприкасаемые - Фронтовой альбом (2001) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042301.jpg" />
+  <img src="http://84.39.252.114/public/picture/006/save_picture_784609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morbid Delusion
-02. Buried In Snow
-03. In November Forest
-04. Along The Dark Sodden Trails(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:00:48
+01. Солнечный зайчик (П.Тодоровский)
+02. Вторжение (П.Тодоровский)
+03. 22 июня (Е.Петерсбургский - сл.народные)
+04. Intro (П.Тодоровский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
+magnet:?xt=urn:btih:1504E0CB190D8301BB478C367E705218FD1B320B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437009   (1042558) от 03.01.2021
+###  Публикация: 1124056   (786139) от 09.04.2017
 
-Show Me A Dinosaur - Plantgazer (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Blackgaze, Post Black Metal, Post Rock>
+VA - Rock сейшн (1999) [FLAC|lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1042558.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_786139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunflower (5:28)
-02. Marsh (5:34)
-03. Red River (9:37)
-04. Selva (6:49)(   Читать дальше...   )Жанр: Blackgaze, Post Black Metal, Post Rock, Blackened ShoegazeПродолжительность: 00:55:26
+01. Vоплi Viдоплясова - Весна (05:19)
+02. Колибри - Ромашки (02:49)
+03. Кирпичи - В гробу (02:56)
+04. Найк Борзов - Хороший день (05:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04AEE2499AA726EDD4AD877A4943000A8122233F
+magnet:?xt=urn:btih:9CA95C8A371217EE68F55D69AE42D231E7D098EC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425706   (1043052) от 01.01.2021
+###  Публикация: 1512450   (787089) от 25.11.2021
 
-Инкогнито - ОВЗЛ (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Ленинград - Хна (2011) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1043052.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Тени на теле
-02. Воздух
-03. Овзл
-04. Созвучны(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:36
+01. Сладкий Сон
+02. И Больше Никого
+03. Прощай
+04. Нет И Еще Раз Нет(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60A4C0C1C08F1E9E51E0187FCA048299EE1D9134
+magnet:?xt=urn:btih:F13B3CDEED7B25189BAFE91BA2152FB6CB16484B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606543   (1044448) от 22.01.2023
+###  Публикация: 1512689   (787126) от 25.11.2021
 
-Влад Демьян - Высокое напряжение (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+Рубль - Сдачи Не Надо (2010) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044448.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Бей в цель [00:03:23]
-02. Вопросы [00:03:56]
-03. Закон [00:03:18]
-04. Летать [00:03:08](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:35:10
+01. Олимпиада
+02. В Мире Животных
+03. Я, Гитара И Костюм
+04. Терпи(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:010DBDD663CAA1D8589DDE6C8ADB1C59B2C1EC63
+magnet:?xt=urn:btih:AB93003D28BB0ECEBAF16B0F8818B9D6E993425B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606570   (1044452) от 22.01.2023
+###  Публикация: 1512317   (787374) от 24.11.2021
 
-Dark Princess - Phoenix (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Female Vocal>
+Ленинград - Рыба (2012) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044452.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Phoenix (3:18)
-02. Taste of Freedom (3:13)
-03. The Void (4:10)
-04. Worth Waiting For (4:04)(   Читать дальше...   )Жанр: Gothic Metal, Female VocalПродолжительность: 00:47:15
+01. Москва (03:14)
+02. Мы за! (02:32)
+03. Вода (02:20)
+04. Рыба (02:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86AFCB4F3B991252401CFDC7F0F5C396439B0846
+magnet:?xt=urn:btih:AAF17EB4638CFDAD11E299F2EBEA5827D6384D17
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606158   (1044557) от 21.01.2023
+###  Публикация: 1512410   (787407) от 24.11.2021
 
-Aella (Аэлла) - Жизнь Происходит Сейчас (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Тринадцатое созвездие - Песня без берегов (Судзуки и сочувствующие) (2021) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044557.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Танцы В Каменном Лесу (00:03:56)
-02 - Я Так Хочу (00:03:27)
-03 - Клеопатра (00:04:09)
-04 - Белая Лилия (00:04:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:02
+01. Песня без берегов (4:40)
+02. Шансон играют рокера (5:46)
+03. Неудачник (4:29)
+04. Театр (piano version) (4:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B17813A08B1063432F71F51F6F1BB7649EDF0FD
+magnet:?xt=urn:btih:5573A7F21E4C307D9E9066250DD978B5E5542AE8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606137   (1044562) от 21.01.2023
+###  Публикация: 867606   (787769) от 23.11.2021
 
-h84u - Кали - Юга (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+Виктор Цой - Неизвестные песни (1992) [FLAC|Lossless]<Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044562.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_787769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Взлетай [00:03:22]
-02. Город ждет [00:03:19]
-03. Кали-Юга [00:03:13]
-04. Внутренний враг [00:02:39](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:24:15
+01. Разреши мне (4:08)
+02. Братская любовь (3:32)
+03. Ты мог бы... (3:34)
+04. Любовь - это не шутка (5:07)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:191D876B3E2D8698B5B9FE9FB5CB4A6EE667F2B1
+magnet:?xt=urn:btih:BF5A2518FBE1CF85767191229DE23C3EC583C96C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606147   (1044567) от 21.01.2023
+###  Публикация: 1276161   (788963) от 14.01.2019
 
-Zuname - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk>
+Король и Шут - Истинный убийца (1993) Remastered, 2018, Шумный Рекордс [FLAC|Lossless|image + .cue] <Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044567.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_788963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Night in Rostock [00:03:22]
-02. You Have to Be Strong [00:02:17]
-03. I'm Not Afraid [00:03:22]
-04. Señor Diego [00:03:35](   Читать дальше...   )Жанр: Celtic PunkПродолжительность: 00:35:28
+Первый электрический альбом легендарной группы "Король и Шут", ранее считавшийся утерянным.
+На этом слова заканчиваются, всё остальное мы сказали в песнях.
+До первого концерта в Там-Таме оставался год. Записывались в студии у Миши Кольчугина в каком-то институте на Политехе на неприлично малое количество каналов. Список соратников:
+Горшок - вокал, гитара, (   Читать дальше...   )1. Король и шут
+2. Лесник
+3. Сапоги мертвеца
+4. Охотник(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C7EB1DA00482A822E2DEBBBC17010E340CCB591
+magnet:?xt=urn:btih:B461D0DF98AE66601BD1EFF289DC1A1D27537EFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606144   (1044568) от 21.01.2023
+###  Публикация: 1511238   (789302) от 20.11.2021
 
-sanchezamoralez - Tromblerwobble (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal>
+СерьГа - Своим чередом (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1044568.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_789302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shake your horn [00:03:05]
-02. Tromblerwobble [00:03:04]
-03. Бей барабан [00:02:09]
-04. За нами наблюдают [00:03:46](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:28:56
+1. Своим чередом
+2. Воскресенье (feat. Александр Маршал)
+3. Мишка-Мишутка
+4. Тебя не сломать (Осень)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A61EE2E94DC20B6F68A0A45BFCA730835F999A2B
+magnet:?xt=urn:btih:905FE33847CD206FF4419FCCC1C56254E92A654B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605018   (1045058) от 16.01.2023
+###  Публикация: 1511278   (789418) от 20.11.2021
 
-АрктидА - Музыка ветра, земли и огня (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Margenta - Алый Король (2020) [FLAC|Lossless|image + .cue] <Heavy metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045058.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_789418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Музыка ветра, земли и огня [00:03:07]
-02. Небо держит нас [00:04:11]
-03. Море вечных штормов [00:03:42]
-04. Всё на кон [00:02:48](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:24
+Margenta — проект, состоящий из альбомов, написанных полностью на ранее неизданные стихи Маргариты Пушкиной и с её участием.
+Музыка в таких альбомах пишется на уже готовые тексты, а не наоборот, как обычно в указанных выше рок-группах.
+Проект Margenta осуществляется при участии многих известных музыкантов.
+Среди принявших участие в записях: Валерий Кипелов, Дмитрий (   Читать дальше...   )01. Алый Король (9:17)
+02. Прикосновение Ангела (4:30)
+03. Лагерта (7:08)
+04. Невесомость (Инструментальная Версия) (5:26)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:30:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F3D1B052AB9CE67B212B567CF20A335A6BBEBEB
+magnet:?xt=urn:btih:4E70ABA269078B974A11A47F35CB874A192761F8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604289   (1045383) от 13.01.2023
+###  Публикация: 1275067   (791701) от 09.01.2019
 
-Аквариум - Дом всех святых (2022) [FLAC|Lossless|image + .cue] <Rock>
+Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1045383.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_791701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. портал (вход)
-02. Ворожба
-03. Вино Из Песка
-04. Не Выходи За Дверь(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:27
+01. I (4:58)
+02. II (4:42)
+03. III (5:15)
+04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B49B2DDFC3A917B8D43323D1632F1153BA3772D
+magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601926   (1046035) от 06.01.2023
+###  Публикация: 1274852   (791704) от 09.01.2019
 
-Постарнаков и После 11 - Колея (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046035.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_791704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ангелы демоны [00:04:04]
-02. Колея [00:04:25]
-03. Люби пока я буду жить [00:04:29]
-04. Поезд [00:04:02](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:17
+01. Unsoi (4:54)
+02. Aamu Ja Kaste (6:20)
+03. Lumikuuro (7:02)
+04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA4FBA27021F4C18A4AF347F35BFBE905D4D6AFB
+magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601924   (1046261) от 03.01.2023
+###  Публикация: 1510098   (792084) от 15.11.2021
 
-Турбогроб - Гипертурбореальность (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+Margenta - Маги И Маглы (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046261.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_792084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Погружение [00:02:19]
-02. Псионический луч [00:03:29]
-03. Мы за тобой следим [00:04:05]
-04. Королева черной дыры [00:05:15](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:43:21
+Margenta — проект, состоящий из альбомов, написанных полностью на ранее неизданные стихи Маргариты Пушкиной и с её участием.
+Музыка в таких альбомах пишется на уже готовые тексты, а не наоборот, как обычно в указанных выше рок-группах.
+Проект Margenta осуществляется при участии многих известных музыкантов.
+Среди принявших участие в записях: Валерий Кипелов, Дмитрий (   Читать дальше...   )CD - 1:
+01. Пророчество (1:06)
+02. Гарри Поттер (Детство Сердца И Беда!) (2:30)
+03. На Смерть Профессора Альбуса Дамбадора. Реквием (4:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:34:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2964901B91B231B9ABDA71039DD982AEC270BEA8
+magnet:?xt=urn:btih:1D0B9378D72679D394AC41CFEC73B36068417BEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601522   (1046444) от 01.01.2023
+###  Публикация: 1274850   (792252) от 08.01.2019
 
-Най - Bloodyвосток 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+Kauan - Sorni Nai (2015) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Folk, Funeral Doom>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046444.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_792252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Местное время 20:22 [00:01:07]
-02. В мавзолее пересменка [00:03:14]
-03. Танцы [00:04:22]
-04. Война будет... (Extended Mix) [00:04:11](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:32
+01. akva (7:57)
+02. kit (7:08)
+03. khurum (7:50)
+04. nila (7:18)(   Читать дальше...   )Производство: Blood Music - BLOOD-127Жанр: Experimental, Dark Folk, Atmospheric Black Metal, Post Rock, Funeral DoomПродолжительность: 00:52:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4BD8AEA42F32DC806CD1F6D60E1C98550656FF8
+magnet:?xt=urn:btih:FC645AA618E604497E8A2C4638FDDD35F3579C74
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601534   (1046455) от 01.01.2023
+###  Публикация: 1274849   (792254) от 08.01.2019
 
-Combat Shock - Everything Goes Wrong (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
+Kauan - Kaiho (Instrumental Version) (2018) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Folk, Instrumental>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046455.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_792254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Power Abuse [00:03:23]
-02. Enemy [00:03:44]
-03. Digital Warfare [00:02:09]
-04. Crusade (Against This World) [00:03:17](   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:24:44
+01. Lapsenmuisto (5:32)
+02. Kasvot (Instrumental) (7:27)
+03. Siiville Nousu (Instrumental) (9:33)
+04. Poissa (2:24)(   Читать дальше...   )Жанр: Post Rock, Folk, Ambient, Doom Metal, InstrumentalПродолжительность: 00:50:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB6B6597532B1ECAFB78FA206C3EAB62F01D26C4
+magnet:?xt=urn:btih:8799CFA0272E8F52509C50C202BF742B471B46E0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839936   (1047025) от 02.12.2025
+###  Публикация: 1274848   (792270) от 08.01.2019
 
-The Hatters - Зеркало (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Punk>
+Kauan - Kaiho (2017) [FLAC|Lossless|tracks + .cue] <Post Rock, Folk, Ambient, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1047025.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_792270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Важно [00:03:58]
-02. Хмурый [00:03:24]
-03. На лбу написано [00:03:16]
-04. Завяжи мне глаза [00:02:52](   Читать дальше...   )Жанр: Folk, PunkПродолжительность: 00:21:40
+01. Lapsenmuisto (5:32)
+02. Kasvot (7:26)
+03. Siiville Nousu (9:32)
+04. Poissa (2:24)(   Читать дальше...   )Производство: Kauan Self-released - KM001Жанр: Post Rock, Folk, Ambient, Doom MetalПродолжительность: 00:50:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04581642F615EF642E719AC10FAF40216F933366
+magnet:?xt=urn:btih:687A67C19E22129DB0C5C87ECEAA4CF66735469D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840081   (1047173) от 
+###  Публикация: 357181   (792295) от 31.05.2020
 
-Театр Одного Актера - Белый свет (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+Черный Обелиск - 14 альбомов, 3 сингла, 2 концертника, 3 сборника (1991-2009) [FLAC|Lossless]<Heavy/Thrash metal>
 
->>Rock, Alternative, Punk, Metal
+>>След.
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_1047173.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_792295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [00:00:48]
-02. Белый Свет [00:04:47]
-03. Зверь в темноте [00:04:12]
-04. Убийца [00:03:37](   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:50:02
+Жанр: Heavy/Thrash metalПродолжительность: 01:17:41
+01. Полночь (5:13)
+02. Апокалипсис (7:06)
+03. Стена (3:58)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82209D014250C78EBD3E9A39ABE90A986C26F58A
+magnet:?xt=urn:btih:AD03CF2753BDA6AF24D660C7A42CEB4BE22C5277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387015   (792638) от 31.05.2020
+
+Карл Хламкин - Хламкин, заткнись! (2003) [FLAC|Lossless|tracks + .cue]<Pop Rock, Ska, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_792638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лужники
+02. Лумумба
+03. Канава
+04. Гордый сокол(   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04F69D7F54556A4DD5E3BFD4FF1621C032BDA02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201352   (792808) от 24.01.2018
+
+Сруб - Скорбь (2018) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_792808.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гибельные травы, которые срезают ночами черти обломками челюстей мёртвых лис, дымка над болотами, страх от прикосновения кого-то к плечу на пустой дороге через предрассветное поле, чащи, буреломы, папоротники, колючая и мокрая хвоя прямо в лицо. И смех без источника. Всё это здесь" (Всматривающаяся бездна)
+Новосибирский "Лютый славянский пост-панк" (   Читать дальше...   )01. По ягоды (5:32)
+02. Вспять (5:27)
+03. В чаще, где пал крест (5:55)
+04. Храни (5:58)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC97B7621B9D1E8B465A73047AAE033FA9CE5289
 ```
 
 

@@ -1,697 +1,701 @@
-###  Публикация: 1456054   (1025293) от 21.03.2021
+###  Публикация: 1397510   (739825) от 21.07.2020
 
-Justin Bieber - Justice (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Much (2:33)
-02. Deserve You (3:07)
-03. As I Am (2:54)
-04. Off My Face (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40DE24B616C2610728496B89BB0301B4DEA0BEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456134   (1025314) от 21.03.2021
-
-Сенатор (Senator) - Лучшие хиты (2020) [MP3|~245 Kbps (V0)] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Недотрога (3:48)
-02. Эй, диск-жокей (4:09)
-03. Алёнка (4:27)
-04. Разлюби его (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0256524541D88C1DBBE5846CBECD9B4ADF1191B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456138   (1025318) от 21.03.2021
-
-Чё Те Надо? - Где найти мужчину? (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где найти мужчину? (3:10)
-02. Она работает на скорой врачом (3:31)
-03. Чайничек (2:56)
-04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01244B3A5ACF20F311FA52A83E963EE5C3E83297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455924   (1025429) от 20.03.2021
-
-Madonna - Bedtime Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedtime Story (Edit)
-02. Bedtime Story (Junior's Wet Dream Mix)
-03. Bedtime Story (Junior's Dreamy Drum Dub)
-04. Survival(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BDD443A26A71C6E9C3F436D839DF9B540F0561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455921   (1025437) от 20.03.2021
-
-Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+VA - Русское застолье (2001) [FLAC|Lossless|tracks + .cue]<Pop, Folk>
 
 >>Pop
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025437.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_739825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ты меня не забудешь (2:50)
- 02. Иди танцуй (2:52)
- 03. Океан (3:28)
- 04. Холостяк (3:18)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:27:46
+01. О. Канайкина - Солнечный денёк
+02. Адреналин - Шаб-да-будай
+03. Ахи-вздохи - Киданула
+04. Сладка ягода - Ой, цветёт калина(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42E0F310BD470D3716377DD8DE28F3A39B4F586B
+magnet:?xt=urn:btih:D6211223FA97C8C77B568544692AE99DEA98571C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455813   (1025484) от 20.03.2021
+###  Публикация: 1397532   (739829) от 21.07.2020
 
-Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ti Amo
-02. Eva
-03. Notte Rosa
-04. Tu(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455737   (1025491) от 20.03.2021
-
-Воnniе Туlеr - Тhе Веst Is Yеt То Соmе (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. Dreams Are Not Enough
-03. Hungry Hearts
-04. Stuck To My Guns(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455431   (1025581) от 19.03.2021
-
-VA - Best Radio Tracks, Vol. 21 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025581.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Marshmello/Imanbek/Usher - Too Much
-2. Ya Rick/KDDK - La Grenade
-3. Edward Artemyev/Rompasso - Space Melody
-4. Lost Capital - Gangsta's Paradise(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBC107C125F428BA6DD1457257792AC77FD358E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455432   (1025606) от 19.03.2021
-
-Валерий Леонтьев - На крыльях любви (2021) EP [MP3|320 Kbps] <Pop>
+Балаган Лимитед - Ремиксы (2020) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025606.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_739829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. На крыльях любви
-2. Ангел
-3. Бродяга
-4. Не включайте свет(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:35
+1. Вася-Василёк (Remix)
+2. Чтоб тебя
+3. Ой там на гори
+4. Атия-атия(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B9E5BD3C188150C1E4AB99732D4393AF56C0EBE
+magnet:?xt=urn:btih:3FBCEE11CE94088DE37AC878ACDC42FBAC263A11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455430   (1025608) от 19.03.2021
+###  Публикация: 1283529   (739839) от 17.02.2019
 
-Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025608.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты меня не забудешь (Intro)
-2. Ты меня не забудешь
-3. Иди танцуй (Intro)
-4. Иди танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38DD130159267AF558AA31AA3A5ECCA935CF436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455580   (1025622) от 19.03.2021
-
-Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (4:35)
-02. Strangers (3:41)
-03. Feels Right (4:35)
-04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455320   (1025627) от 19.03.2021
-
-Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где найти мужчину? (3:10)
-02. Она работает на скорой врачом (3:31)
-03. Чайничек (2:56)
-04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455592   (1025664) от 19.03.2021
-
-Андрей Яшин - От А до Я (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментал #1 (3:52)
-02. Лето улетело (5:08)
-03. Снова ветер и дождь (4:52)
-04. Забудь (5:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455123   (1025814) от 18.03.2021
-
-Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousels (04:51)
-02. I Will Not Hide (04:15)
-03. Broken Eyes (04:15)
-04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454972   (1025939) от 17.03.2021
-
-Joy - Joy (Все золото мира) (2000) Unofficial Compilation МЕККОФОН Russia [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch '2001 Featuring – Area 51 3:38
-02. Touch By Touch '98 (Extended Rap Rmx) 5:20
-03. Felicidad (Single Version)	3:55
-04. Hello (Extended Version)	5:33(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDDC91732BD69D6ABE5E6C7508E3AACF1555EFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454987   (1025954) от 17.03.2021
-
-Silent Circle - Всё Золото Мира (2000) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Affair 2001
-02. Touch In The Night '98
-03. Stop The Rain In The Night
-04. Touch In The Night (Original)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE836B472FB38FB307FA94DAB81E99F95D742F42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454848   (1025987) от 17.03.2021
-
-Roosevelt - Polydans (2021) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (04:35)
-02. Strangers (03:41)
-03. Feels Right (04:35)
-04. Closer To My Heart (04:44)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED89B0D759C0C2715244FBAF5129BE4F10E5F2D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454791   (1025988) от 17.03.2021
-
-David Deyl - 5 Albums, 17 Single's (2009-2020) [MP3|320 Kbps] <Pop, Classical crossover>
+Charlie Faye & the Fayettes - The Whole Shebang (2019) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1025988.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_739839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2009 - Hlavolam
-2011 - Zasah
-2014 - V Ozvenach
-2016 - Moje VanoceЖанр: Pop, Classical crossoverПродолжительность: 04:44:53
+01 – 1-2-3-4
+02 – I Don’t Need No Baby
+03 – The Cream Rises to the Top
+04 – The Whole Shebang(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A3DDEDA20EA7123B0A09C53B85C5BEB3E61C3B3
+magnet:?xt=urn:btih:4E2EBBAB9493BDBB00CA66804532359D6E5DC3A0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 182195   (1026046) от 16.03.2021
+###  Публикация: 1217976   (740230) от 07.04.2018
 
-Natasha St-Pier - Дискография (11 альбомов) (1996-2018) [FLAC|Lossless]<Pop, French Pop, Pop-Rock, Dance>
+Arpadys - Arpadys (1977) LP [MP3|320 Kbps] <Electronic, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_740230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey Star (6:33)
+02. Funky Bass (5:55)
+03. Pharoah Song (4:36)
+04. Stone Roller (5:34)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853E52855DDD8AB8A8D060FD90EE4BBA891415D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283312   (740264) от 16.02.2019
+
+Pussyfoot - Pussyfoot (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_740264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night To Remember (3:05)
+02. Lies (Stop Telling Me) (3:38)
+03. It's Allright (3:00)
+04. Gotta Move On (4:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4511789C5ACAC8E95D17EBA2C2C4D2CCEFBBA738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283284   (740329) от 16.02.2019
+
+Fisky - Frisky (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_740329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got Me Dancing In My Sleep (6:56)
+02. Burn Me Up (With Your Love) (7:50)
+03. Tutty Frutty Booty (Is Good When Its Hot) (8:51)
+04. Love At First Sight (6:04)Жанр: Funk Soul, DiscoПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8605A72109C7738BB355E09E68087970BBCD6ECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217854   (740645) от 06.04.2018
+
+Юрий Чернавский - Золотая Коллекция, 2CD (2003) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_740645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лунное Кино
+02. Если Ты Помнишь
+03. Капитан
+04. Фараон(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD553DF48CCFD2C31E06BA22CF1C298B96FC3F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021439   (740679) от 29.05.2016
+
+Fifth Harmony - 7/27 (2016) (Deluxe) [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026046.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_740679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, French Pop, Pop-Rock, DanceПродолжительность: 01:04:27
+01. That's My Girl (3:24)
+02. Work From Home (3:34)
+03. The Life (3:23)
+04. Write On Me (3:40)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:41:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65E25E9252040B55395937B145F8581E0C7B79B3
+magnet:?xt=urn:btih:65CE7A80CC0D93FBE04D6A62B8EE37F335E3B30E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454818   (1026123) от 16.03.2021
+###  Публикация: 1217889   (740746) от 06.04.2018
 
-VA - Pop Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maroon 5, SZA - What Lovers Do (3:19)
-02. Justin Bieber, Ludacris - Baby (3:33)
-03. Shawn Mendes - Mercy (3:28)
-04. Selena Gomez, Marshmello - Wolves (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280961116177338F3E03786A983CAD1AB87C5B03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454835   (1026132) от 16.03.2021
-
-Шпильки - Больше гламура (2007) Шпильки, 2011 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Больше гламура (3:37)
-02. Папуасы (3:32)
-03. Девки самый сок (3:31)
-04. Больше гламура (3:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE58AAB6109A8B6FC0FAD74FA72B17F29115733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454839   (1026138) от 16.03.2021
-
-Шпильки - The Best & New. Альбом третий (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сам ты Наташа (3:42)
-02. Маленькая штучка (3:31)
-03. Больше гламура (3:38)
-04. Папуасы (3:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4B2DCE9EF1075D32DB14157E91DA966358F5C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454186   (1026350) от 14.03.2021
-
-Гурт Made in Ukraine - Нові хіти (2021) [MP3|320 Kbps] <Pop>
+VA - Eurovision Song Contest Lisbon (2018) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026350.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_740746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Там за містом [00:03:06]
-02 - Сльоза в росі [00:03:20]
-03 - Смуглянка [00:03:57]
-04 - Туманочку [00:03:17](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:10
+01. Eugent Bushpepa - Mall (Eurovision 2018 - Albania)
+02. Sevak Khanagyan - Qami (Eurovision 2018 - Armenia)
+03. Jessica Mauboy - We Got Love (Eurovision 2018 - Australia)
+04. Cesar Sampson - Nobody But You (Eurovision 2018 - Austria)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFE42B4B4DCEEAA8798500EED82156F31E022B0F
+magnet:?xt=urn:btih:FAB41AFE16B0CCD2C14958585A9884917F4CAFC5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454195   (1026379) от 14.03.2021
+###  Публикация: 1217791   (740751) от 06.04.2018
 
-Сергей Зверев - Звезда в шоке...!!! (2007) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Алла [00:03:30]
-02 - Ради тебя! [00:05:03]
-03 - Я люблю тебя до слёз [00:01:36]
-04 - Больше гламура [00:03:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C87F3AD2166ECA6363390C21C19DC02161EAF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454294   (1026428) от 14.03.2021
-
-VA - Spring Acoustic Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Lisa Stansfield - Deeper (2018) [FLAC|Lossless|image + .cue] <Pop, Sou, Disco>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026428.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_740751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Karizma Duo - Survivin’ (Acoustic) (02:41)
-02. Shannon & Keast - Eastside (Acoustic) (03:06)
-03. Django Wallace - My Future (Acoustic) (03:22)
-04. John Burnsby - Easy (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:59
+01. Everything
+02. Twisted
+03. Desire
+04. Billionaire(   Читать дальше...   )Жанр: Pop, Sou, DiscoПродолжительность: 00:53:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D603BFE8E3612577820106BC4971AE16DD92ED78
+magnet:?xt=urn:btih:E34F1312CB772DE3FF824AA3677A80B52A42ACDC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453896   (1026597) от 13.03.2021
+###  Публикация: 1217778   (740837) от 06.04.2018
 
-Балаган Лимитед - Поговорки (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Kylie Minogue - Golden (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
 >>Pop
->>Отечественная поп-музыка (Lossless)
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1026597.jpg" />
+  <img src="http://84.39.252.114/picture/008/save_picture_740837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Обнимашки [00:03:30]
-02 - Чё те надо (Version 2019) [00:03:29]
-03 - На восходе [00:03:06]
-04 - Ветер унеси (Solo Version) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
+01. Dancing (2:59)
+ 02. Stop Me from Falling (3:02)
+ 03. Golden (3:08)
+ 04. A Lifetime to Repair (3:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC4B39DAF3C0799B9D10D9FB97B9D7CECFD4D0E6
+magnet:?xt=urn:btih:510A530C1E2833059D93D477FB87E07F3F0056EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127171   (740911) от 20.04.2017
+
+Texas - Jump On Board (2017) Scene [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_740911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Work It Out
+02. Can't Control
+03. For Everything
+04. It Was Up to You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9A059339CE2003CB0D280CC4721B515E1DDF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217765   (740949) от 06.04.2018
+
+Samantha Sang - 3 Albums (1975-1979) LP [MP3|320 Kbps] <Vocal, Ballad, Disco, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_740949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийская певица, родилась 5 августа 1953 года.Настоящее имя Cheryl Gray. В создании второго альбома приняли активное участие братья  Barry и Robin Gibb из известной группы Bee Gees.Список альбомов:
+1975 - Samantha Sang and Rocked the World
+1978 - Emotion
+1979 - From Dance To Love(   Читать дальше...   )Жанр: Vocal, Ballad, Disco, SoulПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6387A548ACB5047F5606838D73B3A413017191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217887   (741039) от 06.04.2018
+
+Marsius - ..... Save The Tiger (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save The Tiger (5:17)
+02. Suite For Lovers (10:54)
+03. Chiricahua (4:55)
+04. Look At Me Babe (4:19)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D23B3144F24BEE87D7234DABB9CD4C01CD0AAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283053   (741046) от 15.02.2019
+
+Robbie Williams - Under The Radar Volume 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Impossible (04:35)
+02. Gold (03:57)
+03. Dirty Rotten (03:36)
+04. Good People (04:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA1FFBD3EB7E037DE163A28A9F80329CF060FBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283014   (741049) от 15.02.2019
+
+VA - Sanremo 2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Loredana Berte' - Cosa ti aspetti da me
+02. Ultimo - I tuoi particolari
+03. Patty Pravo & Briga - Un po' come nella vita(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D05EEC26846030AAC8300C49ED013ADD886004F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283017   (741058) от 15.02.2019
+
+Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Impossible
+2. Gold
+3. Dirty Rotten
+4. Good People(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2742B9C5AA595456AA4E094D7E2498C83883CC7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283144   (741060) от 15.02.2019
+
+VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cy-Ro - It's All up to You (Extended Mix) 05:56
+02. Michelle Rose - Hard to Say I'm Sorry (Extended Mix) 06:11
+03. Ciao Ciao - The Magic of Sunshine (Extended Mix) 06:07
+04. Francis Cooper - Pretty Woman (Extended Mix) 05:50(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283062   (741062) от 15.02.2019
+
+Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Piazza (3:51)
+02. Sara (4:27)
+03. A Chi (3:20)
+04. Volare (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87FCAF208953FB5A2B87EC3804F6D83CEB07AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283154   (741168) от 15.02.2019
+
+Bodies Without Organs - Prototype (2004) [MP3|320 Kbps] <Pop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen Tons Of Hardware (3:28)
+02. Conquering America (3:20)
+03. Son Of A Gun (3:25)
+04. Open Door (Ballad Version) (3:29)(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5D00D9FB9524B9CC82DCB3B8FD9D1B6D6819F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397140   (741340) от 19.07.2020
+
+VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amy Phillips - Sorry Not Sorry (3:23)
+02. Jonas Gerard - I'm Upset (3:18)
+03. Little Play, Layla Young - Girls Like You (4:14)
+04. Tia Matthews - Most Girls (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890997   (741581) от 22.04.2015
+
+Яак Йоала - Grand Collection (2003) [MP3|320 кб/с]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй
+02. Я тебя рисую
+03. Солнечные часы
+04. Предсказание
+05. Не забывай(   Читать дальше...   )Жанр: RetroПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD5ABA2416DB8E2BD04AB798F462898224ED81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021200   (741720) от 28.05.2016
+
+Sandra - The Very Best Of Sandra (2016) 2CD, Compilation [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_741720.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. (I'll Never Be) Maria Magdalena (Single Version) (Remastered 2016) (03:58)
+02. Everlasting Love (Remastered 2016) (03:42)
+03. We'll Be Together ('89 Remix Single Version) (Remastered 2016) (03:46)(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51400D4EBCD4C4B3C22C07A477BD57423276639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021126   (742190) от 28.05.2016
+
+Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_742190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская группа Azoto - еще один проект композитора, аранжировщика и продюсера Celso Valli, являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Passengers и Tantra.01. Havah Nagilah   (8:51)
+02. Rainfall   (5:52)
+03. Discomedley   (7:06)
+04. Zorba's Dance   (3:23)(   Читать дальше...   )Жанр: Electronic, Disco, Funk, SoulПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C95D3CDB84C587894EE71C5B51FA01D278D441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217445   (742409) от 05.04.2018
+
+Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [MP3|320 Kbps] <Country, Alternative Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_742409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I'll Be Home for Christmas 4:47
+02. The Christmas Song 4:42
+03. Merry Christmas Darling 3:28
+04. Blue Christmas 3:54(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282892   (742459) от 14.02.2019
+
+Patricia Paay - 4 Albums (1975-1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Disco, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/008/save_picture_742459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Patricia Paay -  голландская поп исполнительница, радиоведущая, гламур модель, звезда телевидения.Список альбомов:
+1975 - Beam Of Light
+1977 - The Lady Is A Champ
+1978 - Malibu Touch(   Читать дальше...   )Жанр: Europop, Pop Rock, Disco, BalladПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDCBB744B7F5F10068F0100760E0E2CB2F42E04
 ```
 
 
