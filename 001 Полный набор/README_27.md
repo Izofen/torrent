@@ -6,7 +6,7 @@ SoftMaker FlexiPDF Pro 2025.416.1204 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048195.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sleep Awake (2025) [Ru/Multi] (R-1.0-43669) Scene TiNYiSO
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048194.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VCap Downloader 0.1.42.6860 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048193.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048193.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MassTube Ultra 21.3.0.182 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048192.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048192.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ YT Downloader 10.0.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048191.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048191.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adobe Illustrator 2026 30.1.0.136 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048190.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048190.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Stay Away - Нездоровый образ мыслей (2025) [MP3|320 Kbps] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048187.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048187.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:891514F3B4D53EC741DC75586A03C0F483D33A15
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048186.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048186.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:50462B4633D2642CD875059ABAB09ACDC425F108
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048185.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048185.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2AFD52CD08D537064B09AA15B67FD35B987CD39E
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048184.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048184.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1AE3A2269DB44C5BC030E9AAEB42E47A71E30707
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048183.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048183.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ GPS АнтиРадар v52.0(R) Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048182.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048182.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:174CDE6A2BFD6EB8A1149A06F7CF146C895A8943
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048181.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048181.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ MAX Desktop 25.20.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048180.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048180.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B0DC9F77BE8AE37E190749AE51DE38C6B4A8EC3B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048179.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048179.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:784DC327AA63ECBD5071837170CE006EDD307B56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048178.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048178.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:DC9626702FDFA1B86D558B2724AA361918F0D600
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048177.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048177.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AIDA64 v2.16 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048176.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048176.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:0E9DFA1B53BDA71B9AFCC6A66D0159A5FE23ACB7
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048175.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048175.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Pro Pool 2026 v1.62 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048174.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048174.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Vector | Совершенный (Книги 1-7) (2022-2025) [MP3, Павел К
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048173.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048173.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:373FE1C9C27658A4D0A19934A61614EF2FC37ADB
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048170.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048170.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:7211D72B2C7DC9F04E9C6F962061C9C79CCBC1F4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048169.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048169.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:1D319016617A1A3200EBD3F92CF0EC60C8E09362
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048168.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048168.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:4FB466BE38EB879AA333E4A054E36E2ABD666AF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048167.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048167.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:79AED5FC8B217B8F6DD7B6991E28580E1210F38D
 >>Спортивные (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048166.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048166.jpg" />
 </div>
 
 

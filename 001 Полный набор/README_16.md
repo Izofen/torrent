@@ -6,7 +6,7 @@ Biped 2 (2025) [Ru/Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048485.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ YT Downloader 10.0.10 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048484.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048484.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.2.0-b5599/dlc) Repack FitGirl [Ult
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048483.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048483.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6AFC9D796AEA94D2A6F6116829EF1E3F2E93AA6F
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048482.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048482.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:159847DCA319C81F55C44F89F78DE5CB941E44D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048481.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048481.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C4EB423ACC6710ADDB35E579EF41D8AEBC988F74
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048480.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048480.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4BFE1A305415281E9F4CFE8D070006B78EF11A63
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048479.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048479.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:93C8BDA299E8EDB1501088C170263F8E33421919
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048478.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048478.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Ayreon - The Human Equation (2004) Box-Set, 3 x CD, Remastered, 2025, Music Theo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048477.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048477.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4F9C76A166CD280957495E32A3A6BE3EB90EC5DC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048476.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048476.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ HiPER Calc Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048475.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048475.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:0E58DC303CA995CBF00EBC81079DF41A35A42662
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048474.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048474.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A55E6E5EB122A329FBF5FF32A90DF82E2EE9719C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048473.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048473.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:A180E4E2CBC94B9ED7523BE265A7B31143C21978
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048472.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048472.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1BAC6760419C7E65C9D4624CEBB0C078C8BA661F
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048470.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048470.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C318E9F1CF1CB543A29E059FC7CA55E7F6DF6C62
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048469.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048469.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Universal Copy v7.0.1 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048468.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048468.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048467.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048467.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B298667CB340ADB4A709E5CC4C255EDFC54A8E71
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048466.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048466.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:1742DA7725021D73736DD645DB0AE67407BE359D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048465.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048465.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:D465B14887207A139AB8AE99CC104F8003B61AFF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048464.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048464.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3AAB35A7AE850A4073DA65BC23812403B319C5A6
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048463.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048463.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:04E55287A58CBEC33749BDF2DAC82135EC95A534
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048462.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048462.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:BDFE18F6BC718D18D4099139ECAB1C66A6DF81C9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048461.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048461.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:5E09146751982A827E1CB116BD742C7737F3227A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048460.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048460.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:B301E40CE023260770320C77B57F2B1236D72BC8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048459.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048459.jpg" />
 </div>
 
 

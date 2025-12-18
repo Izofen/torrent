@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048165.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048165.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:132A6EFE9CA24B11AF088AB6A2A0CF355689003A
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048164.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048164.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:41464BED22BCC9B59813F7620E529793B2BCAA9A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048161.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048161.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Antonio Melé | Django 5 By Example. Build powerful and reliable Python web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048160.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048160.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E3D33FA8C59D48A909DDF1EEEB1668F102585291
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048159.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048159.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:02C61894383BA22C021479A80109508D6D9B471A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048158.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048158.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Demotional - New Horizons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048157.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048157.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B0C978DF742DC8494D72510C688C973262ACED8C
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048156.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048156.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - 100% Ibiza (The Late Night Club Closings 2025) (2025) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048155.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048155.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:AC0CC44BD62372FCCA49FC3B73B2F739F38A1C58
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048154.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048154.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:E9A47B734E509FA96032CBA21F2BA112FBF0FCDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048153.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048153.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:126584D00B1D1F1FD45300DA00B0AE32A6AF596C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048152.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048152.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ PDF24 Creator 9.19.0 (Win 7-8) / 11.29.0 (Win 10-11) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048151.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048151.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:AE7601EA888A43CEFA5F24EDA7490A909020CABB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048150.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048150.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:6DE5F24A448FC5D948DCC6345181BE6A95D0D796
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048149.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048149.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:E1ECAA7FCB9B49BD1B982FB02B728488EB2C5CB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048148.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048148.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:A4292A855B9B1EDAD64048B142A3C38B48207404
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048147.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048147.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Project Motor Racing (2025) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048146.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048146.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Adguard 7.22.3 (7.22.5240.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048145.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048145.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ iDownerGo Video Downloader 10.10.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048143.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048143.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Any Video Downloader Pro 10.0.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048142.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048142.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Process Lasso Pro 17.0.0.132 (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048141.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048141.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:874CE61A2AE435C591CB0DF22679E8F1658DFC5B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048140.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048140.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:F1E14D8FD213BFE33383F034C5DD8474249BA6A0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048138.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048138.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:549B531CA48E0E27307B9568CF6B54056BC59968
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048137.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048137.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:8A6854BED862A37C6FF5D966F7CB6C5BAAC29DB8
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048136.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048136.jpg" />
 </div>
 
 

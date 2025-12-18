@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048828.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048828.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1EAA0FB3CA028E2B27F7E381CE7BA21D4FF29052
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048827.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F5F18E214190BE5C8D2456D7EB798A3860448F93
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048826.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048826.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D45BAFD46A7C90F7FAE3A189F5AC7C02FE73758D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048825.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048825.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BAE5ABC9959F272CE5FABD44D69E849D7F0B6773
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048824.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048824.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Chronicles of Albian 3: The Vanishing Village / Хроники Альбиана 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048823.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048823.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4D2B596D2C5DC451B5E469C820393E06EDF720B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048822.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048822.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:15C534D065EDF17611C59F6DB3F3521F0B2B380B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048821.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048821.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E980CA800EB9FA93ADA5F4913B8E5790C642E556
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048820.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048820.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B1EC841139108B52A1C4842FFF00F75FCB43091F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048819.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048819.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:63635784E69892946A77CE15365F08F19192DEDC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048818.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048818.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на больш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048817.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048817.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048816.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048816.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048815.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048815.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048814.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048814.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048813.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048813.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ KMS Tools Lite Portable by Ratiborus 17.12.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048812.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048812.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ KMSAuto++ Portable 1.9.9 b09 by Ratiborus [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048811.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048811.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:FD9DCBFCE28BD4B51F6F2F6A6B97269AA669F75E
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048810.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048810.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:F17A47D7B8245505D127ABC85763FF3931C4BB41
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048809.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048809.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:C008440D28720E22E7EDCFFC66B06944A56EB98A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048808.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048808.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:67C35F150230C06BA452870068735AE5237A6156
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048807.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048807.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:1D8CAD01EAB1A3BD9B15BE213425022718F1175D
 >>Экранки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048806.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048806.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:762C5C188FDA30A9652525B0FD90CB4CA43A91B0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048805.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048805.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:B0CDE5DACB31928E33D9348076192D337CA77A2F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048804.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048804.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:F66629F9B50885288FAB76DDC43D07C6822D39A2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048803.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048803.jpg" />
 </div>
 
 

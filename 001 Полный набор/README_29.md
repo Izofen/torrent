@@ -6,7 +6,7 @@
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048135.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9F0602ED82A58671613E84601415A7CF503BED53
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048134.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048134.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1DA68FD6D077EB0F4ADE87AEF0EE28BD064E19BA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048132.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048132.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F7DBC6424F9FFE24BC2E6AC36A831039937BC635
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048131.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048131.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:8C470EEA10B82B6308DE0A39121CB5ABE709668E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048130.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048130.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B52B85DA7FC4567E4104B28D33C7354CFE5FC00C
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048129.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048129.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Chromium 143.0.7499.110 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048128.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048128.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:4170C689B10F9AE3DCA34B5F4A6C7A06BB74BED6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048127.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048127.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:68600E1C33345D298E6E294A9B07CD95048229A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048126.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048126.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Depeche Mode - Memento Mori: Mexico City (2025) 2 x CD [FLAC|Lossless|tracks + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048125.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048125.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Christmas Stories 14: By Candlelight (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048123.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048123.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Christmas Across America / Рождество по всей Америке (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048122.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048122.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:332751033C828B305975EF94DB4CC4F4B825795A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048121.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048121.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C54C1F3AAADA8F2F40A712F492304A40BD56658A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048119.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048119.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Myntra - Subnivium (2025) [MP3|320 Kbps] <Metalcore, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048115.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048115.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Diaclast - violence originates violence (2025) [MP3|320 Kbps] <brutal-death-meta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048114.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048114.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Infinite Coles - SweetFace Killah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048113.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048113.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:58E678354DC7B1308455BEB6BBA2AD67FA91F0D9
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048109.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048109.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:5C92277A1C8CFE30560B20819E4B35DC9BC10492
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048108.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048108.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A246305D56A60129112A7CB4A6FC3D80F5FAC66D
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048107.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048107.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:99F08E79918DBB301BF3A98931A8493A631DA568
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048106.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048106.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:E9B52EAD8D83DA260765D3B6913E100112CAF184
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048105.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048105.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:5C9A7F417CECA5D54E0053DCC162D628F057B2E3
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048104.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048104.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:9EC712DE210520E5C254793E7759D1BF2F2D7867
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048103.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048103.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:B17C6DF5BA08A1F9F71BFB7F46440A4E76D6121D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048102.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048102.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Total Chaos (2025) [Ru/Multi] (1.035) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048101.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048101.jpg" />
 </div>
 
 

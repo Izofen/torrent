@@ -6,7 +6,7 @@ Nick Cave & The Bad Seeds - Live God (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048046.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048046.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0791FB4A16EA6E90B0E28231239E445F6FF29765
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048045.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048045.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8947C5F307AE89E8F9103E0D4BC777A74113CFD1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048044.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048044.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:55ACC6F0199085DED6DDED1B4D9F744BA213FBBE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048043.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048043.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7912C60E4CCCA343F72E42FEFB8C260F8AEDFBAF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048042.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048042.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4857A9F3088C3C84BD114BBFA7494FFF15861A20
 >>4
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048041.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048041.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ RHVoice - синтезаторы речи SAPI 5  v4.0 - 4.8 для Balabolka [M
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048040.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048040.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Total Commander 11.56 Extended 25.12 Full / Lite RePack (& Portable) by BurSoft 
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048039.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048039.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Adobe Acrobat Pro 2025.001.20997 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048038.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048038.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.20.8100 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048037.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048037.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ MediaHuman YouTube Downloader 3.9.18 (0412) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048036.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048036.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Download Master 7.3.1.1745 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048035.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048035.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048033.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048033.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B76FA27707FC2CF276EBCD9A0368C8A95F79E357
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048032.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048032.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:66BA9015B3F61ED9CB9520EA4068409F5138F02C
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048031.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048031.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:4FABA2B043DF0F748DBC36C7A687ACEC750ADAFC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048029.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048029.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:DEB6AEA9F58A206BC4FDF7B28EAB0C6DDF124E92
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048028.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048028.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:C3AB31167F9786C56AE8E784F78537C459E608B1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048027.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048027.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B29AB852DEDB69FFB7199C2217707EFE800C0EF8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048026.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048026.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Google Chrome 143.0.7499.110 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048025.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048025.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:DF3AA445B275435F23222402CE027C37AC007B04
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048024.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048024.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0049CC7EF6B60643AA105EA12BA9430A0D27F888
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048023.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048023.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048022.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048022.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ MSAct++ 2.11 Portable by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048021.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048021.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B357033AAABA35EC43D98BE6677E29AA9C864EB9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048020.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048020.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.12.09) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048019.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048019.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048406.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048406.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E5C90012680F8CE26599EE78016BA6219E44875F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048405.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048405.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D5489D1ECDDB45B49B9A3FE1B295ACA3098DA3E4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048404.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048404.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7ADD1C7F632CB70579D552BAC7EBD9966EC16952
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048403.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048403.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5525509E6610BD7F4E6602269C1C00863AB80911
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048402.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048402.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4BAD7E5D7EE060993F3F6376A8954F263D3E358A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048401.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048401.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C533300B667CA27E9478FDB7F1F1FF1112E9B9C1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048400.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048400.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4CB7ADD14DDE8DB8983BDD738446F35D91962B39
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048399.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048399.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B62BF32DBA0589073BAE5ABACD1C3096C2AE5DE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048398.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048398.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048397.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048397.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:886D0AAEC3E7AC8485ABD0030E4BA42208BC053A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048396.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048396.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F36FD9EA653AEB040FFA1C2F042E3FAF7EE10776
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048395.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048395.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lord Of The Lost - Opvs Noir Vol. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048394.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048394.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:71F23812A8A6397129D2F9D9EE67F69D6B0F0479
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048393.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048393.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048392.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048392.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048391.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048391.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:0D2A77DA7BF37C6F83379E71A4B53BD658F7EF4C
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048390.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048390.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:2F2C1443693AB9A54CFC8CE2A2E8CA84BAA42184
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048389.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048389.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:CDA720E7D04CF7F1DE9853CF5B0190CCE4EF088B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048388.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048388.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048387.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048387.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Constance (2025) [Ru/Multi] (1.0.1.40150) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048386.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048386.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048385.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048385.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048384.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048384.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:256F733A69BA92C558E46CB04059D45E1C5DD873
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048383.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048383.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048382.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048382.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048381.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048381.jpg" />
 </div>
 
 

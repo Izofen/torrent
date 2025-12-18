@@ -6,7 +6,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58429 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048458.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048458.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1284A7FAB8F1B54AB13A48C0F740D7257232B42E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048457.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048457.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3A090FD012D25274507A82A8BC5916AA7C752DAB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048456.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048456.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E02FD0C6E6078EB4AAED56B70AE8B2A2DCC7C160
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048455.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048455.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0B7F51AF8C49BD31C77D3D5ACA77BDDB2BFFD19A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048454.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048454.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:44EE6E072E3CD10AAFABC03BA781D9F0C5BCA9B3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048453.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048453.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7E909A297B842AD52D57404C298117ADB04F6F09
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048452.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048452.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:0DCF5632CE66796A4582442E84F90E299FFE6EE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048451.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048451.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C473586CCA8F1AA510F878D4D305B0EE0DDD997E
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048450.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048450.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:4D5B30E011C276F286D55F5100E22402C28E035C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048449.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048449.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BAC63DFDA08732C170AAF1A8FAEE730ABDC32FB8
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048448.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048448.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9D0E97755D380F797FAA94D9944F18F2880B0FA9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048447.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048447.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:34C6D67F1F78D6E76BF2E4327ECEBB6EA1DEFA25
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048446.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048446.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8E6A6883F1308EB415CDA78DFB05CFF0BFD6536C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048445.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048445.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:ECA823A777A002558B7C222FBE83224E4F81D1C2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048444.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048444.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B6E3DDD55FC12BF3399997588468708BD8676A4F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048443.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048443.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:CD02396082A5F1593C08AAE5D03D31C9208007BC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048442.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048442.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - No name compilation part 24  Dance, Synthwave,  Disco (2025) [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048441.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048441.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:F813DF76A164EDDBDA9E166A34A07ADD494F7C37
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048440.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048440.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:E2DBFD56E176A7250F328A9CF149563AE6AF65C7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048439.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048439.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Genius.Space, Катерина Кравчук | Профессия Графич�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048438.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048438.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8CA51D8405A0F2A3E1D9FD1ED5E61664BB6497DB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048437.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048437.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:707889A260D0FEBA1D4E387491B0F8E9E189AA97
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048436.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048436.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:358D273DC944A6F5AE64ED8669A4B4E2BA0829EA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048435.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048435.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Yarets.Art, Виктория Ярец | Pixel Art (2025) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048434.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048434.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:8B220BAB8915CC90DB6F805138BD709E42A25829
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048433.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048433.jpg" />
 </div>
 
 

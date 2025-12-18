@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048802.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:197ED2809C6F415E3F54236321BD331F84905E7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048801.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048801.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:98BCA158DA21C487E81831EB00610F08249D4F4A
 >>Историческая проза, Мифы и Легенды, Фольклор
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048800.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048800.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EED3EFD467E6B18E0D2BC0C512B36F666F77A781
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048799.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048799.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F90DD686231CD3EA52A02E3BFAE118A2B89A8C3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048798.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048798.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8E85D103F9D60429B6CA8ABB08F2530E30BBC05E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048797.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048797.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:207046CB63043EA4920F8A91FCC3C2399BD80921
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048796.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048796.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2E5444D408661C356B26B5D81A6A326EE1733D14
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048795.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048795.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5DD523F6A434ABC6C6419B9738D60AEB18687565
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048794.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048794.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BC7AD8BCF3AB29C6BA15B50EDC557EF2902360BA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048793.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048793.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048792.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048792.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:82A9939B1C18378F79E7124881BA4AB4E6FA595C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048791.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048791.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7D226F265DBBBB119E7BC1F9D49093A3EF5BF0A1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048790.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048790.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:8A8EC4678EDF1794BF714D63D97B4085A7782C6A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048789.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048789.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:99735A6F24779A05E40E6CC1BF12202B902DD468
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048788.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048788.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2609CC792396908CF37E695F4BAE068368CB8F31
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048787.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048787.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D7630042F717B27F7C8CB54590A5CB020D294C1E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048786.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048786.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:B02443086CDF1B4FE6EE30EEF457432510C9EFE9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048785.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048785.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ BioWare | Артбук по играм Mass Effect / The Art of the Mass Effect 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048784.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048784.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:CCDA58D63B129711D8507FBD0179E4667BA1AFAB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048783.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048783.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Microsoft Windows 11 [10.0.26200.7462], Version 25H2 (Updated December 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048782.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048782.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0622D681DB12D2813F7DE3156DBEABCFB7D85DF7
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048781.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048781.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0622D681DB12D2813F7DE3156DBEABCFB7D85DF7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048780.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048780.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048779.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048779.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Yakuza 0 (2025) [Ru/Multi] (1.11) Repack FitGirl [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048778.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048778.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Yakuza 0 (2025) [Ru/Multi] (1.11) Repack seleZen [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048777.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048777.jpg" />
 </div>
 
 

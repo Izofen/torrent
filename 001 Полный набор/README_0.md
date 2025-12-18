@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048907.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D236111AF89316B2BB18F62C2E4A13A76B28456E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048906.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048906.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C852FA971EEF132B6152D2F2FCAD939E8521F643
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048905.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048905.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:50A84E58950639318AA89BBB0B80431D30C61A5C
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048904.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048904.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0FF2D3EC072F3F2FAFFD2A7C900A6A4E6E41673B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048903.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048903.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Dangerous Toys - Industry & Seduction : Demolition (2025) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048902.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048902.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:1559614DFC34FE3B79E78EC0D05BF577F91481C6
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048901.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048901.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:80274CD66E7F859D0A6D407730CE096D2DFBA384
 >>Экранки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048900.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048900.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:38EE091883CEE81D603BA5C55D613AB38497050A
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048899.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048899.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Snowflakes And Rhythms (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048898.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048898.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:43D984B2607ED70C2509F6587A8A2DF4BC0D46F3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048897.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048897.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:B73ADD160F92595D2019035A30D0E7446672DDD0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048896.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048896.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:09EA9F9B2C8F0A2EB4EBD3592F5AC7D1802AA22B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048895.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048895.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:8615AD49BABD3E6CE7C94424CFD4F2A1D738E6F1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048894.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048894.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048893.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048893.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048892.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048892.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048891.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Universal Copy v7.0.2 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048890.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048890.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:A0B67D2E0A314D0CD744424E01CBC374BAD53786
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048889.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048889.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sketchbook v6.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048888.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048888.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:F1C927524CDFA95891EA9947025EF2823C825FE8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048887.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048887.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Vanced Tube v5.5.80.314 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048886.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048886.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:DDA0542C14AE26BA6626A66BCAEF958F465D64AF
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048885.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048885.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:C19BC37A9380CE6409B128D63871AE4DA5831EC3
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048884.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048884.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:EA75DD584EC7DAC54B161E2F1AF0199E2DDFA459
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048883.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048883.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:962ABC92EA0CF5741FD9010C2D6E23E12B587209
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048882.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048882.jpg" />
 </div>
 
 

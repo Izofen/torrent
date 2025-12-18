@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048618.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048618.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4F2321D8A59376BEC44738D5796AA5D7AB41CC0F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048617.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048617.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:91E231AD3B0061DD6DB6C75E69505A2217FA7EE9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048616.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048616.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2594107CD6F2B0653504D338399A82A7832DBDB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048615.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048615.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6BC58048C7906BFF8E607F3CFE3EFC0A6AFF2A94
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048614.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048614.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C203B288982AD356AE98CC0F338CC36BA1542A14
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048613.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048613.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:18D282CE1DC457294B374DBAD0FBA10B505978D6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048612.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048612.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ EC-Council, Keith Rayle | EC-Council Certified DevSecOps Engineer (2024) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048611.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048611.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E4F5EA1B1A80E0486C94BB30E6734504EBFE8641
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048610.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048610.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:35F4E96641C84ED98D3E164DF9998F09A5895761
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048609.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048609.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:858276154D2412B49C71D3714F27BFD618D79510
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048608.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048608.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:92713E846C06F07EB8BAB6E7484039D5AB0BABB3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048607.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048607.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:475A1A8BF12DB3BAD3A267D1F28711169BBE337B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048606.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048606.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:1A4078379436463078A050F63701AD2BDBDAFC23
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048605.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048605.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048604.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048604.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:9E02D3ED1750872045329D1ECE4BDEF9BC793EC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048603.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048603.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:06215FFAD0021D456448F1086CAFA66E9FD33215
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048602.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048602.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:33849559A2CA859117EB148D36EDFBB6A401A366
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048601.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048601.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D47CCD307EBDCD3283B05CBD27AA6C1F404B5A35
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048600.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048600.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F42467A9E6B5AE953EC892853F4ADB5B2D6907A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048599.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048599.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:832402BE270FB87D3C1EB33841F962DB71671422
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048598.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048598.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F135247E4F84FB2A00148DA75DC264AFDA8067BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048597.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048597.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:613C3EF86CBC55212EC3843EB3A958F597BC0625
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048596.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048596.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:BB6C30AAABEE25A8538D63D08EF1331410ED6B93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048595.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048595.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048594.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048594.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048593.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048593.jpg" />
 </div>
 
 

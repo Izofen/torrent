@@ -6,7 +6,7 @@ Adrenaline Rampage (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048723.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048723.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:68C3979AC6AE0EA81FFBC1D65DEE6E88C8E1E501
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048722.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EF5FE33F7CE8C4AA0EBE423E3B338D1AB138122C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048721.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048721.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F6AA1CFE6B5C7BC6CC4C59DA643C319F46E5FDE0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048720.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048720.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:50F7A12294D55C17CBE075E8246F67FEA436DF70
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048719.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048719.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Firefox Browser ESR 140.6.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048718.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048718.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:640ED19BBC6206A0989983F02ADE7BF38DAF735D
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048717.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048717.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8B5D6A2C896B08938209EA61733108101726EF30
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048716.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048716.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0A744C5B6249AFB8D7F5D794087E21E8FCACF42F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048715.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048715.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Shadows - The Shadows' Greatest Hits (1963) [FLAC 1.0|192/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048714.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048714.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048713.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048713.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D00260381C890F84455E7100A47710F2BE4AB62E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048712.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048712.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cuby and the Blizzards - Live On 2 Meter Sessions (2025) [FLAC 24/44.1|Lossless|
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048711.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048711.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:E3F4D9260B76AD881EFFA0CD32BFCB6245C151A6
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048710.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048710.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:2A1F4FB77AA061B371275FD90CA836D3D5FCA386
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048709.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048709.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:D7A41A48D5130438B64A7C0D338317ED192876D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048708.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048708.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:02FB3151F31F5CF9526F1A21DE40E6B84F0407AF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048707.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048707.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:7889A05358579295B3087C0EB3DB016C4887D755
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048706.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048706.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FDFCC4EC4EB994C53A6F3C3F9B0BD86CFA6820F9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048705.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048705.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:3D0A3211F73B3EDA84ED42109E5964BE475BE6AB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048704.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048704.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Andrew Rayel - Find Your Harmony Radioshow #475 (2025) [AAC|265 Kbps] <Trance, P
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048703.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048703.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048702.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048702.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Hit music (2025. Зима) (2025) [MP3|320 Kbps] <POP>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048701.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048701.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AOMEI Backupper Technician Plus 8.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048700.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048700.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Telegram Desktop 6.3.7 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048699.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048699.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:7FF3A9A17F1C20F57640E7A3938CBA3DD6515F9E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048698.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048698.jpg" />
 </div>
 
 

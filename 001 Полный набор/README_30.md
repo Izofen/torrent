@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048100.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048100.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:78762E038862F0F3300B995E09341C2DFF9A8904
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048099.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048099.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2BDBB7A82F7CFCFF34EFC520A67B5B0535CB1D53
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048098.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048098.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C423DA944CEEF62C90202FE6CA4A9D6B0E15E9AA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048097.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048097.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4F9FA6F8D929B1C5B4E8C8D483FB68685BFA7913
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048096.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048096.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:19441D31A731E7684A36E6DAA16732A70A79A3CA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048095.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048095.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E9FB1E4B0ECCCDC40A87D1661B899509DD850C9C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048094.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048094.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:ACD14C557CD83D087A6F2B9F7610A008BE4D59FC
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048093.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048093.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D5AE1CD89CC58CAC4AAA35C5FD1E4C70F517FB83
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048092.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048092.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:D998331CC903393A9011A86A800AE82DB00972A4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048091.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048091.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:4FF1685A0C434DB555F7E65732BEED38EC97ED16
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048090.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048090.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Black Hole House Music 12-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048089.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048089.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:567E28DEE724A30F2C256DEDA0F75E6564B15AA6
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048088.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048088.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:95228D141098123987DD61B89959DACF93A63F92
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048087.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048087.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:47C39FB1748AA34E9453D3B07A94082A6A763AB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048086.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048086.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:21F9A270ACF48BBEA8A6C8C9B70D595358A6754E
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048085.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048085.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:35A22722C9780190FB651E3D4CAB80E85AF1F001
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048084.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048084.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:415E065C29BA1F92D1F7659F4FC281901DC78546
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048083.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048083.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:48BB2DE5A26A87508943209802D2D8333593916E
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048081.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048081.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:722089D854D96F75ACAEA09925B8C235FF2422EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048080.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048080.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:FDB8BEC9B1E7B8B8279B4BF706BCC792BF50EDB1
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048078.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048078.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:446C7BD0DC3D0212BB1692118FFCB08E5BD751EC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048077.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048077.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Ori Uplift - Uplifting Only Episode 670 (Ori’s Top 50 Instrumental Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048076.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048076.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ SAS.Планета 251212 portable [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048075.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048075.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Armin van Buuren - A State Of Trance 1255 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048074.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048074.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:CEA2CCE3A60C0FF254A923DCD23FC19E2ED16299
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048073.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048073.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048072.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048072.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C9A5D3697F07102F837ACB17969E707EDD65F5BC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048071.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048071.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0EAA368FC47E60498C9960674E4F87C659818422
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048070.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048070.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048069.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048069.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8C1C4D3EF85EA8CF5B61B08DBEE6A640BC4A6DC8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048068.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048068.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Christmas hammond organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048067.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048067.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:0060D5DAF2F8DBF557A14483C4844287549E37E4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048066.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048066.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7743B4C4A7EEA68864D8E34D67EEE13E419FDBDD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048065.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048065.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ TutorPlace, Илья Тараканов | Как помочь близкому �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048064.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048064.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:AFA0D9C040C12CCD4435E7045E138AB1E90701BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048063.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048063.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Graham Bonnet Band - Lost In Hollywood Again (Live) (2025) [FLAC 24/48|Lossless|
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048062.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048062.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1F7386E05CC15B6DE1C25F0CE17971132B41BCC6
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048061.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048061.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:0D7A37F9DDA4BFD1DB5FB14BC423B8B16B1279A0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048060.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048060.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048059.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048059.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:BABE2152F0641CA47460C97092F887BEC3C87C24
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048058.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048058.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:985D78EA3FE8F1433B31D77082AC2EA58480B2DD
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048057.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048057.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:023DDC5BC6C4A824F50F3878181C97047EFE435F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048056.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048056.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Barotrauma (2023) [Ru/Multi] (1.11.4.1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048055.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048055.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ RedDetonator | Вечно голодный студент [2 книги] (2025) 
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048054.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048054.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:4095A59E12221BEC957F20DC4352EDE65D0EA7FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048053.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048053.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:AE5DC70CEE517C211B8940F81ED498E3378493C3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048052.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048052.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:CBDE444FDEAE94252F241E5B26C82EA250F8E534
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048051.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048051.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:EA33C6E6E589F1B74AA540E2AD63FF725BCE0DA2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048050.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048050.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:DF68FDF6E300B0A59642CFC3DC3BA758CAE1D996
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048049.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048049.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Tarja - Score for a Dark Christmas (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048048.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048048.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048047.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048047.jpg" />
 </div>
 
 

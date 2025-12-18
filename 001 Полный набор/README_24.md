@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048276.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048276.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F12A0AB669944928387164BB98781BA0EAA81752
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048275.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048275.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:07BB5EE738322C8CDF82A5B06A3FC24748F26C45
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048274.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048274.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:38030685BA7544214D89EE512626492DD2B42028
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048273.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048273.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D84E4AAF6122EB35652DAE4C6EFADEC7800FAB2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048272.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048272.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1CDB01A05CE8C82E85134261CF02E4C4F9F65523
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048271.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048271.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:79E51C01BD34483DFC3C03CA43A24A19D0F60879
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048270.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048270.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0875A8A37DBA7385EAFDFDF667DA6B283F0E9038
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048269.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048269.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6819C81FDF1F03482149103C31CE226B0BCFCA42
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048268.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048268.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:26882A089970D9F49729526354680654FC522701
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048267.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048267.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:60DCB202D6A665E56D8855616D369A1BCC6C108F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048266.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048266.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ YouCut - Video Editor v1.702.1215 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048265.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048265.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:21B2207044CD120E159766A07FB8CE6A4B04B175
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048264.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048264.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.127 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048263.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048263.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Youtube Downloader HD 5.9.9.6 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048262.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048262.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:DC1010FCD48DFFA0096DC783BDC6BE2004B9A35C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048261.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048261.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F89D4AF0DBB50C2FE93D1BEE678D1D845EADAAAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048260.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048260.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Terminator 2D: NO FATE (2025) [Switch] [USA] 20.5.0, Atmosphere 1.9.5 [License] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048259.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048259.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Chivalry Quest: Sword and Flame / Рыцарский квест: Меч и Пл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048258.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048258.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048257.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048257.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:313E0C52E21888AB25A5B5040F174B62BD323017
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048256.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048256.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F1396356EE628AD302A19DF11BA57C8C9A3311C4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048255.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048255.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Flame or Redemption - Last Judgement (2025) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048252.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048252.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Fear connection - Where Suffering Remains (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048251.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048251.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:66EF6CDAA70C480B5C3D58F4279BD0CF4F626FD3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048250.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048250.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Ventoy 1.1.09 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048249.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048249.jpg" />
 </div>
 
 

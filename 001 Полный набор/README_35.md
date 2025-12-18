@@ -6,7 +6,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047953.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047953.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:70FD1A26D7A19AE55BA9DAFEC98F8EF73785AEC6
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047952.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047952.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C05B1301131AC349A547957FEE0B44961E5B7525
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047950.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047950.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:BFE6768B6DC94CBE6793111EE751B0B8CAF34B27
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047949.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047949.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:ED306E88663F19B2FE4B53041DF3C7F030E59E61
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047948.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047948.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Julia Marketing, Алёна Волкова | Веб-дизайнер сайто�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047947.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047947.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8069FB85255D84D612A03A83EF654B38D26AEC0D
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047946.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047946.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:7935D7F0D27BD0DA55BF408A35645459DF165563
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047945.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047945.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ TutorPlace, Нина Култышева | Финансовая грамотно�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047944.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047944.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ TutorPlace, Ирина Аксёнова | Личный капитал (2025) WEB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047943.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047943.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:584DEABE23DC63FC924717BBDE0105D55ECF9516
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047942.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047942.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0F4BC224506A368C330629BCC924EC4C58B7DFD6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047941.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047941.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F75527705A15D698E882F7B9A2690871C128B0DF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047940.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047940.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:C3B61F4C8A1DBE0A5F8A96D1D9B9C7421A6E935C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047939.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047939.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:37B50C0AA0BDBB4868ED43094DD3B809696098D7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047938.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047938.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:A77337D5238A2178C013DBEDE95140017C19D7A7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047937.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047937.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:FCF6926232CF2998ADA66FE38BD4E2979793075F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047936.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047936.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:F8C08F9EA3023FF518985B719E1A562D96039D0A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047935.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047935.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:94B62236DB103FCA0B05C1AB175BFE5BFA2E95CF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047934.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047934.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Netherworld Covenant (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047933.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047933.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:DC4F2F9A8A40781EEB81E318AAB4D4B6723C6A96
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047932.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047932.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:225581C871C606F4792E556DBB7909BB9E011AA0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047931.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047931.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F9DF58C3E746D14279D8C06AD3861B692CF16F3F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047930.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047930.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:5D7FA2C9882360385C1AA130A0550BDBF7B93174
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047929.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047929.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.10.0.12/dlc) Repack FitGirl [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047928.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047928.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Karing 1.2.9.1210 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047927.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047927.jpg" />
 </div>
 
 

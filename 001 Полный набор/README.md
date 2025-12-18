@@ -6,7 +6,7 @@ Alexander Popov - Interplay Radioshow (2020-2025) [AAC|128 Kbps] <Trance, Progre
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048933.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048933.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8056EAF4021B0472FCE45DD88CA6A7D3379F4EC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048932.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048932.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:70342AF94FF935181316DF9F643066855AC90A3A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048931.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048931.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048930.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048930.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048929.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048929.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:ED72F57E005869E0FBD0FC98FBFF708FB935C164
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048928.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048928.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D0C13827F4FAAD02A1FCBEB910753A84FF01FB3F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048927.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048927.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7A7EE6B4D1E8899D3C41248A076414B6840165E0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048926.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048926.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048925.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048925.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2B426ACB32F73D5C29C4200C0747D6E9021492BE
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048924.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048924.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:FE2F7C81FFBC34DBBC6D87A3BF6930E413E6D7E2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048923.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048923.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:64E754636B0C2D26794221BD89CAE851C3D7655E
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048922.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048922.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:11C6B284FEF047E5A2272151D5A1D1086E094A52
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048921.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048921.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C26C5B97F95A31588A7D070B38C2AF09657F25BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048920.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048920.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:0A81D1FB1F19117FC7B4825865C07B93AF352A06
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048919.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048919.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:80F5323656E6FC91A24871E5720656C6617FDEF2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048918.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048918.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:CD0A3164E27709CC2EDBFB020C1B71C6C061998B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048917.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048917.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A5F8E78015E51B53861EA7C8CCBB0BAD164832BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048916.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048916.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E6787F0F99FF95CCFE2C1C9D91FBAAFDCC3A3CA0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048915.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048915.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:948CB492D28FB0C6DE2B8CDC047C384F883A6593
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048914.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048914.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:7C018D0E5E179FB0346B1831CD0DA88680FE006C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048913.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048913.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:9E6207CA6AC2F7EEF8567C59DAE0987602D9E018
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048912.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048912.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5C26AFABD1EEDF61A34A0865378123CA6C6E0298
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048911.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048911.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:803C8325144FDE00B7204A0110585B1FAB31AE53
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048910.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048910.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F8E173FAE6B806D55B4CA28210F18317AF702DAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048909.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048909.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:F0DA54AB6693FEE5AAC10862994CE1039CBE698E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048908.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048908.jpg" />
 </div>
 
 

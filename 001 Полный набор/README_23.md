@@ -6,7 +6,7 @@ Firefox Browser 146.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048302.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048302.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B74A4946745504893E9339278F8885DE5669AAA
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048301.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048301.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F7E9E801B0B46BA2CA21A2BA97EE18A3FB059938
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048300.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048300.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D6C5F041AF3DC611247F66774C9471E7AF887D91
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048299.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048299.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1C893328C6F06E22C6B4CE887156D421858BBEE9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048298.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048298.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B3BAD750A481349026F41C9F5FDE8846FC951F20
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048297.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048297.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CCE57861D326218A02E18F72B55F986DE6BEF679
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048296.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048296.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Firefox Browser 146.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048295.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048295.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - The Orient Collective: Oriental Sunrise (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048294.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048294.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9840E815F3B5C7481F025CAD728A737D6954D93F
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048293.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048293.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Remina - The Silver Sea (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048292.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048292.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048291.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048291.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:18DBC22D6EAF49321AA233E0862203CB76049432
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048290.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048290.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:0CEF759418E6B574DC49270B9FB6EBEE0D0A2766
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048289.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048289.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1C3C7F59D88B18A0B74ADCA3CF0DB402E375497A
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048288.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048288.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:31484251941FE2C1AE2A28FA314DEEC01734E5E1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048287.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048287.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:ADE05DA4270A7E54466717FD3E6F5BDE8EB1AE1B
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048286.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048286.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Zero 9:36 - They Were Always Here (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048285.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048285.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Dukkha - Remanence (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048284.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048284.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048283.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048283.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:A52B51DF0AED1E7E9D940119DFF50CC73683242B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048282.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048282.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Joe Bonamassa - B.B. King's Blues Summit 100, Vol. IV (2025) EP [FLAC 24/44.1|Lo
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048281.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048281.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 22H2 19044.6691/19045.6691 by SURASOFT (v25.12.09) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048280.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048280.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:D60DA3AEE201EE9BB5C9E459B149D3E4EAD0477C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048279.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048279.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:512A2BD0D8FB1E1DBDCB570EB680A4AEF81F25D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048278.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048278.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:9AF4265A3F2BA202920D0B78459BA0648BCCA321
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048277.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048277.jpg" />
 </div>
 
 

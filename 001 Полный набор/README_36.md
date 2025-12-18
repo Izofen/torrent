@@ -6,7 +6,7 @@ Microsoft Visual Studio 2026 Enterprise 18.1.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047926.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047926.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.3.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047925.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047925.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Visual Studio 2026 Professional 18.1.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047924.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047924.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 01.12.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047923.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047923.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FFCEB0852244120C36D813D2E9E5BE2726CCACBB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047922.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047922.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Taskito v1.1.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047921.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047921.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.13 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047920.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047920.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5214915FB1DEDC65DF0824C161D882632E43E4AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047919.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047919.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6691 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047918.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047918.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F0C6511A2B0CC54CEEC75F4A25C2348FCE6F6D79
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047917.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047917.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Grok - ИИ ассистент v1.0.85-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047916.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047916.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:BCD8291C84149D3CE8A73464F2DC83AB483ADFC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047915.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047915.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B8E78713B7E854FECFEAAB6A8A25BEFC32B467CB
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047914.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047914.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.22 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047913.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047913.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hatred (2015) [Ru/Multi] (24112025_135232_rev.20802) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047912.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047912.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Windows 11 Pro/Ent by OneSmiLe 24H2 build 26100.7462 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047911.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047911.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MassTube Ultra 21.3.0.182 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047910.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047910.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:26B409212BE7EFC55C452EE87A64D2C0F9F0C205
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047909.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047909.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ YT Downloader 10.0.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047908.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047908.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Topaz Gigapixel 1.0.5 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047907.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047907.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:CF763C51B690F4A120482B26DFA5F16A0CFAE306
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047906.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047906.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B058CCFCD9D77A04C4F7F4AE4D19621A4106C7AC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047905.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047905.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9EB7D564812285CF8DD8F75DC4FC2A4E631486DC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047904.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047904.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Revo Uninstaller Free 2.6.5 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047902.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047902.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Glary Utilities Pro 6.35.0.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047901.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047901.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F979587A94E59B4795D59F935941C9B43F4E5CA1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047900.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047900.jpg" />
 </div>
 
 

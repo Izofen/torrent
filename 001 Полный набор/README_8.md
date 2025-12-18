@@ -6,7 +6,7 @@ Ant Download Manager 2.16.4 Build 92193 (92039) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048697.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1E9615FB02081296B877197D588F5C120674E975
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048696.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048696.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EADF5AD6DCAF14A4CE233F4214350C580EAC30B8
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048695.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5B1F8BDD5BAAFF0D3BA41DB1FBB9A877AB2EAE19
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048694.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048694.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0DA4AA472F1DA9A8D857B88865BF18E7FC8B2445
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048693.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048693.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:BD49064395BA595219D72588A6919FF7E9D58F95
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048692.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048692.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:FB408BEEC98A8BF75D967DF723B709A8961C0A78
 >>
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048691.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048691.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:284E2B06BF02FA981018C28CA43BFC7583162169
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048690.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048690.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7400BE47AC0328388BB4E2FF998AE12C0250D9FC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048689.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048689.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TCM Security Academy, Andrew Prince | Security Operations 101 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048688.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048688.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ TCM Security Academy, Andrew Prince | Security Operations 201 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048687.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048687.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:26706D85DAEFA0B665FD4D23D7BF019A33A1B430
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048686.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048686.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:47B4624760CBACA91E9FC80F309818695ADD69F5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048685.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048685.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E557030CEBD646DB3666690BF620C71FAC57B5BF
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048684.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048684.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:043672231059D37183200B175B0AC105147D7D40
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048683.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048683.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C3848AFD81FDE0F8193D7163DB5F681FEBB31FE4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048682.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048682.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DB42BFFF0CA81658F017AE146D01127B50DA91B9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048681.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048681.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Elise - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal, Easy listening
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048680.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048680.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:FC36D09FFD4C623A761B7170A6328BE567FFB1E2
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048679.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048679.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ai - No name compilation part 25 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048678.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048678.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Sonny - Sonny Dread (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae, Altern
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048677.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048677.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Wolftooth - Wizard's Light (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048676.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048676.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Vanced Tube v5.5.80.306 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048675.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048675.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:DBFFC7EB48BB08A0130E2F58089E9609D1C39698
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048674.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048674.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:739288694D7C7466EB3AF6B05D0FE7E6B92E835A
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048673.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048673.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:3BF8D12828A63A6F47048082381FC3A79296B8A5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048672.jpg" />
+  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048672.jpg" />
 </div>
 
 
