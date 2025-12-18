@@ -1,48 +1,26 @@
-###  Публикация: 1841011   (1047648) от 
-
-Журнал | Наука и техника №12 (27) (декабрь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047648.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наука и Техника» - научно-популярный журнал широкого профиля. Люди с техническим складом ума не только найдут здесь полезную информацию о достижениях авиации, кораблестроения, покорении космоса, но также смогут расширить свой кругозор в области естественных и гуманитарных наук.Жанр: Научно-популярный журналИздательство: ООО "Университет дополнительного профессионального образования"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0E70D2D51877448AAA5B271618379F5CD90770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841506   (1048168) от 
-
-Журнал | Наука и жизнь №12 (декабрь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048168.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры. Постоянные авторы: лауреаты Нобелевской премии, известные учёные, научные и технические (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: АНО Редакция журнала «Наука и жизнь»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB466BE38EB879AA333E4A054E36E2ABD666AF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic

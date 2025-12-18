@@ -1,72 +1,26 @@
-###  Публикация: 1840229   (1047150) от 
-
-PBS Nature: Сокровище Карибского моря / Treasure of the Caribbean (2023) WEB-DL [H.264/1080p] (сезон 41, эпизод 12)
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_1047150.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о природном сокровище Карибов - недавно открытом огромном коралловом рифе, чьи тайны могут спасти другие рифы. Этот риф, расположенный в Белизе и Гватемале и превышающий по размерам Манхэттен, знаменует собой новую главу в понимании взаимозависимости кораллов и рыб.Производство: США, Thirteen Productions LLCЖанр: документальный, природа, фауна, флораРежиссер: Ана СальцедаУчастники: Ф. Мюррэй Абрахам, Ана Джиро Петерсен, Кенворт Мартин, Мелани МакФилд, Майлз Филлипс, Мишель ШерерПеревод: Одноголосый профессиональный (etv+)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D4DD89CD3375844B90D125F19CF06B7674ED5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840905   (1047621) от 
-
-NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы знаем, что акулы-быки плавают вверх по рекам и охотятся в море. Но в этом фильме мы увидим то, что никогда ранее не видели. Мы увидим, как они нападают на других акул и поедают их, понаблюдаем за их скрытой охотой в глубине, проследим за ними по пресноводным рекам к местам размножения и даже станем свидетелями того, как они сражаются с бегемотами и крокодилами.Производство: ЮАР, США, Earth Touch, Bigger PicturesЖанр: документальный, природа, фаунаУчастники: Райан Дейли, Кестон ДжонЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA9783DF098C2935F6B98369CB8E0C194EC8924
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841069   (1047753) от 
-
-Доисторическая планета / Prehistoric Planet (2025) WEB-DL [H.264/720p] (сезон 3, серии 1-5 из 5) LostFilm, Jaskier
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047753.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Доисторическая планета: Ледниковый период» — документальный сериал приглашает зрителей в драматическую новую эпоху доисторической жизни, спустя миллионы лет после вымирания динозавров — эпоху кайнозоя, сформированную льдом, напряженной борьбой за выживание и появлением нового состава гигантов: культовой мегафауны. Вы познакомитесь с жизнью саблезубого кота, шерстистого (   Читать дальше...   )Производство: США, Великобритания / Apple TV+, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Лия Арнольд, Алек Джиннс, Пол Томпсон, Саймон Белл, Эндрю Р. Джонс, Джеймс Шелтон, Катрина СтилПеревод: Многоголосый профессиональный (LostFilm, Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEAC9FE64B200FF645DC3FDB75C96F17486F70D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic

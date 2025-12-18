@@ -1,72 +1,26 @@
-###  Публикация: 1840460   (1047203) от 
-
-Уральские пельмени. Книжный Тагил (2025.12.05) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_1047203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250F438F6E2E248D34B353BA1AE715B6D1E85562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840521   (1047406) от 
-
-Звёзды (2025.12.05) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_1047406.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 российских топ-звёзд будут соревноваться, кто же смешнее. Помогать им будут как полюбившиеся команды из первого сезона («Регионы», «Астана», «Наполеоны», «Красноярск», «Борцы»), так и новые (поверьте, будут сюрпризы). Новое, но уже легендарное шоу «Звёзды» в VK Видео! Десять супер-популярных звёзд сойдутся лицом к лицу, чтобы побороться за звание самой смешной (   Читать дальше...   )Телекомпания: Medium Quality, VK ВидеоЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2272BD1629D287ECF53B9F732CE19A441FCEFFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840514   (1047415) от 
-
-Уральские пельмени. Книжный Тагил (2025.12.05) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_1047415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F14F0EA7C7DB3DE5065EE63C787AA0CB6A2BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic

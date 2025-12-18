@@ -1,108 +1,26 @@
-###  Публикация: 1840087   (1047021) от 02.12.2025
-
-VA - 50 песен радио шансон, Часть 8 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1047021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Владимир Ждамиров - Пацаны (3:44)
-02.  Сергей Сухачёв - За жизнь нальём (3:45)
-03.  Эдуард Хуснутдинов - Расскажи мне (3:26)
-04.  Михаил Шуфутинский - Индейское лето (3:34)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 03:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC08C23228E1037B7DC4F51AE6E637589594BDE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840952   (1047684) от 
-
-VA - Сентиментальный шансон, Часть 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Арсен Петросов - Кайфуем! (4:17)
-02.  Mikhail Krug - Девочка-пай (Ремастеринг 2017) (4:15)
-03.  Катя Огонёк - Я не могу без него (3:26)
-04.  Алексей Петрухин - Горит душа (4:07)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CACC744988234ECF7EA4E4A05D3412BB9C2DB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840950   (1047685) от 
-
-VA - Новогодний шансон 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Михаил Шуфутинский - Новый год (3:09)
-02.  Сергей Трофимов - Новогодняя (3:51)
-03.  группа САДко - Новогодняя ночь (3:59)
-04.  Дуэт Не уходи - С Новым годом - под звёздным небосводом! (3:36)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A415AF3CFA1FBA064BAC133AB4D6DE9D815A3075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840947   (1047686) от 
-
-VA - Лучшие хиты шансона в машину (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1047686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Пятилетка - Не молодеет сердце (3:48)
-02.  Евгений Сурский - Ранняя весна (3:46)
-03.  Пятилетка - Зверь (3:39)
-04.  Алмас Багратиони - В эту осень (3:46)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA92A420295556F4E84C2BAA7002785C6446625C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic

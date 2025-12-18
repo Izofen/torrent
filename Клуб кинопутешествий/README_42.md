@@ -1,48 +1,26 @@
-###  Публикация: 1839522   (1046642) от 29.11.2025
-
-Чукотка: прогулка по бескрайней тундре, арктическая теплица и поиски китов | «Поедем, поедим» (29.11.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/public/picture/007/save_picture_1046642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди и «Поедем, поедим!» отправились на Чукотку! На берегу двух океанов Федерико узнал, чем живут коренные народы, посетил уникальную арктическую теплицу, отправился на поиски китов и оказался в одном из самых отдаленных городов России — Анадыре! А еще ведущий прогулялся по бескрайней тундре, прокатился на квадроцикле по одной из самых длинных кос и (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD6CEADD65274289A69A640F74C65C7B95DEAEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840627   (1047353) от 
-
-Дагестан: село с капустными полями и крупнейший песчаный бархан в Европе /Поедем, поедим! (06.12.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/005/save_picture_1047353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди и «Поедем, поедим!» отправились в Дагестан! Федерико побывал в самом высокогорном ауле, где познакомился с уникальными мастерами и мастерицами и освоил местные виды рукоделия, прокатился со скоростью порядка двух сотен км/ч вместе с участником Формулы-3 и посетил село Леваши, известное своими бескрайними капустными полями. А еще ведущий отправился (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6732B9E94D43EEFB94175258A6342779AF18E214
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic

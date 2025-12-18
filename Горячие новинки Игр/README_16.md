@@ -1,24 +1,26 @@
-###  Публикация: 1841566   (1048146) от 
-
-Project Motor Racing (2025) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://84.39.252.114/picture/008/save_picture_1048146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Motor Racing - это не просто симулятор гоночных автомобилей. Это живое воплощение шарма, драйва и подлинной страсти к профессиональному автоспорту, собранное воедино с одержимостью деталями и стремлением к абсолютной достоверности. Игра сочетает в себе глубокую физическую достоверность и доступность - здесь найдётся место как опытным симрейсерам, так и тем, (   Читать дальше...   )Тип издания: RepackРазработчик: Straight4 StudiosЖанр: Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10960189ABEB53F4F95EEFF34667946ADBB03E04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
+D:Git	orrentNational Geographic
