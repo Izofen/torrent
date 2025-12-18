@@ -6,7 +6,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048354.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048354.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25ED7B3D1677E41805B203D50839569E574D0515
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048353.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048353.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:67BBA22A4CCA482B360C4922ECCB56A9AB6DAB2F
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048352.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048352.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:684D8E812A7C6906445DB52E695C8ECC871059D0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048351.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048351.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B40443199BA186715A5B0D7C7D110CCA7B26F87A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048350.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048350.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C0F5220A83EDEC10C009A5810E90B7BA21865620
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048349.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048349.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C5EE059068266C74328226F88D133A61E7DD894B
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048348.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048348.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:39DB98DD1D9273F57344072EA05E1EBFF57DCCED
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048347.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048347.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:358D43529BF345E1C7E969257ECA9C13647E819C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048346.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048346.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Futu
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048345.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048345.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048344.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048344.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Jungle Taitei | Jungle Emperor | Император джунглей [1989, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048343.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048343.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Samurai Academy Paws of Fury (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048342.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048342.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:704D3CBDF3D83CAF13326C1003C2C88E2E80C01C
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048341.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048341.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Marcus King - Darling Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048340.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048340.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Mozzpit - Luke Gibson (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048339.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048339.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mud Morganfield - Deep Mud (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048338.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048338.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DF814C25FED17CEABCC6735164CFF9076D0B4230
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048337.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048337.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:30C02FD3C23F4DF5476C5EB4D61A493DC41A7F51
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048336.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048336.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:6DD23FC72A0BAA70BFFCC167129C12A43C74AEA6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048335.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048335.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Omar And The Howlers - Downtown Boogie (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048334.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048334.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paul Cebar - Paul Cebar (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048333.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048333.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Robert Jon & The Wreck - Heartbreaks & Last Goodbyes (2025) [FLAC 24/96|Lossless
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048332.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048332.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:1831AC7C742FBECC736EAC821EC0E5E549E3C5C5
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048331.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048331.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.057.0/dlc) Repack se
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048330.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048330.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048329.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048329.jpg" />
 </div>
 
 

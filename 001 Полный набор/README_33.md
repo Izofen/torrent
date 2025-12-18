@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048018.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048018.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sakis Tolis - Everything Comes To An End (2025) [MP3|320 Kbps] <Gothic Metal, Da
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048017.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048017.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C4416347C230D86A831320000DBC2DE9BDE4C4CA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048016.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048016.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E91A41E8923E2BC926ADA62C40223AB86C3CD2EE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048014.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048014.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B61310A462792B0B60D8BBF82FF430F36524DDDA
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048013.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048013.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:50F5C6A398FA0E4174A3E252B2C725878D1A47E3
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048012.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048012.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:F5C125BDEDBFD665B91539A7B31686892E59BFB4
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048009.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048009.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:90F505EB9265BFC1E56F6A29BEC01CDAB474B738
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048008.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048008.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:69932B04CE5FC3ABD0B867FD4913B4D451EAE76B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048007.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:AC6D6C606941634FDFE400F0052430DE74ACD922
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048006.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E867F6ABB3AF378198315B73A1B46A04A31D8CF3
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048005.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048005.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:41FC0979627F32670EE025BC5DC0474BAEEF06D1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048004.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2A66E5709B924EB299E2DEC8A221660C248E23B0
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048003.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048003.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:CFC5E2F42E67652DCA16AE31ABB5FE1A9B8AA406
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048002.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C31E49B3375D96776F2B59657212EA2DB48803C7
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048001.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048001.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F9DFD3C1B2C99187F01BD7BAD88C732A1CA2EDA1
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048000.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048000.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F3EC06B77AF33841617048EB128D3413F65633C3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047999.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047999.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:7F5C5BB851070ABF58F98FB5DEC36E8B88824E0D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047998.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047998.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ LensNode OFX 1.0.16 for DaVinci Resolve 1.0.16 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047997.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047997.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:6C37CCD4BB13F7EE63F3B9F1F4168B49B9998933
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047995.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047995.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:85F3C031CB26F6B3576ACD0A1D65E5A36B640ECB
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047994.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047994.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:F4AE4564A31B8EAAA0E3450510A0EA616993C388
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047993.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Topaz Gigapixel 1.0.5 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047992.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047992.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:4DB3318935913F07AD451A1D27AA80F22DE5921C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047991.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:1E8939376A6C93D124B55BC0C45CAD2DF980949A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047990.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:AD74A1A453D11863DF84FCF43D309EE07D1BA3A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047989.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047989.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ John O'Bryan | Артбук Звери четырех наций / Beasts of the
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048537.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048537.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E95CB2EC04D8E8FA1FBB4E33A883CDE813221C06
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048536.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048536.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B391E9EBDB6AD3D78BF75BC4AA607EB79A8FBAD0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048535.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048535.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Michael Witwer и др. | Артбук по играм Dungeons & Dragons / Dung
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048534.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048534.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Geoff Truscott| Мифология Elden Ring. Дар благодати / Grace
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048533.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048533.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9304A845751CD820705819B8D667C87D33EF8C78
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048532.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048532.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:76A05495DAC913ACE62899FEA46FA36C7D41B8F5
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048531.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048531.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:92470D54779C0BC2676EC919134E49F583893698
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048530.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048530.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3F044931BBECA9EA4EF2E2E5EE0D8F28C303529B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048529.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048529.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F30C7C62C93F85E3C89F9CFDAC6A74955512F738
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048528.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048528.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:C16DBECD8A34D89C08188EB61FDA08553616A593
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048527.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048527.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:BE516B39C87EF44DB34CD3E4BB95EC7AF9665AC3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048526.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048526.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F572E03E86CD8B7A4F8F60E840FDEC31C1D31E9D
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048525.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048525.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B69CB3FA849F46A53F19148886D97EF2B85BFD7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048524.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048524.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:7998F131CB1751760640AC87C2B54CE187653A66
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048523.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048523.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E2503D890FCEE0EDE045293501A239CB3CC173E6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048522.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048522.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:12A948CD61888897187B0740750484C3EEEA7F78
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048521.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048521.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1C2B3BDF8C2629A6FB6D558FF030BF40960434D5
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048520.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048520.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Last Case of John Morley (2025) [Ru/Multi] (Build 20987894) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048519.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048519.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack FitGirl [Supporter E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048518.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048517.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048517.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ ANGST: A TALE OF SURVIVAL (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048516.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048516.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048515.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048515.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (161.5.1.f) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048514.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048514.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:133C2CB1AEB90587E55FE31089F20E4EDDB50993
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048513.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Morsels (2025) [Multi] (0.28.13) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048512.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048512.jpg" />
 </div>
 
 

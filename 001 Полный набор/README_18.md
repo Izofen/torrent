@@ -6,7 +6,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048432.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stive Morgan - Dancing Under The Moon (2025) [MP3|320 Kbps] <New Age, Ambient, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048431.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048431.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:17C85139AB01DE3AB4B38F73B42FD19F7357D30F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048430.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048430.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:9ADA996175045144928EA63CDE0F933BFFBB0ADD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048429.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048429.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:A4467731DD03FE5301CBED2D2D941C51E6FACE1D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048428.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048428.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D35936B19D7D160B0A9B7678F0484BE5981BDFAF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048427.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048427.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6F11B460FA029FF0EEC50D13D74933DACA9A7A0A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048426.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048426.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1354289AC26CCCF8AE9CC058003C724802DEDE3F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048425.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048425.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7F0CB4EC17D9768DBDB28F5AEDBF13A6A06F3C4F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048424.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048424.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:960F169602B584E211AC39948FA093E0FD93D5BE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048423.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048423.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:0CA3FC06672FCCE9A0CC2C4A24CBC95D21B6087D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048422.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048422.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048421.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048421.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:166A078D9D0CEDAFEBAB3C23E191185D4ED6C7C9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048420.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048419.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:E6402C1BAAFA90C9572F46E69B82D054397DE2F1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048418.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048418.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A57016F79B8FF70747B352DD8192F71020FF5E6E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048417.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9D025B97510DCE436A1D01656968090CD5F6C12E
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048416.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048416.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:61E5CA982DAB408534A9ADBECD6F5AF0BA7FB586
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048415.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048415.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:9C5A0BBA3141C6C06C64E9B664F25FAF65B97C5B
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048414.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048414.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:68FFAEF8D2FD17850DA62A914A02C054120FFD3A
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048413.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048413.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:BCE63696B6F61242E4CB2DA047EDE772846A6687
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048412.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048412.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048411.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048411.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:3BB0AFCDEA8ECE078C861A3AFDD52676C8805F6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048410.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048410.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048409.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048409.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:C771E2A1122F4785AEFFF7E71AD66B75E032AE89
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048408.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048408.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:D0A21CFF1798D49712B2327C36ED25CE1B560F43
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048407.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048407.jpg" />
 </div>
 
 

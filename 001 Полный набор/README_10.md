@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048644.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048644.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048643.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E598882DC4BF903D0907C3C938CB2C9A73F7167D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048642.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048642.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:746202A62296F8DA342444131E9CFB4380A4388B
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048641.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048641.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:746202A62296F8DA342444131E9CFB4380A4388B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048640.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048640.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:072E280606B4F399C8C5F2837582E0A3E8C01039
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048639.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048639.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Internet Download Manager 6.42 Build 58 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048638.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048638.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ KMS Tools Portable by Ratiborus 15.12.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048637.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048637.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ At Vance - Studio Albums (9 releases) (1999-2012) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048636.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048636.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048635.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048635.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:38A04F36ACE3CA3AA3E39A9C4646BA86EEB7D4BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048634.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048634.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2A29F91480B30D4E888D6733436A4795C154C92F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048633.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048633.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:3CAF23A48841BDE91FDBC58B6F619FC4F4432370
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048632.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048632.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Roxy Music - Love Is The Drug (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048631.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048631.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Die Krupps - Will nicht - Muss! / On Collision Course (2025) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048630.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048630.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ v2rayN 7.16.6 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048629.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048629.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:3971D179C1569B7F1F7E4E19874FA4349C025FCA
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048628.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048628.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:D8393E03AD3F91806AD7BA7C86BA4605C8535BB3
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048627.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048627.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:328194C2DB786FE059EAA1B7FD6FDABEEFC536F0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048626.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048626.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:2B781C30E64E4A05340F25DDD2CDCAF6A7126830
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048625.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048625.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Looper Tactics (2023) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048624.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048624.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ MyVoiceZoo (2025) [Ru/Multi] (build 20860342) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048623.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048623.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Chaos Galaxy (2020) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048622.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048622.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:9790EFC7D125286DB0540B8BD1864F657DE95FC0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048621.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048621.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:42E744A91682A669EB2081B87EAA68FA8EF9D3E7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048620.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048620.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:76C1984A806D067FA5920183DCC456F5A92A2EA8
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048619.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048619.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048671.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048671.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EAD0ED04E525D38DBF4775127DB0D7A2045E952B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048670.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048670.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CCA5FEAC3FA848A7B8527DE69E17628A5ACE3603
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048669.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048669.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:680660F8CDE9EE1F79481BC1A8AE5BDD43956985
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048668.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048668.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7B2C801356A09687876AA33DE5F1FD83178CEF69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048667.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048667.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3F6A35AF1442AA4D969E6B988CA3BF35F94FA708
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048666.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048666.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048665.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048665.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ IceCream Ebook Reader Pro 6.53 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048664.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048664.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:81F8E03C57F84840C04F10EBE752A408C603E9EB
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048663.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048663.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:17EA49087B2C83260D1F3410EAF2617B6B6E167F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048662.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048662.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.r40893.f/dlc) Repack L
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048660.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048660.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FB8063A9FEDBF1DF63E8B753702B0000B1B813D8
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048659.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:000DB46C893EE31A8AD65A4F55280C740F9BE417
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048658.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048658.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3126D2D95F558ED65537416160456FCC6991040E
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048657.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048657.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:294441F7AB84C0FE8533C583F08ABB8ECFDBC064
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048656.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E140AE751F8AF00B0D9E769D9740D20EA1302881
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048655.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048655.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A42DC0D2041F973B6AE690AE35698EEE7CE1831A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048654.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048654.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:E6FA53E90C839B46F986AA0B74CFD61CD7E684D7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048653.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048653.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0F6FF2FC749CE9A6E11C1AB67674CE36813DD896
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048652.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048652.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:025AA854096A783CAFB863595C7E7D613900E7BD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048651.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048651.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B39EBE833AF07B9014DEE07E087D1132BE5956BE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048650.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048650.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B621706FC4D14731C280063E75D9820AA5F1CE60
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048649.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048649.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:B1972B7CB081333B70D4EAA746F845CA6E43AD95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048648.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048648.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Internet Download Manager 6.42 Build 58 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048647.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048647.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.20.8100 Final ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048646.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048646.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:4AFB5DFDEA548840ECC14915CB8302C5E062627A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048645.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048645.jpg" />
 </div>
 
 

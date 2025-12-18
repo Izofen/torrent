@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.26100.7462], Version 24H2 (Updated December 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048881.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048881.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.26100.7462], Version 24H2 (Updated December 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048880.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048880.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 11 [10.0.26200.7462], Version 25H2 (Updated December 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048879.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048879.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows Server 2022 LTSC [10.0.20348.4529], Version 21H2 (Updated December 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048878.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048878.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows Server 2025 LTSC [10.0.26100.7462], Version 24H2 (Updated December 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048877.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048877.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows Server [10.0.25398.2025], version 23H2 (Updated December 2025) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048876.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048876.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Grok - ИИ ассистент v1.0.89-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048875.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048875.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4F41CFDF9AD39EB940CF69645A0164E4347AD947
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048874.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048874.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ SplitCam 10.8.70 (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048873.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048873.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048872.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048872.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048871.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048871.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:027C5DF6BF1511700AB68B7FC089009FDC698297
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048870.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048870.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ LosslessCut 3.67.2 Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048869.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048869.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:72EE802C48772F84C4D96BBC514BB4682C0145A6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048868.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048868.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:33CDAFD32D0805D74EC73AD2AF64CE599B8C4739
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048867.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048867.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:9B204AC7A872AA5621B2CB21FE764BF4F3F5212E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048866.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048866.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E68200DD3C7720013B57F34FBE102BDC138EF901
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048865.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048865.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:47DDA8CC2D323CE7720524FDE97C05C2E003529D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048864.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048864.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:337C28DB1FDE8816A6F41840BBBA6C30022E477A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048863.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048863.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:457451E6D597E97F61CA95216A4866F30A26CADD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048862.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048862.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:8C10503C6547B86EDA038122DBA554D4CAD738B3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048861.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048861.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E7920E2FD8816723EC0767719A46C6C1F9332A61
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048860.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048860.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:59B1BA79D32230B3E0DDDD9725C3ACB2D073521C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048859.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048859.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A853BAFDD58107935FF8553D6ED45ED27437883A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048858.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048858.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:DD007DA66BA6647E32FD10DB9537DB29D0A2ABDD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048857.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048857.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D228FA71152DE7BB9B2E74CACC4723B1B94D1797
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048856.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048856.jpg" />
 </div>
 
 

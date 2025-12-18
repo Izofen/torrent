@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048855.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048855.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F9AD8E2351720801265FFAE582B8E63B610B1742
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048854.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048854.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:708FC01C27099F68BB57A7F5E61AD5C18FEA7055
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048853.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048853.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:0608BA013505DF0DF7C8F9CB87296C8D8FBB660C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048852.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048852.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:FCD8DD8C2602A97B956142BF9C7276F48668696B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048851.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048851.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AAct 4.3.3 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048850.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048850.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3C764FB9ECF067825C0F74015B6E51D2A9C96978
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048849.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048849.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:96DCAA58B037D4115379898903595B927F36F210
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048848.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048848.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Google Chrome 143.0.7499.147 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048847.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048847.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Slimjet 48.0.1.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048846.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048846.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:201920E9AEDC33DDA91CEC637BE8630E5DA97208
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048844.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048844.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9441F962D68902EB5E9A19661D091B974A3A8E48
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048843.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048843.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mina Agossi - Dynamic (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048842.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048842.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Omar And The Howlers - It Came From the Swamp (2025) [FLAC 24/44.1|Lossless|WEB-
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048841.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048841.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Toziuha Night: Order of the Alchemists (2024) [Multi] (1.0.5.0/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048840.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048840.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F82E9679D8287FEF7BBA48D19E5B508E1B179BD2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048839.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048839.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Parker Benton - Steppin' Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048838.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048838.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Topaz Gigapixel 1.0.7 + models Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048837.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048837.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Roberto Testini - Blues Guitar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048836.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048836.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ryder Voltage - County Line Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048835.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048835.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Sp3 - Almost blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk, Roots
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048834.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048834.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:C0A80AE49A3F19B28F63236F32CD1DDA261BEB6F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048833.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048833.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:3EABD050E68375C1E92EBC7DE0C329A3A8DF8C64
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048832.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048832.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:8269DF2DB9A79548D7DFD67F04A2FC75897B61DB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048831.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048831.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:30F23ACB98A5A31F2BCB512441CB12043AA5F451
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048830.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048830.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:60F4E05408BB9C6BA24220A59F5A45079A9E7CA2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048829.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048829.jpg" />
 </div>
 
 

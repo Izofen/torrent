@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047899.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047899.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:00A766EB280F5348D2014CF90F8DA964D3F1BB83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047898.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047898.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7EF1362B4572B628A22BAA9B8C3ABE152FB25711
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047897.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047897.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:71E2288F5B42BD24A427DA50454750B701AC4AB9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047896.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047896.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:845CD2C3E25FC7002626BFA075EDC7D7D329683E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047895.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047895.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:29556CC3026773F33A5CE4CA9D0DC64017FC58D4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047894.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047894.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F1F4DD219731F6FEA313BBD99C180142AEC66F52
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047893.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047893.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:14052DCD9B2240FFF980F91C488233DE292FB4C1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047892.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047892.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ May-linn - May-Linn Demos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047891.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047891.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Piledriver - First Nations Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047890.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047890.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Rick Hughes - Redemption (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047889.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047889.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Sarayasign - Shadows Of The Dying Light (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047888.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047888.jpg" />
 </div>
 
 

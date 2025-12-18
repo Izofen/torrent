@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048592.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048592.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Teruko Sakurai | Anime & Manga Digital Coloring Guide: Choose the Colors That Br
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048591.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048591.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048590.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048590.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048589.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048589.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CFFC8BF0A3E68FC1DED929384846E7747B259F0A
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048588.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048588.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048587.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048587.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:DEB7C3905A0F8E062AAA90217EC375C4CB76A9C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048586.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048586.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:7B0186E6817D99B2E459DD0AB238C688A071A788
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048585.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048585.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048584.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048584.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Metal Mind (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048583.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048583.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ AOMEI Partition Assistant Technician Edition 10.9.2 (DC 15.12.2025) RePack by Kp
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048581.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048581.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ AOMEI Backupper Technician Plus 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048580.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048580.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ OBS Studio 32.0.4 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048579.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048579.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 12.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048578.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048578.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.12.14 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048577.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048577.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A8F406AFB847D0041AB9356D5B8DB12F62368369
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048576.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048576.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Tim Wolf - Down And Under (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048574.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048574.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Tricia Danieli - Breakthrough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048573.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Jacktown USA (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048572.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048572.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Asterix & Obelix: Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack FitG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048571.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048571.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048569.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048569.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:276EBC90F83B232666C1F5D5D0EE5ADABD0374F0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048568.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048568.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:24FFFBE2DF814D7788C5AA324131A8A50139FED4
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048567.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048567.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:1F65C036495E3D53426B115555EBDC44F73CBED9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048566.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048566.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:040F56B0D5C7E24743801CA74482796D056885DF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048565.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048565.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ The Whiskey Brothers - Compilation (2025) [MP3|320 Kbps] <Pop, Folk, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048564.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048564.jpg" />
 </div>
 
 

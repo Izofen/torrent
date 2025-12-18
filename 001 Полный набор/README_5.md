@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048776.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048776.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DB778800B9F47780B46F63C689145E4B42BCA93
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048775.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048775.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:33CA165A23492D294A735758BDFD3EE469BFE01F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048774.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048774.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Capture One 23 Enterprise 16.7.2.3273 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048773.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048773.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048772.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048772.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:EE3587052F17A2CF02053C339DE585BDB7B5B6FC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048771.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048771.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:17A3C1ADFD09EC40CF920D6F8BBD537DB5DCA8D2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048770.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048770.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3DED32919DBC78DE892547B9AF678EFEDFC13A6A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048769.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048769.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048768.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048768.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Leprous - An Evening Of Atonement (2025) 2 x CD, Limited Edition [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048767.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048767.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Telegram Desktop 6.3.9 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048766.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048766.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048765.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048765.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The Cold White (2024) [Ru/Multi] (build 21100504) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048764.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048764.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048763.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048763.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:AB1FC9A341681C4A318C401F93D5595DF7B3E9BD
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048762.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048762.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:DA4A7962D547114549BFE0411F5EF7965A9A5A43
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048761.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048761.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Winter Burrow (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048760.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048760.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:81F171EA8EFB49FAFF83F8C244FE4DAD500DA353
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048759.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048759.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:7B030ED51D9C83A22043C0F9EF737D2CE4382316
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048758.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048758.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:6B992646D9BC32A11895E4C978494658B1D63182
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048757.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048757.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C4EDAEBDAADF87946E50BAD3D4BB98A0117C3739
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048756.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048756.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:54771E9B99FE7002B25FDEBAA63B1EFF4C966040
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048755.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048755.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Scene voices38
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048754.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048754.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7EF470B7FD47E7C8357A31517BB49040D3409273
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048753.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048753.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:F80B6594662B54F7AC33A16C4DC0EF85242B87D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048752.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048752.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:2AE434BCFCB5FEA87547B98AA14647984C5C18D9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048751.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048751.jpg" />
 </div>
 
 

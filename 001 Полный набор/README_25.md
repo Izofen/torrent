@@ -6,7 +6,7 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048248.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E02AAE3B76B3DB0E8EF3D273FE9C2CCB8E374C4A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048246.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:58991F9605613641F31737706C8D0F8F5A47C3C5
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048245.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sacred Leather - Keep The Fire Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048244.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Stepik, Pragmatic Programmer | SQL практикум. Полный курс (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048243.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048243.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Big Daddy Wilson - Smiling All Day Long (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048242.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E86FB37641652F6C116625359396279DAB749E80
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048241.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048241.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Bones Owens - Best Western (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048240.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048240.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bror Gunnar Jansson & The Escapism - People! (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048239.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048239.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Chambers DesLauriers feat. Annika Chambers & Paul DesLauriers - Our Time To Ride
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048238.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048238.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Christone "Kingfish" Ingram - Hard Road (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048237.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048237.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Jeremy Edge - The Black Sheep (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048236.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048236.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kent Burnside - Hill Country Blood (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048235.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048235.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048234.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048234.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kip London - The Last Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048233.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048233.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048232.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048232.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048231.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048231.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sardø - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048230.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048230.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - No name compilation part 23 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048229.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048229.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:433460D4F48F53610414BF08C71A7DF4D1D570C4
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048228.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048228.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Luke Morley - Walking On Water (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048227.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048227.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:4205FC19AFA261E6EBB15CDE71C25B974F930A34
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048226.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048226.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:24695B1C0EB34CECD3317FFEEE8A89D2C670E4BE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048225.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048225.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:1A442206262A88B88528892CE34B01BE16E6A9E8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048224.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048224.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - No name compilation part 21 Instrumental, Other (2025) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048223.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048223.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:E1AA58CBCBFAB7CF5CE18D7784270E934E72368C
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048222.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048222.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048221.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048221.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pink Floyd - Wish You Were Here 50 (1975) 3xCD, 2025, Legacy Recordings [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048220.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048220.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:3340723859519D6DE9FDAC99BC43F689407605C0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048219.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048219.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:6921535937C1DFAFDF2EEE45E3491BC006E58D65
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048218.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048218.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:F8D2D691F6927C0B65FF677BBF2C66113B83B050
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048217.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048217.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:24223F641968E9E557EB67416B2909354E3472AD
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048216.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048216.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:F5AB0B95D656D151D4E3233DEE9FB1C70BD316F9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048215.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048215.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:5A6BA1942B2C7552DC8C3EC5C8EA712E8992FF0F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048214.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048214.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:56EC4D774A4E61EDE7E77BC600CB4B7BB9BFBFE6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048213.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048213.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Lost Kommunication Reflections 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048212.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Massive Attack - Heligoland (2010) Bonus Edition, 2010, Virgin Records [FLAC|Los
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048211.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048211.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:D12151FD87481C1DFD94EEC5C03A79A1C774D993
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048210.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048210.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:9631255C3345FD1721643CC56FA5CA968130605B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048209.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048209.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:A3EA018FFAF2557DB9715776F774021BCBFF60AF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048208.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048208.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:ABC3FB75FBEA09801BC03A3AABA6CE6CD48FFDE5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048207.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048207.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Upscayl 2.15.0 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048206.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048206.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:CDAF592C376005DF81198DF8E4EA006CCABA560A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048205.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048205.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:EEFD2601A137FA01C8B68D71011ACBEF1AF6100C
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048204.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048204.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EF618884661BA2CAB6EC823E94BC4572DA610360
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048203.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048203.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:A38C2AEC27F5EDB3D7326603F3351D902C6D1278
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048202.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048202.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:775E2B312D18359B14CEC10AD8CD5786A6F57479
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048201.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048201.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:EC653CB2B76600FD45AD84C0CAA1B5838B634992
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048200.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:06A4F4C510EB9867F1B1770AE5AFB15DB70A58A5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048199.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack seleZen [Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048198.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048197.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048197.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Sleep Awake (2025) [Ru/Multi] (R-1.0-43669) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048196.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048196.jpg" />
 </div>
 
 

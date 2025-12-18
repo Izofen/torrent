@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048563.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048563.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:573C046192C995596ED1E27383E78686FE19F6F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048562.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048562.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:133A87840DA8C89CC446D70CA9E2260F4840E998
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048561.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C436770639F4C9EB96D10FB5C7511A5BD0AF0006
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048560.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048560.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:94B5B9625C7EE824269CA4F4449FEED605D16AF5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048559.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048559.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:754CFA09B37B54628D9713DE77E5D732E8F94641
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048558.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048558.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4AACF683D0ED08F2E31BD064BA85EBC9B6ABDE71
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048557.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048557.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F442260A145FDFEA02435D3669BAF78FA17F9EFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048556.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048556.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:249CD63F78F164D58C7963FC81489DF9273F8941
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048555.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048555.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A9C8F0CEC8F36EBB947A2FE75B014C172CD13161
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048554.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048554.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:E91AE056B8C07B5544DBC09FB53FA111367E335A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048553.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048553.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:0694AA26C6B21FD37A21AB721D804B63FAB1315C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048552.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048552.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:7B2B229E6FF2DD95207F168EA0827BA75E0EABA5
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048551.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048551.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:1987E07B318B89C5E5CDE2DAE1676D82C1F27AAD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048550.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048550.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:901FDAE5E7E3C31B811C6638BC740A549963FCE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048549.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048549.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:76D067B984C585111E33FFD99AB269F2C5AC19B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048548.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048548.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:128973A759C16D986E36A4DBB2D7CE124A32A044
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048547.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048547.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:E70EDC23910D5913FF668B879419CBCA7451922F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048546.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048546.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:E6D27D25FB51844AC5E84447BEDE53E2DE6CADCC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048545.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048545.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048544.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048544.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048543.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048543.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:77585ED2A785CD2FF440685866D0DBBFFCDE02AA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048542.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048542.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Hoomanz! (2025) [Ru/Multi] (0.3.26) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048541.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048541.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048540.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048540.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:BFC7FEA2005F13746BE04389AB5885CCE7464DEB
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048539.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048539.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:03C2D42E1261B7F10E01FDE15E552552DA96E88F
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048538.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048538.jpg" />
 </div>
 
 

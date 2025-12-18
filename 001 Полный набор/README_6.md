@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048750.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048750.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B42D872436891B9386B8C8CA3A46563DC229B9C0
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048749.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048749.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:89ED7EA92D10649DE793E1513C34BC00A0983794
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048748.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048748.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D0C3D7D3F7FD3CF8B5608B96146F33DF1349EEA3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048747.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048747.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Audacity 3.7.7 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048746.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048746.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:15CC99C78439A425360A3A88A3BEB58D89A4508B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048745.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048745.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E2AEC5F3DA48D656AFC213D8C2BACA944C9AB75D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048744.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048744.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:F5A3509308ABDF52118C6614F6FA273126454820
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048743.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048743.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048741.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048741.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Icecream Slideshow Maker Pro 5.18 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048740.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048740.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:000308C60FCE8545B493AC97A515550DF87D016C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048739.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048739.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E7E8875704A3BCD93C3BD89DC8AB61EA1A4199BF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048738.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048738.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:AFE75BE7F43B04D32E38D4EF847905834E07214B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048737.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048737.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:7E52F569B97B91EAFD702E265DA0F69B558F66F9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048736.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048736.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:04C53141B7D3680525896093959B24B7B3759531
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048735.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048735.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - National Pop Dance Music Vol.127 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048734.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048734.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:5DDF6DAF62E6ACF15F0C2BCBB5D8A2BAF5EDE2A2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048733.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:B9C75CA679E152CC3438AC32D1325109CD978E19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048732.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048732.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:98498B38A4934CEB7B519A8197E92960E3EA445F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048731.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Rugby League 26 (2025) [Multi] (1.0.3326) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048730.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048730.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9E58E321997A7DDF9376289DD66D28284EF3CA68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048729.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048729.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:F0C665DE623DE6BE0816DF999E653954A3107C5E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048728.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048728.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:B09A2CDF462479DB36AC2FE8462BA259702FA13E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048727.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048727.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Pop Positive Hub (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048726.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048726.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:35797521A4C045663985CC207F5F3631A666575C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048725.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048725.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:A22C73E7D4D20136F8A115B37A99BC374D6034D9
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1048724.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048724.jpg" />
 </div>
 
 

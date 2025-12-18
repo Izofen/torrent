@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047988.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F2F1394485D78C1B25EA6B214C132019301ED7C9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047986.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047986.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:910EDB138B0B4B2275FA7D9BEF8784E19F9233A5
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047985.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:354145DBCD3A7E954AEBC1C229EE503BBCCEE771
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047984.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047984.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ TutorPlace, Дарина Костина | Adobe Illustrator для начина�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047981.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047981.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Level One, Анна Кигай | Свобода глазами философо�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047980.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FFAA075D00672DE5E90BAD2ACF08381F3CC184A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047979.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:700D587AFDE089488FC6D4B7BFF60D9713552493
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047977.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047977.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:845E29ED979CFA87829824EA900D708F34D3DDBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047976.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:3932DB6D9B45249607DF21B007CC1C16A0893B8D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047975.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047975.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:FEF1CD98119357A223B926ED841AB206CECD5721
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047974.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047974.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:47C44005D61FCE15AED39D28223F86447F66F676
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047973.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047973.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0D30EC0F8D6B479AE48CE575FE98DFEE0B29628E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047972.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047972.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:93DC74B999829EE60CAB1237AB1B2952A459AB6B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047969.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047969.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F5C0CF047101335E229E28A643285782C263967D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047968.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047968.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:1CA70B036DF41860AF046BE522B83ABDF69F983F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047967.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047967.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A64745940A827C038AACBC48955C031BAC888B27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047966.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047966.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9D7FF236A48E995AE05BBFFB70D48B1EE8865DCD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047965.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047965.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:09B057D9AA95CDA5768004B9B3D011BCE05A3E36
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047964.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047964.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:D987DDE81690E3CDCDCF08268F673077E37D4D16
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047963.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047963.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0DC3656CC875C722D3D121140DA889D61C23001E
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047962.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:991CD2E10784887D30E86CA1590DEB9E0D815203
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047961.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B5CB56A529A6C277576E8154F01FBAE4939E2086
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047959.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047959.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2686394396B7DD67C6134C8492F9C94C5050C8C7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047958.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C01FC21338E4420035ED910BB37577B74CA6D108
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047956.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047956.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:046E2B353D28D74C798EB2DBA4DBB33D3C7A9A71
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot3dot14.ru/public/picture/008/save_picture_1047955.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047955.jpg" />
 </div>
 
 
