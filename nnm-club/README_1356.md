@@ -1,26 +1,671 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1762932   (35607) от 30.11.2024
+
+Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Army Of Me (Ultimate Collection 2015)
+02. Beautiful (Our Songs 2023)
+03. Best Days (Our Songs 2023)
+04. Best Of You (& Foo Fighters) (It's A Man's World 2012)(   Читать дальше...   )Жанр: Pop rock, Soul, Dance popПродолжительность: 03:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7FBC8EFF95A84A652E22254699226FA387ABE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763248   (35608) от 30.11.2024
+
+Lara Fabian - Je suis la (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je suis là [00:02:26]
+02. Ta peine [00:02:46]
+03. Je t'ai cherché [00:03:37]
+04. Hypersensible [00:02:28](   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EEE2AC6828FF99C006B96CFACA49E6BF9E2EF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763212   (35609) от 30.11.2024
+
+Orange Season (2017) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исполните свою фермерскую мечту в чарующей деревеньке под названием Orange Town. Выращивайте урожай, разводите животных, ловите рыбу и добывайте полезные ископаемые, чтобы построить успешную и прибыльную ферму. Знакомьтесь с другими жителями деревни и выполняйте их задания, чтобы положить начало дружбе, которая продлится всю жизнь. Занимайтесь исследованием и фермерством, (   Читать дальше...   )Тип издания: SceneРазработчик: Innerfire StudiosЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B956BA64D3734D4E3696AC188565F461D8AA62DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763204   (35610) от 30.11.2024
+
+Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Puppet House - это приключенческая хоррор-игра с элементами квест-комнаты. Возьмите на себя роль детектива Рика, расследующего серию загадочных исчезновений местных жителей. Все улики ведут к заброшенному дому чревовещателя, полному темных секретов и ужасающих сюрпризов.Тип издания: RepackРазработчик: Vecube Studio, Spirit Games StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFBA8A0DED907964918AB32B12E18DAEC9B5E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763183   (35611) от 30.11.2024
+
+VA - Music News For Forum vol.047 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35611.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ELiz - Слезы (03:10)
+ 002. Andre Visior feat. Aquagen - Speed Up (Aquagen Edit) (02:26)
+ 003. Anton Lacosta - Take Me Away (02:22)
+ 004. Bagrov - Бывает тяжело (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083A7CB7630F4DE5D5F59D0A26C927DDE23AF8B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763244   (35612) от 30.11.2024
+
+Журнал | Инженерные системы №4 (2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35612.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B455346298F67E3DAC4558C93FADE48E48907BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763216   (35613) от 30.11.2024
+
+Золотая коллекция любимых мультфильмов. Выпуск 3 (1977-1984) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: Тайна третьей планеты, Василиса Прекрасная, Вершки и Корешки, Волк и Телёнок, Золушка, Замок Лгунов, Пластилиновая ворона, Ограбление по ...Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, кукольный, детский, сказкаРежиссер: Роман Качанов ст., Владимир Пекарь, Леонид Носырев, Михаил Каменецкий, Иван Аксенчук, Геннадий Сокольский, Александр Татарский, Ефим ГамбургСубтитры: отсутствуютПродолжительность: 02:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D823F31802726D66710D613D5744FB36385663AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763225   (35614) от 30.11.2024
+
+Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je suis là (2:26)
+02. Ta peine (2:46)
+03. Je t'ai cherché (3:37)
+04. Hypersensible (2:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EDDDF8DB7B111175DA1E4AEE3322218D9F4689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763317   (35615) от 30.11.2024
+
+VA - My Electronic Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Ferris - Miracle (4:24)
+02. Fat Feathers - Nothing in Between (3:53)
+03. Inserite Coin - Up & Down (2:43)
+04. A M G - 100 (Klav Version) (7:35)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6A5526E14861B857004E8200E699C03D666D90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763285   (35616) от 30.11.2024
+
+Неделя отпуска / Une semaine de vacances (1980) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины происходит в наши дни во французском городе Лионе. Молодую учительницу Лоране Кюэр, преподающую в школе французский язык и литературу, всегда волновало и пугало то, что ученики пассивны на уроках, что они духовно опустошены. В детях не пробудились те ростки нравственной зрелости, которые формируют человека, ненавидящего жестокость и насилие, способного (   Читать дальше...   )Производство: 1980Жанр: драмаРежиссер: Бертран ТаверньеАктеры: Натали Бай, Жерар Ланвен, Флоре Фицджералд, Мишель Галабрю, Жан Дасте, Marie-Louise Ebeli, Philippe Delaigue, Genevieve Vauzeilles, Филипп Леотар, Филипп НуареПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D99E7E207C5FFEC951ACF58C08CD6ED5E61643
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762866   (35617) от 30.11.2024
+
+Alanis Morissette - Compilation (1987-2020) [MP3|320 Kbps] <Alternative, Post grunge, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21 Things (Under Rug Swept 2002)
+02. All I Really Want (Jagged Little Pill 1995)
+03. Celebrity (Havoc & Bright Lights 2012)
+04. Edge Of Evolution (Havoc & Bright Lights 2012)(   Читать дальше...   )Жанр: Alternative, Post grunge, Pop rockПродолжительность: 03:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49728ADB417DBC177C63E500FD0771C9F74724F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763201   (35618) от 30.11.2024
+
+Формула 1. Сезон 2024. Этап 23. Гран-при Катара. Спринт-квалификация (29.11.2024) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35618.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 ноября 2024, пятница. 20:30 МСК. Этап 23, международный автодром Лусаил. Гран-при Катара. Спринт-квалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450951009020A4C4D5F6E198E0B6DFACBD76184D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763249   (35619) от 30.11.2024
+
+Cliff Richard - Exclusive (2024) Remastered, 2024, DMI [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Doll (From "Serious Charge") (2024 Remastered) [00:02:39]
+02. Move It (2024 Remastered) [00:02:23]
+03. Travellin' Light (2024 Remastered) [00:02:38]
+04. When the Girl in Your Arms Is the Girl in Your Heart (From "The Young Ones") (2024 Remastered) [00:02:25](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856963EB2A6B2256F0C1A4C4EBA74F148B39C92E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763291   (35620) от 30.11.2024
+
+VA - Late Night Relax: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Raw (1:37)
+02. Michael E - Mind Games (Original Mix) (4:48)
+03. Lennart Richter - Ride Along (Original Mix) (3:24)
+04. Digby Jones - Joyeux (2:18)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0084FEC2EC16D1A28CA434EBF8413C828EECC77E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763353   (35621) от 30.11.2024
+
+Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3] [2024, TV, 13 из 13] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Репетиции, тренировочные лагеря, соревнования, фестивали, конкурсы. Каждый день был таким насыщенным, что Кумико Омаэ не заметила, как перешла на свой последний год обучения в старшей школе. Поколение, возглавляемое Юко Ёсикавой и Нацуки Накагавой, выпустилось, и теперь уже на плечи Кумико, ставшей новым президентом клуба, легла ответственность привести школьный (   Читать дальше...   )Производство: Kyoto AnimationЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяЯзык озвучки: Японский, русский (Amber Studio, AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD5BF51790CDA73FE5284A9F6D0FA1763E533EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763252   (35622) от 30.11.2024
+
+Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Music[FLAC|Lossless|WEB-DL|tracks] <Dance pop, Christmas Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mother's Christmas Wish (Reimagined) [00:03:08]
+02. We Three Kings (Reimagined) [00:03:15]
+03. Christmas On The Radio (Reimagined) [00:03:21]
+04. Underneath The Same Sky (Reimagined) [00:02:55](   Читать дальше...   )Жанр: Dance pop, Christmas MusicПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763242   (35623) от 30.11.2024
+
+Журнал | Инженерные системы №3 (2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35623.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F639C41FD5777894583530016B681C876D633CE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763217   (35624) от 30.11.2024
+
+Журнал | Военно-исторический журнал №12 (776) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35624.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F16D47E7A1BAA8A24A0CD67E3C517EC04672C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763198   (35625) от 30.11.2024
+
+Евгений Рыбалтовский | Змеи (2024) [MP3, Иван Букчин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему змеи великолепны? Всегда ли люди боялись змей? Может ли гадюка быть безопасной? И какая цель у каждой уважающей себя змеи? Ищите ответы в книге профессионального зоолога!
+Люди думают, что делятся на множество категорий. На самом деле люди делятся всего на два типа – на тех, кто при слове змея испытывает ужас, отвращение, омерзение и страх, и на тех, кто, увидев (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 04:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C45CAD186E28CE4F98971C3CB9686239B813FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763250   (35626) от 30.11.2024
+
+VA - It's All About Deep-House, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taradu - Lia (Extended Mix) (05:57)
+02. Profundo & Gomes - Elegant (Original Mix) (06:19)
+03. Hi.5 - Out of My Mind (Extended Mix) (04:18)
+04. Daven - Move (Original Mix) (02:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5B68B4872988D7EAABBD2BA42A16CEC54E7E3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761933   (35627) от 30.11.2024
+
+David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon (On the Wings of the Butterfly) (5:21)
+02. Dark Dunes (3:14)
+03. Not Too Far to Walk (4:15)
+04. Borderlands (5:38)(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7C0F00BBB111BA0F1FAA46F4E9DA2511D27346
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762291   (35628) от 30.11.2024
+
+Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover (2:49)
+02. Nola (2:37)
+03. Tennessee Waltz (3:10)
+04. Mockin' Bird Hill (2:19)(   Читать дальше...   )Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E9FA1E19EC19D91861D55890DED35BADF9AD4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763297   (35629) от 30.11.2024
+
+VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ovnimoon - Feel on Me (Original Mix) (10:33)
+02. Hoopoe - Aracari (Original Mix) (07:39)
+03. Pico Boulevard - Oblivion (Enlusion Remix) (10:18)
+04. Facade - Daedra (Original Mix) (08:08)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F352546785042CCBDD859B94D728F61FA86C4BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763241   (35630) от 30.11.2024
+
+Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|tracks] <R&B / Soul / Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Definition of Love [00:03:15]
+02. If This Is Love [00:03:26]
+03. Another Life [00:04:31]
+04. Myrrh [00:03:16](   Читать дальше...   )Жанр: R&B / Soul / PopПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE013297F9058F4C79CA2D7A7871383AC0A83C21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763236   (35631) от 30.11.2024
+
+The Smoothies - Variations of Autumn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Variations of Autumn (3:24)
+02. The Midnight Thief (3:46)
+03. Still Thinking of Her (2:55)
+04. Am I lost beyond recall? (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EFD7DC6895EB2398DE1D4962FA3CAF55A9457A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763220   (35632) от 30.11.2024
+
+Тимофей Кулабухов, Дмитрий Парсиев | Адвокат вольного города. Книга 2 (2024) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этому городу нужен новый герой!
+А так же мафия, торговец, политик, ну и без хорошего адвоката такой весёлой компании не обойтись!Жанр: Городское фэнтези, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B2C982DCF6EB4827CEB94DDF249E79744AAFDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

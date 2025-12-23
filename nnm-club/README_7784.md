@@ -1,26 +1,671 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1476976   (234769) от 13.06.2021
+
+Dorian Gray - Journey Of Mind (1998) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution
+02. Night Turns To Day
+03. Angel In Black
+04. Am I A Woman ... ?(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0740CABF63A1FA8B8D4AAC1C6F1493058CDBA13B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497203   (234770) от 13.10.2021
+
+Chillhop Guitar - Lo-fi Beat & Smooth Guitar (2020) [AAC|~307 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kama Sutra (4:25)
+02. Blue Azur (5:11)
+03. Relaxing Morning (4:43)
+04. Sexy Feet (3:06)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C69D8F28175EABE42F93FC80544AAC89892C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621395   (234771) от 24.03.2023
+
+Graphic Inspector 2 v.2.6.4 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphic Inspector предоставляет исчерпывающую информацию обо всех папках c изображениями и векторными графическими файлами и помогает находить потенциальные проблемы в соответствии с пользовательскими правилами. Graphic Inspector - это профессиональный инструмент проверки, предназначенный для помощи пользователям любой профессии, будь то печать, веб-дизайн, фотография (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2023Разработчик: © 2006 - 2022 Zevrix SolutionsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E8BB08236ADAB25520D336A50A4E8E7934E88D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632976   (234772) от 13.05.2023
+
+Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_234772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawl
+02. I'm Going Home
+03. Hot Spell
+04. Take It All(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551735   (234773) от 17.05.2022
+
+Adobe Photoshop Express 8.1.961 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop Express - великолепная программа для обработки фотографий, которая была разработана специально под Андроид. Здесь вы сможете в любой момент захватить нужный вам кадр, отредактировать его, поделиться им со своими друзьями и просто улыбнуться самым невероятным ее возможностям. Все это можно сделать абсолютно бесплатно, без всяких регистрация и прочего (   Читать дальше...   )Тип издания: Premium (Patched)Релиз состоялся: 28.04.2022Разработчик: AdobeПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A2FA6720EAB38D92BC19877A0CF6F52BFE0520
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643365   (234774) от 01.07.2023
+
+FastStone Capture 10.1 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234774.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9292024344C2DB5471BC153A433087EE8AF1AD63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576836   (234775) от 16.09.2022
+
+PotPlayer 220914 (1.7.21801) Stable RePack (& portable) by KpoJIuK (DC 15.09.2022) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71547D83F9D7DBC6EB6E50175F802C1AF29B6DC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476836   (234776) от 13.06.2021
+
+Tunguska - 3 Albums (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Post-Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cold Symmetry [00:07:21]
+02. Hive Mind Puritan [00:06:57]
+03. Crossroads [00:01:29]
+04. Slave That Wears A Crown [00:05:42](   Читать дальше...   )Жанр: Sludge, Post-Metal, HardcoreПродолжительность: 3 CD, 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0F3AAF8577609EDFC8804184E09ABE58E3A710
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621293   (234777) от 24.03.2023
+
+DropDMG 3.6.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2023Разработчик: © 2002–2022 C-Command Software, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский, Датский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B200E96C8D8C4345AEB5B9F12D10416A92C42BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498275   (234778) от 13.10.2021
+
+VA - Ibiza Let' Chill, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Frozen Heart (6:51)
+02. Lounge Deluxe - My Favourite Moment (5:05)
+03. Arman Behdad - Face of an Angel (Moonlight Chill Mix - Remastered) (3:42)
+04. Alfida - Surrender (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE4D820C8DF06C0C267B90E5BB1F9D292931A3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639460   (234779) от 13.06.2023
+
+Path Finder 2154 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.06.2023Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10908F4A2BF26D4160ABAF3CBDB98D377F450F8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551730   (234780) от 17.05.2022
+
+Duolingo Plus: изучение иностранных языков 5.57.0 XML-Mod by aff12345 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершенствуйте свои знания английского на практике - чтение, разговорную речь, письмо и восприятие на слух. Играйте, отвечайте на вопросы и выполняйте задания, увеличивая словарный запас и улучшая знания грамматики. Начните с простейших глаголов, фраз и предложений, узнавая новые английские слова каждый день.
+34 часа, проведённых с Duolingo, равны по эффективности (   Читать дальше...   )Тип издания: XML-Mod (Premium)Релиз состоялся: 13.05.2022Разработчик: DuolingoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA96224F862C672C1B5749BC8335680E126201D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576887   (234781) от 16.09.2022
+
+Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собственного веб приложения (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальный коммерческий проекта на Ruby on Rails 6.0.2.1. Вы вместе со мной разработаете реальный коммерческий проект. Он будет состоять из API приложения, написанном на фреймворке Ruby on Rails последней версии на 2020 год 6.0.2.1 И часть фронтэнд на Java Script. Который будет отвечать за работу вашей веб камеры. Это будет немаленький кусок который дает понять как (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E54954790A1B80F3C3041AEB0BDBDAB0A769CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476961   (234782) от 13.06.2021
+
+Dorian Gray - Burning (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Of Mercy
+02. Magic
+03. Burning
+04. Action, When I Call You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7C5C399847FC690A4DC9F9EBF3FA6D882C18CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621131   (234783) от 24.03.2023
+
+Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outsider [7:14]
+02. Three Armed Man [5:23]
+03. Barebones [6:46]
+04. End of the Year So Soon [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1359939C896BB9803FA41FA7A5491CB29D47EDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499967   (234784) от 13.10.2021
+
+VA - The Seeds of Lounge, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Frozen Heart (6:51)
+02. Aiemo, Radmila - Kissing You (Vocal Mix) (4:22)
+03. Lazy Hammock, Ivan M-sax - Intoxicated (6:04)
+04. Sannan, Coppe - Violet Lullaby (Hadron Orchestra Remix) (4:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496EF94D5B102328E051DB8EF465706DADA2AD32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638924   (234785) от 01.07.2023
+
+Скутер - Превышая все площади / Scooter - Excess all areas (2006) DVDRip [H.264/1080p] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео с заключительного концерта (записанного в Гамбурге 26 марта 2006 года), в рамках концертного тура "Who's Got The Last Laugh Now Tour 2006". Специальном гостем на протяжении всего тура, был Jeff Mantas, гитарист группы Venom, исполнявший гитарные партии в треках группы.01. Intro
+02. Hello (Good To Be Back)
+03. I'm Raving
+04. Apache Rocks The Bottom / Rock Bottom(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Marcus PohlПеревод: ОтсутствуетСубтитры: Русские, английскиеПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4D50CF3EA03E098AA520BA15DD4B6F3F84F946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642172   (234786) от 26.06.2023
+
+Журнал | Elektronika Dla Wszystkich №3 (2023) [PDF][Pl]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Elektronika dla Wszystkich" ("Электроника для всех") - журнал для радиолюбителей и профессионалов на польском языке. Содержит большое количество практических конструкций, справочных данных по электронным компонентам, описание и методы создания простых радиоэлектронных устройств, приведены схемы и разводки печатных платЖанр: ЭлектроникаЯзык: ПольскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E6B0D8530F0373CD7DC91EAE97A0B8BEF3B2C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632831   (234787) от 13.05.2023
+
+VA - Summer Chillin' (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_234787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vance Joy - Riptide (3:24)
+02. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)
+03. Daisy Jones & The Six - Look at Us Now (Honeycomb) (5:32)
+04. Løv Li - Glimpse of Us (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BA94528B767A13A7351A55CFA4C2053E08C3E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639539   (234788) от 13.06.2023
+
+Schandmaul - Kn​u​ppel aus dem Sack (2022) Deluxe Edition, 2023, Napalm Records [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knüppel aus dem Sack [00:04:29]
+02. Königsgarde [00:03:30]
+03. Das Gerücht [00:02:46]
+04. Der Pfeifer [00:04:11](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAAB42861CC840B4BD7666B9AA551B55BAB4CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551840   (234789) от 17.05.2022
+
+Microsoft Windows 10.0.19044.1706, Version 21H2 (Updated May 2022)  - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1706.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16E39CF72AFA2935D2E0F32439ECA9872BDCAF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576888   (234790) от 16.09.2022
+
+Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Camelot. Когда Гвиневра, королева Камелота, заболела таинственной болезнью, король Артур обратился к придворному магу за лекарством. Вскоре выясняется, что спасти жизнь королеве может исцеляющая сила легендарного Святого Грааля, но он затерялся где-то на бескрайних просторах Авалона, опасного царства, полного тайн. Как придворный (   Читать дальше...   )Тип издания: UnofficialРазработчик: TellTale Games, WonderlandЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD1A763DF46FAE466218E5BCB1B326A997A6C8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476970   (234791) от 13.06.2021
+
+Dorian Gray - It's Your Day (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Comedy
+02. Not Your Fault
+03. Timetripper
+04. It's Your Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C4A9F363452C59E464769EF0DE84FC969D947D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497199   (234792) от 13.10.2021
+
+Chillhop Guitar - Mellow Afternoon (2020) [AAC|~293 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lofi afternoon (4:00)
+02. The watcher (2:50)
+03. cozy moment (4:33)
+04. a day in bilbao (3:34)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1C6CB7DD5FAA34E50104CC507EBC985F71FE4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642168   (234793) от 26.06.2023
+
+Николай Костомаров | Великие русские путешественники (2023) [MP3, Александр Ковалев]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234793.jpg" />
+</div>
+
+
+###  Подробнее
+
+По какой причине люди отправлялись в путешествия? Первые русские путешественники путешествовали по религиозным причинам, посещая святые места или же движимые торговлей. Постепенно к этим интересам начали добавляться цели геополитические: в XVI—XVII веках вдаль за Урал устремились русские землепроходцы, которые небольшими отрядами открывали новые земли, наносили их (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 44:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95D997FFB257F5EA2FA23F9D423E8E591D6A751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621135   (234794) от 24.03.2023
+
+Sullivan King - Thrones of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalstep, Dubstep, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watch the Crown Fall [00:04:23]
+02. Die By My Hand [00:03:12]
+03. Let Me Go [00:03:42]
+04. End of Us [00:04:02](   Читать дальше...   )Жанр: Metalstep, Dubstep, ElectronicПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71963F5A796E6CF64E3597E6E29DC3EF8471A493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

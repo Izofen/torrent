@@ -1,26 +1,704 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1413502   (408356) от 04.10.2020
+
+Чудо техники с Сергеем Малозёмовым (04.10.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вкалывают роботы, счастлив человек! «Умные» тележки, магазины без вешалок с одеждой, весы, которые сами «видят» товар — инновации дошли и до супермаркетов! Шторы, очищающие воздух, и домашнее устройство, которое лучше доктора знает, что у вас болит, что из этого действительно «чудо»? Нужно ли заряжать телефон до 100%?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C43D3381C84C4F73DBA11716B55B6166B5855E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406288   (408357) от 04.10.2020
+
+Подшивка журналов | Зарубежное военное обозрение (2016 [номера с 1 по 12]) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный информационно-аналитический иллюстрированный журнал Министерства обороны Российской ФедерацииЖанр: Информационно-аналитическое изданиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB421340C6F96973D0B2D6F619571D7FC4712CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559538   (408359) от 13.10.2012
+
+Журнал | Apps №25 (UK) [октябрь 2012] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание специализируется на обзорах программного обеспечения для Apple- и Android-мобильных компьютеров. Обзор многогранный - от игр до бизнес приложений. В этом номере - приложения для просмотра online TV.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C511284D1FEAC6E41F0593A67C8F6575179CC1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559768   (408360) от 13.10.2012
+
+Журнал | Автокомпоненты №10 [октябрь 2012] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408360.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Автокомпоненты" - периодическое издание освещающее все основные темы рынка автокомпонентов. Отличительная особенность издания – компетентность, всесторонний подход к событиям, знание автокомпонентов изнутри, их свойств, особенности эксплуатации, специфику подбора и стоимость, обзоры, аналитика, тесты, презентации новинок рынка, а так же консультации специалистов и производителей автокомпонентов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02779B1069AA38668BDE7B2C3C79B2037A42C8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559695   (408363) от 13.10.2012
+
+[Wallpapers] Nice Wallpapers Pack №2 [1260 шт.]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408363.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nice Wallpapers Pack №2
+Название: Nice Wallpapers Pack №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 680x441 - 12300x7995
+Количество: 1260 шт.
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2D35C3A0661CCC90F55AB120653788580D3D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560166   (408364) от 13.10.2012
+
+Журнал | PC Week [Россия] №27 (октябрь 2012) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408364.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC Week - Журнал информирует о передовых технологиях, новейших разработках и важнейших событиях и новостях как отечественного, так и зарубежного компьютерных рынков. В Журнале PC WEEK около десяти постоянных разделов: "Новости", "Корпоративные системы", "Мобильные и настольные системы", "Netweek", "Связь", "Дистрибуция", (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B07AF8A09C6BE7FBA11E31A4E1A5641519FF2E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559564   (408365) от 13.10.2012
+
+VA - Хиты в тачку на прокачку! Vol.4 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. АнгелиЯ - Душа Устала
+02. Tisha - Любовь
+03. SAZH (С.А.Ж.) - Туда-Назад В Лето (Radio Edit)
+04. Время и Стекло feat. Потап - Слеза
+05. Kamelia - I Don't Care (Radio Edit)
+06. Павла - Будь со мной
+07. А.Р.М.И.Я - Клянусь
+08. Ажур - Summer Love
+09. Тимур Родригез - Я Верю В Твою Любовь
+10. Pet Shop Boys - Winner (Wideboys Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8C5BAAB14A62273C6802238CCE8D83C47AA3C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559755   (408366) от 13.10.2012
+
+Журнал | Ваш семейный доктор №10 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание об альтернативной медицине. Уникальные рецепты, советы физиологов, психологов, диетологов по профилактике и лечению заболеваний. Лекарства, упомянутые в журнале, могут иметь противопоказания. Прежде чем воспользоваться советами, проконсультируйтесь со своим лечащим врачом.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767722AD8B0B9D7DB1939F6BFF4CC9A2DA346EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559629   (408367) от 13.10.2012
+
+Журнал | Полный привод 4х4 №9 [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408367.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Полный привод 4 х 4" - национальный внедорожный журнал дает объективную информацию по всему спектру тем: автомобильные новости, презентации новых моделей, тесты машин и дополнительного оборудования, школа “внедорожной” езды, тюнинг, опыт эксплуатации автомобилей и специальных “внедорожных” аксессуаров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C147B2A2D157A6F47E0372F5173AFC7872AA16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559574   (408370) от 13.10.2012
+
+VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Денис Клявер - Твои Руки
+02. Ysa Ferrer - Por Que Te Vas
+03. Нюша (Nyusha) - Воспоминание (Extra Edit)
+04. Akon Feat. Busta Rhymes - Call Da Police
+05. Макс Лоренс - Всё Что Мне Надо (Summer Mix 2012)
+06. Alexandra Stan Feat. Carlprit - 1.000.000 (Rico Bernasconi Remix Edit)
+07. Shami & Mx - Мы Небо-Земля
+08. Andreea Banica - Could U (Radio Edit)
+09. Вера Брежнева - Бессонница
+10. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3502F2C19C27EF6EB7DA8532DA6BCB923925BFAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558660   (408371) от 13.10.2012
+
+VA - Модный Хит В Машину! Русский (2012) [MP3|224 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roma Kenga - Ты Будешь счастливой (Anton Orf & Dj Gladiator Radio Edit)
+02. MMDance - Баня (Discomania Remix)
+03. Opium Project feat. Сергей Жуков - Я буду с тобой (Haaski Downpour Remix)
+04. DJ M. E. G. feat. Сергей Лазарев & Тимати - Moscow To California (Belikov Remix)
+05. Arty & DJ Night Rush - Kedi!
+06. Dino MC 47 & David - Не моя (DJ Oleg Perets & DJ Alexey Galin Radio Remix)
+07. Yolan & Kenia - На Пороге Лета (Extended Mix)
+08. G-Nise & Алексей Кабанов feat. DJ Half - Наше Лето (DJ Evans Remix)
+09. DJ Tarantino & Катрин Моро - Я Буду Помнить
+10. Каста (Влади) - Сочиняй Мечты (DJ Kopernik remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C1663A789236CD6B83B1B50BCA7765E1FB2212
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559092   (408373) от 13.10.2012
+
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.25 (2012) [MP3|128-320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Мишель - Здравствуй, Знаешь
+02.Andamiro feat. Dani B. & Jonathan Carey - I Don't Care
+03.Dzham - Без Тебя
+04.Estela Martin feat. Young James - Love Me Tonight (Radio Edit)
+05.Денис Любимов - Ещё Не Закончен Бой
+06.Mavado feat. Karian Sang - Take It
+07.Пальчики Оближешь - Сжигаю Боль
+08.Carlprit - Fiesta (Michael Mind Project Radio Edit)
+09.Влад Соколовский - Мир Сошёл С Ума
+10.Olly Murs feat. Flo Rida - Troublemaker(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90676587F09C39839DC225A07911297BE35FE6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559638   (408374) от 13.10.2012
+
+VA - MAXI. Осенние новинки MTV (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Neo & Letichev Sky feat. Nils Holgerson - Огонь Любви
+02. DJ Boor feat. Serpo - Пальцы
+03. MBrother - Too Late (Radio Edit)
+04. Иван Березовский - Ты Не Знала
+05. Alyosha (Алеша) - Точка На Карте
+06. Che Francisco - Я Знаю
+07. Fashion Beat - Kiss Me (Radio Mix)
+08. Jay Sean - So High
+09. Bahh Tee - Сердце
+10. Sonny Flame - Get In My Bed (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36A4C07FD3E659A34F057F38E8553CF376A1C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559931   (408375) от 13.10.2012
+
+Журнал | Дома. Усадьбы. Коттеджи №64 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проекты загородных домов, интересные авторские материалы по технологии строительства, благоустройству, ландшафтному дизайну, интерьеру, саунам, бассейнам, инженерному оборудованию и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172C2807356ED196A71D08A0ABB54D5821722F66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067292   (408379) от 28.10.2016
+
+М. В. Чекалин | Сталинский план коллективизации сельского хозяйства и борьба партии за его осуществление (1950) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стенограмма публичной лекции, прочитанной в Ленинграде в 1950 г.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A750FC496A54231F1E50AC1EDE46AE3B37E7975D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067310   (408380) от 28.10.2016
+
+Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| It Never Rains In Southern California   (04:03) 
+  02| I'm A Train   (03:47) 
+  03| When I Need You   (04:40) 
+  04| Give A Little Love   (04:15) (   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4455E472A61D72C09BD22F36AEA106DF5D622976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067148   (408381) от 28.10.2016
+
+VA - Solarstone Presents... Pure Trance 5 (Mixed By Forerunners, Solarstone & Sneijder) (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxhill - Supermassive (6:25)
+02. Biologik - Grey Skies (7:44)
+03. Solarstone & Forerunners - Dying Star (8:36)
+04. Nick Stoynoff - Omni (5:18)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CAF028284655FED06E919616336B3E4B2DD50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067268   (408382) от 28.10.2016
+
+VA - Блатная волна Радио Шансон (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Александр Вестов - Золушка 3:33
+002.Александр Закшевский - За Тобой 3:27
+003.Александр Келеберда - Все Лучшее В Прошлом 3:26
+004.Александр Климм - Верь Мне 3:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9D2E108A207EA6D8DFBF9519FA7D8980D347D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067151   (408384) от 28.10.2016
+
+Журнал | Добрые советы. Цветы в доме №11 (ноябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная часть издания — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада. Выбор растений для интерьера, лечение и меры по защите растений, паутинная лилия, перец на подоконнике. И другие письма с рекомендациями по уходу за комнатными растениями - в номере.Жанр: ЦветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D422391E9ABA25DFC0A6A44DEDAB1D15217F78B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067061   (408385) от 28.10.2016
+
+Paradise - Do Or Die (1992) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Nightmares   (05:14) 
+  02| Voices   (04:33) 
+  03| Firin'  Line   (04:15) 
+  04| Fever   (03:46) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC13296412046C46D0D8B59397FB0ADF9550E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067240   (408387) от 28.10.2016
+
+French Cookin' - If You Wanna (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| How You Talkin'   (03:02) 
+  02| It Just Ain't Right   (02:55) 
+  03| How Happy Am I   (03:27) 
+  04| If You Wanna   (03:27) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA08D5672D7ED7EF5055EB9C0FF75A228E5C91C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067090   (408388) от 28.10.2016
+
+VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modell - Do You Remember a Time - Deep Elements Mix
+02. Yolette Mercure - Pretty Amper - Cinosa Mix
+03. South Soul - Light Passion for Beauty - Beach & Fashion Mix
+04. Parfait Deblois - Heat Wave - On The Moon Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066747   (408391) от 28.10.2016
+
+VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Britney Spears F./G-Eazy - Make Me (Marc Stout & Tony Arzadon Radio Edit) 03:56
+02. Cash Cash & Digital Farm Animals F./Nelly - Millionaire (Ftampa Remix - Clean) 02:40
+03. Christina Aguilera - Telepathy (Rare Candy Radio Edit) 03:11
+04. Deorro F./Pitbull & Elvis Crespo - Bailar (Remix) 02:37(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, ProgressiveПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067352   (408392) от 28.10.2016
+
+LSB - Content LP (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lydian (feat. Millie Watson)
+ 02. Pandora (feat. Sense MC)
+ 03. Missing You (feat. Tyler Daley & DRS)
+ 04. The Optimist(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73167D7C380E09F522BE5D2526ACC74D8084547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067275   (408393) от 28.10.2016
+
+VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alex Mica - Afrodita 3:39
+002.Andre Tay - Детство 4:05
+003.Arti - Параллели 3:39
+004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067223   (408394) от 28.10.2016
+
+Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Somewhere Along The Way [02:53]
+ 02.Walkin' My Baby Back Home [02:39]
+ 03.Faith Can Move Mountains [03:13]
+ 04.Funny [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB85475BC70354A498A553DF911516CB3A5B764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

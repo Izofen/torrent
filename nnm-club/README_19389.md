@@ -1,26 +1,665 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1200528   (795653) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0002 (2018) [MP3|320 Kbps]<Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Costa feat. Charly Danone - Go! ( 2017 )
+02. Den Harrow - Italian Megamix ( 1999 )
+03. Mode One - Ocean Of Love ( 2016 )
+04. Alan Cook - Running Away ( Remix 1987 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C7C04DA1924A23E1A7EB46906A0FBB79BD636D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200530   (795654) от 21.01.2018
+
+Василий Андреевич Жуковский | Сказка о Иване-царевиче и сером волке (1909) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сказка о Иване-царевиче и Сером Волке» – произведение русского поэта, одного из основоположников романтизма в русской поэзии В. А. Жуковского (1783 – 1852).Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1CC71546E9E837B8AE6FE3CEE1D2C87B7DDD86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200621   (795655) от 21.01.2018
+
+VA - Empire Records - Sound Clinic 9 (2017) [MP3|320 Kbps] <Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny-S & Relanium Feat. Laila - Intoxicated 2.1 (Taito Remix)
+02. AC Slater & Chris Lorenzo - Fly Kicks (Wax Motif Remix)
+03. Nick Olivetti & Sly Turner - 247 (LiTek Remix)
+04. Xairun - Sub Bass(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E34F4466E167655CDB434CCDF0C068B014756E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200445   (795656) от 21.01.2018
+
+Iron Savior - Reforged - Riding on Fire (2017) 2CD (Japanese Edition) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warrior
+02. Iron Savior
+03. Tales of the Bold
+04. No Heroes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8334583DFC17437AD54D6D4BDD418D1A2BF0A4D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200536   (795657) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0004 (2018) [MP3|256 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Keith - I Feel Right ( Day Version 1986 )
+02. Leopold Nord & Vous - C'est L'Amour ( Love Remix 1987 )
+03. Afroside - Lady Come Down ( 1988 )
+04. Telex23 - Phaeton ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B27A440E9138BA005D598D83490825B2375A7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200531   (795658) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0003 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lala - Johnny, Johnny ( Extended Version 1986 )
+02. Monte Kristo - Sherry Mi-Sai ( Maxi Version 1986 )
+03. Savage - And You Are ( 2016 )
+04. Alan Barry - Hie Hie Hie ( 1987 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E68A5142FD4190A9D698DF60F6769101EC7CD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200607   (795659) от 21.01.2018
+
+Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragonfly (6:04)
+02. Breathe (4:38)
+03. Weave (4:04)
+04. Mind Finding Form (3:42)(   Читать дальше...   )Жанр: Lounge, New AgeПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509179   (795660) от 11.11.2021
+
+Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795660.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DCE4608DECE0E37CE7D3A01726F8CBD321380A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509195   (795661) от 11.11.2021
+
+Журнал | Street Trucks [Canada] №3 (март 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AD681C0C4C1776A5AAAA8255976B52527316A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509248   (795662) от 11.11.2021
+
+Журнал | Street Machine [Australia] №10 (октябрь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C001589A551096BD35137FCD098FBD47633F5AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509193   (795663) от 11.11.2021
+
+Журнал | Street Trucks [Canada] №4 (апрель 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8A529904FACAD8F38A4CE424CC3CBE1A25DA05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509118   (795664) от 11.11.2021
+
+Danger Danger - The Return of the Great Gildersleeves (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grind
+02. When She's Good She's Good (When She's Bad She's Better)
+03. Six Million Dollar Man
+04. She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF95660EF8D5EEB142A37D67EA2932DC2BF0BAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509242   (795665) от 11.11.2021
+
+Журнал | Street Machine [Australia] №4 (апрель 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A286DA32BB20F0E6B45C0C6868BE4D06EAEE4B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509245   (795666) от 11.11.2021
+
+Журнал | Street Machine [Australia] №5 (май 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F24EB2223DD2021DCC81E85802549AFE02E1A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508987   (795667) от 11.11.2021
+
+VA - Café del Mar XXVII (Vol. 27) (2021) [AAC|~347 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795667.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Eric Hilton - The Impossible Silence (3:06)
+1.02. Kraak & Smaak, iogi - All I Need (4:32)
+1.03. Bent - Friends (5:39)
+1.04. Till Von Sein - Kalifornien Luv (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAAB5919817C6FC4912D50B2129EA305D4EE702
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509190   (795668) от 11.11.2021
+
+Журнал | Street Trucks [Canada] №10 (октябрь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0239B27D4B630FB7BBD59F10E41089A14DF5980C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509225   (795669) от 11.11.2021
+
+Игорь Ланда | Динозавр Амвросий (2021) [MP3, Игорь Ланда]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая сказка про маленького динозавра Амвросия с большой, невидимой душой.Жанр: Детская литература. СказкаПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937555EEF6456465C1EEB3CB4BFA1C091E80382B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509126   (795670) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Introduction into Let's Dance [1:23]
+02. Mission to Moscow [3:01]
+03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509124   (795671) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Dance [1:02]
+02. Don't Be That Way [3:14]
+03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509076   (795672) от 11.11.2021
+
+Things 3 v3.15.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CD39E1B09352F9704E61C0DBCC1D3C737AD6FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509227   (795673) от 11.11.2021
+
+Вероника Коссантели | Изумительная Страна Снергов (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, вдохновившая Дж. Р. Р. Толкина!
+Пип и Флора в беде. Они убежали из приюта «Солнечная бухта» – и оказались в изумительной Стране Снергов.
+Это волшебная страна восхитительных пиров и медведей, пахнущих корицей. Вот только есть здесь и мрачные пещеры, есть прожорливые великаны и коварные шуты, а ещё ведьма, с ног до головы облачённая в пурпурные одежды.
+Добрый, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: В.Т. БабенкоФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB7DA294C63F088267935FBE75D4F5207711E59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509200   (795674) от 11.11.2021
+
+Screenium 3 v3.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запишите то, что вы видите на экране, и превратите это в скринкаст. Screenium 3 позволяет делать записи с частотой 60 кадров в секунду, предлагая оптимальное качество для ваших учебных материалов, записей игрового процесса или содержимого экрана, которое вы хотите записать. Если вы работаете с ультра-высоким разрешением 4K или 5K дисплея, или Retina Mac, Screenium (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2021Разработчик: © 2021 Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD676A2A3B04F19BBE3B1AA24D56C252437AEF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509189   (795675) от 11.11.2021
+
+Журнал | Street Trucks [Canada] №11 (ноябрь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95288DC9336C75ED8C208A9C8A015FF69770CBB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509219   (795676) от 11.11.2021
+
+VA - Balearic Bar & Beach Tunes (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - City Lights (Original Mix) (6:03)
+02. Lounge Groove Avenue - Te Quiero (Original Mix) (4:07)
+03. Patiotic - Hold Me (Original Mix) (4:32)
+04. Corrado Saija - Kalakuta (Original Mix) (7:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6BFFF2290D8A36BA80E2E04B8BC9607E7A62C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509120   (795677) от 11.11.2021
+
+Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 'Round Midnight [4:58]
+02. Yesterdays [3:20]
+03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509072   (795678) от 11.11.2021
+
+Nova 8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA1C1A6E9D46CC0F10D44F379820CA8EA9527E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

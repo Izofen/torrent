@@ -1,26 +1,672 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 576276   (366564) от 16.11.2012
+
+Abstract Wallpapers (16.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1A98D524DF9D5E663402BFD233E26133DB3779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575526   (366566) от 16.11.2012
+
+Widescreen Wallpapers (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127D3C5D7B80CFEB0652BCB8322AFCF25D822BE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575973   (366567) от 16.11.2012
+
+Computer Desktop Wallpapers Collection (15.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B47CA987A2DE503B75FAFD8EAD93FB0B90EC3F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575561   (366569) от 16.11.2012
+
+Nature HD Wallpapers (14.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD40664B6308B674C977DE5691849996F987132E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574013   (366570) от 16.11.2012
+
+Computer Desktop Wallpapers Collection (10.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAF28021D0BA6D08A3B384C74ABDBF1994BC61A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575834   (366571) от 16.11.2012
+
+VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acrylite - Tesseral Original
+02. Adam Element - Magnetic Environment (Kozi Komatsu Mix)
+03. Alex Kenji, Ndkj - Not That Kind Of Girl Feat. Marga Sol (Mike Vale Remix)
+04. Angelo Dore - One Vodka For the Girl (Original Mix)
+05. Calvin Harris Feat Example - Well Be Coming Back Klass Project Remix
+06. Carlos Roll, Muzikjunki, Toni Maravillas - Alive (David Mel & Saleem Razvi Remix)
+07. Christian Fischer - Hyper Draw-Drum
+08. Cole Jonson - Sneak Out (Original Mix)
+09. Cosmic Gate Feat. Jan Johnston - Raging (Alexander Popov Vocal Remix)
+10. D Quattro - Point 49 (Marc Systematic Remix)(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 03:59:54
+
+01. DJ Шанс feat. JayB (D.Lemma) - Ярче
+02. Руки Вверх - Крошка Моя (DJ Mikola Cover Ural DJs Remix)
+03. Сплин - Мое Сердце (DJ Kirillich Remix)
+04. Инфинити - Я так скучаю (Alex Menco Remix)
+05. Elvira T - Все решено (Fire Flame & Horizont Remix)
+06. Ияра - На Губах Тай (DJ Nariman Mix)
+07. Mr.Credo - Воздушный Шар (Ural Dj's Remix)
+08. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60586D0F60F628D0E23A4FB4B5CC84FC5315A2AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575519   (366572) от 16.11.2012
+
+Computer Desktop Wallpapers Collection (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EEF47A03BE168D1F7E6DEB1D02512AFEC01280
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576377   (366574) от 16.11.2012
+
+Журнал | Custom PC №112 (UK) [январь 2013] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание для геймеров, моддеров и оверклокеров. В каждом журнале - подробные обзоры и тесты "железа". В текущем номере - бюджетные CPU.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4249ECBF6E3D8597A63A2B8C5916C781B110CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575961   (366575) от 16.11.2012
+
+DJ Altuhov - Party Hard (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366575.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: HouseПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7C0DE3187E2D9285EC5480B6FEBFA7A245BE5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253082   (366587) от 03.11.2010
+
+Васса (1983) DVDRip [2 серии из 2]
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366587.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом доме детей с юных лет приучали всегда отчетливо говорить «мой»: мой пароход, мой дом, моя фабрика. Здесь считали деньги, нажитые чужим трудом, и за ночь спускали в карты целое состояние; здесь развратничали напропалую и втихомолку шпионили друг за другом; молились и совершали именем господа темные дела. Все было у Вассы - деньги, сила, власть, ум и хватка. (   Читать дальше...   )Жанр: ДрамаРежиссер: Глеб Панфилов.Актеры: Инна Чурикова, Вадим Михайлов, Николай Скоробогатов, Валентина Теличкина, Ольга Машная, Яна Поплавская, Валентина Якунина, Вячеслав Богачёв, Иван Панфилов, Альберт Филозов, Всеволод Соболев, Татьяна Кравченко, Татьяна Калистратова и др.Продолжительность: 02:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71075CAB73D8608E02184AFF703E55BED9A7231A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576499   (366616) от 14.09.2022
+
+PrivaZer 4.0.52 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366616.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1C4623395ACE3FCDAA0EEB2229401F2F6F7DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576548   (366617) от 14.09.2022
+
+Портрет Дориана Грея / The Picture of Dorian Gray (1915) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из ранних экранизаций знаменитого романа Оскара Уайльда, интрига в котором построена на мотиве сделки с дьяволом, и где был задействован магический портрет, сыгравший в судьбе героя роковую роль... Художник Бэзил Холлуорд пишет портрет молодого и прекрасного Дориана Грея. Любуясь своим изображением, юноша выражает желание, чтобы портрет старел, а он всегда оставался (   Читать дальше...   )Производство: США, Thanhouser Film CorporationЖанр: драма, мистика, короткометражный, экранизация, немое киноРежиссер: Юджин МурАктеры: Харрис Гордон, Хелен Фултон, Эрнест Ховард, В. Рэй Джонстон, Морган Джонс, Клод Купер, Артур БауэрПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AAA0B061D7285AB765CBDE44F2C589D161A55B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576511   (366618) от 14.09.2022
+
+Футбол. Лига Чемпионов 2022-2023. Основной турнир. Группа"А". Ливерпуль (Англия) - Аякс (Голландия) (13.09.2022) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2022-2023. Основной турнир. Группа"А". Ливерпуль (Англия) -  Аякс (Голландия) (13.09.2022)
+СУДЬЯ Диаш Артур (Португалия)
+Судья на линии 1: Тавареш Руй (Португалия)
+Судья на линии 2: Соареш Паулу (Португалия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5277D78219ADB8320AAE5B99DB945057EDE6090C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576420   (366619) от 14.09.2022
+
+Эпицентры Нью-Йорка 9/11 / NYC Epicenters 9/11-2021½ (2021) WEBRip (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм оскароносного режиссера Спайка Ли о жизни Нью-Йорка после трагедии 11 сентября 2001 года. Картина охватывает два десятилетия восстановления города после сокрушительной трагедии. Огромное количество интервью с людьми из самых разных слоев населения покажет, как Нью-Йорк пережил время страшных потерь и смог сохранить свою мощь. Спайк Ли, чуткий (   Читать дальше...   )Производство: США, 40 Acres & A Mule Filmworks, HBO Documentary FilmsЖанр: документальный, историяРежиссер: Спайк ЛиПеревод: двуголосый профессиональный (Amedia)Субтитры: отсутствуютПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D500EEF8A59DF15F801BE9856784E3BE0F33FE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576321   (366620) от 14.09.2022
+
+Neil Diamond - Love Songs (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Caroline
+02. And The Grass Won't Pay No Mind
+03. Juliet
+04. Until It's Time For You To Go(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EFA5739B76BA770D3F6F653F4FA31445E426C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576481   (366621) от 14.09.2022
+
+Я живу в страхе / Ikimono no kiroku (1955) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма, обеспеченный промышленник господин Накадзима, из страха перед возможными ядерными бомбардировками Японии решает эмигрировать в Бразилию, в безопасное, на его взгляд, место. При этом он хочет спасти всё своё многочисленное семейство, включая взрослых детей и бывших любовниц, и забрать их с собой. Однако родственники, вполне довольные жизнью на (   Читать дальше...   )Производство: Япония, Toho CompanyЖанр: драмаРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Такаси Симура, Минору Чияки, Ейко Миёси, Киёко Аояма, Харуко Того, Норико Сенгоку, Акеми Негиси, Хироси Тачикава, Кичидзиро УедаПеревод: авторский (Сергей Кузнецов; Алексей Яковлев)Субтитры: русские, английскиеПродолжительность: 01:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A72764716424E798EAA296813E65CBAA87A162B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576586   (366622) от 14.09.2022
+
+Александр Руж | Анита Моррьентес (Книга 2). Четвертый коготь дракона (2021) [MP3, Матвей]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366622.jpg" />
+</div>
+
+
+###  Подробнее
+
+1849 год. Путешествуя по Швейцарии, Анита Моррьентес и ее муж Алекс знакомятся с занятными попутчиками – американцем Грином и щеголеватым юношей, путешествующим инкогнито. Неожиданная ссора в купе вынуждает всю компанию выйти на станции, в результате чего супруги и их попутчики отстают от поезда. Это неожиданно оборачивается большой удачей: на поезд нападают неизвестные (   Читать дальше...   )Жанр: Исторические детективыПродолжительность: 09:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C669EB5FF4CDCEF5B814B16529AA11F711653D9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576405   (366623) от 14.09.2022
+
+Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternate Blues (1980) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alternate One [5:33]
+02. Alternate Two [8:04]
+03. Alternate Three [9:06]
+04. Alternate Four [9:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DA8D489D9334C4F4DBEC7CB2013B216FA71FD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576516   (366624) от 14.09.2022
+
+Футбол. Лига Чемпионов Online 2022/2023. Групповой этап. Тур 2. Обзор матчей (13.09.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов Online 2022/2023. Групповой этап. Тур 2. Обзор матчей (13.09.2022)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794058315D329D9E0CA56D8F7FB66BEC2DAF7BC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576453   (366625) от 14.09.2022
+
+Rik Meijer - Rik Meijer (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me the Good Earth (5:52)
+02. Pack It Up (4:05)
+03. New Orleans Ladies (5:35)
+04. I'm a Runner (4:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1648919C512B604459D1F424DA57ACCFB3B280A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576480   (366626) от 14.09.2022
+
+Leah - Ancient Winter (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом Leah с участием приглашенных музыкантов Nightwish & Eluveitie.1. The Whole World Summons 4:56
+2. Light of the World 4:20
+3. Upon Your Destiny 6:03
+4. Redemption 5:21(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF5515CF1B174578D3F54AB8300C48AC0CCFBF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576442   (366627) от 14.09.2022
+
+Francesco Marras - It's Me! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Talks [00:04:05]
+02. Take my Hand [00:04:29]
+03. You Set My Heart on Fire [00:03:44]
+04. We Take the Blue Away [00:03:53](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF35509AB6AC82DD155292C851488458BE63656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576157   (366628) от 14.09.2022
+
+Impending Doom - 6 Albums (2007-2021) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death,Deathcore,Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satanic Panic [00:03:19]
+02. New World Horror [00:04:18]
+03. Culture of Death [00:04:14]
+04. Hellbent [00:03:48](   Читать дальше...   )Жанр: Brutal Death,Deathcore,ChristianПродолжительность: 6 CD, 03:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0CB1F65041A70ECF028C0EB2135B397A211419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576435   (366629) от 14.09.2022
+
+Retador - Retador (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retador (02:40)
+02. La Venda (03:47)
+03. Furia (03:54)
+04. Titeres (04:23)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D0F0D28393C546FD58C6818E33598954FD2EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576448   (366630) от 14.09.2022
+
+Patrick Yandall - Blues Alley (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catfish Stew (4:08)
+02. Wabash Avenue (4:08)
+03. If I Fall (4:27)
+04. Buffalo Shuffle (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609F33E5513543A3DF02906F16704361B2F61A93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576449   (366631) от 14.09.2022
+
+Poppa John "Bug" & the Jam Band - Forgiven (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zeus's Anger Roar (3:58)
+02. Promises (4:20)
+03. The Bronx Is Burning (4:00)
+04. Where Is America (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFBE3D8816431E72EA493DCAC9B666AF7D1315C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

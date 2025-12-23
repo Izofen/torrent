@@ -1,26 +1,685 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 518667   (639376) от 05.07.2012
+
+Thomsen - Let's Get Ruthless (2009) [MP3|320 кб/с]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruthless
+ 02. Tears Of The Sun
+ 03. Time Again
+ 04. Stand Up & Shout
+ 05. You and Me
+ 06. Heaven & Hell
+ 07. Blind Your Eyes
+ 08. Bang Your Head
+ 09. Branded Man
+ 10. Everything I Ever Wanted(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF4F08367070C4CAC9A5DC72C8E78C81C332717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518854   (639379) от 05.07.2012
+
+В.М. Наумович | Искусственная сушка торфа [1984] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены теоретические основы и основные закономерности тепло- и массообмена в процессах сушки торфа. Приведена методика расчёта сушильного процесса аналитическими и графоаналитическими способами, даны рекомендации по выбору оптимального режима сушки и работы сушильных установок.
+Книга предназначена в качестве учебного пособия для студентов торфяных факультетов вузов и будет полезна инженерно-техническим работникам торфяной промышленности.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37363C75245350C789EC60F14B228B36F6852DDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518652   (639381) от 05.07.2012
+
+Журнал | Forbes [Украина] №6 (июнь 2012) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forbes пишет об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, публикует авторитетные рейтинги. Forbes имеет доступ к первым лицам компаний, политикам и лидерам мнений и получает информацию от самых осведомленных источников.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A208878106EC67058CBCC03A30B1B50F9F2A871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519011   (639383) от 05.07.2012
+
+Журнал | Домой. Строительство и ремонт №24 [июнь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный рекламный журнал «ДОМОЙ. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E98BE635AE8D77A1FF13E8EF357852005E42825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518912   (639385) от 05.07.2012
+
+Черновики Маргариты - 2 CD - Надежда и  Вперед, колонны! (2011-2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:38:55
+01. Вперёд, колонны Спартака! (Машина смерти)
+02. Да будет шоу
+03. Королева Боли
+04. Кровь Королей
+05. Следуй за мной
+06. Улица Роз
+07. Штиль
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EBE875EA85DCC92B5994E885C0463BBDAC3A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518964   (639389) от 05.07.2012
+
+[EN] Изнутри / On the Inside (2011) BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аллен Мэнерик помещён в психиатрическую лечебницу для душевнобольных преступников за совершение жестокого убийства из мести. Здесь ему приходится иметь дело с серьёзно больными и весьма опасными пациентами, пока ему, в рамках программы по реабилитации, не заменяют режим содержания на более свободный. Там он встречает Миа — очаровательную заключённую с маниакально-депрессивным синдромом. Постоянно преследуемый воспоминаниями, Аллен ищет искупления, когда неожиданные события вынуждают его встать на защиту Миа от насилия и хаоса этого учреждения.Жанр: Триллер, ДрамаРежиссер: Д.В. БраунАктеры: Ник Стал, Дэш Майок, Оливия Уайлд, Прюитт Тэйлор Винс, Шохре АгдашлуПеревод: ОтсутствуетПродолжительность: 01:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D469AA1067795673DCAD327C40E5CA94A8529E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518902   (639390) от 05.07.2012
+
+Детектор лжи. Выпуск №26 (2012.07.03) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет премьеру психологического проекта "Детектор лжи", участникам которой предстоит правдиво отвечать на сложные, а порой и нелицеприятные вопросы на произвольные темы, в том числе и касающиеся их личной жизни. Единственный способ выиграть и стать миллионером – это ответить на 21 вопрос игры и подтвердить честность ответов на самом настоящем детекторе лжи.
+
+Создатели "Детектора лжи" обещают множество сюрпризов, которые будут происходить во время эксперимента. Первый и один из главных – ведущий проекта Андрей Малахов, который предстанет перед телезрителями в совершенно новом образе.
+
+"Первый канал находится в поисках человека, который способен говорить правду, только правду и ничего кроме правды. Не будем притворяться: ложь стала нашим образом жизни, повседневным способом общения друг с другом. Мы оправдываем такое положение дел тем, что не хотим расстраивать родных, близких, а на самом деле все глубже увязаем в нашей лжи. Эта программа не на эрудицию. Участнику нет (   Читать дальше...   )Жанр: ТВ-ШоуТелекомпания: Первый каналПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC114FCD2EF675402915CE0B82901A74A5E1827
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228182   (639394) от 30.05.2018
+
+Nicola Conte - Nicola Conte Presents - Viagem Vol. 3 (2011) [MP3|320 Kbps] <Jazz, Bosa Nova, Samba>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dalmo Castello - Fora De Hora (2:47)
+02 - O Triangulo - Voce Que Nao Vem (2:04)
+03 - Luiz Carlos Sa - Canto Do Quilombo (2:31)
+04 - Aizita - Faz De Conta (2:03)(   Читать дальше...   )Жанр: Jazz, Bosa Nova, SambaПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B2701C420524EA74F96BE95DF707AF54ABF3B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228109   (639395) от 30.05.2018
+
+VA - Best Of Vocal And Uplifting Trance (2018) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aurosonic feat. Ana Criado - Ask Me Anything
+002. Saad Ayub & Cristina Soto - Daylight
+003. Akcess & Venetica - So Are You The One
+004. Freedom Fighters - Detuned (Original Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 10:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36069589BBB50E1D12CCB3EFBD3518CB61BDC480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228136   (639396) от 30.05.2018
+
+VA - Trance Euphoria Vol.1 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranc Eye - Sunset in Your Eyes (Radio Edit)
+02. Litagoria - The First Step (Avalona Radio Edit)
+03. Changer - Sunrise Breeze (Mike Oceanic Emotional Remix Edit)
+04. Etania - Warriors of Love (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC17453F121F92FC9A4D0E116730C99005523E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228104   (639397) от 30.05.2018
+
+VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, Hands Up, Hard Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Bartasek - Pop Remixes Megamix (Continuous Mix)
+02. Toxic Outbreak - All Of Me (Sunny Dee And Dreaming Canon Remix Edit)
+03. Orangez - I Gotta Feeling (B-Tastic Remix Edit)
+04. Phat Bomb - Bad (Sunny Dee Remix Edit)(   Читать дальше...   )Жанр: Dancecore, Hands Up, Hard Dance, PopПродолжительность: 02:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7765ED87907BAC2DD6DC2682D362EDA4DE6BA5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228083   (639398) от 30.05.2018
+
+Александр Снегирев | Как же её звали (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то он снимал комнату у одинокой дамы преклонного возраста. Она привязалась к нему, начала наряжаться, подарила фотоаппарат, а вскоре принялась настаивать на близости. Он хотел сбежать, но поддавшись её мольбам, остался. Стали друзьями. А потом он влюбился в девушку… Прошли годы, он отчетливо помнит имя старухи – от ее участия пришел успех в его карьеру. Но (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D15E55582FE7C091430D88456BA99C259076AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228184   (639399) от 30.05.2018
+
+Comodo Dragon 66.0.3359.117 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый браузер на базе технологии Chromium с дополнительными функциями, повышающими безопасность. Обеспечивает повышенную конфиденциальность, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие сертификаты SSL из низших, останавливает куки и другие веб-шпионы, а также предотвращает все прослеживания загрузки браузера.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9519F0A32C256C7E169A3A5CA1CA9175E42229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228111   (639402) от 30.05.2018
+
+VA - Bassline In My Brain (2018) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vital - Heavyweight Sound
+02. Hestia - Baby (Original Mix)
+03. Axedent - Ghost Head
+04. Cubiqle - Aperature (Original Mix)(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 06:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65D01C1DEACEBFA7EAC956C7FC1C7600F3AECA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228081   (639403) от 30.05.2018
+
+Orjan Nilsen - Prism (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swoosh (Intro Extended Mix)
+02. That One Night (Extended Mix)
+03. Hi There Radio (Been Too Long) (Feat. Mike James)
+04. Iconic (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A5B14F8073918620CA1D4477D294B702BDE320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228232   (639405) от 30.05.2018
+
+Lumbee - Overdose (1970) Unofficial Release, Special Limited Edition [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tone Deaf
+2. Veronica High
+3. People Get Ready
+4. You Gotta Be Stoned(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F364585A0A4A5574780F7A3F23ECBEFE892D303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228091   (639406) от 30.05.2018
+
+Сэм Сэвидж | Крик зелёного ленивца (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639406.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Крик зеленого ленивца" - вторая книга американца Сэма Сэвиджа, автора нашумевшего "Фирмина". Вышедший спустя три года новый роман писателя не разочаровал его поклонников. На этот раз героем Сэвиджа стал литератор и издатель журнала "Мыло" Энди Уиттакер. Взяв на вооружение эпистолярный жанр, а книга целиком состоит из переписки героя (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B167EF15575E4EE7ECFB343CB82C219DCF3BA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228089   (639407) от 30.05.2018
+
+VA - Trance Runner - Episode Six (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brisby & Jingles - It's My Life (Andestro Edit)
+02. Sun Liquide - New Dawn (Radio Mix)
+03. Dima Krasnik - Heaven (Radio Cut)
+04. Symon, Jay - Aerify (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F565B41C5617B17798ABB6D1F51968673CB0AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228245   (639408) от 30.05.2018
+
+VA - The Sound Of Trance Vol. 10 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamline - Winter Lights (Original Mix)
+02. Prodeeboy - Qwerty (Original Mix)
+03. Sothzanne String - Looking For Happiness (Original Mix)
+04. Daun Giventi - Valkyrie (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143F897396A7B693AA06AC78FE926F6C5239E2B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228027   (639409) от 30.05.2018
+
+Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Feeling [4:19]
+02. World On A String [4:28]
+03. Exactly Like You [3:10]
+04. It All Depends On You [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08CA4408BC2E438261BC6CE6BE12E37632A43C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228255   (639411) от 30.05.2018
+
+VA - Redux Frankfurt Selection (Mixed by A-Tronix & Sven E) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven E - Tell Me (Brent Rix Club Remix)
+02. Rene Ablaze feat. Crystal Blakk - Torn Into Pieces (Original Mix)
+03. Brent Rix - Dream Chaser (Original Mix)
+04. Gosselt feat. Robin Vane - U & I (A-Tronix & Sven E Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5CB9180DBC274167736F4821DC6406B1A91BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228153   (639412) от 30.05.2018
+
+James P. Johnson - 1928 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight Savin' Blues [2:49]
+02. Georgia's Always On My Mind [2:49]
+03. Riffs [3:05]
+04. Feelin' Blue [2:56](   Читать дальше...   )Жанр: Ragtime, Stride, Piano JazzПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82EBC67EDEED3A42BB9CC45976780C3F4EA7998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 347859   (639420) от 08.06.2011
+
+VA - Лето на Детском радио FM (2011) [MP3|256 kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Песенка О Лете
+002 Песенка Урри
+003 Дважды Два Четыре
+004 Кот И Пират(   Читать дальше...   )Жанр: Детские песниПродолжительность: 06:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B2CF6AF30CF9E661A75AFCB5CD6525D2F7DCAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906612   (639424) от 11.06.2015
+
+System app remover (менеджер приложений) 3.4.1015 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639424.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью данного приложения вы сможете удалять не только системные, но и пользовательские приложения, а также искать, устанавливать и удалять файлы apk на карте памяти. А еще вы найдете информацию о том, как получить права суперпользователя.
+Что отличает "System app remover " от других подобных программ.....Тип издания: FreeРелиз состоялся: 19 января 2015 г.Разработчик: jumobileПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362602E1D0BDA794F767DFDD9FEB856160834983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907287   (639426) от 11.06.2015
+
+MetaProducts Offline Explorer Enterprise 6.9.4208 SR4 Portable by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639426.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaProducts Offline Explorer Enterprise - мощнейшая программа, цена которой 599 вечно зеленых, позволяющая скачивать как отдельные файлы, так и целые веб-сайты (HTTP, FTP и HTTPS) на жесткий диск для их последующего офф-лайн просмотра как на отдельном компьютере, так и пользователями целой локальной сети. Используя Offline Explorer Enterprise, вы можете одновременно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF6B338A921565B56DF533758BFD7EB294E8BC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907162   (639428) от 11.06.2015
+
+Крепись! / Get Hard  (2015) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатый менеджер инвестиционного банка осуждён за преступление, которого он не совершал, и готовится к тюрьме. А помогает ему в этом парень, который моет его машину.Производство: США, Gary Sanchez Productions, Warner Bros.Жанр: комедияРежиссер: Этан КоэнАктеры: Уилл Феррелл, Кевин Харт, Крэйг Т. Нельсон, Элисон Бри, Эдвина Финдли, Ариана Нил, Эрик Чаварриа, Ти-Ай, Пол Бен-Виктор, Джон Майер, Джон Эйз, Нито ЛариозаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF3A9824C5130185ECFEEEE5A7C6FF9BE682AAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,26 +1,715 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1294429   (629635) от 07.04.2019
+
+Красные Маки - 2 Albums (1980) LP [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кружатся диски (Д.Тухманов - И.Кохановский) (6:24)
+02. Ясно все (А.Хоралов - И.Кохановский) (6:00)
+03. Интерлюдия (Ю.Чернавский) (1:45)
+04. Помни (А.Хоралов - И.Кохановский) (6:24)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F364F01E1D2573246512A5541A7C518543E7A963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909151   (629746) от 16.06.2015
+
+Kim Wilde - The Singles Collection 1981-1993 (1993) Japan Edition [FLAC|image + .cue]<New Wave, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kids In America [3:26]
+02. Chequered Love [3:22]
+03. Water On Glass [3:36]
+04. Cambodia [3:56](   Читать дальше...   )Жанр: New Wave, PopПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0D88065C92D95FBFCCACB952FA18C4A43A7E74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228961   (629849) от 04.06.2018
+
+VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629849.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Tal - Mondial
+02. Aya Nakamura - Djadja
+03. Rudimental, Jess Glynne, Macklemore, Dan Caplen - These Days (Feat. Jess Glynne, Macklemore & Dan Caplen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3107373CD3269321FB72CA6DB3326356D09902F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294116   (629887) от 07.04.2019
+
+VA - Magic 90s (2018) 4CD [MP3|320 Kbps] <Pop, Rock, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629887.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01.George Michael - Freedom
+02.Take That - Back For Good
+03.Natalie Imbruglia - Torn(   Читать дальше...   )Жанр: Pop, Rock, HouseПродолжительность: 05:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999AF2F5DF08471375D4B067116D46261D62B36C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294173   (629911) от 07.04.2019
+
+VA - NRJ Urban Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629911.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Aya Nakamura - La dot
+02. Bigflo & Oli - Sur la lune
+03. Angèle - Tout oublier(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDB85D50D1FBC062590E8DC65ACFE6E0116F711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294316   (629912) от 07.04.2019
+
+Two Man Sound - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Latin>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Samba (Detail Medley) (7:00)
+02. Que Tal America (7:51)
+03. Samba Samba (4:32)
+04. Americano (2:59)(   Читать дальше...   )Жанр: Electronic, Disco, LatinПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1CAFC73584F3640743BF999E7A4B5A401A71DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229209   (629968) от 04.06.2018
+
+The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629968.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Hornettes - девичья группа из Германии - была основана в 1979 году, тогда с Gitta Walther, Dagmar Hellberg, Lucy Neale и Christina Harrison. "We Are On The Way-O" - редкий альбом, выпущенный на знаменитом "чингизхановском" лейбле Jupiter Records. К нескольким песням приложил руку сам владыка Ralph Siegel. Альбом "Welthits" в основном (   Читать дальше...   )01.  Waikiki Tamoure (4:00)
+02.  Motorbike Ride (2:45)
+03.  We Are On The Way-O (3:39)
+04.  Carry Me Home (3:45)(   Читать дальше...   )Жанр: Electronic, Europop, Disco, SchlagerПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21556033E9FC862E85979A7738503506664D132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294373   (629976) от 07.04.2019
+
+VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629976.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
+02. Rick James - Super Freak (Cha Cha)
+03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294366   (629993) от 07.04.2019
+
+Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Swing All Night Long With You
+02 - Stronger Than The Truth
+03 - Storm In A Shot Glass
+04 - Tammy Wynette Kind Of Pain(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035128   (630195) от 15.07.2016
+
+M People - Best Of (Unknown Year) Unofficial Release [APE|Lossless|image + .cue] <Progressive House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving On Up
+02. Angel St.
+03. Dreaming
+04. One Night In Heaven(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D054936C41571B8C2B92F2935EDBE25C9CE6E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035151   (630301) от 15.07.2016
+
+Bananarama - The Greatest Hits Collection (1999) [MP3|320 Kbps] <Europop, Euro House, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Venus  3:42
+02.  I Heard A Rumour  3:27
+03.  Love In The First Degree  3:31
+04.  I Can't Help It  3:31(   Читать дальше...   )Жанр: Europop, Euro House, Synth-popПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144122   (631059) от 20.06.2017
+
+Время и Стекло - Обратный отсчёт (2017) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Стиле
+02. Навернопотомучто
+03. Песня 404
+04. Имя 505(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D7D54AACAC8A01141EE32091B3E049F3000B6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520689   (631134) от 09.07.2012
+
+Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631134.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cor De Ouro
+2. Balada
+3. Demais Da Conta
+4. Eu Vou Tentando Te Agarrar
+5. Arrasta
+6. Fora Do Comum
+7. Refém
+8. Tornado
+9. Calafrio
+10. Inventor Dos Amores(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520565   (631435) от 09.07.2012
+
+Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever (03:31)
+02. Butterflies (03:41)
+03. Scars (03:39)
+04. Happening 04:03)
+05. Boring (04:02)
+06. Hotels (03:29)
+07. Good To You (04:02)
+08. Close To Nothing 03:52)
+09. Keep Me Hangin' (03:20)
+10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143998   (631486) от 20.06.2017
+
+VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Hooker - Nobody Loves Me (Iventi Remix)
+02. Ken Laszlo - S.O.S.(Vocal Version)
+03. Miko Mission - Universal Feeling (Vocal Mix)
+04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143992   (631491) от 20.06.2017
+
+Группа Крестьяне.RU - 2 альбома (1999-2000) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Судьба-разлучница (3:48)
+02. Бывшая любимая (3:52)
+03. Маленькая хулиганка (3:54)
+04. Туман (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908744   (631570) от 15.06.2015
+
+Modern Talking - Greatest Hits Mix (1988) [MP3|320 кб/с]<Euro Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mix 1:
+01. Brother Louie
+02. Geronimos Cadillac
+03. You Can Win If You Want(   Читать дальше...   )Жанр: Euro Disco, PopПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ADE29541BE8E72555277DBF455164512980028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143930   (631630) от 20.06.2017
+
+Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
+1. Supersempfft - 1979 - Roboterwerke
+2. Supersempfft - 1981 - Metaluna
+3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543390   (631835) от 10.04.2022
+
+Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карантин (3:05)
+02. Не бойся (4:11)
+03. Опять дожди (3:51)
+04. Однажды ты соскучишься по мне (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15699D4FE94381D537A176B15C30B724455233F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294057   (631858) от 06.04.2019
+
+Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Lot's Gonna Change (04:21)
+02. Andromeda (04:40)
+03. Everyday (05:07)
+04. Something to Believe (04:45)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E224C1CE0EC0B086D11B257E393492B0F2485F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228980   (631978) от 03.06.2018
+
+VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каролина - Вот и всё
+02. Лариса Черникова - Подари мне ночь
+03. Кай Метов - А ты меня не поняла (Techno Mix)
+04. Юла и Джимми Джи - Рэйв Тайм (Sovok Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543385   (631983) от 10.04.2022
+
+Виктория Черенцова - Кукуруза (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До завтра, Москва (3:53)
+02. Я люблю тебя (3:30)
+03. Будь со мной (3:36)
+04. Танцуй (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDCEDF5DB75177EC3E92C87BEDFDD6923CDF4FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228990   (632099) от 03.06.2018
+
+Ladies of Soul - Live at the Ziggo Dome (2018) [MP3|320 Kbps] <Soul, R&B, Pop, Disco, Funk, Hip Hop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladies of Soul feat. Berget Lewis & Glennis Grace & Edsilia Rombley & Candy Dulfer - Ouverture 2018
+02. Ladies of Soul feat. Berget Lewis & Glennis Grace & Edsilia Rombley & Candy Dulfer - Count Me In
+03. Ladies of Soul feat. Berget Lewis & Glennis Grace & Edsilia Rombley & Candy Dulfer - Let's Groove Tonight
+04. Ladies of (   Читать дальше...   )Жанр: Soul, R&B, Pop, Disco, Funk, Hip HopПродолжительность: 02:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC43C7E6BE665F79ABF8D57947726417019127A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034953   (632162) от 14.07.2016
+
+Ottawan - серия "Золотые хиты дискотек" (2001) compilation [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You`re O.K  5:07
+02.  Zoo Zoo - (Bisquit)  6:12
+03.  Hands Up (Give Me Your Heart)  4:44
+04.  It`s All Music (It`s All Rock`n Roll)  3:33(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D8E02711063C58D58EB5B7FE7A5A9050B732F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229021   (632203) от 03.06.2018
+
+Philippe Renaux - Noels Cosmiques (1977) LP [MP3|320 Kbps] <Electronic, Synth-pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632203.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мы желаем Вам космического Рождества" - таков слоган у этой пластинки. Вас ждут волшебные мгновения при прослушивании "Ave Maria" Шуберта, "Gloria" Генделя или всенародной "Jingle Bells" в стиле космик. И праздник в доме будет не только в предновогоднее время, а всегда!
+Philippe Renaux -  продюсер, автор и аранжировщик работавший (   Читать дальше...   )01.  Ave Maria De Schubert (5:21)
+02.  Noel Blanc (White Xmas) (3:21)
+03.  Il Est Ne Le Divin Enfant (3:11)
+04.  Anges Dans Nos Campagnes - Gloria De Haendel (2:57)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Easy ListeningПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B1AA6F259AAD934391846D40E2849339650553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908520   (632244) от 15.06.2015
+
+Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rule the World (3:25)
+2. I'll Be Waiting (3:46)
+3. Home We'll Go (3:09)
+4. Hold On (The Break) (3:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A626BE2F5A3D839A981583BD831FBD2224BFDA6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

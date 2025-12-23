@@ -1,26 +1,684 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1126925   (741188) от 20.04.2017
+
+Dream Travel - Megamix: Best Of Dream Travel (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magic Fly (Original Mix)  6:30
+02.  Heart Drops (Original Mix)  6:00
+03.  Moments (Original Mix)  5:26
+04.  Missing You (Original Mix)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586F67B766F64206CCD779E0C8F2906FBCE34B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397165   (741189) от 19.07.2020
+
+Никита Шарипов | Выжить любой ценой. Часть первая (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир погрузился во мрак. Вирус распространяется с огромной скоростью и превращает людей в живых мертвецов. Главный герой – в прошлом боец спецназа – решает разобраться в ситуации. Но не всё так просто. Кто создал вирус? Почему погибло почти всё население планеты? Много загадок и так мало ответов…Долгий путь, полный боли, потерь и неудач, начинается прямо сейчас…Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 09:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5161E4B470738831B0120E607DB499DAC784D90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126986   (741190) от 20.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Плей-офф. Россия — Канада (24.03.2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741190.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 марта 2017 года, пятница
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай). Плей-офф
+Система плей-офф Пейджа
+Россия — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F3E9F23F483E2A8AEC5E0161FD7AE6602B4D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126943   (741192) от 20.04.2017
+
+VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sombra Modos - Shared Happiness  6:05
+02.  Sombra Modos - Botavara  5:34
+03.  Lamar Ensemble - Inspirational Shortcut  5:47
+04.  Lamar Ensemble - A Personal Perspective  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACA0960F826E6431370B19F7B427678D23A7435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393329   (741193) от 19.07.2020
+
+Три плюс два (1963) WEBRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое друзей из Москвы живут «дикарями» в замечательном месте с песчаным пляжем, пресной водой, тенью и дровами у самого моря. Отдыхают. Внезапно приезжают две незнакомки и заявляют, что это их старое место. Более того, они доказывают свое первенство, выкопав бутылку с письмом. Но уезжать ребята отказываются. Дамы же от своего места отказываться тоже не собираются (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: Мелодрама, комедияРежиссер: Генрих ОганисянАктеры: Наталья Кустинская, Наталья Фатеева, Андрей Миронов, Евгений Жариков, Геннадий НиловСубтитры: ОтсутствуютПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA20D55071B6D60D7F93B3B4738E7BE956F5D9DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127016   (741194) от 20.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Полуфинал. Россия — Швеция (25.03.2017) IPTV [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741194.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 марта 2017 года, суббота
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай). Плей-офф
+Полуфинал
+Россия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDCCC77AECBBA838D0D7DBA028A92A32B8E8701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392703   (741195) от 19.07.2020
+
+Враг государства / Enemy of the State (1998) BDRemux [MPEG-2/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое мгновение своей жизни человек находится на виду, даже когда он уверен, что его никто не видит. В руки преуспевающего адвоката Роберта Дина попала страшная улика, разоблачающая высокопоставленного чиновника. Но секретная служба узнала об этом раньше Роберта и немедленно приняла меры. В ход пошли новейшие технологии: в современном мире не нужно быть магом, чтобы (   Читать дальше...   )Производство: США / Touchstone Pictures, Jerry Bruckheimer Films, Don Simpson/Jerry Bruckheimer FilmsЖанр: боевик, триллерРежиссер: Тони СкоттАктеры: Уилл Смит, Джин Хэкмен, Джон Войт, Лиза Боне, Реджина Кинг, Стюарт Уилсон, Лаура Кайот, Лорен Дин, Бэрри Пеппер, Иэн ХартПеревод: дублированный, многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 02:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1EF207EB4649928BE430C1CAF9B3280AC10E64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126801   (741196) от 20.04.2017
+
+VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seldon Thaye – Tibet (Original Mix) (00:06:23)
+ 02. Nino Garcia – Marrakesh (Original Mix) (00:05:37)
+ 03. Mark Gaetani – Rwanda (Original Mix) (00:05:21)
+ 04. Alonso Di Uomo – Lynx (Original Mix) (00:04:39)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2997004D1509CEDEDF4FFEC4EB03CD065AA905F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397124   (741197) от 19.07.2020
+
+Windows 10 (v2004) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: ru_windows_10_consumer_editions_version_2004 _updated_june_2020_x64_dvd_30a269ed
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол Samba. Удалена папка PerfLogs. Очищена папка WinSxS\Backup. Папка WinSxS сжата. С установочного носителя удалена папка \sources\sxs. Проведена оптимизация. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1774D87F7F9D865427323952278C8D85565AF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127178   (741198) от 20.04.2017
+
+Cookie 5.5.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+
+•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
+•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 апреля 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CB3F5A8087CEF1837DCD9C24501557EB19C79F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126781   (741200) от 20.04.2017
+
+VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Neuroborus - Readout Output (Alternate Mix)  2:58
+02.  Green Grid - Reason Soul (Clip Version)  3:05
+03.  Sine Tunes - Tedium Street (Memo Export)  3:01
+04.  Keyright - Lakeside (Yellow Sun)  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126737   (741202) от 20.04.2017
+
+VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Benatural - Little  5:09
+02.  Ialaz - Waves  4:21
+03.  Lo Tide - Never Coming Back  4:01
+04.  Michiko - Outta Sight Outta Mind  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DD9B3C3FCA5940387F7ACE227751F51A9FED66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127125   (741204) от 20.04.2017
+
+Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Divining [13:52]
+ 02.City Snow Stories [09:21]
+ 03.For Oliver Lake [04:59]
+ 04.The Tiny Boxes Speak Her Name [02:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803641727D8D25081D48C69ABA662FBCD951334D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528557   (741205) от 19.07.2020
+
+Тараканище (1963) DVDRip [H.264] [Реставрация КП]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741205.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке К. Чуковского о страшном-престрашном Тараканище, который до смерти напугал всех зверей, но был проглочен обыкновенным маленьким воробышком.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, Детский, СказкаРежиссер: Владимир ПолковниковСубтитры: ОтсутствуютПродолжительность: 00:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A834C4DCC54C21BB782C2B08DFD11ECC61805C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126913   (741206) от 20.04.2017
+
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 2-й матч. Металлург (Магнитогорск) — СКА (Санкт-Петербург) (10.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741206.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 апреля 2017, понедельник. 17:00 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 2-й матч
+Металлург (Магнитогорск) — СКА (Санкт-Петербург)
+Стадион: Арена-Металлург (Магнитогорск, Россия), 7500 зрителей (97 % при вместимости 7700)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5A3A341904551DA5B74F1F63DAB5BA70ED5363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864993   (741207) от 19.07.2020
+
+Ю.С. Карабасов и др. | Металлургия и время: энциклопедия. В 6-ти томах [6 книг] (2011-2014) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия включает шесть томов, содержание которых отражает более чем 10-тысячелетний путь, пройденный металлургией. Подробно и популярно изложены ключевые моменты развития металлургии. Рассмотрены социальные, политические, экологические и другие объективные и субъективные обстоятельства появления изобретений и открытий в области металлургического искусства. Это (   Читать дальше...   )Жанр: МеталлургияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23415C20C9C1DE350A782D89952E97A799EBE57F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127205   (741208) от 20.04.2017
+
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал. 3-й матч. СКА (Санкт-Петербург) — Металлург (Магнитогорск) (12.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741208.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 апреля 2017, среда. 19:30 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 3-й матч
+СКА (Санкт-Петербург) — Металлург (Магнитогорск)
+Стадион: Ледовый дворец (Санкт-Петербург, Россия), 12348 зрителей (99 % при вместимости 12500)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3134E5872217EF1D9A911DF78CECEEA6208F12A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283099   (741229) от 15.02.2019
+
+Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, Concord Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon [2:14]
+02. Reflections [3:35]
+03. As Time Goes By [3:15]
+04. Maybe September [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE999F8484D4D58113215D6680483F74B9FDC95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283138   (741230) от 15.02.2019
+
+Александр Кравецкий | Церковная миссия в эпоху перемен (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просматривая предреволюционные и современные публикации, посвященные проблемам миссии, нельзя отделаться от впечатления, что, рассуждая о миссии, авторы разных эпох пишут о совершенно различных предметах. Очевидно, что понятие миссия за прошедшее столетие претерпело существенные изменения.
+
+Если современный человек под миссионерской деятельностью Церкви понимает, (   Читать дальше...   )Жанр: История церквиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283170   (741231) от 15.02.2019
+
+Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carrier (6:17)
+02. Broken (7:20)
+03. Sixth Sense (6:59)
+04. Monsoon (4:18)(   Читать дальше...   )Производство: Hubro – HUBROCD2587Жанр: Jazz, Nu Jazz, Dark JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FEB45C6FB0DA9030E34A5F6C0438CCBABEF0EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283139   (741232) от 15.02.2019
+
+BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BK & Christopher Lawrence - Warp (7:23)
+02. BK & EJ Doubell - Butterflies (7:46)
+03. BK & Tom Harding - Raucous (2:56)
+04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282876   (741233) от 15.02.2019
+
+Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basie Blues [3:08]
+02. Mutton Leg [3:22]
+03. It's Sand, Man [3:08]
+04. Wild Bill's Boogie [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE6D57A8C553DB95B93BEEEF0122DF65624A8DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283107   (741234) от 15.02.2019
+
+Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Jackle [12:25]
+02. Melody for Melonae [10:52]
+03. Jossa Bossa [9:20]
+04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283104   (741235) от 15.02.2019
+
+Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Home [4:21]
+02. Burst in with the Dawn [4:37]
+03. Come in from the Rain [4:17]
+04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283105   (741236) от 15.02.2019
+
+Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [4:43]
+02. All in Love Is Fair [4:45]
+03. Lovesick Blues [3:28]
+04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282859   (741237) от 15.02.2019
+
+Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Mellotone [6:01]
+02. The Midgets [9:25]
+03. Whirly-Bird [4:07]
+04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

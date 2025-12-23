@@ -1,26 +1,679 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1242601   (514031) от 23.08.2018
+
+Chris de Burgh - Eastern Wind (1980) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Traveller (4:11)
+ 02. The Record Company Bash (3:55)
+ 03. Tonight (3:29)
+ 04. Wall Of Silence (3:51)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1288A368CCDD54B33877A283092D717C5AB52B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242560   (514032) от 23.08.2018
+
+VA - Hot Electro House Party (2018) [MP3|320 Kbps] <Electro Houe, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luca Debonaire - Doves Cry (Original Mix )
+002. Fedde Le Grand - Hit The Club
+003. Nathan Thomson - Faded Love
+004. Physical Dreams - Lucky Boy(   Читать дальше...   )Жанр: Electro Houe, Dance, ClubПродолжительность: 10:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93808D02FB9A276E831AEF2BAF33EEC1F3D523B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242599   (514033) от 23.08.2018
+
+Chris de Burgh - Power of Ten (1992) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where We Will Be Going (4:30)
+ 02. By My Side (4:25)
+ 03. Heart Of Darkness (4:55)
+ 04. In Your Eyes (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05D2385056ED5A43458BF0B6A0064343607C2ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242621   (514034) от 23.08.2018
+
+Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Song [12:55]
+02. Just One of Those Things [7:17]
+03. Blues for Duane [7:37]
+04. The Things We Did Last Summer [7:20]Жанр: Hard Bop, Post-BopПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8752FEFBC129F3B8E5E53D3DB42368720DDD1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242613   (514035) от 23.08.2018
+
+Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Oscar For Oscar [7:38]
+02. Sao Paolo [8:01]
+03. This Love Of Mine [10:21]
+04. Tonica [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E0FBF0C00BA33F278A78B276D1C587AF30F27F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242618   (514036) от 23.08.2018
+
+Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction By Max E. Lush [1:07]
+02. All The Things You Are [13:31]
+03. Buzzy [10:38]
+04. Uma-San's Blues [13:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD86929745B94DB4426E4DBBAFB4F9CD504BFBC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375003   (514059) от 13.08.2011
+
+ArcSoft TotalMedia Theatre 5.0.1.114 Final RePack by MKN [Multi/Rus]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514059.jpg" />
+</div>
+
+
+###  Подробнее
+
+ArcSoft TotalMedia Theatre - универсальный видеопроигрыватель высокого качества для воспроизведения любимых аудио и видео файлов в домашних условиях. Принципиально новые функции проигрывателя, а также совместимость с дисками Blu-ray, DVD, VCD и другими форматами мультимедиа удовлетворят самые высокие требования пользователей. Видеопроигрыватель поддерживает воспроизведение всех трех видеоформатов дисков Blu-ray— высокочеткое MPEG-2, AVC и VC1— а также все виды другого высокочеткого содержимого: WMV HD, Quicktime HD, DivX HD, и H.264 HD. Поддержка включает и 1280x720 (720p), и 1920x1080 (1080p).
+ Плавное воспроизведение и отличное выполнение (с меньшей загрузкой процессора) делает данный видеопроигрыватель очевидным выбором для просмотра видео.
+
+ArcSoft TotalMedia Theatre - универсальный видеопроигрыватель высокого качества для воспроизведения любимых аудио и видео файлов в домашних условиях. Принципиально новые функции проигрывателя, а также совместимость с дисками Blu-ray, DVD, VCD и другими форматами мультимедиа (   Читать дальше...   )Язык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374887   (514060) от 13.08.2011
+
+Облачные фантазии
+
+>>3
+>>25
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514060.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кто, что видит, глядя на облака». Игра Краткая суть:
+Один из играющих, выкладывает снимок облаков,
+остальные пишут про свои ассоциации,  возникающие при взгляде на облачную картинку(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372964   (514065) от 13.08.2011
+
+Рио / Rio (2011) [1080p] BDRip [3D] (Горизонтальная стереопара)
+
+>>След.
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попугай-зануда оставляет свою уютную сытую жизнь в клетке и из Миннесоты отправляется в Рио-де-Жанейро, город грез всех и каждого. Неминуемые встречи, препятствия, опасности и любовь к последней представительнице его рода заставляют нашего героя по-другому посмотреть на мир и из скучного домоседа превратиться в милого симпатягу, узнавшего цену дружбе и смелости.Жанр: Мультфильм, приключения, комедияАктеры: Карен Дишер, Джейсон Фриччион, София Скарпа Салдана, Лесли Манн, Келли Китон, Джесси Айзенберг, Ванда Сайкес, Джейн Линч, Родриго Санторо, Грасинья ЛепорансПеревод: Русский дубляжСубтитры: НетПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019CD5C888D0D8FC99B7BA5F5A34ADD3B32E1F19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930995   (514082) от 24.08.2015
+
+Альмира Георгиевна Зебзеева | Азбука пионерской жизни (1987) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой толковый словарик понятий, значение которых должен знать каждый пионер.Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440FB64E9D276ABAF49E80402670B79F303E6D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930990   (514083) от 24.08.2015
+
+Roуаl Нunt - Devil's Dozen (2015) Japanese Limited Edition [FLAC|image+.cue]<Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Right So Wrong
+02. May You Never (Walk Alone)
+03. Heart on a Platter
+04. A Tear in the Rain(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00652AF547DFECA646D0F7BD8B9E52CBA038B3D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930717   (514084) от 24.08.2015
+
+Газета | Кулинарный клуб. Пальчики оближешь №2 (72) (2014) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Множество простых и вкусных рецептов из даров леса и огорода: капуста и огурцы, баклажаны и свекла. Маслята, опята...
+Готовьте с удовольствием. Пусть все у вас будет вкусно.Жанр: Кулинария, домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C718D41C5D506DE4992FD1A16B6E2071F6F2E9FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930566   (514085) от 24.08.2015
+
+Журнал| Тайны ХХ века №33 (август 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о загадочном и не разгаданном мире, окружающем нас. "Тайны XX века" - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом... Каждую неделю (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113F494B4653848828B9C8C45C5FC4674B759D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930809   (514086) от 24.08.2015
+
+Ashes Remain - Last Day Breathing (2007) [MP3|320 кб/с]<Alt.Rock , Modern Rock , Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514086.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pain
+2. Separated
+3. Fervor
+4. Via Dolorosa(   Читать дальше...   )Жанр: Alt.Rock , Modern Rock , ChristianПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3896FAD4505E44304FEFEEB63CB0504A96B55753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931013   (514087) от 24.08.2015
+
+VA - Sensual Jazz Lounge, Vol. 1 (2015) [MP3|320 кб/с]<Jazzy, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richy Kicklighter - On and On (07:09)
+02. Ross Milligan - East Wes Side (03:40)
+03. MX47 - Groovy Nocturne (04:15)
+04. Jive Ass Sleepers - The Look of Lust (05:07)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Jazzy, LoungeПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4747A33EB611951F483C6C8A5E0FC973D8663E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930419   (514088) от 24.08.2015
+
+Александр Вестов - Хорошие новости (2011) [FLAC|image+.cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хорошие новости
+02. Наташа, двигайся!
+03. Ветра
+04. Выше нос(   Читать дальше...   )Производство: Россия / "Master Sound"Жанр: ШансонПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7AB679AA07624CF85D7BB02EAAAE1F33F5F0A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930671   (514089) от 24.08.2015
+
+VA - Ibiza Chilling vol 3 (Compiled by Nicksher) (2015) [TAK|tracks|WEB-DL]<Chill Out>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dj Artak feat. Sone Silver - I Feel Your Body (Moonnight remix)
+02 Zeequencha - I Know a Place
+03 Tempo Giusto, Jace Headland, Memoire & Bliss - Painting Imagination
+04 Yura Moonlight, Dart Rayne & Cate Kanell - Shelter Me (Moonnight remix)(   Читать дальше...   )Жанр: Chill OutПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8365C99D7C05DBCFDFD262FD679288567AA18C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930784   (514090) от 24.08.2015
+
+Metal Church - The Dark (1986) [FLAC|image +cue] Japan <Heavy/Power/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ton of Bricks
+02.Start the Fire
+03.Method to Your Madness
+04.Watch the Children Pray(   Читать дальше...   )Жанр: Heavy/Power/Thrash MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A344D04B65BA0CB0F4EFB1E27DE18B625CC896A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930847   (514091) от 24.08.2015
+
+Малютка экономка, или Добрая дочь (1824) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание «Малютка экономка...» служило юным читательницам «наставлением в различных предметах хозяйства». Подобного рода литература в ту эпоху чаще всего могла быть переводной; примеры такого познавательного и нравоучительного жанра брались в основном из немецкой литературы. Книга построена в виде описаний-рассказов к картинкам: ребенок приучался внимательно рассматривать (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31341774A07ED057A25D954DD1B2FC7FD1B909C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930869   (514092) от 24.08.2015
+
+The Bill Evans Trio - I Will Say Goodbye (1977) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Say Goodbye [03:32]
+02. Dolphin Dance [06:04]
+03. Seascape [05:24]
+04. Peau Douce [04:20](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7809FDDE93E8E2D46B9C79AF3CF569AD64D176
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930818   (514093) от 24.08.2015
+
+From Autumn To Ashes - Holding A Wolf By The Ears (2007) [MP3|320 кб/с]<Hardcore, Punk, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deth Kult Social Club (2:48)
+02. On The Offensive (3:43)
+03. Recounts And Recollections (3:02)
+04. Daylight Slaving (3:38)(   Читать дальше...   )Жанр: Hardcore, Punk, EmoПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0412465D478720E842058CE47EB46E700AFE75FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930881   (514094) от 24.08.2015
+
+Вести в 20-00. Большие Вести. Россия HD (23.08.2015) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514094.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: 24 августа — дата возможного наступления на Донбасс? Неужели новая война? Шенгенская оборона: армейская операция против безоружных мигрантов. Информационная передовая. Какие приказы в Риге отдавал капитан Маккейн? Кто и зачем распускает слухи о нефти по 15 долларов за баррель? Помогут ли рынкам психоаналитики? Зачем Эстония одаривает паспортами жителей Псковщины?Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120FF7DA2D1CB32BE42BE2CF9BDA7063C2B5F4AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931016   (514095) от 24.08.2015
+
+Станислав Мыслиньский | Из одного котелка [Воспоминания. сборник] (1974) [PDF, DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514095.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В книге я постарался рассказать о годах нашей совместной борьбы за свободу и независимость, воссоздать образы только некоторых из тех многих, кто ковал победу: воинов Красной Армии, с которыми я делил трудности фронтовой жизни. В боях с гитлеровскими оккупантами родилась вечная и нерушимая дружба между нашими народами».
+В этих словах автора — офицера Войска Польского, (   Читать дальше...   )Жанр: Боевик, о войне, Военная прозаПеревод: В. А. Глазова, П. К. Костикова, В. А. СветловаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB31913E8E8D13F9131CE312419167697B7DA44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930872   (514096) от 24.08.2015
+
+Thompson Square - Just Feels Good (2013) Deluxe Edition[MP3|320 кб/с]<Pop, Pop-Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I Shouldn't Be Thinking About
+02. Here We Go Again
+03. You Don't Get Lucky
+04. That's So Me And You(   Читать дальше...   )Жанр: Pop, Pop-Rock, CountryПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54254C685B62D5D6FD2E78D068158A8C643BF505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930700   (514097) от 24.08.2015
+
+И. Щепкин | Уральские сектанты (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514097.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре кратко освещена история религиозных сект на Урале, приведены материалы об их деятельности в конце 1920-х годов. Рассмотрено вероучение и деятельность старообрядцев, странников, поморов, хлыстов, скопцов, уральских баптистов, евангелистов, адвентистов, дырников, иеговистов.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA2F1F062DB25CD47CEB2AF035CB9116D556E39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930976   (514098) от 24.08.2015
+
+The Australian Jazz Quartet & Quintet (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day [02:40]
+02. Broadway [03:15]
+03. Little Girl Blue [03:27]
+04. September Song [04:08](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250A176414D5FF7175C2671D9C07359F315D0284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

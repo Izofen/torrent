@@ -1,26 +1,672 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1149040   (602450) от 09.07.2017
+
+Животные, которые изменили историю / Animals that changed History (2015) HDTVRip [H.264] (Сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы совершим путешествие во времени, чтобы изучить невероятную историю животного мира нашей планеты и его взаимоотношений с человеком. Некоторым животным удалось повлиять на развитие торговли, религии, военного дела и медицины. Козам принадлежит честь открытия кофе - одного из наших самых любимых и экономически важных напитков, голуби помогали осуществлять обмен информацией (   Читать дальше...   )Производство: Великобритания, In association with HD Viasat HistoryHD Viasat Nature, Wildbear EntertaimentЖанр: Документальный, флора, фауна, историяРежиссер: Мартин БакерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE5A5489DC64F1B23CDDD13498E8DF503625006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149151   (602451) от 09.07.2017
+
+Сергей Сезин | Черная башня и белая лисица (2016) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятая книга из цикла «Река снов»
+
+Юный маг Александр начинает свой путь бойца за дело Света. И первым заданием ему будет спасение его отца из плена Черной башни. Вторым - уничтожение демонической Белой Лисицы. Его дальней родственницы, некогда продавшей душу Злу в обмен на возможность отомстить. Вход в воины Света непрост. Надо пройти ритуал посвящения. Выживешь (   Читать дальше...   )Жанр: Боевик, Приключения, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0254A7F71E5282693CEB36079C3EB20E1535F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547607   (602454) от 29.04.2022
+
+Axel Rudi Pell - Lost XXIII (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost XXIII Prequel (Intro) (1:47)
+02. Survive (5:01)
+03. No Compromise (4:57)
+04. Down on the Streets (4:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCC57ACCA2030125DCD01544448D14646DC0234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547635   (602455) от 29.04.2022
+
+Покров (изд.) | О христианском браке и об обязанностях мужа и жены [Учение св. Иоанна Златоуста] (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обязанности христианских супругов, указанные в Св. Писании, конечно, должны быть известны христианину, но они даны, как общие наставления для всех времён и народов. Подробнейшее же раскрытие их, применение ко всем обстоятельствам и положениям супругов, есть дело их собственного благоразумия, и должно быть одним из главных предметов пастырских наставлений народу. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5397F7A222AE8D695EC59B9F97D62211EE3D3F30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547579   (602456) от 29.04.2022
+
+Archive - Call To Arms And Angels (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Rock, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrounded By Ghosts (4:30)
+02. Mr Daisy (3:59)
+03. Fear There & Everywhere (4:41)
+04. Numbers (4:14)(   Читать дальше...   )Жанр: Progressive Rock, Trip HopПродолжительность: 01:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF3B790621C15CBC03660686BC96CF607A0BB3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547701   (602460) от 29.04.2022
+
+Повозка в Вену / Kocar do Vidne (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602460.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце Второй мировой войны за небольшое преступление нацисты повесили мужа Кристы. Она ненавидит немецких солдат и хочет отомстить. Поэтому когда два дезертира-австрийца потребовали, чтобы она отвезла их на границу с Австрией, Криста собралась их убить. Однако же позднее изменила свои планы...Производство: Чехословакия (ЧССР), Ceskoslovenský Státní Film, Filmové Studio BarrandovЖанр: драма, военныйРежиссер: Карел КахиняАктеры: Ива Янжурова, Яромир Ганзлик, Людек Мунзар, Владимир Птачек, Иво Ниедерле, Зденек Яролимек, Иржи Зак, Ладислав ЯндошПеревод: профессиональный двухголосый (СВ Дубль)Субтитры: русские (СВ Дубль), чешские, английскиеПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE72BECB30A04D068056E9FF637FC49F6387FEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547682   (602461) от 29.04.2022
+
+VA - Spring Aromas: Chillout Your Mind (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Therese - What Can I Say (Original Mix) (4:14)
+02. The Soul Crusaders - In My Dreams (7:31)
+03. Beamy - Hope (5:09)
+04. Peter Pearson - Fire Me Up (Original Mix) (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB5204D1DD968BBB6543C0C9B2F0770EF9F1015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547669   (602463) от 29.04.2022
+
+Allavsoft Video Downloader Converter 3.24.6.8147 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 29.04.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369DD8600309A1999BD6D72A2E500C6E441C97D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547721   (602464) от 29.04.2022
+
+Человек и закон (29.04.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные темы общественно-политической программы "Человек и закон" - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории. Программа старается дать взвешенную оценку важнейшим событиям в политической, экономической и социальной жизни страны, освещает огромный спектр вопросов и проблем, с которыми (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, Телепередача, КриминалПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12627754DC54846C1D998A80AF48525580CA6ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547418   (602465) от 29.04.2022
+
+VA - Saxappeal (Lounge Saxophone Smooth Jazz Del Mar) (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jizz Jazz - Lost in Your Eyes (Cool Chillax Saxy Extended Mix) (5:52)
+02. Dave Nimerfro - Get You Into My Life (Saxuality Chill Lounge Mix) (4:12)
+03. Jazz L'amour - Summer Dreams (See the Light Mix) (5:20)
+04. Perelandra - Sax on the Beach (Jazz 'n' Chill Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65926C6CF0D85E3C3B0B79DEC450BD7B0FE1A7BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547717   (602466) от 29.04.2022
+
+Ирина Дементьева | Детектив поневоле (Книга 1). Предскажи мою смерть (2022) [MP3, Наталия Урбанская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как отказаться от приглашения провести выходные в настоящем средневековом замке?
+
+"Никак!" – подумала я.
+(   Читать дальше...   )Жанр: Детектив,  Иронический детективПродолжительность: 04:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC89BDB1D5239905E6A4BF1E76E555ECADA8897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547574   (602467) от 29.04.2022
+
+Thunder - Dopamine (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Western Sky (3:52)
+02. One Day We'll Be Free Again (5:04)
+03. Even If It Takes a Lifetime (4:39)
+04. Black (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC985C2EC97790F5BFE40ECA86C911D904580730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547438   (602468) от 29.04.2022
+
+VA - DMC Essential Club Hits 188 (2022) [MP3|320 Kbps] <House, Tech House, Techno, Electro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Take Me Out (Extended)
+02. Bolier & Moya - Cold Tonight (VIP Extended)
+03. Burns - Talamanca (Robin Schulz Extended Remix)
+04. Dario D'Attis & Dani Koenig Ft Ron Carroll - Come Back (Original)(   Читать дальше...   )Жанр: House, Tech House, Techno, Electro HouseПродолжительность: 01:18:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A43B6A33860A95BB84B6A29BC07F7D4B113DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547688   (602469) от 29.04.2022
+
+Grand Illusion - Prince Of Paupers (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates Of Fire
+02. Better Believe It
+03. Prince Of Paupers
+04. So Faraway(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E683A36C76A52B7B71907E715DE3BFDB7315DAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547416   (602470) от 29.04.2022
+
+VA - Jazz for a Summer Day, Vol. 2 (2018) [AAC|~346 Kbps] <Jazz, Lounge, Bossa Nova>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros, Julia St. Louis - Velvet (4:45)
+02. Papik, Fabio Tullio - Staying for Good (3:21)
+03. Nu Braz, Jesse Sadoc - Mucuripe (2:03)
+04. Paolo Marini Latin Jazz Combo - There's Nothing Like This (7:46)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 02:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C3476551634ED868BF5573BF2764F950310D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547582   (602471) от 29.04.2022
+
+Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Metal, Modern Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circus of Doom (4:57)
+02. Wings of Light (4:07)
+03. Master of Illusion (4:08)
+04. Where Angels Fear to Fly (3:56)(   Читать дальше...   )Жанр: Melodic Metal, Modern DeathПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2455DD04303D747391D43B9695C2F75F92504AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148990   (602474) от 09.07.2017
+
+Евгений Гришковец | Прощание с бумагой (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прощание с бумагой» — это коллаж воспоминаний, ностальгия по «гуттенберговской вселенной» — по миру, где книги не светятся, а шуршат и пахнут типографской краской, а вместо СМС отправляются записки на клочке бумаги
+Евгений Гришковец рассуждает о современной эпохе, когда бумагу все чаще и чаще заменяют электронные носители. По всему миру происходит негласное прощание (   Читать дальше...   )Жанр: драма, СпектакльПродолжительность: 02:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C31884E5085C674938B9CA205FF36E31B5E9C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148904   (602475) от 09.07.2017
+
+New London Chamber Choir, James Wood - Secular Choral Music, Francis Poulenc -(2004) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Un soir de neige
+1. De grandes cuillers
+2. La bonne neige
+3. Bois meurtri(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6656BB9BF503D8458A2062D4F870B81A2E207A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149204   (602477) от 09.07.2017
+
+VA - Rock Republic: Solid Album Of Rock (2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602477.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kiss - Forever
+002. Survive This! - Down
+003. The Vision Bleak - Spirits of the Dead
+004. Emerson, Lake & Palmer - I Believe In Father Christmas(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 10:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F2953F52EA05FC6BC46513283F445CF002639D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148970   (602479) от 09.07.2017
+
+BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602479.jpg" />
+</div>
+
+
+###  Подробнее
+
+За пять миллиардов лет, жизнь на Земле эволюционировала в невероятное богатство и разнообразность которые мы видим сегодня. «Одна Жизнь» - это праздник самых блестящих и захватывающих историй выживания в животном царстве. Сюжетная линия ведет нас через полный цикл жизни к рождению нового поколения, затрагивая все формы жизни на Земле. Неважно, крылья у нас или ласты, (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, природа, флора и фаунаРежиссер: Майкл Гантон, Марта ХолмсПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: английскиеПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E09B0C4DD0E68C36BF48623F7AD78E61B5AB5FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149051   (602480) от 09.07.2017
+
+Леонид Зайцев | Вестник смерти (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602480.jpg" />
+</div>
+
+
+###  Подробнее
+
+По-настоящему богатые люди могут купить все в этом мире. И даже свой собственный мир, чтобы стать там полноправным хозяином. Сластолюбец может получить во владение планету, где процветает многожёнство, затворник, желающий уйти от мирской суеты, может купить мир, где давно прервался человеческий род, чтобы жить одному, среди первозданной природы. Садист может воплотить (   Читать дальше...   )Жанр: Героическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC9B3A840340D4F51BB8B21C90A1596258BF7C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149058   (602483) от 09.07.2017
+
+The Swagger Kings - Rock 'N' Twang (2017) [MP3|320 Kbps] <Retro Blues, Jump, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Honey Darlin' Please (Feat. Michael Adrian) (03:04)
+02. Baby Doll's (03:47)
+03. Broken Hearted (03:33)(   Читать дальше...   )Жанр: Retro Blues, Jump, RockabillyПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8738F5901C021F2533B49B649E4A7A073A882729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149128   (602484) от 09.07.2017
+
+Debut Video Capture Pro 4.0.4 RePack by 78Sergey [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многофункциональная и простая в использовании программа для записи видео. Используйте свою веб-камеру (видеокамеру) или устройство захвата видео. Debut Video Capture также может записывать все происходящее на экране компьютера. Программа сохраняет видео на жесткий диск в следующие распространенные форматы: avi, wmv, flv, mpg, mp4, mov, 3gp, asf, dv, mkv, ogv, webm (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3701BB976AAF8D73AE2DA820C38039C400A7B153
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148878   (602485) от 09.07.2017
+
+Закат цивилизаций  (Гибель цивилизаций) / Le crepuscule des civilisations (2012) HDTVRip [H.264/720p-LQ] (Серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский документальный двухсерийный фильм на основе последних археологических исследований предлагает новый взгляд на падение двух мировых цивилизаций: египетского Древнего царства и столицы империи кхмеров города Ангкор. Между этими событиями пролегает 15 столетий, но есть нечто общее, что объединяет историю развития и гибели таких далеких друг от друга миров.Производство: Франция, Arte France, Illiada Productiions les Films de l'OdysseeЖанр: Документальный, археология, историяРежиссер: Фредерик ВилнерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2x~00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716F4B67733A6AAAACEFB5F43F56485CA43E6FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148755   (602486) от 09.07.2017
+
+Orden Ogan - Gunmen (2017) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunman
+02. Fields of Sorrow
+03. Forlorn and Forsaken
+04. Vampire in Ghost Town(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0858B930C790F2C50219FF11FA74D5F6B1CF5D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148943   (602487) от 09.07.2017
+
+Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun (4:54)
+02. Heya (5:45)
+03. In The Dream Of The Monk (4:32)
+04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B497B5B3FD313FCEE8D0A9E9A90AA07316FB9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,26 +1,636 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 539305   (504910) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (24.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BB0256536108A48E16BBE591E89A66BA3AE92D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538118   (504912) от 28.08.2012
+
+Best HD Wallpapers Pack (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E1197DF78502A99F60BB7FF5034BBB115AEB92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540226   (504914) от 28.08.2012
+
+Artworks by Gabriel Deschamps [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Gabriel Deschamps
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F6C7DEEFC2B8FD9DE6C76D586C04419E55A591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540206   (504915) от 28.08.2012
+
+Landscapes HD Wallpapers (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F566A56060E1AC61C988029B19EEDF37EC65D4DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540125   (504916) от 28.08.2012
+
+Журнал | Красота & здоровье № 9(150) [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая женщина хочет быть красивой. Внешняя привлекательность дает уверенность в себе и во многом определяет успехи как в личной жизни, так и в карьере. Безусловно, неотъемлемая составляющая красоты – это здоровье. Чтобы все успеть и реализовать задуманное, современная женщина должна быть полна жизненных сил и хорошо себя чувствовать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050ACF55AB9E8A1A9CA298AE3ED863B6FE15085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540144   (504917) от 28.08.2012
+
+Design and interior of the wallpaper (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE15C11972D5CC940FC3E821B780EB7836CDF38D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537878   (504918) от 28.08.2012
+
+Landscapes HD Wallpapers (21.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266FE9FD3B34EAD30303EE0450DF4F785336179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539346   (504919) от 28.08.2012
+
+Design and interior of the wallpaper (25.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAC4DE0A889E0D529A0CA02C2E5DFB81BBA20D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538122   (504922) от 28.08.2012
+
+Design and interior of the wallpaper (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A199899DF328A3AAD4838B6E05967A053A1ECF4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539310   (504924) от 28.08.2012
+
+Design and interior of the wallpaper (24.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3757C63D632CFBEB0078DDDE6EFA61BAF4CD2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540203   (504925) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C43F34F801A4601601F6E54622B41DED9BA86EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537880   (504926) от 28.08.2012
+
+Design and interior of the wallpaper (21.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155BF55FDCED36466FCBDAC2B034F05AACD51B9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540143   (504927) от 28.08.2012
+
+Desktop wallpapers (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED4C1F0F47A8A6F0D6483C3AD9668EA4D6F5355
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538120   (504928) от 28.08.2012
+
+Landscapes HD Wallpapers (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4B0E03636AADC0832BB9CDB51031A6AF43F351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538121   (504929) от 28.08.2012
+
+Desktop wallpapers (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68FA5AB084924AC1F80C4306042C782AC1BBDA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539095   (504930) от 28.08.2012
+
+Neosis - Neosis (2012) [MP3|320 кб/с]<Progressive Math Death, Modern Cyber Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everlasting Mind Collapse 04:57
+ 02. Unwilling Fate 05:07
+ 03. Worship Mindset 05:08
+ 04. The Deconstruction Of Reality 05:35
+ 05. Neo-Euhemerism 05:10
+ 06. Supremacy Design 05:05
+ 07. Fragmentary Alteration 03:59
+ 08. Chronic Absolutism 03:52
+ 09. The New Paradigm 04:56
+ 10. Cerebral Helix 04:55Жанр: Progressive Math Death / Modern Cyber MetalПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F158949D324DBBB7F55BEF50266012ADAC513C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538097   (504931) от 28.08.2012
+
+Design and interior of the wallpaper part.2 (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7335708E0E2074971D56A0CF1CB5C87B091CA170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539342   (504932) от 28.08.2012
+
+Best HD Wallpapers Pack (25.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1D04F50933EFC54FFA611978F49867D882462F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537877   (504933) от 28.08.2012
+
+Nature Wallpapers (21.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CDCE1EE4BBA024BEDEFFAE074A4EA7F5E59D18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538096   (504934) от 28.08.2012
+
+Design and interior of the wallpaper (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417F1BA87D2167F10F6C349B940CCB3475B73963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539420   (504935) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DD521BA046219890F629B8F96441FFB87C131F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538095   (504936) от 28.08.2012
+
+Nature HD Wallpapers (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3BA976C5FB477EC99DF35B505FBC3AC6790288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538117   (504937) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84CC597B44E6771EB7ADC87EEB1FD72FEAB8608
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540205   (504938) от 28.08.2012
+
+Nature Wallpapers (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE89BBA1D3C4E58D9736EE62965EEC0ADB0A324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316601   (504940) от 27.07.2019
+
+Специалист | Программирование на языке Python. Уровень 2. Продвинутый курс (2019) PCRec [H.264/720p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504940.jpg" />
+</div>
+
+
+###  Подробнее
+
+По окончании курса Вы будете уметь:
+создавать собственные классы;
+оценивать сложность алгоритма;
+использовать важнейшие стандартные структуры данных;(   Читать дальше...   )Производство: https://www.specialist.ru/course/python2Жанр: Программирование, PythonПродолжительность: ~14:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CABE4CFF0F8F31BCC988E0CFEB3F1EC5151D090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316604   (504941) от 27.07.2019
+
+Та еще парочка / Long Shot (2019) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шарлотта Филд — одна из самых влиятельных бизнесвумен планеты. Целеустремленная, умная, обворожительная, она хороша в любом деле, за которое берется. Фред Фларски — талантливый, но эксцентричный и склонный к саморазрушению журналист. У них нет ничего общего кроме того, что она — его первая любовь. И вот спустя годы они случайно встречаются вновь. Фред очаровывает (   Читать дальше...   )Производство: США / AG Studios, Denver and Delilah ProductionsЖанр: Мелодрама, КомедияРежиссер: Джонатан ЛевинАктеры: Шарлиз Терон, Сет Роген, Джун Рафаэль, О`Ши Джексон мл., Рави Патель, Боб Оденкёрк, Энди Серкис, Рэндолл Парк, Тристан Д. Лалла, Александр СкарсгардПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0D32773CA156B81E671FDBDDBA20A80C4F5C7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

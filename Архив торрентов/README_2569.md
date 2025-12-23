@@ -1,26 +1,714 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 559928   (406222) от 17.10.2012
+
+VA - Danny Wheeler Presents - The Brazil Project (2010) [MP3|128 - 320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Laranjeiras - Azymuth (Danny Wheeler Remix)
+2. Juntos Mais Uma Vez - Azymuth (Danny Wheeler Remix)
+3. Sem Pressa - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+4. 4 Eyed Viper - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+5. Vibrasom - Sabrina Malheiros (Danny Wheeler Remix)
+6. Copa A Noite - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+7. Nao Quero Nem Saber - Sabrina Malheiros (Danny Wheeler Remix)
+8. Butterfly - Azymuth (Danny Wheeler Remix)
+9. Maracateura - Sabrina Malheiros (Danny Wheeler Remix)
+10. Deixa a Nega Gingar - Clara Moreno (Danny Wheeler Remix)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C52C63BA832C7ABAE2350C59EAD064EAF2D8F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559933   (406224) от 17.10.2012
+
+VA - dBridge & InstraMental - Fabriclive 50 (2010) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riya - Seems Like
+02. Instra-mental - From the Start
+03. Stray - Pushed
+04. Dan Habarnam - Nu Este Roz
+05. Vaccine - Ochre
+06. ASC - Starkwood (Consequence Remix)
+07. Consequence - Lover's Shell
+08. Distance - Sky's Alight (Dub)
+09. Alix Perez - Self Control
+10. Genotype - Distorted Dreams / Meleka - Go (Accapella) - Meleka(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EF509AB2D33C862E7580CF0509FFCA6C653105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561381   (406227) от 17.10.2012
+
+HQ Wallpapers for a desktop (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D650D8B0F42153FC2A3109DD989860FB7902BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561706   (406230) от 17.10.2012
+
+Журнал | Формула ремонта №2 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационный журнал о дизайне, строительстве и ремонте. Состоит из редакционных статей с комментариями специалистов на данную тему, демонстрации интерьеров дизайнеров, тест-драйвов и мастер-классов от хендмейкеров. Кто, как не мы можем рассказать, что ремонт в доме можно делать с удовольствием!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97239A06DA76F0DEE8FBE0D660BE45BBE83C83DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561331   (406232) от 17.10.2012
+
+Reel People - 10 Years Of Soulful Bliss (2012) [MP3|320 кб/с]<Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star (feat. Tony Momrelle)
+02. Can't Stop (feat. Angela Johnson)
+03. It Will Be (feat. Tony Momrelle)
+04. Butterflies (feat. Dyanna Fearon)
+05. Outta Love (feat. Omar)
+06. Golden Lady (feat. Tony Momrelle)
+07. The Light (feat. Vanessa Freeman)
+08. Alibi (feat. Darien)
+09. Second Guess (feat. Jag)
+10. The Rain (feat. Sharlene Hector)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FFF2BD3A33943C0C7011E6905A5FE89E655996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561400   (406234) от 17.10.2012
+
+Wallpapers Fantasy (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560744   (406237) от 17.10.2012
+
+Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Morrison -  I See You In Me (Original Intro Mix)
+02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
+03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
+04. Protoculture -  Perpetual Motion (Original Mix)
+05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
+06. Ralphie B -  The Holy Grail (Original Mix)
+07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
+08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
+09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
+10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561578   (406238) от 17.10.2012
+
+[Wallpapers] HQ Wallpapers №56
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406238.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HQ Wallpapers №56
+Название: HQ Wallpapers №56
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560862   (406240) от 17.10.2012
+
+VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
+02. Amsterdam (Original Mix) - Orjan Nilsen
+03. K Ta (Original Mix) - Andy Moor
+04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
+05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
+06. Plify (Original Mix Edit) - Ram
+07. Sirius (Ikerya Project Remix) - Eddie Lung
+08. Galactica - Nick Rowland
+09. Everblue (Adam Foley Remix) - Michael Lee
+10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559890   (406241) от 17.10.2012
+
+VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mage - Cosmic Station
+02. Aaron Bond - Face The Truth
+03. High Feel - Clone
+04. Nemanoe - Movement In Uncertainty
+05. Kasper & TekSketch - ReEntry
+06. Mage & DJ Ike - Visions Of Love
+07. Nelver - Grand Case
+08. Nelver - Flatline (Nelver Remix)
+09. Beatchemist - I Can't Explain It
+10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561412   (406243) от 17.10.2012
+
+Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561376   (406244) от 17.10.2012
+
+Nature Wallpapers (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560855   (406245) от 17.10.2012
+
+VA - Trance Night (2012) [MP3|320 кб/с]<Progressive, Trance, Dream>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts 07:14
+02. Manufactured Superstars & La Riots Ft Selina Albright - Born To Rock (Original Mix) 06:06
+03. Above & Beyond - On My Way To Heaven (Above & Beyond Club Mix) 07:52
+04. Sean Tyas And Giuseppe Ottaviani - Arcobaleno (Club Mix) 07:34
+05. Joop Feat. Tiffany Johnston - Just One Night (Original Mix) 06:54
+06. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix) 05:12
+07. Matt Bukovski - In Dreams (Original Mix) 06:35
+08. Ernesto Vs Bastian & Kay Wilder - Just In Bibber (Original Mix) 05:10
+09. Burzhuy & Tigran Oganezov - Springboard (Original Mix) 06:33
+10. Cj Arthur - Magnet (Den Rize Pres Blur8 Remix) 07:10(   Читать дальше...   )Жанр: Progressive, Trance, DreamПродолжительность: 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F41AD3868B430989231EF81652B5A4DF3852C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561411   (406247) от 17.10.2012
+
+Gilrs Wallpaper Collection (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28366C3C4C0EC10F5AD9A9968CD4A8645E89ADED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561408   (406248) от 17.10.2012
+
+Sexy Girls Pack Wallpapers (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 6144x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8888E2A7B8299BF4DB4525BACD7C3EE68628F3C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560654   (406252) от 16.10.2012
+
+XCOM: Enemy Unknown [Ru/En] (P/1.0.0.5443) 2012 l FairLight 3xDVD5
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте частью секретной военной организации под названием XCOM. Отныне вы и ваши соратники — последнее препятствие на пути враждебных инопланетян к завоеванию Земли. В роли командира спецподразделения вам предстоит распределять ресурсы, развивать технологии, разрабатывать общую стратегию сражений и определять тактическую диспозицию каждого солдата.
+
+Оригинальная XCOM — настоящая жемчужина мира компьютерных игр. И теперь ее идеи, возможности и тактическая глубина вновь оживут, благодаря стараниям сотрудников Firaxis.
+
+XCOM: Enemy Unknown привносит в мир XCOM новую историю, новых врагов и новые технологии, с помощью которых вам предстоит защитить Землю. Судьба человечества окажется в ваших руках. Только эффективно исследуя технологии пришельцев, развивая собственную базу, планируя операции и контролируя передвижения каждого бойца на поле боя, можно достичь успеха в этой войне.(   Читать дальше...   )Тип издания: ПираткаЖанр: Strategy \ 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C3691971EB00C1579676CC40E688E50B3B222F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561176   (406295) от 16.10.2012
+
+Барток великолепный / Bartok the Magnificent (1999) DVD5
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барток — любитель уличных представлений. Он может всем и всегда рассказывать, какой он герой, хотя на самом деле он просто трусливый хвастунишка. Но когда молодого царевича Ивана похищают, нужен настоящий герой, чтобы победить злую Бабу-ягу и не допустить злую регентшу Людмилу на российский трон. И вот Бартоку приходится самому браться за спасение наследника и найти (   Читать дальше...   )Производство: США, 20th Century FoxЖанр: Мультфильм, семейныйРежиссер: Дон Блут, Гари ГолдманПерсонажи: Дженнифер Тилли, Тим Карри, Келси Граммер, Кэтрин О`Хара, Хэнк Азариа, Андреа Мартин, Филлип Ван Дайк, Дидрих БадерПеревод: Многоголосый закадровыйЯзык субтитров: Русский, английский, хорватский, болгарский, румынский, словенскийПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782468D76240AC3D119CE282E7F6BF17576F00DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561137   (406325) от 16.10.2012
+
+Приключения Посейдона / The Poseidon Adventure (2005) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на борт «Посейдона» — настоящего плавучего города. Среди его двух с половиной тысяч пассажиров находится Майк Рого, тайный агент американского министерства безопасности. А среди команды, насчитывающей более тысячи человек, спрятался террорист Касим, намеревающийся потрясти мир новым ужасным терактом.
+Узнав об опасности, капитан «Посейдона» на полном ходу направляет лайнер к ближайшему порту. Но катастрофу уже не предотвратить. Через несколько минут после наступления нового года на борту корабля раздается взрыв. Многотонный монстр медленно погружается в черные океанские глубины. Пока оставшиеся в живых отчаянно борются за жизнь и пробиваются наверх… к днищу «Посейдона», Рого и Касим ведут между собой борьбу…Жанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Джон ПутчАктеры: Адам Болдуин, Рутгер Хауэр, Стив Гуттенберг, Брайан Браун, Си Томас Хауэлл, Питер Уэллер, Алекс Кингстон, Алекса Хэмилтон, Клайв Мэнтл, Сильвия Симс, Эмбер Сейнсбери, Рори Копус, Тайнери Ван Вик, Питер Батлер, Эндрю Брэнт, Натали Болтт, Рассел Савадьер, Фаруг Велли Омар, Дэйл Абрахамс, Мэтт Риппи, Ив Шапира, Кэти Феррингер, Дамисани Мбебе, Шейн Мэйн, Эдриан ГеллиПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 02:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C58CD70C0228475D6467F129C697FC2050B055E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561182   (406363) от 16.10.2012
+
+Журнал | UPgrade №40 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406363.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – еженедельный журнал о компьютерах и компьютерных технологиях, стал первопроходцем на рынке массовых изданий о высоких технологиях, сегодня журнал – признанный лидер в своем медиасегменте. UPgrade – первое еженедельное издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT...Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38AA062D162EF37F424C3C2BC696D7497B618C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560393   (406374) от 16.10.2012
+
+Свадьба белой ночью / Brudguminn (2008) [720p-LQ] HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, темной ночью это не так заметно, а вот под белым ночным небом Исландии становится очевидно: жених и невеста совсем по-разному волнуются перед бракосочетанием. И если девушка беспокоится о платье и прическе, то старый профессор совершенно не знает, что делать с долгами и родителями невесты, которые не в восторге от зятя-ровесника. Да и предыдущая жена не (   Читать дальше...   )Жанр: ДрамаРежиссер: Бальтасар КормакурАктеры: Хилмир Снаэр Гуднасон, Маргрет Вильялмсдоттир, Лофи Эльясдоттир, Тростур Лео Гуннарссон, Йохан Сигуроарсон, Олафур Дарри Олафссон, Илмур Кристьянсдоттир, Олафур Эгилссон, Карл ГудмундсонПеревод: Многоголосый закадровыйПродолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C25806DFA40E93FFDF2982C3691C6F2764B09EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561073   (406376) от 16.10.2012
+
+[Рисованая графика] Artworks by Jana Schirmer
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы немецкой художницы Jana Schirmer.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452DA90D3950A2584A90EAC900246CF79CE50F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559411   (406386) от 16.10.2012
+
+Fun Fun - Greatest Fun (The Best Of) (1994) [MP3|320 кб/с]<Italo-Disco>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Station (Remix) [3:17]
+02. Give Me Your Love [3:54]
+03. Sing Another Song [3:30]
+04. Tell Me [3:48]
+05. Baila Bolero [5:01]
+06. Could This Be Love [4:14]
+07. Give Up Your Fight [3:33]
+08. Living In Japan [3:38]
+09. Color My Love [4:06]
+10. Gimme Some Loving [3:44](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE4B4992588FB915304D34E7E9145132B3193A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561336   (406389) от 16.10.2012
+
+Книжная серия "Домино" (11 книг) [1994-1995] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая серия Домино в середине девяностых годов объединила несколько отличных книг.
+Шпионский роман, триллер, головокружительные приключения, антиутопия, боевик - всего понемногу, но высшего качества.
+
+Джон Ле Карре. Идеальный шпион
+Джон Ле Карре. Ночной администратор
+Майкл Крайтон. Разоблачение
+Айра Левин.    День совершенства
+Ральф Питерс.  Война 2020 года. Книга 1
+Ральф Питерс.  Война 2020 года. Книга 2
+Энн Райс.      Интервью с вампиром(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30D849A1B802DC55033C9D59B17A17E802FAB48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561424   (406393) от 16.10.2012
+
+Журнал | Техника - молодежи №10 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406393.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Техника молодежи» - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77524FE4BBD7EF90D45E96705FD66FE4D2D6782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560875   (406401) от 16.10.2012
+
+Олег Плутон | Красиво [2012] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что-то огромное и доброе медленно плыло в голубой вышине, растворяясь пушистыми плеядами огней в бесконечности небосвода, тая в лазури облаков прозрачным сном, накрывая светом. Бесформенный ангел иных миров, оно неспешно обращалось в небе, играло ажурными колоколами пронизанных светом тканей, распускало невесомые перья-лепестки и, словно ища что-то в поднебесном мире, так тихо и неторопливо двигалось вопреки ветру. Продолжение в аудио рассказе Олега Плутона - Красиво!Жанр: фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B23E7158A2D94A362A4D55D7B0647AEF3F351A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561212   (406403) от 16.10.2012
+
+Вся в меня / Igualita a mi (2010) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фреди недавно исполнилось сорок, он свободен от семейных уз, его главное занятие - волочиться за молодыми красотками, которым чуть за двадцать. Познакомившись с Айлин, он ведёт себя, как обычно, когда ищет подругу на ночь. Но с этой девушкой всё получается иначе. Выясняется, что она ему не чужая…Жанр: КомедияРежиссер: Диего КапланАктеры: Флоренсия Бертотти, Адриан Суар, Клаудия Фонтан, Ана Мария Кастель, Хуан Карлос Галван, Андреа Голдберг, Хосе Мерец, Мелани Грин, Флоренция Миллер, Хосефина Кунео, Эма Ривера, Рэкуэл Фернандез, Габриела АкостаПеревод: Профессиональный (двухголосый)Продолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED19B4A9335ED2EF21D32770EFD7B6B5C9FB4FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

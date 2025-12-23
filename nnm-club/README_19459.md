@@ -1,26 +1,660 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1010961   (797533) от 26.04.2016
+
+Wondershare PDF Converter Pro 5.0.6 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDF Converter Pro включает в себя все особенности обычного PDF конвертера, а также поддерживает технологию OCR, которая может конвертировать как нормальные, так и отсканированные PDF в редактируемый, текстовый формат документа. Поддерживает форматы  Word, Excel, PowerPoint, HTML, RTF, Text, EPUB и изображения (JPG, GIF, PNG, BMP и TIFF)
+
+Практически в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2016Разработчик: WondershareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48806468EAE7720C58212884F6512C0F13DA71A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199940   (797534) от 18.01.2018
+
+Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tioan - Connect (Original Mix)
+02.Tioan - Echo Help (Original Mix)
+03.Tioan - Eleutheria (Original Mix)
+04.Tioan - Platonic (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011050   (797535) от 26.04.2016
+
+Проекты - VideoHive - Epic Intro - 6434461 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00F1EA58DC64F5A2944FB7D6F5B65C1FFFA5122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010973   (797536) от 26.04.2016
+
+Проекты - VideoHive - Multi Video Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Multi Video Logo - первая версия показа вашего логотипа в много-экранном стиле. Вы можете изменить цвета, продолжительность, камеру, анимацию. Обязателен элемент 3D! Работает с любой частотой кадров, очень легко настроить.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A337DC3CC3D067F78866BB1BBDA25D891C96E4FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199975   (797537) от 18.01.2018
+
+VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonsouls & Ultimate – Valkyrie (Morvan Remix)
+02. Kukuzenko – Solaris (Original Mix)
+03. Max Millian – Spartacus (Original Mix)
+04. Arman Bahrami – Vitamin (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA14CAA7E4D37FE412CC1487D24987F15E1A149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742409   (797538) от 26.04.2016
+
+Красота Америки / America the Beautiful (2013) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами красота Америки в кристалически чистом High Definition и в сопровождении очаровательной звуковой дорожки в Dolby TrueHD. Легендарный Рей Чарз (Ray Charles) и легендарные места США с её грандиозной природой предстанут перед вами во всей своёй стати. Вы увидите величество американских гор, равнин, океанов, Побываете в обширных местах Америки... И услышите (   Читать дальше...   )Жанр: Документальный, видовой, природа, музыкальныйПеревод: Не требуется (музыкальное сопровождение)Продолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E84519C0B6756E9A216ED7C9D810FB1CF028AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010965   (797539) от 26.04.2016
+
+Проекты - VideoHive - HUD Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797539.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUD Logo - этот удивительный 4K After Effects шаблон идеально подходит для вашего следующего показа логотипа в стиле хай тек. Все сторонние плагины предварительно прорендерены, и поэтому это супер просто настроить. Просто перетащите эмблему в шкалу времени и визуализируйте.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E538F37C684E24B1AE7D66207602CE45E03FD3A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008924   (797540) от 26.04.2016
+
+Нетронутые уголки дикой природы / Natures Microworlds (2012-2014) SATRip (сезон 1-3 из 3, серии 1-16 из 16)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша планета – величайшая загадка Вселенной. Миры внутри других миров, каждый из которых - это самостоятельная экосистема, наполненная жизнью. Для того чтобы понять, как эти миры устроены, мы попытаемся исследовать их по отдельности. Мы сможем разобрать эту необыкновенную мозаику по кусочкам и обнаружить главный элемент – ключ к самой жизни, спрятанный глубоко в (   Читать дальше...   )Телекомпания: Великобритания, British Broadcasting Corporation (BBC)Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~00:30:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61834014E25578D900E040F3CB8FF5CC37939024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011023   (797541) от 26.04.2016
+
+Samantha Fox - The Hits Collection (1989) Compilation [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (I Want Your Body) (3:47)
+02. Hot For You (4:13)
+03. I Promise You (3:53)
+04. The Best Is Yet To Come (4:50)(   Читать дальше...   )Жанр: Pop, EuroDiscoПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62D181B00291ACA8A6080F3D3CFFB528643443F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010873   (797542) от 26.04.2016
+
+Дэдпул / Deadpool (2016) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэйд Уилсон — наемник. Будучи побочным продуктом программы вооруженных сил под названием «Оружие Х», Уилсон приобрел невероятную силу, проворство и исцеляющий фактор. Но страшной ценой: его клеточная структура постоянно меняется, а его здравомыслие сомнительно. Все чего Уилсон хочет — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком быстрое.Производство: США, Marvel Enterprises, TSG Entertainment, Twentieth Century Fox Film CorporationЖанр: Фантастика, БоевикРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Джина Карано, ТиДжей Миллер, Эд Скрейн, Рэйчел Шин, Брианна Хилдебранд, Андре Трикоте, Тэйлор Хиксон, Джед РиисПеревод: Дублированный  (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B635F18F67BBF4463CA0E452E6EFAA5486AFB001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010882   (797543) от 26.04.2016
+
+Format Factory 3.9.0 Portable by PortableAppC [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Format Factory - многофункциональный конвертер различных файлов мультимедиа. Имеет ряд дополнительных функций, превращающих FormatFactory в универсальный инструмент для работы с мультимедийными файлами разных форматов. Поддерживается конвертация популярных видеоформатов в MP4, 3GP, MPG, AVI, WMV, FLV, SWF, а также конвертация аудиоформатов в MP3, WMA, MMF, AMR, OGG, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FC1541275D3E16FDFE39C034856E7A7F95F6F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010812   (797544) от 26.04.2016
+
+Александра Маринина | Мужские игры (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797544.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве появился маньяк, задушивший в течение короткого времени семь человек. Крупный мафиози Эдуард Денисов дает сотруднику уголовного розыска Насте Каменской понять, что в деле маньяка-душителя есть загадка и по крайней мере одна из жертв не имеет отношения к серии, состоящей из семи убийств. Занимаясь поисками маньяка, Анастасия с ужасом обнаруживает, что к преступлениям, (   Читать дальше...   )Жанр: ДетективПродолжительность: 18:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48EE073A18F992200AFBE7FFEA8F91716CC8E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011117   (797545) от 26.04.2016
+
+CCleaner 5.17.5590 Business | Professional | Technician Edition RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797545.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E8E20255BECF1658C18E1686C78CD6AD14D5E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011136   (797546) от 26.04.2016
+
+Чернобыль. До и после (2016.04.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история стала известна в наши дни. А начиналась она в 1986 году, когда еще не все осознавали, какой катастрофой для страны обернулся тот апрельский день после взрыва на четвертом реакторе Чернобыльской атомной электростанции. На одном из бесконечных совещаний прозвучало: "Нужно посылать к реактору людей". Все понимали, что это означало одно – выбирать (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D656C10F8C7464A9CD8FA10F8EE982A3AE43BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508520   (797547) от 08.11.2021
+
+Toby Hitchcock - Changes (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forward
+02. Before I Met You (Xano Esena) (Despina Vandi cover)
+03. Changes
+04. Tonight Again(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B5FA886A949FA2F1C2CCC2398303847E3D12F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508427   (797548) от 08.11.2021
+
+Batteries 2.1.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживайте заряд батарей всех ваших устройств с вашего Mac. Получайте уведомления, когда им нужна подзарядка. Поддерживает iPhone, iPad, AirPods и устройства Bluetooth.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Rony FadelПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B98B9551F3F2EC70503C33BD36BE7671B558AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508392   (797549) от 08.11.2021
+
+Jeff - Didn't You Hear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Of The Day 05:02
+02. Right On Cue 04:28
+03. Got A Feeling 04:41
+04. No Time 03:49(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A89ED525D14BAADA272FC4091E32C4359392323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508413   (797550) от 08.11.2021
+
+Raphael and the Thorns - Rituals (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Theatrical metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirens of Stone (07:16)
+02. Winter (04:14)
+03. Cold Hideaways (05:02)
+04. As the Wheel Turns (04:31)(   Читать дальше...   )Жанр: Dark Theatrical metalПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF43E8222B8D956215C3063F023B7232859628A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508418   (797551) от 08.11.2021
+
+Anatomy Of I - Substratum (2011) Reissue, 2015, Punishment 18 Records [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Organic Machine 04:22
+02. Harvest the Fallen 03:33
+03. Drowning 04:27
+04. Dimensions 03:42(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0F869211930DCB37985F0FF146820E03819A64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508553   (797552) от 08.11.2021
+
+Dragonland - Holy War (2002) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hundred Years Have Passed
+02. Majesty Of The Mithril Mountains
+03. Through Elven Woods And Dwarven Mines
+04. Holy War(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5783D2014B328543AB729DDC79500BCF32DAD63F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508431   (797553) от 08.11.2021
+
+Black September - The Forbidden Gates Beyond (2010) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Gates Beyond (6:16)
+02. Creation Of Chaos (4:33)
+03. Hallow Of Decay (1:17)
+04. Tyrants (5:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD81E66ACF3D867F09FCB3331BF19B12C8CBD6CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508390   (797554) от 08.11.2021
+
+KingSlayer - Graves (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graves 01:08
+02. Blinded By Your Love 03:20
+03. The Freakshow 03:49
+04. Pull The Trigger 03:18(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C4800C89C86328E51EC443FE4F36602BCF5804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508513   (797555) от 08.11.2021
+
+HOSH - Live @ Avala Tower Plateau, Serbia (2021-08-14) [MP3|320 Kbps] <Progressive House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ccismo - Octubre (Aera Remix)
+02. Baril - One More Rush
+03. Day By Day - Time
+04. Ivory - Hold Your Breath(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6721F6830383E722A92375DF3A789F19989841C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508522   (797556) от 08.11.2021
+
+Запахи и безрассудства / Scents and Nonsense (1926) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из многочисленных историй про Krazy Kat (безумный кот?). Оценивать можно по-разному. Но очевидно, персонаж является подражанием другому персонажу - Коту Феликсу. Юморок кое-где своеобразный. Раньше ведь не было толерантности. Как вам еврей-продавец мехов? a иногда просто сюрреализм какой-то.Производство: США, Robert Winkler ProductionsЖанр: Рисованная анимацияПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DCEA3F1ED38876D2D01DDA6E394F0DB35F06D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508333   (797557) от 08.11.2021
+
+DVD-Cloner 2021 v8.40.726 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797557.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 OpenCloner Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8BA83BD7077F3928437805CDC953B498FD0562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508456   (797558) от 08.11.2021
+
+Dato 3.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F8DA95B1FF783BF5620FE7DA61E58CE15F9870
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

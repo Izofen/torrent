@@ -1,26 +1,671 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1293009   (641179) от 01.04.2019
+
+Notepad++ 7.6.5 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43450F89B67F1222860280DF13B548AA4CDD2E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142731   (641180) от 15.06.2017
+
+Terence Blanchard - The Comedian (2017) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jackie in the Rain [05:06]
+02. Jackie Gets Out [02:58]
+03. Deli to Soup Kitchen [03:49]
+04. Electricity on MacDougal [06:07](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479BC1F1778654F413CB06F2D87BC9833C4C4371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142529   (641181) от 15.06.2017
+
+VA - Cooked Vol.1 (Fine Selection Of Smooth Electronic Jazz) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - A La Playa  5:29
+02.  Urban Phunk Society - Night Train  3:21
+03.  Svendaq - La Chill Fusion  3:47
+04.  Roberto Sol - My Decision (Extended Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFBF32AFE81E346630735F2B29D72EC4966E26D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142767   (641182) от 15.06.2017
+
+Artie Shaw and His Orchestra - 22 Original Big Band Hits (1938, 1939) 1987, Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love [03:15]
+02. My Heart Stood Still [02:30]
+03. This Can't Be Love [02:26]
+04. Lover Come Back to Me [03:24](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226DC8B806C985146FFB1DF2CB02F59866F34B90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291006   (641183) от 01.04.2019
+
+Алль Терр | Первая аттестация (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путь к Руинам и первой аттестации новобранца лежит через Форпост, официально – единственное поселение людей на континенте. Только вот люди там собрались такие, что не прижились ни в одном клане или были изгнаны. И нравы царят соответствующие. Там правят деньги и сталь, царит рабство и проводятся смертельные поединки. А уж местный правитель – вовсе отдельная история… (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 12.09.31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0A17DC962E6B40914B382FC26FF9210CC6F19B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290467   (641184) от 01.04.2019
+
+Луиза Дженсен | Подарок (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дженна как никто другой знает, что значит обрести второй шанс. От неминуемой смерти ее спасла пересадка сердца, которое чудом досталось ей от девушки по имени Калли, погибшей, по официальной версии, в автокатастрофе.
+Будто чувствуя ответственность за эту смерть, Дженна решает выяснить, что же в действительности произошло с Калли, и разыскивает ее родных. Но вскоре (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПеревод: А. СоколовФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30FF6D7A40A8F9E44AB8C54ECF2181F2A08BD537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290931   (641185) от 01.04.2019
+
+Кристин Террилл | Здесь покоится Дэниел Тейт (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэниел Тейт пропал без вести, когда ему было десять. Многолетние поиски, убитая горем семья, незакрытое дело ФБР… И вот спустя шесть лет похожего юношу находят на заснеженной улице в Ванкувере. Поначалу он молчит, но в конце концов называет властям свое имя и рассказывает невероятную историю своего похищения и чудесного спасения из плена. И вот уже счастливые брат (   Читать дальше...   )Жанр: СаспенсФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9709F758BC15D8EC4DF4937EFC9F041CF92268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142614   (641186) от 15.06.2017
+
+VA - Organica Lounge Grooves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Schmid - It Is So Close (Club Mix)  8:26
+02.  Elli Uda - Got What It Takes (Radio Edit)  3:52
+03.  Akjela - Der Moment  5:31
+04.  Acoustic Novels - Everybody's Got To Learn Sometime  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F7F06AC7EAF73AFC520E8AA50BC3B6C1F122A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291345   (641187) от 01.04.2019
+
+Владимир Саламатов | Лекарство от тревоги (2015) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641187.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фонограмме представлен психотерапевтический сеанс, созданный по уникальной авторской методике одного из самых известных психотерапевтов Санкт-Петербурга, доктора Владимира Саламатова. Перед прослушиванием рекомендуется прочесть одноименную электронную книгу, также представленную в магазине. Сеанс сопровождается расслабляющей музыкой.Жанр: Психологическая консультацияПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D566F2642F067D66102CC164286DFB5269977C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142776   (641188) от 15.06.2017
+
+VA - Stay In Ibiza 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.O.N.S. - You Used To Hold Me (Feat Terri B. - Avicii Remix) 06:33
+02. Seal De Green - Licky (Original Mix) 03:34
+03. Danev - Shaggy (Extended Mix) 05:20
+04. Diego Quintero - No Wars (Club Mix) 06:45(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F29DA01169C67AE9E615726DA4362ACB346EC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292985   (641189) от 01.04.2019
+
+Журнал | Дом №4 (апрель 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Дом" - помощник тем, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья — коттеджей, дачных и садовых домиков, а также надворных построек.Жанр: Дизайн, ремонт. строительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA16A18CFE5E8DB2289AE46E962C4924E926745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142764   (641190) от 15.06.2017
+
+Joe Wilder - The Pretty Sound & Jazz from 'Peter Gunn' (1959) 2003, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harbor Lights [03:41]
+02. I Hear Music [03:22]
+03. It's So Peaceful in the Country [05:03]
+04. Autumn in New York [05:05](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7952DF4EE6ACAA489901566F436A502C414B251A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292841   (641191) от 01.04.2019
+
+Natalia F | Подкасты (2017-2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641191.jpg" />
+</div>
+
+
+###  Подробнее
+
+В передаче пойдёт речь о сегодняшней действительности...
+Смартфоны, мобильные вышки, трансгуманизм, секс-роботы,
+гибриды, клоны, дроны, геоинженерия, контроль разума, даркнет, биоинженерия,
+компьютеры, искусственный интеллект, чёрная слизь, и др...Жанр: ПодкастыПродолжительность: 30:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468E8A62EDB3B3DD93B2B81D4C488FF41224DFE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142728   (641192) от 15.06.2017
+
+Bobby Short - Loves Cole Porter & Guess Who's in Town (1971, 1987) 2CD, 2001, Collectables [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641192.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rap Tap on Wood [02:41]
+02. You've Got That Thing [03:27]
+03. You Don't Know Paree [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E585747F25FBA0A1A4D1D53B4318058C298B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291167   (641193) от 01.04.2019
+
+Владимир Саламатов | Лекарство от стресса (2015) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641193.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фонограмме представлен психотерапевтический сеанс, созданный по уникальной авторской методике одного из самых известных психотерапевтов Санкт-Петербурга, доктора Владимира Саламатова. Перед прослушиванием рекомендуется прочесть одноименную электронную книгу, также представленную в магазине. Сеанс сопровождается расслабляющей музыкой.Жанр: Психологическая консультацияПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CBBF1BF3CB940E40C7FC2F3A1533DCFD013022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292988   (641194) от 01.04.2019
+
+Журнал | Открытые системы. СУБД №1 (223) (2019) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежеквартальный журнал «Открытые системы. СУБД» - старейший отечественный журнал о проектировании, создании и эксплуатации информационных систем различных масштабов. Журнал рекомендован Высшей Аттестационной Комиссией (ВАК) для публикации результатов диссертаций на соискание ученых степеней доктора и кандидата наук.Жанр: Компьютерные журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D016977CC4E65DE902050E22246B6214B05D79BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293012   (641195) от 01.04.2019
+
+Windows 10 Manager 3.0.5 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Manager - программа-оптимизатор все в одном, полное решение для отличной оптимизации, продуманной настройки и качественной очистки операционных систем Windows 10. Программа включает более 30 утилит которые улучшают и ускоряют работу системы, повышают её стабильность, устойчивость и безопасность. Windows 10 Manager позволяет получить доступ к нескольким (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0A5486EAF98D5919FFB102AA0830C3BB875742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290304   (641196) от 01.04.2019
+
+Жан Рэй | Мой друг, покойник [сборник] (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641196.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новый том собрания сочинений бельгийского классика фантастики, детектива и хоррора Жана Рэя, - справедливо именуемого "европейским Эдгаром По", - полностью вошли его сборники рассказов "Сказки, навеянные виски", "Черные сказки про гольф" и роман "Город великого страха". Первый из названных сборников по-русски не печатался (   Читать дальше...   )Жанр: Зарубежная фантастика, УжасыПеревод: А. ГригорьевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADF7A5BE4977CE352CB40A12796E2B9D38F5EB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290867   (641197) от 01.04.2019
+
+Грэм Мастертон | Пария (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641197.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прибрежном городишке Грейнитхед, что расположен близ Салема, начинают твориться странные дела. Усопшие начинают возвращаться с того света, убивая своих оставшихся в живых родственников жутчайшими и физически невозможными способами.
+Только небольшая группа людей догадывается, что всему виной загадочный груз, что томится в трюме затонувшего более трехсот лет назад (   Читать дальше...   )Жанр: Мистика, УжасыПродолжительность: 12:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A8AD2217BEC03FA2E22CBBF465F438DFD0219C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293067   (641198) от 01.04.2019
+
+VA - Скрябін: Концерт пам'яті (2019) Live [FLAC|lossless|WEB-DL|tracks] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руслана - Ти ще відкриєш очі (Live) (03:30)
+02. Антитіла - Люди як кораблі (Live) (04:39)
+03. Сашко Положинський - Історія (Live) (03:32)
+04. Олександр Пономарьов - Сам собі країна (Live) (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4B4A7C15FFA4758A69A1E5D211CF3FEEFCCCAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227967   (641199) от 29.05.2018
+
+VA - German Top 50 Party Schlager Charts 28.05.2018 (2018) [MP3|275-320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna-Maria Zimmermann - Scheiß egal
+02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
+03. Helene Fischer - Nur mit Dir
+04. Andreas Gabalier - Verdammt lang her(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2E9AAE921BB6C36DFBF435065D99C7847E3830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227945   (641201) от 29.05.2018
+
+VA - Urban Groundz (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ACP - Say It Now (Love You Back)
+002. AkroSonix - Mr. (Original Mix)
+003. The Chainsmokers - You Owe Me
+004. Lanui - It's A New Day (Anatol Cyberia Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB270A676CD4C0EA9B74215CC3610F49BA2B7A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227962   (641202) от 29.05.2018
+
+VA - Deep House Superstyle (2018) [MP3|256-320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clark Funspace - Inca (Cut Version)
+002. Misha G, Mixline - All About House Music
+003. Adisyn - Departure  (Original Mix)
+004. Francesco Sambero - Uoy (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484B5AA946F21884A16F7EEBB1B5638489379C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228056   (641203) от 29.05.2018
+
+VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beat Service & Cathy Burton - Love Is Your Home (Radio Edit)
+02 Aurosonic & Cathy Burton & AxelPolo - Loving Overflow (Radio Edit)
+03 Cathy Burton & Omnia - Hearts Connected (Radio Edit)
+04 4 Strings & Cathy Burton - Safe In The Storm (Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C242258359EFBACE451496020C51178F67D10AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228051   (641204) от 29.05.2018
+
+VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beyond Vision - Mesmerized (Ibiza Trance 2018 Exclusive)
+02 Dj K-Mixx - Nocturnal Bliss (Ibiza Trance 2018 Exclusive)
+03 Marcel Woods - Lemon Tree (Daxson Remix) (Ibiza Trance 2018 Exclusive)
+04 Spark, Shade - Not Even Close (Tony Day Remix) (Ibiza Trance 2018 Exclusive)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8916A0A26EDDF79F02B583F545DFC51A8D6721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227433   (641205) от 29.05.2018
+
+Noetik - Shen Sessions (2018) [MP3|320 Kbps] <Trip-hop, Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Boom Den
+02. Earth Deep
+03. Moving Shadows
+04. Low Vine(   Читать дальше...   )Жанр: Trip-hop, Bass, JungleПродолжительность: 04:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979F71ED3449BC7E96A316C95508EEFAFB03691F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

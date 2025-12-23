@@ -1,26 +1,688 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1129918   (718995) от 30.04.2017
+
+Bobby Broom - Upper West Side Story (2012) Origin Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D's Blues [06:52]
+02. Upper West Side Story [04:55]
+03. After Words [08:47]
+04. Minor Major Mishap [06:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87630B8E1A8BB44E90CDB49C0D57FA4C83A96001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129516   (718996) от 30.04.2017
+
+VA - Who's Afraid Of 138?! Top 15: 2017-04 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Dymond & Chris Schweizer - Spectrum  4:09
+02.  Ben Gold - Pilot  2:37
+03.  Alex M.O.R.P.H. & Kim Kiona - Coming Home (Vocal Mix)  3:46
+04.  Vini Vici - Fkd Up Kids  4:10(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47BEF6DEF82C5BD4ACB27D137178AF12DE00A6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129474   (718997) от 30.04.2017
+
+VA - United Colors Of Trance Vol.8 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Expected Mirage - Time Does Not Exist  8:23
+02.  Physical Dreams - Cosmic Gate  8:32
+03.  Neo Kekkonen - Mirage  7:12
+04.  The Cracken feat. Angel Falls - Save You (Dub Mix)  6:33(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7A6F24B0C76C71F36BBD799161B2133C105258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129641   (718998) от 30.04.2017
+
+VA - Trance Maschine Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Delta - Back In My Life (DJ Osip Radio Edit)  3:38
+02.  Wearealienss - Polar (Radio Cut)  3:08
+03.  Alizera - Fairy (Radio Edit)  3:30
+04.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B3D1F02FBF85F4A3B0DD8D061F4D28C07B0444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130051   (718999) от 30.04.2017
+
+Forecast Bar 2.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 апреля 2017Разработчик: Real Casual Games, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B97FDB015C28424CD4CA08763D9F647D68DA05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129656   (719000) от 30.04.2017
+
+VA - Urban Party Alarm 2 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crew 7 - Last Night A DJ Saved My Life (Coco Fay Edit)  3:17
+02.  Freaking Beats feat. Robbie G - Shining In The Lights (Radio Edit)  3:28
+03.  Edher Torres - If You Sexy (Radio Edit)  2:44
+04.  Sunloverz - Summer Of Love 2k13 (Sean Finn Edit)  3:23(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CF31FEDF4016AD20429D2E23276960F4D591E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129488   (719001) от 30.04.2017
+
+VA - Trance Your Way Through The World (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Veselin Tasev - Marine Girl (Extended Mix)  7:58
+02.  Soniq State - The Return (Daniel Rusher Remix)  8:25
+03.  Jakys Sun - Anathemia  7:30
+04.  Adam Szydlik - Vectrum  7:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210E54DBEEEDB022F87DD190DC63A6B3B77DD534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129919   (719002) от 30.04.2017
+
+Martin Krusche - Friendship Pagoda (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix [08:07]
+02. Southem Belles [12:49]
+03. Chelsea Bridge [07:52]
+04. I'd Like To Sing [12:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A385A77BC711BCBCF21EB0DBAE6C4975FC5209
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129916   (719003) от 30.04.2017
+
+Al Haig & Jimmy Raney - Strings Attached (1975) Remaster, 2007, Absord Music [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphin Dance [07:30]
+02. Enigma [04:55]
+03. Invitation [09:22]
+04. You Came To Me From Out Of Nowhere [06:26](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986809BDE3BCF60883F183BE41F1FCFAFEC6B749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129906   (719004) от 30.04.2017
+
+Баскетбол. Евролига 2016-2017. Женщины. "Финал 4-х". Екатеринбург (Россия). Финал. Динамо К (Россия) - Фенербахче (Турция) (16.04.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719004.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 апреля 2017 года, воскресенье. 17:00 МСК
+Евролига 2016-2017. Женщины. "Финал 4-х". Екатеринбург (Россия)
+Финал
+Динамо (Курск, Россия) - Фенербахче (Стамбул, Турция)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D53D1B0EDB0F2659D5ECCAFAFCAA2474C85EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129868   (719005) от 30.04.2017
+
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Запад. 1/4 финала. 4-й матч. Сент-Луис Блюз – Миннесота Уайлд (19.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719005.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 апреля 2017, четверг. 04:30 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Западная конференция. Первый раунд.
+1/4 финала. 4-й матч
+Сент-Луис Блюз – Миннесота Уайлд(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804C79277B13D70AD3DE51E0FEA6F006D07322B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400554   (719006) от 05.08.2020
+
+А.В. Чудинов | Забытая армия. Французы в Египте после Бонапарта. 1799-1800 гг. (2019) [FB2, MOBI, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генерал, затеявший опасную и рискованную кампанию за тридевять земель от метрополии, в один прекрасный момент вдруг решил, что с него достаточно, и сбежал на родину, забыв, словно ненужную вещь, свою армию в далекой стране. Звали его Наполеон Бонапарт. И были у него потом новые победы и новая слава. А тем временем солдаты и офицеры забытой им в Египте Восточной армии (   Читать дальше...   )Жанр: История, Военная историяФормат: FB2, MOBI, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AD926D900CD1B9CAB71ED9F6B4382F171C6ECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400199   (719009) от 05.08.2020
+
+VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neoid - Alone In The Dark [04:15]
+02. Units Beatz - Deformation of Planets [04:39]
+03. Ravenlore - Oh Yes [03:15]
+04. DJ Vantigo - Sexy Girl [04:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772595A57310A2AA00E90FBAFA37210BC01A0698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400470   (719010) от 05.08.2020
+
+Topaz Sharpen AI 2.1.1 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD60E057B3235B32886ED470E54E6797C634610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399974   (719012) от 05.08.2020
+
+Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Pressure Intro [02:55]
+02. Hit My Line [04:25]
+03. GP4 [04:34]
+04. Celebration [03:50](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145368FC3D8766F901B7FA330843070CE9CD5CF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400460   (719014) от 05.08.2020
+
+Matia Bazar - Tournee' (1982) Recorded 1979 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719014.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tram = Трамвай
+A2 Non E 'Poi Tanto Male = Не Е Лошо Така
+A3 Ragazzo In Blue Jeans = Момчето В Сини Джинси
+A4 Per Amare Cosa Vuoi? = За Да Ме Обичаш, Какво Искаш?(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2D2AA65E2A06C6A9ABBEBD33EA5841AB65538A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400197   (719015) от 05.08.2020
+
+VA - Time Limit (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System Chaotica - Files [05:10]
+02. Dim Ols - Endless Tunnel [03:08]
+03. Neoid - My Life [06:47]
+04. Quadri - False Life [05:09](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311442AF204B202ED0B5B00BBF44BD4AAE9BE2FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400408   (719016) от 05.08.2020
+
+VA - Italo Disco 80 Legends, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Harrow - A Taste of Love (Radio Version) (3:17)
+02. Iudy - The Island of the Sun (Turutu?-Tutu) (Radio Version) (2:51)
+03. Ram Band - Silent Smiles (Radio Version) (3:44)
+04. Time With George Aaron - Don't Stop (Radio Version) (3:42)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF0853893DD547936BB135AA63970E461FE472D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400511   (719017) от 05.08.2020
+
+Капитан Лайтфут / Captain Lightfoot (1955) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719017.jpg" />
+</div>
+
+
+###  Подробнее
+
+1815 год. Ирландия охвачена отчаянным сопротивлением против иностранного господства. Майкл Мартин является членом ирландского тайного общества, он разочаровывается в результатах его деятельности и переходит к активным действиям, нападая на английских лендлордов и их управляющих, отнимая у них деньги, полученные ими с арендаторов-ирландцев. Он вынужден бежать из поместья (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Драма, Мелодрама, Приключения, Военный, ИсторияРежиссер: Дуглас СеркАктеры: Рок Хадсон, Барбара Раш, Джефф Морроу, Кэтлин Райан, Финлэй Карри, Денис О’Ди, Джеффри Тун, Хилтон Эдвардс, Шила Бреннан, Гарри ГолдблаттПеревод: Одноголосый любительский, Матвей КенсСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E458E0E57F59A2D42317E2B602CD6C5C9902A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400200   (719018) от 05.08.2020
+
+VA - Minced Meat (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Difo - Dark Carnival [04:01]
+02. Badline - Rave [04:50]
+03. Mortuus - Sentinel [05:19]
+04. Nohzo - Drunken Worm [06:24](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280766DA81F3766B62390A1106F67EA51BF1E059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400551   (719019) от 05.08.2020
+
+Лик побережья. Бретань / Visages du Littoral. Bretagne (2012) TVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бретань, регион на северо-западной оконечности Франции, расположен на вытянутом холмистом полуострове, который омывается водами Атлантического океана. На протяженном холмистом побережье региона лежат многочисленные морские курорты, среди которых фешенебельный Динар и окруженный крепостной стеной Сен-Мало в проливе Ла-Манш.Производство: ФранцияЖанр: Документальный, природа, путешествияРежиссер: Жиль КебальПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD39BBA5146196DD230A570698EBD435E1F4372B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400385   (719020) от 05.08.2020
+
+Озеро диких гусей / Встреча на южном вокзале / Nan fang che zhan de ju hui / The Wild Goose Lake (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжоу Цзэнун, главарь небольшой банды угонщиков мотоциклов, во время разборок с конкурентами случайно убивает полицейского, пускается в бега и становится целью номер один для полиции и властей. Понимая, что вляпался серьёзно, он думает, как бы устроить так, чтобы награду за его поимку получили жена с малолетним сыном, когда на него выходит подосланная криминальным (   Читать дальше...   )Производство: Китай, Франция / Arte France Cinéma, Green Ray FilmsЖанр: Драма, криминал, фильм-нуарРежиссер: Дяо ИнаньАктеры: Ху Гэ, Квай Луньмэй, Ляо Фань, Реджина Вань, Ци Дао, Хуан Цзюэ, Цзэн МэйхуэйцзыПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C986C5E991DF35AFB5D8168D7B33ABDBAAD834A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400210   (719023) от 05.08.2020
+
+VA - Turbo Drive, Vol. 1 (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betamaxx - Integrated Circuitry [04:02]
+02. Le Matos - Overdog [06:29]
+03. Absolute Valentine - She Is A Dancer [04:21]
+04. Das Mortal - The Curse [03:26](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE32D2EE9A2A31427DC64D8A67A6C5DE4436881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400494   (719026) от 05.08.2020
+
+Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctic (04:55)
+ 02. Bord CH (05:28)
+ 03. Boue (04:21)
+ 04. D667 (05:43)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD537341353905C8B2BE9A80EA20A10ADDDFF0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400423   (719031) от 05.08.2020
+
+Артек Электроника - Не смотри назад (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М.У.Р. Перестрелка [00:02:58]
+02. Это было навсегда (feat. Гербарий) [00:04:16]
+03. Фестиваль радиоэлектроники [00:03:42]
+04. Земля Грэхема [00:04:08](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0921FB3A953DFCB827ACCD719E1EB01C46F5F21E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399978   (719036) от 05.08.2020
+
+VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukas Grinys - Birds'n'Blues [06:12]
+02. Mizt3r - Close To You [05:31]
+03. Oris de Cueva - Amazon (Delacombe Playa Remix) [09:49]
+04. Lukas Grinys - Papers [06:09](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC1947E3444BDA1BAAD9D9023E11CFEBD561D08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

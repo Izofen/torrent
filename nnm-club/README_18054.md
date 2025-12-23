@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1020660   (745386) от 26.05.2016
+
+VueScan Pro 9.5.49 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745386.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 мая 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B980E8A32CAB949594A9651F81DE826C896123E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020571   (745387) от 26.05.2016
+
+Adobe AIR 21.0.0.215 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe AIR - (Adobe Integrated Runtime) - платформенно-независимая среда для запуска приложений, позволяющая использовать HTML/CSS, Ajax, Adobe Flash и Adobe Flex для переноса веб-программ на настольные компьютеры. Adobe AIR включает в себя возможность создания инсталляционного пакета, который может быть установлен на компьютер пользователя. Приложения, написанные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6171943516F7294592DE99EC6C33A2214BCB2A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020407   (745388) от 26.05.2016
+
+Алексей Вандам | Геополитика и геостратегия (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745388.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включены две работы русского ученого, офицера, военного разведчика Алексея Ефимовича Вандама (Едрихина) (1867— 1933): «Наше положение» и «Величайшее из искусств (Обзор современного положения в свете высшей стратегии)», в которых он анализирует русскую историю с геополитической точки зрения, а также «Письма о Трансваале» (записки об англо-бурской войне). (   Читать дальше...   )Жанр: ГеополитикаПродолжительность: 06:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7365CC13A1D4328570CB2E7C9064E4A23D3E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020457   (745389) от 26.05.2016
+
+iFlicks 2 v2.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks 2! Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
+
+iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24.05.2016Разработчик: Jendrik BertramПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EF240BB8852E1448F2E1AF0C0926E573EF0DC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020648   (745390) от 26.05.2016
+
+Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , Breaks>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healer (Intro) (5:02)
+02. Changes (Original Mix) (7:29)
+03. Make a Wish (Original Mix) (7:33)
+04. Healer (Original Mix) (8:59)(   Читать дальше...   )Жанр: Progressive House, BreaksПродолжительность: 01:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE1F83CCE554549F80A15D71E50F86C1E12854B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020619   (745391) от 26.05.2016
+
+Capto – Screen Recording, Screen Captures, and Editing 1.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capto (was Voila) - профессиональная программа для захвата видео и изображений с рабочего стола.
+Приложение от Французских разработчиков прошло тернистый путь, от простого менеджера скриншотов, до полнофункционального редактора и каталогизатора. Менеджеры скриншотов относятся к узкоспециализированным программам для Mac, которые востребованы лишь у небольшого числа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 мая 2016Разработчик: Global Delight Technologies Pvt. LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EFF000C6355EEB278324CF434A422E605D2BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282522   (745392) от 12.02.2019
+
+Джеймс Крюс | Говорящая машина (1969) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Розкам создал удивительную машину, способную переводить язык зверей и птиц на человеческий и наоборот. Действие своего детища изобретатель решил опробовать на питомцах соседей. Поначалу эксперимент казался удачным, соседи узнали много интересного и порой неожиданного о своих воспитанниках. Но дальнейшие события показали, что нельзя таким образом вмешиваться (   Читать дальше...   )Жанр: Детская проза. Сказка.Перевод: Юрий КоринецФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2A1A095FA435FA15C9D6ECB56ABE11D2E4A7C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282491   (745393) от 12.02.2019
+
+HEALTH - VOL. 4 :: SLAVES OF FEAR (2019) [FLAC|Lossless|tracks + .cue] <Noisecore, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychonaut (02:24)
+02. Feel Nothing (02:59)
+03. God Botherer (02:23)
+04. Black Static (03:05)(   Читать дальше...   )Жанр: Noisecore, IndustrialПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D732DF0A3984DF2B451DEE8467CA58026A03E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282498   (745394) от 12.02.2019
+
+VA - Chill Lounge Selecta: Tropical Edition (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745394.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Masterio - Mountain (Original Mix)
+002. R.I.B. - Starlit (Original Mix)
+003. Djeff-Z - One Day (Ambient Version)
+004. Animat - Throwing Shapes(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 07:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789423FE5647BCF96DEC6F28470F6065EA6EBB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281897   (745395) от 12.02.2019
+
+Роберт Говард | Сын белого волка. Избранные повести (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Ирвин Говард (1906–1936) – американский писатель, автор приключений и детективов, а также произведений в жанрах фэнтези и хоррор. Герои многих его романов, повестей и рассказов перекочевали на страницы комиксов и экраны голливудских фильмов. Здесь и легендарный Конан-варвар, и бесстрашный боксёр и моряк Стив Костиган, и борец со злом Соломон Кейн, и брутальный (   Читать дальше...   )Жанр: Приключения, зарубежная прозаПродолжительность: 07:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A008C33B6B8049B4EC798B05CDC0342EC26CF14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282469   (745396) от 12.02.2019
+
+Brian Eno - Reflection (2017) Japanese Limited Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflection (54:00)Жанр: Ambient, ExperimentalПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2A0D2C969665BC13C94533B05ADE5DCAB05441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282330   (745397) от 12.02.2019
+
+Хоккей. Еврохоккейтур 2018-2019. Шведские хоккейные игры 2019. Чехия — Швеция (2019) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745397.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 февраля 2019, четверг. 21:00 МСК
+Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
+Шведские хоккейные игры 2019.
+Чехия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B58A671C3058035B70770CB7210247181F6BED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282134   (745399) от 12.02.2019
+
+Евгения Перова | Другая женщина (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёка и Дмитрий, Варвара и Глеб, Андрей и Ирина встречают друг друга слишком поздно… «Солнечный удар», поразивший героев, ставит их перед моральным выбором – укротить свое сердце или отдаться роковому танцу любви на осколках собственной нравственности. Обстоятельства обязывают смириться. Но, может быть, стоит еще побороться с судьбой за свои чувства и по праву, данному (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F13BC08FC1F82ED47D543A5E26CFD968D02F0BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282367   (745400) от 12.02.2019
+
+VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of Maria feat. Angelika Vee - Sweet Madness 3:09
+02. EDX - Daybreak 3:13
+03. Barkley - Ligona 2:20
+04. Playinfields - You and Me 3:10(   Читать дальше...   )Жанр: House, FutureHouse, DanceПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472F3EE0145B60F54CE7F9742E80D11ACB5BAA89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282338   (745401) от 12.02.2019
+
+David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narciso (08:40)
+02. D'Angelo (06:28)
+03. 33Chants (05:34)
+04. Florence (01:40)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282580   (745402) от 12.02.2019
+
+Хоккей. Еврохоккейтур 2018-2019. Шведские хоккейные игры 2019. Финляндия — Чехия (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745402.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 февраля 2019, суббота. 14:00 МСК
+Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
+Шведские хоккейные игры 2019.
+Финляндия — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCAD71A836626A90E970AF72087485947A12862
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282458   (745403) от 12.02.2019
+
+10,000 Maniacs - Trouble Me (1989) Mini-Single [FLAC|Lossless|tracks + .cue] <Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble Me (LP Version) (03:08)
+02. The Lion's Share (LP Version) (03:00)Жанр: Folk Rock, Alternative RockПродолжительность: 06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2AD4082AF1DD3C2267D87B48DFB352E7DEDFE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282299   (745404) от 12.02.2019
+
+Angelo De Augustine - Tomb (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomb 04:18
+02. All to the Wind (02:52)
+03. You Needed Love, I Needed You (03:25)
+04. I Could Be Wrong (04:09)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFBECCEF494964F1423DF5F170C2E22A3CE8E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282324   (745405) от 12.02.2019
+
+VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Heute Nacht für immer
+03. Kerstin Ott - Regenbogenfarben
+04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A627907922B5E857E1F31EDA75BA611552C0D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282490   (745406) от 12.02.2019
+
+Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teryan 1 (08:02)
+ 02. Arpa River (07:03)
+ 03. Opposition Crowd (07:17)
+ 04. Teryan 1 (Saphileaum's Second Sky) (05:51)Жанр: TechnoПродолжительность: 00:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282422   (745407) от 12.02.2019
+
+Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of The Highway (05:55)
+ 02. Sonar Conversation (08:15)
+ 03. Robotic Arm Wrestle (07:32)
+ 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282323   (745408) от 12.02.2019
+
+Tunic - Complexion (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Nothing
+02. Envious
+03. Getting Sick
+04. Evan(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FA02C4A3B65631FDC4CA20866170E21FDA51D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282246   (745409) от 12.02.2019
+
+Deerhunter - Why Hasn't Everything Already Disappeared? (2019) [FLAC|Lossless|tracks + .cue] <Art Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death in Midsummer (04:22)
+02. No One's Sleeping (04:25)
+03. Greenpoint Gothic (02:02)
+04. Element (02:59)(   Читать дальше...   )Жанр: Art Rock, Indie RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4327B639073035734353C36360F9EF37C5815ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282235   (745410) от 12.02.2019
+
+Say Anything - Oliver Appropriate (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Emo, Punk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Band Fuel (02:09)
+02. Daze (02:21)
+03. Pink Snot (02:49)
+04. Greased (02:05)(   Читать дальше...   )Жанр: Alternative Rock, Emo, PunkПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8005CA173E47CE6A6D9E5D44FCD90598B123C1F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282488   (745411) от 12.02.2019
+
+Bruut! - Bruut! (2012) [FLAC|Lossless|tracks + .cue] <Swing, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce (03:32)
+02. Bumper (02:48)
+03. Foxxy (05:17)
+04. Gospel (00:33)(   Читать дальше...   )Жанр: Swing, Jazz-FunkПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889A0446C0BB62C3F2AC11197510492C7692CE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783427   (745412) от 04.05.2014
+
+Где ты был, Одиссей? (1978) DVD9 (3 серии из 3)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит во Франции и Германии в 1944 году. Советский разведчик, действующий под именем французского коммерсанта Огюста Птижана, «сдается» гестаповцам, которые принимают его за английского шпиона. Таким образом, он получает возможность установить непосредственные контакты с высокопоставленными сотрудниками гестапо и абвера, понимающими неизбежность поражения (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: ВоенныйРежиссер: Тимур ЗолоевАктеры: Донатас Банионис, Анатолий Ромашин, Ирина Терещенко, Георгий Дрозд, Лев Перфилов, Карлис Себрис, Виктор Маляревич, Александр Лазарев ст., Лиля Максименко, Эрвин Кнаусмюллер, Пётр Кудлай, Владимир Наумцев, Юрий ОрловПродолжительность: 01:05:59 + 01:15:53 + 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBCF6DBE807455A907B8DEBC1D6423589809678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

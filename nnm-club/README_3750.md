@@ -1,26 +1,686 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1700204   (117145) от 16.02.2024
+
+Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long [17:15]
+02. Boo-Lu [6:49]
+03. Flickers [6:13]
+04. Li'l Hankie [8:25](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8460AA4E00157436EBD08F8E39C71E0CA6FC879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700199   (117146) от 16.02.2024
+
+Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susanita [8:53]
+02. Penta-Major [4:22]
+03. Prelude [1:45]
+04. Quads [9:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6FB9E550E50CCAA9C2CD5212FFEF914D15F33F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700350   (117147) от 16.02.2024
+
+GoodTask 7.6.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117147.jpg" />
+</div>
+
+
+###  Подробнее
+
+У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
+GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 haha interactiveПоддерживаемая ОС: macOS X 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4110D1F16FF7E2ABB9D27BDB5B993636C48644D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700224   (117148) от 16.02.2024
+
+Bike Outliner for Mac 1.18.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Структурированное и целенаправленное написание. Используйте Bike, чтобы думать, писать и организовывать. Составляйте списки, делайте заметки, создавайте документы. Bike — необычайно быстрое приложение для письма, разработанное для вашего Mac. Bike быстрый, он может справиться с большими проектами, которые ломают другие планировщики. Bike также быстро справляется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2023 HogbaysoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB51E02C2E23CAFF9A7086DE34EDDC7ABFDD402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700419   (117149) от 16.02.2024
+
+David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alcántara (6:10)
+02. Trafiquants (6:48)
+03. Camel caldo (6:36)
+04. Tilho (4:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B480528668746F519FE6D8B0362634A97DDA7421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700201   (117150) от 16.02.2024
+
+The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luminescence [6:31]
+02. Like This! [3:03]
+03. Nicaragua [8:42]
+04. Dance of the Infidels [5:13](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B81AEC2C335DFABF1FCE69AECDBE7411FB55E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700366   (117151) от 16.02.2024
+
+Boinx FotoMagico Pro 6 v.6.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117151.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
+В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Boinx Software International GmbHПоддерживаемая ОС: macOS 10.15.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454EC67DC28CCA462422BED3BEE1BDD1A08F66F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699958   (117152) от 16.02.2024
+
+Амели На Мели - Наизусть (2017) [FLAC|Lossless|WEB-DL|tracks] <Инди-Поп>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117152.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зима по проводам
+2. О важном
+3. Не буди
+4. Забыть её(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06ACBA3C0A793D3A03B6DC7EEF2B1A897A28F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700225   (117153) от 16.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND (ARMADA))
+02.	Ashley Wallbridge & John Grand - Echoes (ENHANCED PROG)
+03.	Hel:sløwed & JNSN - Want Me Artwork (Progressive Pick)
+04.	Magnus - JOI ARMADA ELECTRONIC ELEMENTS(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159986631C01B6348E3ECFA6E58A509F2C535DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700357   (117154) от 16.02.2024
+
+Легенды о славянских витязях (2008) [MP3, Валерий Золотухин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Легенда.
+Подвиги непобедимого Ильи Муромца известны каждому. А знаете ли вы, как победил Царь-девицу Алеша Попович, верой и правдой служивший князю Владимиру Красно Солнышко? Известно ли вам, откуда взялись Баба Яга и Чудо-Юдо? Слушайте старинные легенды о славных славянских витязях!
+Живая музыка в исполнении ансамбля «Русичи».
+Издание предназначено детям (   Читать дальше...   )Жанр: Народные русские былины, легенды, сказанияИздательство: Эксмо-СидикомПродолжительность: 03:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFC36B916925EA77B8FDE62286F1718DFA3E184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700257   (117155) от 16.02.2024
+
+Sip Pro 3.3.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крошечная, но очень полезная программа разработанная Rui Aureliano для людей, которые тесно связаны с веб-дизайном.
+При помощи данной программы можно определить код цвета на любом участке экрана. После установки в системном меню появляется ярлык программы. Далее все просто. Выбираем Pick Color и увеличительную площадь наводим на область, в которой хотим узнать цвет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2024Разработчик: © 2024 Rui AurelianoПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EFC3618E401E93DB30C3BF72B6229009BB4156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700362   (117156) от 16.02.2024
+
+GraphicConverter 12 for Mac 12.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117156.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AC54EAE48089DD2C9114B31426995ACCACAD17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700443   (117157) от 16.02.2024
+
+Von Hertzen Brothers - Live At Tavastia (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Day Of Reckoning
+02 - Blue Forest
+03 - The Promise
+04 - Frozen Butterflies(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23949EF5745A4F5DD5B17BCB93154CA3F4DC5C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700287   (117158) от 16.02.2024
+
+Art Of Anarchy - Let There Be Anarchy (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Hard
+02. Echo Your Madness
+03. Vilified
+04. Bridge Of Tomorrow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275041633601C11D6B92A7A45493A8CA24782329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700351   (117159) от 16.02.2024
+
+И.В. Корнаухова | Русские богатыри. Былины и героические сказки (2005) [MP3, Наталия Минаева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Золотая коллекция слова
+Эти былины и сказки про дела старые, что про старые, про бывалые, чтобы море синее успокоилось, чтобы добрые люди послушались, чтобы молодцы призадумались, что века не меркнет слава Русская!
+
+В пересказе для детей Ирины Валерьяновны Корнауховой.(   Читать дальше...   )Жанр: Русская литература для детей, сказания, былиныИздательство: ДеоникаПродолжительность: 08:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DE9584578182AE0352F9AFB024ABD77C6439AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700158   (117160) от 16.02.2024
+
+UMC - CHAPTER 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scream & Shout (Metal Version) [5:28]
+02 - Wake Me Up (Metal Version) [3:50]
+03 - Can't Hold Us (Metal Version) [4:13]
+04 - Uptown Funk (Metal Version) [4:30](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8572D414A6DC34D1427A084BB779B5D91B1F8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699976   (117161) от 16.02.2024
+
+Моя Дорогая - Влюблённые (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117161.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Влюблённые
+2. Милая
+3. Не знаешь
+4. Время героев(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B50ADA7ED9196E9BE901B0D670D4EEE12FDA41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700271   (117162) от 16.02.2024
+
+Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Electronic, Electro House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't Keep Getting Away With It [2:33]
+02 - Like I Said [2:47]
+03 - Exercise [3:00]
+04 - They [2:26](   Читать дальше...   )Жанр: Hip-Hop, Rap, Electronic, Electro HouseПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D178B08EBD186A0D595DA057D04D4C4480DFDC59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700375   (117163) от 16.02.2024
+
+Лемони Сникет | Тридцать три несчастья (Книга 4). Зловещая лесопилка (2003) [MP3, Александр Клюквин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Тридцать три несчастья.
+В четвёртой аудиокниге Лемони Сникета из серии «Тридцать три несчастья» – «Зловещая лесопилка» – злосчастная судьба забрасывает сирот Бодлер в ужасное,
+мрачное и абсолютно не подходящее для маленьких детей место: на лесопилку «Счастливые запахи», где за каждым бревном их подстерегают беды и напасти. Жевательная резинка вместо завтрака, (   Читать дальше...   )Жанр: Зарубежная литература для детей, приключенияИздательство: Издательский дом «Союз», Детская литература, Книга вслухПродолжительность: 03:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43430302A4ECD8A36B98461B1BEE508E845BFD29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700162   (117164) от 16.02.2024
+
+UMC - CHAPTER 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Physical (Metal Version) [3:26]
+02 - Never Let Me Down (Metal Version) [2:36]
+03 - Kings & Queens (Metal Version) [2:42]
+04 - Dance Monkey (Metal Version) [4:12](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D52E377D6586EFBDACC9FCDA6796004D87E844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700343   (117165) от 16.02.2024
+
+Ольга Петерсон и Екатерина Балабанова | Легенды и предания Средневековья (2009) [MP3, Татьяна Телегина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+«Легенды и предания Средневековья о рыцарях Круглого стола, Мерлине, поисках Грааля и о великом полководце Александре Македонском в пересказе для детей».
+Храбрый воин Роланд, всемогущий волшебник Мерлин, доблестные рыцари Круглого стола, поиски священной чаши Грааля, жизнь и удивительные подвиги Александра Великого... Величественные (   Читать дальше...   )Жанр: Историческая литература для детей, мифы и легендыИздательство: Студия «АРДИС»Продолжительность: 07:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490221D4E13F891A30EC3D87863FDB31EF297334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700160   (117166) от 16.02.2024
+
+UMC - CHAPTER 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sweet but Psycho (Metal Version) [3:14]
+02 - Let You Love Me (Metal Version) [3:14]
+03 - High Hopes (Metal Version) [3:16]
+04 - Rolling in the Deep (Metal Version) [3:48](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FE4C6CE1416A39BFEA401055A7439D0F3DAE63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700253   (117167) от 16.02.2024
+
+Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Hard (7:30)
+02. Echo Your Madness (4:13)
+03. Vilified (5:42)
+04. Bridge Of Tomorrow (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77ACADE0A42362DBA4AB3C2A281FB8E5173000AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700173   (117168) от 16.02.2024
+
+Witchsnake - Deathcult of the Snake (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Metal, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Outlaw [6:06]
+02 - The Iron Cross Burns [5:12]
+03 - Inject the Venom [5:14]
+04 - Black Star [4:22](   Читать дальше...   )Жанр: Doom Metal, Stoner Metal, Sludge MetalПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605E95592167EF09BCEB71FB4E47364C3CE30AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700371   (117169) от 16.02.2024
+
+Лемони Сникет | Тридцать три несчастья (Книга 2). Змеиный зал (2003) [MP3, Александр Клюквин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Тридцать три несчастья.
+Если вы так отважны, что все-таки решили открыть эту книгу, – вам следует узнать, что благодаря своей любви к чтению и изобретательству (а вовсе не своему везению) сироты Бодлер сумели разрушить злодейские планы Графа Олафа. Впереди у них интересная и счастливая жизнь в доме Дяди Монти, полном самых необычных рептилий, экспедиция (   Читать дальше...   )Жанр: Зарубежная литература для детей, приключенияИздательство: Издательский дом «Союз», Детская литература, Книга вслухПродолжительность: 03:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91A9027D89A3A84F08460FFAD2D3C015CCDA7A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700052   (117170) от 16.02.2024
+
+Illumishade - Eclyptic: Wake of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage Through The Clouds [00:02:06]
+02. The Calling Winds [00:02:10]
+03. Tales Of Time [00:03:13]
+04. The Farewell Arcades [00:02:28](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB865CAAD126099EDF8914D3A5D4A3E97D37A36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,26 +1,732 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1317322   (501464) от 31.07.2019
+
+WinSnap 5.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501464.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinSnap позволяет делать скриншоты экрана монитора и редактировать полученные изображения. WinSnap может захватывать скриншоты нестандартных окон, которые имеют не строго прямоугольную форму. Кроме того, программа способна автоматически исправлять некоторые недостатки в графике, накладывать тени, сохранять результаты в большинстве графических форматах.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78F80565D4AF9CB961207CB4A69940271AADE06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507824   (501465) от 17.07.2022
+
+Мой лучший друг Шейлок / Shiloh (1996) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шейлок — прелестный щенок охотничьей собаки — сбежал от жестокого хозяина и нашел Марти, мальчика-подростка. Марти знает, что собака принадлежит другому, но хочет спасти ее от боли и грубости.
+Он идет против желания своего отца и хозяина собаки. Мальчик жертвует всем, выкладывается из последних сил, чтобы сделать щенка своим.Производство: США, Good Dog Productions LLC, Utopia Pictures, Zeta Entertainment Ltd.Жанр: драма, семейный, детскийРежиссер: Дэйл РозенблюмАктеры: Скотт Уилсон, Блейк Херон, Бонни Бартлетт, Род Стайгер, Дж. Мэдисон Райт, Энн Дауд, Майкл Мориарти, Шира Рот, Тори РайтПеревод: Дублированный (Варус Видео, Первый канал)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A14311689A8A4D49121C9C925382D75E1B31408
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317468   (501467) от 31.07.2019
+
+студия Диафильм | Знаменитый утенок Тим (1963) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки зарубежных писателей. Великобритания.
+Для детей младшего возраста.Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88143ECB32CCD6C1B3EACA0815DDA73CD6D58965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564058   (501468) от 17.07.2022
+
+Новое понимание: наука о псилоцибине / A New Understanding: The Science of Psilocybin (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501468.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Новое понимание" исследует лечение тревоги конца жизни у неизлечимо больных раком пациентов с помощью псилоцибина, психоактивного соединения, содержащегося в некоторых грибах, для облегчения глубоко духовных переживаний. Документальный фильм исследует слияние науки и духовности начиная с первых психоделических исследований с неизлечимо больными пациентами (   Читать дальше...   )Производство: СШАЖанр: документальный, научно-популярный, медицинаРежиссер: Роберт Дж. БарнхартПеревод: одноголосый профессиональный (digi)Субтитры: русскиеПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81379D568CD8EF2E4FE9BBE15CF3A3E3BC8B22F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317347   (501469) от 31.07.2019
+
+студия Диафильм | Разные колеса (1955) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки советских писателей.
+Для детей младшего возраста.Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32086C3E511FC7843B3F630E3E59F925C602A76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564193   (501471) от 17.07.2022
+
+CrystalDiskInfo 8.17.4 RePack (& Portable) by 9649 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501471.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EEB93145BC921071925614168B5776EEEF492A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317409   (501472) от 31.07.2019
+
+Туфли с золотыми пряжками (1976) DVDRip [H.264] (серии 1-2 из 2)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Иванушки плетёт лучшие во всей округе лапти. Своё умение он передал сыну, но что-то грустно стало в последнее время Ивану и он отпросился у родителей сходить на ярмарку, купить себе немного счастья. Деньги — полный кошель медяков, он по дороге истратил. Половину дал разбойникам, чтобы выручить из беды скомороха Тимоню, а другую у него выманил ярмарочный плут. (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Детский, сказка, мьюзикл, комедияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Лев Дуров, Александр Хочинский, Вера Кузнецова, Ирина Малышева, Юрий Медведев, Владимир Старостин, Павел Винник, Владимир Герасимов, Петр Бенюк, Георгий ШтильСубтитры: ОтсутствуютПродолжительность: 01:04:02 + 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC66F55CBF010E53ECDBF3B6394388624251350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564054   (501474) от 17.07.2022
+
+Последняя миссис Андерсон / La ultima senora Anderson (The Fourth Victim) (1971) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруга Артура Андерсона Глэдис погибла при таинственных обстоятельствах, которые дали почву для подозрений против ее мужа. Тем не менее, суд полностью оправдал Артура, несмотря на то, что инспектор Скотланд-Ярда Данфи сделал все, чтобы тот оказался на скамье подсудимых. Вскоре вернувшийся домой мистер Андерсон обнаружил, что в доме по соседству поселилась очаровательная (   Читать дальше...   )Производство: Италия, Estudios Cinematográficos, Filmayer, Tritone CinematograficaЖанр: детектив, мелодрама, триллер, ужасыРежиссер: Эухенио МартинАктеры: Кэррол Бейкер, Майкл Крэйг, Миранда Кампа, Хосе Луис Лопес Васкес, Энцо Гаринеи, Филип Росс, Альберто Фернандес, Мануэль Галлардо, Альберто Гонзалес Эспиноза, Марина МалфаттиПеревод: Авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 01:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE8B49C82673F91665622F1FA4E5234211B7A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317301   (501479) от 31.07.2019
+
+Outsidr - Rapture EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twilight (03:42)
+02. Nomad (03:28)
+03. Obsidian (03:51)
+04. Rapture (03:51)(   Читать дальше...   )Жанр: Future Garage, AmbientПродолжительность: 00:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7386965432965AA04A285A2F15AB8795B098A85A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564143   (501480) от 17.07.2022
+
+Cockos REAPER 6.64 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEF86BD559528BDD5F18EB275A870CBBB51B393
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317282   (501482) от 31.07.2019
+
+maria - Cor e Forma (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (fonte) (1:41)
+02. Padrão de azul (5:17)
+03. Volta (feat. João Tamura) (9:31)
+04. I can feel your green Vibes (3:07)(   Читать дальше...   )Производство: Monster JinxЖанр: Hip-Hop, Instrumental, ElectronicПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7802BEFA054D9044BEEC1BF1BBAB909D9C67010A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317370   (501483) от 31.07.2019
+
+Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <World Fusion, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Day [7:01]
+02. La Nuit [10:29]
+03. Blue Maqams [8:42]
+04. Bahia [8:46](   Читать дальше...   )Жанр: World Fusion, Modern CreativeПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20061B5CCEF1348DF3F1FE4049CD0DA95803AD95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317356   (501484) от 31.07.2019
+
+A Hundred Birds - To The EdEN (2007) [MP3|320 Kbps] <Ambient, Jazzdance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Birds feat. TeN - Feeling Your Bright Light (Album Version) (5:54)
+02. A Hundred Birds feat. TeN - Jungle Kitten (6:24)
+03. A Hundred Birds feat. TeN - Because THe Way Love Is (Album Version) (5:20)
+04. A Hundred Birds - Love Is A Master of Disguise (5:40)(   Читать дальше...   )Жанр: Ambient, JazzdanceПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18B7221388303A74CD6CE170F45F396CDF5C0B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463223   (501485) от 17.07.2022
+
+Синяя птица / The Blue Bird (1940) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая история, основанная на германских сказаниях, как брат и сестра ищут Синюю птицу для исполнения своего желания и попадают в разные места и времена. Основан фильм на пьесе бельгийского драматурга Мориса Метелинка (опубликованной в 1908 году и первая экранизация была в 1910 году) и был задуман как ответ на фильм студии "Twentieth Century-Fox", которые (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: фэнтези, драма, семейныйРежиссер: Уолтер ЛэнгАктеры: Ширли Темпл, Спринг Байингтон, Найджел Брюс, Гэйл Сондергаард, Эдди Коллинз, Сибил Джейсон, Джесси Ралф, Хелен Эриксон, Джонни Расселл, Лора Хоуп Крюз, Расселл Хикс, Сесилия Лофтус, Эл Шин, Леона Робертс, Джин РейнолдсПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDDBECF1F3DA709EB3C438463034299BA0D67E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564240   (501487) от 17.07.2022
+
+InShot - Фото и видеоредактор 1.840.1360 Mod by Apps Store [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501487.jpg" />
+</div>
+
+
+###  Подробнее
+
+InShot - Фото и видеоредактор - очень впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.07.2022Разработчик: InShot Video EditorЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43281354209FF4C2138F0055C465BD6257156A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541645   (501488) от 31.08.2012
+
+Markus Schulz - Scream (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz - Scream (Extended Mixes) (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 02:25:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Markus Schulz - Our Moment (Intro Mix) (1:36)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A8196BAF70C9BE3EF3E327B20423BE4D7CE182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541205   (501489) от 31.08.2012
+
+Get Well Soon - The Scarlet Beast O'Seven Heads (2 CD Limited Edition) (2012) [FLAC|Lossless]<Alternative, Indie Rock, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501489.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Prologue
+02. Let Me Check My Mayan Calendar
+03. The Last Days Of Rome
+04. The Kids Today
+05. Roland, I Feel You
+06. Disney
+07. A Gallows
+08. Oh My! Good Heart
+09. Just Like Henry Darger(   Читать дальше...   )Жанр: Alternative, Indie Rock, FolkПродолжительность: 00:54:18 / 00:18:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541559   (501490) от 31.08.2012
+
+Landscapes HD Wallpapers (30.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E9433F432A0F82D15AC96A96EA4882BB214030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541682   (501491) от 31.08.2012
+
+PLC - Воздух (2012) [MP3|320 кб/с]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало
+ 02. Первый (при уч. Chest)
+ 03. Это Юг
+ 04. Время
+ 05. Для Тебя (при уч. Nady)
+ 06. Город спит (при уч. Nady и Вероника Ли)
+ 07. Пепел (при уч. СКВО и А.Труфман)
+ 08. Последний день
+ 09. Я иду вперед
+10. Воздух(   Читать дальше...   )Жанр: Hip-Hop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC39BCD6D3B4FC69FAEAEC74DC3979F5A71C9B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516521   (501492) от 31.08.2012
+
+Paul Oakenfold - Full On Fluoro 001 - 016 (2011-2012) [MP3|256 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full On Fluoro - Intro (00:54)
+02. Day.Din - Halkidiki (04:54)
+03. Day.Din & Alfredo Garcia - Theory Of Mind (05:47)
+04. Paul Oakenfold - Tokyo (06:50)
+05. Vaishiyas - Satisflaxion (04:38)
+06. Neelix vs. PPK - Ask The Right Questions (Dirtyloud Remix) vs. Resurrection (Paul Oakenfold Mash Up) (05:19)
+07. Underworld vs. Danny Corsten - Timeless (03:14)
+08. Zuri vs. Narcotic Influence - Giving Them Drugs (ID Mash Up) (04:38)
+09. Beatman & Ludmilla - In Breaks We Trust (07:11)
+10. Solesystem & El Aero - Birds (Line Of Sight Remix) (05:04)(   Читать дальше...   )01.	Full On Fluoro - Intro	(00:56)
+02.	Lou Pigalle - Brothers In The World	(02:58)
+03.	John Moss - Green Landings	(02:57)
+04.	Adele vs. Paolo Mojo & Eric Prydz - Set Fire To 1983 (Kenneth Thomas Mashup)	(04:40)
+05.	Alessandro - At Night	(04:22)
+06.	Poncho feat. Paul Oakenfold & Maxi Trusso - Please Me (Flesh & Bone Remix)	(05:03)
+07.	Stefano Noferini - That's Good (Christian Cambas Remix)	(03:12)
+08.	School Of Seven Bells - Reappear (Thomas Datt Remix)	(05:08)
+09.	TeeEx - Unbreakable	(04:22)
+10.	Ronski Speed - Proton12 (Maor Levi Remix)	(05:48)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA43659A84B14B9CF812A8156917FCC47FF6701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541774   (501494) от 31.08.2012
+
+Count Indigo – Homme Fatale (2003) [FLAC|Lossless]<House, Downtempo, Synth-pop, Disco>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воистину роковой мужчина ("homme fatale") - знойный мулат, со жгуче сияющим черепом и бородой-эспаньолкой. Граф Индиго! (Настоящее имя - Брюс Маркус). Трепещите, герцогини и пейзанки, дамы и телки! Зажигательное диско, вкрадчивый сексуальный голос и аристократические манеры способны совратить любую. Включая вашу подругу. К счастью, граф далеко. (А.К.Троицкий)01. Trinity, Part II (Bringing Out the Devil) :: 05:27
+02. What Makes You So Special :: 05:21
+03. Low Fidelity :: 04:51
+04. Loving It Back Again :: 03:05
+05. Sly Comforts :: 05:03
+06. Homme Fatale :: 05:46
+07. If I Could Give You Anything :: 04:07
+08. Exclusively Yours :: 04:06
+09. Shopping for Love :: 05:10
+10. Playboys R'Us :: 05:07(   Читать дальше...   )Жанр: House, Downtempo, Synth-pop, DiscoФормат: CD, AlbumПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541161   (501495) от 31.08.2012
+
+VA - Super вечеринка радио Рекорд 50/50 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+02. Chukie Feat Gregor Salto - What Happens In Vegas
+03. Loreen - Euphoria
+04. Ole van Dansk - Mary's Prayer
+05. Nelly Furtado - Big Hoops
+06. The Party Must Go On (feat. Lori Glori)Жанр: ClubПродолжительность: 06:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C67245B09555479E8E2CDC1C8BEBEA08362F41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541464   (501496) от 31.08.2012
+
+VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wynter Gordon - Stimela
+002. Андрей Леницкий &amp; St1ff И Mc Pasha - Любовь Сохрани
+003. Gary Barlow &amp; The Commonwealth Band - Sing
+004. Sandro Monte Feat. Mischa Daniels &amp; J-Son - Simple Man
+005. Lmfao - Party Rock Anthem
+006. Rudimental Feat John Newman - Feel The Love
+007. T.O.T.A.L. И Антитіла - Весна-Любовь
+008. The Saturdays - All Fired Up
+009. Eleni Foureira - Ti Poniro Mou Zitas
+010. Arash Ahangari - Ahange Zamoone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541183   (501499) от 31.08.2012
+
+Aimee Mann - Charmer (2012) [FLAC|Lossless]<Indie/Rock/Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charmer (3:26)
+02. Disappeared (3:25)
+03. Labrador (3:49)
+04. Crazytown (3:21)
+05. Soon Enough (3:59)
+06. Living A Lie (Feat. James Mercer Of The Shins) (3:26)
+07. Slip & Roll (4:12)
+08. Gumby (2:53)
+09. Gamma Ray (3:01)
+10. Barfly (4:00)(   Читать дальше...   )Жанр: Indie/Rock/FolkПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541110   (501501) от 31.08.2012
+
+Heretic - A Time Of Crisis (2012) [FLAC|Lossless]<Power Metal/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Divine Inquisition (1:02)
+02. Tomorrow's Plague (5:18)
+03. Betrayed (4:38)
+04. Remains (5:21)
+05. A Time Of Crisis (4:33)
+06. For Your Faith (4:38)
+07. Raise Your Fist (4:22)
+08. Heretic (2:29)
+09. Child Of War (3:23)
+10. Police State (3:34)(   Читать дальше...   )Жанр: Power Metal/Thrash MetalПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541160   (501502) от 31.08.2012
+
+VA - Just Tell Me That You Want Me: A Tribute To Fleetwood Mac (2012) [MP3|320 кб/с]<Indie, Blues, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lee Ranaldo Band Feat. J Mascis - Albatross (4:16)
+2. Antony - Landslide (3:33)
+3. Trixie Whitley - Before The Beginning (4:46)
+4. Billy Gibbons & Co. - Oh Well (4:45)
+5. Best Coast - Rhiannon (3:07)
+6. The New Pornographers - Think About Me (2:55)
+7. Marianne Faithfull - Angel (4:59)
+8. Lykke Li - Silver Springs (4:10)
+9. Karen Elson - Gold Dust Woman (5:42)
+10. Matt Sweeney & Bonnie "Prince" Billy - Storms (4:56)(   Читать дальше...   )Жанр: Indie, Blues, Rock, PopПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3638A8A68E2BC2298B93802ACFCDDF7DFD368D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

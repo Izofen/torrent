@@ -1,26 +1,668 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1001321   (853844) от 28.03.2016
+
+Yahel - Dawn Rises (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yahel - Dawn Rises (05:55)
+02. Yahel & Black Mesa - Infinite Source Of Light (05:37)
+03. Yahel & Invisible Reality - Hidden Energy (06:27)
+04. Yahel & Tronsho - I See Visions (07:36)Производство: Global Army MusicЖанр: Psychedelic, Progressive Psy-TranceПродолжительность: 00:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED6DB5376EBBAE67DCB8D83871A0ADFC5A830B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000930   (853846) от 28.03.2016
+
+WANT/ed - Fringe (2016) [MP3|320 кб/с] <Synth Pop, Coldwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий полноформатный альбом группы из Калининграда (Кёнигсберга - так его почему-то до сих пор на Западе называют!).01. (You) Won't Regret (feat. Holger Muller)
+02. Baiter (feat. Holger Muller)
+03. Sputnik 1 (feat. Holger Muller)
+04. Let's Get Entwined (feat. Patrik Hansson)(   Читать дальше...   )Жанр: Synth Pop, ColdwaveПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75EC50F23D4E008031E771D1B64D8F2BB288141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001436   (853848) от 28.03.2016
+
+Журнал | Техника и вооружение №3 (март 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военно-технический, научно-популярный журнал, освещающий вопросы научно-технического прогресса в Вооруженных Силах, публикует материалы о развитии современного оружия, подготовке специалистов различных профилей в войсках и военно-учебных заведениях, инженерной психологии, технической подготовке, эксплуатации боевой техники, планирование и функционирование войскового (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB98CC34B1916487BCAD1D6A8CC985A75590F319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001314   (853849) от 28.03.2016
+
+Эдуард Хруцкий | Истина (2016) [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остросюжетное произведение Э. Хруцкого рассказывает о борьбе советских контрразведчиков с агентурой ЦРУ. Поиски убийцы приводят к неожиданным результатам — корни преступления тянутся из военного прошлого. Действие разворачивается в двух временных отрезках: конец 80-х и Великая Отечественная война. Пуля, посланная из прошлого, убивает писателя, собирающего материал (   Читать дальше...   )Жанр: Боевик, приключенияПродолжительность: 10:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B0E0BEB5D735A2B7802A125CAA505A04834EA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001277   (853850) от 28.03.2016
+
+Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bortnyansky: Sonata B-dur  3:57
+02.  Bortnyansky: Sonata C-dur - I. Allegro moderato  4:41
+03.  II. Adagio  6:18
+04.  III. Rondo  2:36(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89568C70D7B25A25D5CCBABFC64047DEC1000D4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001097   (853851) от 28.03.2016
+
+Лев Толстой | Утро помещика (2016) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853851.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Утро помещика» — рассказ автобиографического характера о молодом помещике, желающем «сделать счастие своих крестьян». Девятнадцатилетний юноша ушел из университета и навсегда переехал в деревню, где его грандиозный план подвергся суровому испытанию на практикеЕ Милая тетушка.»
+Я принял решение, от которого должна зависеть участь всей моей жизни. Я выхожу из университета, (   Читать дальше...   )Жанр: Повесть, Отечественная классикаИздательство: Творческая группа «СамИздат»Продолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2411D8858A1D181EF86BD86C764FD363A2E29FCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001431   (853852) от 28.03.2016
+
+VA - Black Hole Recordings presents: Best Of Vocal Trance Vol 1 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betsie Larkin - We Are the Sound (05:36)
+02. RAM & Chris Metcalfe ft Natalie Gioia - Don't Give Up (07:45)
+03. Dirkie Coetzee & Jan Johnston - Only the Beginning (Pierre Pienaar Remix) (07:40)
+04. Venice feat. Ank - Another Like You (04:56)(   Читать дальше...   )Производство: Black Hole RecordingsЖанр: Trance, Vocal TranceПродолжительность: 02:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3000ABAE006F4EDE75D1EC7534D06692D3864FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001400   (853853) от 28.03.2016
+
+Registry Life 3.25 DC 28.03.16 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное приложение, которое позволяет выполнять автоматическую чистку системного реестра и производить его оптимизацию. Утилита поможет исправить ошибки в реестре, а также оптимизировать его для повышения быстродействия и стабильности системы Windows. Registry Life является простым в использовании решением для обслуживания реестра системы.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB1D326332CCBC02784EE144588AE40A6FE0C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001415   (853854) от 28.03.2016
+
+Зеб Шилликот | Порошок жизни (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покончив с Костяным племенем и избавившись от рабского ошейника, Джаг, вновь обретя свободу, отправляется в путь, на поиски своего "земного рая". Но жестокий постапокалиптический мир не жалует свободолюбивых одиночек, и Джаг вновь оказывается втянутым в омут опасных приключений...Жанр: Боевая фантастикаПродолжительность: 04:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3F7F12708090721848EBD7B333EDC3AE111837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000287   (853855) от 28.03.2016
+
+Специальные капсулы с жидким металлом позволяют производить пайку без использования тепла
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_853855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пайка является весьма и весьма распространенной технологией, широко используемой при производстве и ремонте электроники практически любого вида. В большинстве случаев для качественной пайки используются высокотемпературные припои, точка плавления которых находится в пределах 200-300 градусов Цельсия. Для критичных случаев используют низкотемпературные припои, к примеру, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001460   (853856) от 28.03.2016
+
+Tipard Blu-ray Converter 7.3.32 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard Blu-ray Converter - удобный и простой в работе конвертер DVD, с помощью которого их можно преобразовать в наиболее популярные форматы видео, как например TS, MP4, 3GP, AVI, WMV, MPEG, MKV, MOV, M4V, FLV, ASF, DivX, XviD, RMVB, а также извлекать с дисков аудиодорожки с последующим сохранением в MP3, MP2, AAC, AIFF, ALAC, FLAC и т.д.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF73EE761D72D0617A7EC38330343741E9AE8BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001353   (853857) от 28.03.2016
+
+Самые шокирующие гипотезы. Кто уничтожил великанов?  (28.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853857.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )В этом выпуске: Сколько лет живут феи и гномы? Откуда берутся таинственные кровопийцы. В каких лесах всё ещё обитают древние гиганты, и какие ещё разумные существа живут на нашей планете.Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6097E48D8AAEB2DCA40BFD67D849342364CF36BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001503   (853858) от 28.03.2016
+
+Raphael Ensemble - Korngold: String Sextet, Schoenberg: Verklarte Nacht (1990) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sextet for strings in D, Op. 10
+01. Moderato - Allegro    09:47
+02. Adagio    10:44
+03. Intermezzo (Moderato, con grazia)    07:04(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2419C4DF915F48EE5CA4DEE4E5B9E42B2C7E0D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001219   (853859) от 28.03.2016
+
+Где логика? (2016.03.27) WEB-DL [H.264/720p-LQ]  (выпуск 10)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83F148BC713122182A14CC5001B7F2EDA8D12A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001350   (853860) от 28.03.2016
+
+VA - Cookies With A Smile: Ibiza Deep House (2016) [MP3|320 кб/с] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Muovo - Green Granada 07:55
+002. Benny Camaro - Cуmo Suena 05:51
+003. Ernesto vs Bastian - Dark Side Of The Moon (Axwell & Sebastian Ingrosso Re-Mode) (feat. Susana) 05:46
+004. Hardwell - Storage 08:02(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001263   (853861) от 28.03.2016
+
+Сергей Кормилицын | Третий Рейх. Гитлер-югенд (2004) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853861.jpg" />
+</div>
+
+
+###  Подробнее
+
+В советской и восточно-европейской историографии темы молодежной политики Третьего Рейха всегда обходились стороной. Слишком уж бросалось в глаза сходство между практикой Третьего Рейха и реалиями молодежной политики социалистического лагеря. Не только цели, методы и инструменты идеологической обработки, при помощи которых шлифовались незрелые детские умы, но даже (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7AB7CF6F700731DDA03831748184BB5EFEC5DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001407   (853862) от 28.03.2016
+
+Maxthon Cloud Browser 4.9.2.500 Beta + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Maxthon предлагает богатый набор функций для улучшения Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались действительно быстро.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083FFAB60FE8CFE688AA56E32D506B081535CD03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001251   (853863) от 28.03.2016
+
+VOX 2.7.5 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плеер VOX по праву считается лучшим из альтернативных аудиоплееров для OS X
+Vox - небольшой и очень простой в использовании аудиоплейер для Mac OS X, который является неплохой альтернативой iTunes. Проигрыватель умеет работать с огромным количеством поддерживаемых форматов (FLAC, MP3, AAC, Musepack, Monkey’s Audio, OGG Vorbis, Apple Lossless, AIFF, WAV и др.), распознает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 марта 2016Разработчик: Coppertino Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC794E216B04868D30A11B4C040A4D872E2312EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110430   (853864) от 02.03.2017
+
+Bill Cunliffe - Bill Plays Bud (1996) 1998, Naxos Jazz [APE|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Melancholia [06:17]
+ 02.Un Poco Loco [05:27]
+ 03.Polka Dots and Moonbeams [08:50]
+ 04.Comin' Up [04:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4ED30F7E25F5F7E9025C089B72B507EE021F5B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110226   (853865) от 02.03.2017
+
+Ascension - The Dead Of The World (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Silence of Abel
+02. Death's Golden Temple
+03. Black Ember
+04. Unlocking Tiamat(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9693695C602B088595648305869054CD47E9DD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110236   (853866) от 02.03.2017
+
+Hamelyn - Forjando el Camino (2008) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Entre Dos Mundos
+03. Forjando El Camino
+04. Eternidad(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495396C596389974DFFBA57F1F5E1B41DCFA502E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110394   (853867) от 02.03.2017
+
+Joe Williams & Dave Pell - Prez & Joe: In Celebtration Of Lester Young (1979) 1989, GNP [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Can Depend On Me [03:38]
+ 02.When You're Smiling [02:28]
+ 03.I Never Knew [04:51]
+ 04.Foolin' Myself [03:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99AEDC87E2B765EC85B26C6668B68CEDF2A3F68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110230   (853868) от 02.03.2017
+
+Ewiges Reich - Krieg, Hass, Tod (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opferblut
+02. Von Illusionen und Götzenkult
+03. Propaganda
+04. Humanist - Masochist(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C3E9BACF639235BA134934D39D2412E69F5026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110225   (853869) от 02.03.2017
+
+Abysmal Dawn - Programmed to Consume (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Programmed to Consume
+02. Compulsory Resurrection
+03. Twilight s Fallen
+04. Grotesque Modern Art(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0D15EC8C852CED540F5B360497466AC164FCD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110229   (853870) от 02.03.2017
+
+Carnival In Coal - Fear Not (2001) [FLAC|Lossless|image + .cue] <Metal Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes! We Have No Bananas
+02. Cadillac
+03. 1308.JP.08*
+04. Exit Upon Void(   Читать дальше...   )Жанр: Metal FusionПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3C5EB08CA6F998DFD8B6C0DCDF702A9ED80FF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110232   (853871) от 02.03.2017
+
+Exoto - Beyond The Depths Of Hate (2014) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiness & Hate (instrumental Intro) 01:06
+02. Beyond The Depths Of Hate 03:33
+03. Necromantic Love-Affair 05:39
+04. Final Discorporation 04:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1055EA371CA49F9BB544343F94C0F47154637A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

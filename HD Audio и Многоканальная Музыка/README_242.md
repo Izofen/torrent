@@ -1,26 +1,712 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1034402   (634132) от 13.07.2016
+
+Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Electronic, Worldbeat, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634132.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angola 04:50
+2. Where Love Goes 07:34
+3. Down the Road 05:25
+4. Sweet Sixteen 08:05(   Читать дальше...   )Жанр: electronicПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D724F3FBFE71B008A608526D3D1244099F560C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795044   (634547) от 02.07.2014
+
+The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634547.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Athena (3:49)
+A2. It's Your Turn (3:41)
+A3. Cooks County (3:50)
+A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801018   (638409) от 30.06.2014
+
+Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638409.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Main Attraction (4:44)
+A2. The Wild And The Young (3:40)
+A3. Twilight Hotel (4:37)
+A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228179   (639015) от 30.05.2018
+
+Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision (5:11)
+02. A Kind Of Magic (4:24)
+03. One Year Of Love (4:29)
+04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680855   (639672) от 18.07.2013
+
+Thomas D. A. Tellefsen: Complete Works - 2L Audiophile Reference Recordings (2010-2011) [PCM 5.1, 2.0, 192/24, DTS HD MA 5.1, 96/24|BD-Audio]  (classical music)
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639672.jpg" />
+</div>
+
+
+###  Подробнее
+
+ДИСК ДЛЯ ИСТИННЫХ ГУРМАНОВ ВЫСОЧАЙШЕГО КАЧЕСТВА КЛАССИЧЕСКОЙ МУЗЫКИ!Производство: 2L Audiophile Reference RecordingsЖанр: classical musicПродолжительность: 03:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A59F9CDC9EA7D1FB0C569E3C6C47BF0E3E5EFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517248   (642587) от 03.07.2012
+
+Uriah Heep - Look at Yourself (1971, 2011 Remaster) [DSD 2.0 1/2,8224 MHz | SACD-R]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Look At Yourself    05:10
+2.    I Wanna Be Free    04:00
+3.    July Morning    10:32
+4.    Tears In My Eyes    05:00
+5.    Shadows Of Grief    08:40
+6.    What Should Be Done    04:14
+7.    Love Machine    03:37Жанр: RockПродолжительность: 41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6806EC8E5822C93A05B4328C5FA8DEE2ABE8800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516996   (642757) от 03.07.2012
+
+The Rolling Stones - Metamorphosis (1975, 2002 Remaster) [DSD 2.0 1/2,8224 MHz | SACD-R]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642757.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Out Of Time    03:23
+2.    Don’t Lie To Me    02:02
+3.    Some Things Just Stick In Your Mind    02:27
+4.    Each And Every Day Of The Year    02:49
+5.    Heart Of Stone    03:48
+6.    I’d Much Rather Be With The Boys    02:13
+7.    (Walkin’ Thru The) Sleepy City    02:52
+8.    We’re Wastin’ Time    02:44
+9.    Try A Little Harder    02:20
+10.    I Don’t Know Why aka Don’t Know Why I Love You    03:03(   Читать дальше...   )Жанр: RockПродолжительность: 48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF778A404F00542887DBDF54E3751A79E5155D62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541469   (644503) от 03.04.2022
+
+Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declipped [FLAC 2.0|44/16|tracks + .cue|hand made] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фил Ко́ллинз (англ. Phil Collins; полное имя Фи́лип Дэ́вид Ча́рльз Ко́ллинз, Philip David Charles Collins; 30 января 1951, Лондон) — английский рок/поп певец, барабанщик и автор песен, актёр, продюсер.1981 - Face Value
+1982 - Hello, I Must Be Going!
+1985 - No Jacket Required
+1989 - ...But SeriouslyЖанр: Pop, RockПродолжительность: 10:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265FC7EDDC3705EE2B5C48647E1EA823F44A1131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032145   (645261) от 07.07.2016
+
+Jean Michel Jarre - Equinoxe (1978) [LPCM 2.0|192/24|Vinyl-Rip] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Equinoxe (Part 1) (2:23)
+2. Equinoxe (Part 2) (5:02)
+3. Equinoxe (Part 3) (5:16)
+4. Equinoxe (Part 4) (6:46)(   Читать дальше...   )Жанр: Electronic, AmbientФормат: DVD-AudioПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADE7CB1C58AEE8C79B6F5F374FCB18AEB89C67E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032459   (645567) от 07.07.2016
+
+Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Environmental, World Music>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.   Among The Rafters Of The Earth [05:36]
+2.   Currents [05:01]
+3.   Under Mountain And Valley [06:06]
+4.   Moon Over Crow Mountain – Intro [01:51](   Читать дальше...   )Жанр: new ageПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62C7E8395415FEA0F6E3B8582EDF0D74856C0A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904989   (647073) от 07.06.2015
+
+M.A.S.S. – Mysteria: An Electronic Journey Into Sound. 3 discs (2006) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <electronic music, ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647073.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+1. Karakuri 06:17
+2. Metrosexual Zone 07:41(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:53:16 + 00:53:58 + 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381D115EAE8565989440DFDE3E5F4392A0E3EC78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905762   (649060) от 06.06.2015
+
+The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649060.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Voyager (2:15)
+A2. What Goes Up (3:40)
+A3. The Eagle Will Rise Again (4:22)
+A4. One More River (4:17)(   Читать дальше...   )Производство: Arista / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905001   (650918) от 05.06.2015
+
+U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Speeder
+02 Decadent
+03 House Of Fake
+04 Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 13:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031631   (651363) от 04.07.2016
+
+Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody To Roll (3:59)
+02. Down Home Girl (5:06)
+03. Flying (4:23)
+04. Waiting For The Man (4:59)(   Читать дальше...   )Производство: Vertigo - BT-5286Жанр: Hard RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904948   (653000) от 04.06.2015
+
+Чернавский-Матецкий - Банановые Острова (1983) /2013, Мирумир/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Банановые острова (7:01)
+A2. Зебра (4:13)
+A3. Здравствуй, мальчик Бананан! (7:07)
+A4. Становитесь в очередь за мной (5:02)(   Читать дальше...   )Производство: МирумирЖанр: RockПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514977   (655621) от 26.06.2012
+
+Yehudi Menuhin - Stephane Grappelli - Tea for two (1978)  [FLAC 2.0 24/96|image + cue (Vinyl rip)]<Classical, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655621.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Crazy Rhythm – Josef Meyer, Roger Wolfe Kahn [02:49]
+A2 - The Man I Love – George Gershwin [04:41]
+A3 - Tea For Two – Vincent Youmans [03:37]
+A4 - Highgate Village – Stephane Grappelli [04:54]
+A5 - Air On A Shoe String – Max Harris [03:38]
+A6 - A Foggy Day – George Gershwin 03:44]
+
+B1 - Viva Vivaldi – Max Harris [02:22]
+B2 - My Funny Valentine – Richard Rogers [04:05]
+B3 - Limehouse Blues – Philipp Braham [02:53](   Читать дальше...   )Жанр: Classical, JazzФормат: Vinyl 12"Продолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140156   (655725) от 06.06.2017
+
+Александр Вертинский - Коллекция винила (1969-1989) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Chanson, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Минуточка
+02. Испано-Сюиза
+03. Над розовым морем
+04. Пред ликом Родины(   Читать дальше...   )Жанр: Chanson, Retro
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140331   (655727) от 06.06.2017
+
+Александр Вертинский - Печальные песни (перепись с пластинок зарубежных и советских фирм грамзаписи, 1930-1944 гг.) Unofficial Release [FLAC 1.0|44,1/16|image+.cue|MC-Rip] <Chanson, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Письмо к даме (запись 1930 года, Германия)
+02. Моя звезда (запись 1930 года, Германия)
+03. О всех усталых (запись 1930 года, Германия)(   Читать дальше...   )Жанр: Chanson, RetroПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D6D6EEB67041995F7BCF1A55D3711D31481A67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539099   (656048) от 27.03.2022
+
+The Rolling Stones - Exile On Main St (1972) 2LP, Reissue 1983 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656048.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rocks Off
+A2 Rip This Joint
+A3 Shake Your Hips
+A4 Casino Boogie(   Читать дальше...   )Жанр: Blues Rock, Rock & RollПродолжительность: 01:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D764B8614852AE8D4CF9E037F0249B66EE2618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538996   (656074) от 27.03.2022
+
+Cream - The Best Of Cream Live (1972) 2LP, Compilation, Reissue, Repress 1975 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656074.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1:
+A1 N.S.U.
+A2 Sleepy Time Time
+A3 Lawdy Mama(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918E67E33F56D3AA27E0BBB966BFD9F4CA9BA7BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226259   (656456) от 19.05.2018
+
+Paul Mauriat - Holidays & Penelope (2017) 1972-73 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Penelope
+
+01. 	Penélope (L'eternel Retour)
+02. 	Melancholy Man(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE26EC7D392DF3DFF3831D917387D952402A09E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140078   (657799) от 04.06.2017
+
+Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <IDM, Techno, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (04:41)
+ 02. Untitled (03:47)
+ 03. Untitled (03:44)
+ 04. Untitled (04:01)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CC4366AA3FAE3DEDC2495DB02AAB0255467659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139948   (657803) от 04.06.2017
+
+Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opuspocus (03:45)
+02. Positive (04:28)
+03. No Job (03:19)
+04. The Opusition (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0720118287D941012CCD4F6C930099B66F4C1C33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903609   (657863) от 31.05.2015
+
+Зоопарк - Белая Полоса (1984) /1988, Мелодия/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Буги-Вуги Каждый День (2:21)
+A2. Белая Полоса (2:52)
+A3. Песня Простого Человека (2:45)
+A4. Когда Я Знал Тебя Совсем Другой (2:36)(   Читать дальше...   )Производство: МелодияЖанр: RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139527   (659994) от 02.06.2017
+
+Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. No Son Of Mine (6:40)
+A2. Jesus He Knows Me (4:16)
+A3. Driving The Last Spike (10:10)
+B1. I Can't Dance (4:01)(   Читать дальше...   )Производство: Virgin Records - GEN LP3Жанр: Progressive RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138474   (663044) от 30.05.2017
+
+KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Was Made For Lovin' You (7:54)
+2. Charisma (4:26)Жанр: Hard Rock, GlamПродолжительность: 00:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

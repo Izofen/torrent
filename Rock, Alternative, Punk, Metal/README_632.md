@@ -1,26 +1,710 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1577802   (350403) от 21.09.2022
+
+Aegeon - Nocturnal Glorification (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transient, Ethereal Veil
+02. Glorification Of The New Pandemia
+03. From The Sins In Perpetual Darkness
+04. Awakening(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26EF8F20F0E63428FF6DADCEA1C9B12936A9AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577800   (350404) от 21.09.2022
+
+4 Chambers Of Ivory - ...A Bitter Taste Of Sin (2001) EP [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (00:50)
+02. The Devil Inside (02:40)
+03. Closed Doors (04:40)
+04. Almost Sterile (04:00)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C2BB7FEAF60C9970BA51DEEA8026A69C64BCE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579358   (350591) от 22.11.2012
+
+Snakadaktal - Snakadaktal [EP] (2011) [MP3|320 кб/с]<indie, alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up
+02. Chimera
+03. Air
+04. Carnival (Lobster Monster)
+05. Skin
+06. BoyЖанр: indie, alternativeПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52393B9599881737ADB0935A4B11C68D7E996FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578987   (350736) от 22.11.2012
+
+Группа - Весенняя (макси-сингл) (2012) [MP3|320 кб/с]<pop-rock, pop-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350736.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Весенняя
+2. Катя не возьмет
+3. Музыка нас связала (Мираж cover)
+4. Трудовые будни
+5. Поворот
+6. Весенняя (sax version)Жанр: pop-rock, pop-punkПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224B9211D25172599740947F6BEC937B73266E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418235   (350793) от 23.10.2020
+
+Борис Гребенщиков (БГ) - Услышь меня, хорошая (2020) [MP3|192 Kbps] <Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Случай В Ватикане [00:01:57]
+02 Лейся, песня [00:02:05]
+03 Песня О Встречном [00:04:15]
+04 Славное море, священный Байкал [00:04:19](   Читать дальше...   )Жанр: FolkПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3792BD72D654FCB0B1B79FDC903846070831D2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578984   (350846) от 22.11.2012
+
+Karla - Karla (1990) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Outsider (3:46)
+02.  Love Won't Wait (4:16)
+03.  In The Night (2:58)
+04.  Hungry For Your Love (3:44)
+05.  I'm All Over You (3:55)
+06.  Hold On (3:50)
+07.  Daddy (4:07)
+08.  Lot To Learn (3:51)
+09.  Season's Change (3:20)
+10.  Fashion (3:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE28F739D616985121A28BDA6C8D025B5B9E1C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418090   (350938) от 23.10.2020
+
+Би-2 - Нечётный воин 4. Часть 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2, Manizha - Паганини в метро
+2. Инна Желанная, Игорь Журавлев - Медленный как снег
+3. Ренарс Кауперс - Мы были там
+4. Би-2, Сабрина - Странный танец(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979F5A0F91124CBE8C19A7B8E0D830E3CDA5D828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418215   (351088) от 23.10.2020
+
+Bring Me the Horizon - Post Human: Survival Horror (2020) [MP3|320 Kbps] <Post-Hardcore, Alt.Rock, Industrial Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dear Diary, [00:02:44]
+02 Parasite Eve [00:04:51]
+03 Teardrops [00:03:35]
+04 Obey (with YUNGBLUD) [00:03:40](   Читать дальше...   )Жанр: Post-Hardcore, Alt.Rock, Industrial Rock, ElectronicПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3591FC9840286A4B3AD2398EF47B5BBAF57B3591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413970   (351107) от 23.10.2020
+
+Nothing But Thieves - Collection 6 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351107.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lover, Please Stay (Live) 3:40
+2. Wake Up Call 2:46
+3. Ban All the Music 2:52
+4. Holding Out for a Hero (From the Trailer for "Vikings" - Series 2) 4:10(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Hard RockПродолжительность: 04:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3681848680D6B2F173C687496E6F29E815A16077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418128   (351225) от 23.10.2020
+
+Leaves' Eyes - The Last Viking (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351225.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Death Of A King
+02. Chain Of The Golden Horn
+03. Dark Love Empress(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FBAAAA27FEC7694DEE180EC074E83CD32439B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418084   (351238) от 23.10.2020
+
+ГРОМЫКА - 20000 ЛЕТ ПОД ВОДОЙ (2020) [MP3|320 Kbps] <Heavy Psychedelic Twist>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Питекантропы
+2. Плеоназмы
+3. Колдунами и цунами
+4. Звёзд немало(   Читать дальше...   )Жанр: Heavy Psychedelic TwistПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7642EBB5B05B4E26F2E5A95815A888B2ECFE13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418086   (351244) от 23.10.2020
+
+Пётр Налич - Morra (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flowerbed
+2. Lady Bear
+3. Baking Brothers
+4. Early Days(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777ACCF87B571B35E59D156B47AE5E595ECD36BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179018   (351266) от 30.10.2017
+
+Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only One Will Die
+02. Red Before Black
+03. Code of the Slashers
+04. Shedding My Human Skin(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702E97A87715AC32B3E983BAE6147BB294404C53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179213   (351274) от 30.10.2017
+
+Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terrestrial Demise 04:49
+02. Terrorborn 03:34
+03. Color Me White 02:48
+04. Into Doom 05:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA09189B4AEDDD54987456837B4555600F87243C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418097   (351488) от 23.10.2020
+
+Hexx - Entangled In Sin (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watching Me Burn (4:33)
+02. Entangled in Sin (3:24)
+03. Vultures Gather Round (3:28)
+04. Beautiful Lies (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C7C6912D84807EF4735D92923F8976EA6142EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179119   (351525) от 30.10.2017
+
+Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zionism (The Reaping) (0:44)
+02. Twisted Logic (3:24)
+03. The Underground (3:39)
+04. General Guidance (4:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953065   (351545) от 03.11.2015
+
+Sniff 'n' the Tears - A Best Of (1991) [FLAC|image+.cue]<Pop Rock & Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driver's Seat (Single Version) 3:59
+02. What Can Daddy Do 3:16
+03. The Thrill Of It All 3:38
+04. Looking For You 4:26(   Читать дальше...   )Жанр: Pop Rock & Soft RockПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EC32A88060890BF9B6B1CA66B70ECB3CD37EBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953112   (351548) от 03.11.2015
+
+Juicy Lucy - Juicy Lucy (1969) / 2006, Air Mail Archive / [MP3|320 кб/с]<Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mississippi Woman
+2. Who Do You Love
+3. Sheґs Mine, Sheґs Yours
+4. Just One Time(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B2B65BDBAE8F5A0668DE070992EF464FBE88DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953004   (351693) от 03.11.2015
+
+Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night’s Makeup
+02. Broken Heart
+03. Highway
+04. Whiskey & Whitley(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952914   (351783) от 03.11.2015
+
+Sniff 'n' The Tears - No Damage Done (1992) [FLAC|image+.cue]<Pop Rock & Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Is A Cold Stone 3:55
+02. The Key 5:22
+03. Swoon 05:04
+04. Only Love To Tempt Me 3:40(   Читать дальше...   )Жанр: Pop Rock & Soft RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B665A28B91D5C41A7541B5D43003CB030E774F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953235   (351787) от 03.11.2015
+
+Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psychedelic, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawlin' Kingsnake
+02. Underground River
+03. Bow'd Up
+04. For Suki(   Читать дальше...   )Жанр: Psychedelic, Blues RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953127   (351790) от 03.11.2015
+
+Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Our Souls
+02. Staring Organic Stars
+03. Summoning Ocean's Son
+04. Suicide: Open Solution(   Читать дальше...   )Жанр: MDMПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256739   (352000) от 23.10.2018
+
+David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cue] <Folk rock, alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Triptych
+2. All in the Palm
+3. The Tell
+4. Helios(   Читать дальше...   )Жанр: Folk rock, alternativeПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0699430F4950691F1FDEE338AD6619B211AAE042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072731   (352010) от 13.11.2016
+
+LaScala - Repeat (2016) EP [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352010.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лирическом плане лейтмотивом EP стала дорога, которая пройдёт красной нитью через все композиции грядущего альбома. С музыкальной точки зрения мы остались верны своей стилистике: мощные гитарные риффы, нотки латинской музыки и электроника. Мы утяжелили звук и общее настроение песен. Не обошлось и без экспериментов, о которых нет смысла рассказывать, их нужно просто (   Читать дальше...   )1. Repeat
+2. Шаг вперёд
+3. РеваншЖанр: Alternative RockПродолжительность: 00:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC0D3B7D0999252D8456666C9724423608FB244
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072402   (352018) от 13.11.2016
+
+Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demons In You (with Alissa White-Gluz)
+02. Demons In You (Tarja Solo Version)
+03. Demons In You (Alissa Lead Vocals Version)Жанр: Symphonic MetalПродолжительность: 00:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08ED30B33D5735AE1F2D1CF49F5A11BAF374DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629568   (352045) от 20.09.2022
+
+VA - Легенди химерного краю (2001) 2CD [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Плач Єремії - Срібне поле (05:45)
+02. Плач Єремії - Вона (04:36)
+03. Віка Врадій - Шахтарські бугі (03:00)
+04. Віка Врадій - Намалюй мені ніч (04:17)(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74478F9C47FC000469EBFD03D16C1F84DE8EF0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

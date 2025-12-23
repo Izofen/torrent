@@ -1,26 +1,669 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1490647   (917360) от 21.08.2021
+
+Яндекс.Браузер 21.8.0.1373 / 21.8.0.1379 (x32/x64) Portable by Cento8 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A737B6AA54D76CCCFF887A6FCBD1FAFFEA89257
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096322   (917361) от 25.01.2017
+
+Северные границы / Northern Borders (2013) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина отправляет сына Остина на ферму в Вермонт к своим эксцентричным родителям. Здесь десятилетний мальчик испытает невероятные приключения и раскроет старую семейную тайну..Производство: СШАЖанр: ДрамаРежиссер: Джей КрэвенАктеры: Брюс Дерн, Женевьев Бюжо, Шеймас Дэви-Фицпатрик, Том Бодетт, Брент Кроуфорд, Расти Де Уиз, Джим Фицпатрик, Джон Грисмер, Джессика Хехт, Алисия Хант, Марк Маргулис, Тара О`Рейли, Кэйли Ронейн, Джон Ротман, Нетти Лэйн, Джей О. СэндерсПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF5062D93E437DB5D6D05686B1CF39AC056A9B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989179   (917362) от 22.02.2016
+
+Enoch - Sumerian Chants (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me by My Dream Name
+02. The Tragic Defeat of Dur Entash (The Third Vision of Assurbanipal, Last King of Assyria)
+03. Black Night over Unfigured Distances
+04. Blood for the Blood God (And Skulls for the Skull Throne)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0998AF451824EDED7C492CEFA2ED05362C50E85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490722   (917363) от 21.08.2021
+
+Елена Саакова | Книга умной мамы. Воспитание со здравым смыслом + юридические лайфхаки по пособиям, выплатам, правам детей и родителей (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь меняется в одно мгновение, когда женщина узнает о беременности, в голове пролетают тысячи вопросов, на которые нужно найти правильный, здравый ответ. Как выносить здорового ребенка? Что можно, а что нельзя? Мне теперь отменять занятия в зале? Как выбрать врача? А как сказать о предстоящем декрете на работе? Какие права есть у меня в роддоме? Думаете, рождением (   Читать дальше...   )Жанр: Воспитание детей/Литература для родителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDC27076F6EB45A734396758B03EE282B60E001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989178   (917365) от 22.02.2016
+
+Dodsferd - A Breed of Parasites (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Unbearable Pain
+02. Days of Mental Deterioration
+03. ...Till the Day You Die
+04. Eternal Bliss... Eternal Death (Judas Iscariot cover)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147F1B46FBBB50B9CBFFCD1C33A102419AC0D1AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490503   (917366) от 21.08.2021
+
+Владимир Герлах | Изменник (2021) [MP3, Владимир Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автобиографический роман «Изменник» написан на основе дневниковых записей 1939 - 1945 годов. Автор книги - русский белый офицер, эмигрант, в годы Второй мировой войны ставший обер-лейтенантом, командиром 654-го Восточного батальона Вермахта. Роман был написан в память о русских людях, служивших с автором и ставших жертвами страшных событий ХХ века. Живой и колоритный (   Читать дальше...   )Жанр: PоманПродолжительность: 29:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9B9E202B09C0030716D88AB112BD8B7A2947F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757520   (917367) от 16.02.2014
+
+Олдбой / Oldboy (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о рекламщике, которого некто похитил и 20 лет продержал в одиночной камере, никак не объясняя своих мотивов. Столь же неожиданно получив однажды свободу, он решает разыскать того, кто организовал его похищение, и обнаруживает, что неизвестный злодей продолжает мучить его загадками. Погоня за местью приводит его к юной социальной работнице и некоему (   Читать дальше...   )Производство: США | Good Universe, Vertigo Entertainment, 40 Acres & A Mule FilmworksЖанр: Триллер, Драма, Детектив, БоевикРежиссер: Спайк ЛиАктеры: Джош Бролин, Элизабет Олсен, Шарлто Копли, Сэмюэл Л. Джексон, Майкл Империоли, Пом Клементьефф, Джеймс Рэнсон, Макс Казелла, Линда Эмонд, Элвис Ноласко, Рами Малек, Лэнс Реддик, Ханна Уэр ...Перевод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AAEA1C08ECDC7F85EF4E7090250BE96D4448A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989504   (917368) от 22.02.2016
+
+Karasol - In Your Wild Garden (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan
+02. Desto Fez Santa Maria
+03. Spain
+04. In Your Wild Garden(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC39455F6B06DE736AEAE00AAD0D4249727C471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490515   (917369) от 21.08.2021
+
+VA - Ocean Sound: Actual Trance Set (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Euphoric Heart - Our Homeworld
+002. Marcell Stone And Floe - Sensory
+003. Global Mind - Moving Sky
+004. Rodrigo Deem - Mighty(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4941BF3F309F4007061A2C8CE0F9DFAF028A622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757345   (917370) от 16.02.2014
+
+В диких условиях / Into the Wild (2007) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917370.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания колледжа Эмори один из его ведущих студентов и атлетов Кристофер МакКэндлесс оставляет все свое имущество, отдает накопленные за время учебы 24 тыс. долларов в благотворительный фонд, и отправляется автостопом на Аляску, чтобы окунуться в дикую природу. По дороге Кристофер знакомится с разными людьми, так или иначе влияющими на его жизнь.Производство: СШАЖанр: Драма, Приключения, БиографияРежиссер: Шон ПеннАктеры: Эмиль Хирш, Хэл Холбрук, Марша Гей Харден, Уильям Хёрт, Джена Мэлоун, Брайан Х. Дьеркер, Кэтрин Кинер, Винс Вон, Кристен СтюартПеревод: Профессиональный (многоголосый, закадровый) НТВ+Язык субтитров: Русский, АнглийскийПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617F1CE17B40AF9FB236285E6469209B24FD8CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989226   (917371) от 22.02.2016
+
+Conqueror - Madame Zelle (2010) [MP3|320 кб/с] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Margaretha  14:47
+02. Indonesia  05:22
+03. Occhio Dell' Alba  04:56
+04. Fascino Proibito  07:16(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEE7CB94B2C281891EC6A42CB6958B7370A7EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096814   (917372) от 25.01.2017
+
+Одна шпионка и две бомбы / Deux bombes pour une espionne (2015) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она находилась на нелегальной работе в Германии во времена нацизма, руководила разветвленной агентурной сетью в США в годы Второй мировой войны, многократно подвергалась смертельной опасности и никогда не знала, что такое провал. И именно ей, советской разведчице Елизавете Зарубиной, удалось получить самую секретную информацию, ускорившую создание в СССР атомного (   Читать дальше...   )Телекомпания: Франция / AnaprodЖанр: Документальный, История, БиографияРежиссер: Жерар ПюшморельПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C943B065F8572CE2E3A16DC3AF77D6CFD7E57052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490512   (917374) от 21.08.2021
+
+VA - HGM: Deep House Season (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Budrick - Starfish
+002. Vince Guidotti - Luftzug
+003. Tolero - Parabens
+004. Dego - This Is Message To You(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D417680A9A8D099D52F191F28841FAC685B25898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096691   (917375) от 25.01.2017
+
+VA - Автозвук. Отборный зимний хит. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Макс Барских - Пьяная Луна 3:20
+002. The Weeknd - Love To Lay 3:44
+003. Вик - Вдыхаю Твой Холод 4:23
+004. Delerium Feat. Phildel - Zero 4:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8013F283B0C9EA67EA0733E95995E85E7BEB8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989108   (917376) от 22.02.2016
+
+Dennis Rollins' Velocity Trio - Symbiosis (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Funk, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia
+02. Reverence
+03. Symbiosis
+04. Hark!(   Читать дальше...   )Жанр: Contemporary Jazz, Funk, FusionПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07084B66E5A40DF21A29E248E714A5380F8D211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096894   (917378) от 25.01.2017
+
+Bulk Crap Uninstaller 3.6.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор программ, который позволит удалить без следов и остатков любое приложение на Вашем компьютере. Как известно, любая программа в процессе работы заполняет ПК некими данными: записи в реестре, созданные папки, файлы и т.д. Если Вы просто удаляете потом такое приложение, то некий мусор все равно остается в системе, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61E93C7C994B8E15541E4EFDB81E4F522D6D009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989187   (917379) от 22.02.2016
+
+Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Barbarians
+02. Blood, Steel and Glory
+03. Aquilonian Battlecry
+04. The Mountain of Crom(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39FFC64D750A7C1124A78D8A4CAA751A9FD6431
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989555   (917381) от 22.02.2016
+
+VA - Les Grooves: Selected Vibes for Cool People (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Project - Deep Night Alone - Astral Deep Mix
+02. Le Griffe - Touring Fat - Pfister Mix
+03. Aquamind - Lopresson - Fine Gold Mix
+04. Rainold Monlove - Old the Thait - Sunset Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2F77C9BDE85400F0A9380C7FE38CAB43BD209D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092559   (917383) от 25.01.2017
+
+Младший Боннер / Junior Bonner (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cтареющий ковбой родео возвращается в родной городок Прескотт в штате Аризона и понимает, что все в мире меняется. С печалью он узнает, что его родители разошлись, а его брат разбогател, распродавая по кускам землю отца. Молодой Боннер пытается вернуть себе самоуважение, укротив ранее непобедимого быка на родео, проводимом в городке в честь 4-го июля…Производство: США / American Broadcasting Company (ABC), Joe Wizan-Booth Gardner Productions, Solar ProductionsЖанр: Драма, ВестернРежиссер: Сэм ПекинпаАктеры: Стив МакКуин, Роберт Престон, Ида Лупино, Бен Джонсон, Джо Дон Бейкер, Барбара Ли, Мэри Мерфи, Билл МакКинни, Даб Тейлор, Сандра Дил, Дон ’Красный’ БэрриПеревод: Многоголосый закадровый, одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:40:246
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B26516ACC5C37FCD87828A0AE5AA64FFE597115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490286   (917384) от 21.08.2021
+
+Korolova - Live @ FIVE Palm Jumeirah Hotel Dubai, United Arab Emirates (2021-08-13) [MP3|~245 Kbps (V0)] <Progressive House, Deep House>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elderbrook & Bob Moses - Inner Light
+02. Spada ft. Britt Lari - I Wanna Feel Again (Alexander Alar & Korolova Remix)
+03. Lumme & Miguel Lautaro - Orphic
+04. Asher Swissa & Imar - Burning(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989284   (917385) от 22.02.2016
+
+VA - RLX 9: The Chill out Collection (2015) [MP3|128-320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Coffee Shop (Short Edition) [04:14]
+02. Jens Buchert - Silver Session [05:40]
+03. C.Cil - Calm And Quiet [02:59]
+04. Fineconfine - Digital Night [05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1135E26586784265EE17E1F1900304E39CD867A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490535   (917386) от 21.08.2021
+
+Италия / Italy (2020) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам действительно повезло путешествовать по Тоскане в этот сумасшедший 2020 год и впервые познакомиться с этими удивительными городами.Производство: ИталияЖанр: Документальный, видовойРежиссер: Hello HorizonПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B42F9F17EE68B9D39D595F524146D4D6916A5E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989182   (917387) от 22.02.2016
+
+Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dark Shadows Room
+02. Lady of the Candles
+03. The Room of a Million Voices
+04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917911   (917388) от 25.01.2017
+
+VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917388.jpg" />
+</div>
+
+
+###  Подробнее
+
+О бразильских мелодиях многие из нас судят по музыкальному сопровождению бразильских же сериалов. Конечно, это большой пласт музыкальной культуры. Но чтоб убедить всех вас в том, что не только сериалы составляют бразильскую музыкальную культуру предлагаю послушать этот сборник от Sony Music Entertainment. Здесь вы услышите и джазовые интерпретации Maysa и представителей (   Читать дальше...   )01. Gal Costa - Garota De Ipanema (Ao Vivo)  (3:42)
+02. Alcione - Garoto Maroto  (4:03)
+03. Candeia e Yvonne Lara - Sou Mais O Samba  (3:15)
+04. Jacob Do Bandolim - Doce De Coco  (2:52)(   Читать дальше...   )Жанр: Dance, Pop, Jazz, Rock, LatinПродолжительность: 03:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096794   (917390) от 25.01.2017
+
+Display Driver Uninstaller 17.0.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B937AC6285D3A693A79E86C9FE087FEFB24796D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989017   (917391) от 22.02.2016
+
+Wolfgang Dauner Quintet - The Oimels (1969) 2007, MPS[FLAC|Lossless|tracks + .cue] <Modern Creative, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oh Baby, I Don't Love You Anymore [04:25]
+ 02.Take Off Your Clothes To Feel The Setting Sun [04:06]
+ 03.My Man's Gone Now [03:31]
+ 04.Come On In On In [03:38](   Читать дальше...   )Жанр: Modern Creative, World FusionПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57F7C2436CADB5E06828796CE6B819BDAC64263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

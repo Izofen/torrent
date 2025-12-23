@@ -1,26 +1,672 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 550160   (458356) от 22.09.2012
+
+Виталий Романов | Вариант "Зомби" [2007] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завербовавшись работать на буровую "Норднефтегаза" в районе Баренцева моря, питерский студент Дмитрий Клоков даже не подозревал, что обрек себя на страшные испытания. Доставленным на уединенный остров вахтовым рабочим предстоит помимо воли участвовать в секретных исследованиях по изменению человеческой природы. Когда эксперимент выходит из-под контроля и скрывающееся под вывеской "Норднефтегаза" ведомство решает уничтожить его плоды, генетически измененные супермены вырываются на волю...Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB00F53C1100E9F6804F70440C11570C139B277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549999   (458357) от 22.09.2012
+
+Обещание Джони / Janji Joni (2005) [H.264] DVDRip [ID / RU, EN, MS Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джони - кинокурьер. И это для него не просто работа, но и призвание. Доставлять катушки с пленкой в кинотеатры точно в срок для него не только обязанность, но и обещание, данное самому себе. И вот, в один из рейсов, кажется будто весь мир сговорился против него...Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Джоко Анвар / Joko AnwarАктеры: Николас Сапутра, Мариана Рената, Сурья СапутраПеревод: ОтсутствуетЯзык субтитров: русский, английский, малайскийПродолжительность: 01:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8244DD06B01CD3D9E7FFA50A935DA635B99AB194
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550634   (458361) от 22.09.2012
+
+В.И.Ютов | "Каскад" и "Омега" [2003] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга В.И. Ютова — сборник воспоминаний, очерков, интервью людей, прошедших горнила "малой" войны в Афганистане в составе разведывательно-диверсионных подразделений "Каскад" и "Омега" — элите отечественного спецназа.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243762899FD9B974FCE8B5E15D5A1A3D69BFFD17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550336   (458362) от 22.09.2012
+
+The 300 megaPack wallpapers (22.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE88C8E99A4255489B885B0CE06296952D240E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550379   (458364) от 22.09.2012
+
+VA - Zen Chillout Collection (2008) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458364.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cell - Spiritual Moves
+02. Vir Unis - Light Curve
+03. Ochi Brothers - Flowing Synergy
+04. Kalpataru Tree - Dark Clouds
+05. Solar Fields - Velvet Reptile
+06. Kalpataru Tree - Spiral Snakeskin
+07. Vibrasphere - Abra
+08. Gravity South - Zimamele
+09. Paul Kwitek - In The Past(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EA1756252673280C93702E80EECBDD2FD2F7B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550366   (458365) от 22.09.2012
+
+Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550358   (458367) от 22.09.2012
+
+Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550338   (458368) от 22.09.2012
+
+100 Mix Wallpapers (22.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE1E45C13E1D924F75763DC40880DBCEDCD3729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550598   (458370) от 22.09.2012
+
+Профессия  репортер. Вольная каторга (2012.09.22) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458370.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Есть край, где золото валяется под ногами…
+Как не сойти с ума от внезапного богатства и не стать рабом золотых гор?Жанр: ДокументальныйПродолжительность: ~ 00:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F68CF12A72ECDF0C60A3469C06E02A1AE07DC41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550361   (458371) от 22.09.2012
+
+Журнал | Добрые советы. Спецвыпуск №1 [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный выпуск женского журнала "Добрые советы" посвящен теме - «Моя Украина: Карпаты». Издание предлагает своим читательницам лучшие маршруты от Львова до Ужгорода. Вы узнаете куда поехать, чтобы отлично отдохнуть, оздоровиться, зарядиться энергией и яркими впечатлениями. В номере: лыжные курорты на любой вкус; 10 особых мест силы, которые исполняют желания; народные рецепты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE35318EC26574F8D63621BCF9A2CD8966377E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704111   (458373) от 26.09.2013
+
+Журнал | Шитье и крой (ШиК) №10 [+выкройки] (октябрь 2013) [PDF+JPEG]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Шитье и крой» адресован тем, кто следит за модой и создает гардероб своими руками. Любительницы шитья найдут здесь интересные модели от европейских и латиноамериканских дизайнеров плюс удобные выкройки с подробным описанием работы. Более того – он помогает читательницам создать свой собственный модный образ, дополненный модными аксессуарами.Формат: PDF+JPEG (выкройки)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E38B40A41F77D7EE5CE467EFEBC41E072AC445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704107   (458380) от 26.09.2013
+
+Журнал | Шитье и крой (ШиК) №9 [+выкройки] (сентябрь 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Шитье и крой» адресован тем, кто следит за модой и создает гардероб своими руками. Любительницы шитья найдут здесь интересные модели от европейских и латиноамериканских дизайнеров плюс удобные выкройки с подробным описанием работы. Более того – он помогает читательницам создать свой собственный модный образ, дополненный модными аксессуарами. Выкройки в журнале.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5486A792949B391F0EB7A27727A7D1BDC033B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704160   (458388) от 26.09.2013
+
+Векторный клипарт - 2014 год Лошади 8 / 2014 Year of the Horse 8 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458388.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 год ЛошадиФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CEDEFEF5021DF5F5F1CE36A790F04F65C3FF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826130   (458394) от 28.09.2014
+
+Журнал | Forbes [Россия] №10 (125) (октябрь 2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458394.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Forbes» - влиятельный журнал о бизнесе, экономике, финансах, карьере и стиле жизни, который имеет непосредственный доступ к политикам и первым лицам компаний, получая информацию от самых осведомленных источников. Издание публикует авторитетные рейтинги, пишет о российском бизнесе, успешных предпринимателях и инвестициях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA63804C13E909DB2B467E948D414C3179935C2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408039   (458398) от 11.09.2020
+
+Winter's Verge - The Ballad of James Tig (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Begins (6:56)
+02. A Thousand Souls (4:56)
+03. Dead Reckoning (4:40)
+04. Timeless (6:56)(   Читать дальше...   )Жанр: Power Metal
+Страна исполнителя: Cyprus
+Издатель-лейбл: Pride & Joy MusicПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A726A1FEB53E6057A08D3175FB66C2B70C971FA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408234   (458400) от 11.09.2020
+
+VA - Kate Miles - Voice Of Suanda (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Me Fall (Extended Mix)
+02. Home (Aimoon Extended Remix)
+03. Like A Miracle (Denis Kenzo Extended Remix)
+04. Your Love (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBDC33A779834EBEB9883EF2A4DA30546D64A2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408195   (458402) от 11.09.2020
+
+VA - Alter Ego Records: Vocalize 06 (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colonial One feat. Isa Bell - Always On My Mind (Original Mix)
+02. Ahmet Atasever feat. Monty Wells - Trading Halos (Sunset Remix)
+03. Kenneth Thomas feat. Colleen Riley - Ghost In The Machine 2014 (Original Mix)
+04. Somna feat. Ash Richards - Wherever You Go (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE5D30516C086B95716F355C4CE1578E1D83C0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408242   (458404) от 11.09.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига A. Группа 3. 2-й тур. Франция — Хорватия (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+08 сентября 2020, вторник. 21:45 МСК
+Лига A. Группа 3. 2-й тур
+Франция — Хорватия(   Читать дальше...   )Телекомпания: Матч! ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900627A67E235BF010548E5ECEB81AD6DABD2F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408027   (458406) от 11.09.2020
+
+Mastodon - Medium Rarities (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Torches (4:23)
+02. A Commotion (4:15)
+03. Asleep in the Deep (Instrumental) (6:13)
+04. Capillarian Crest (Live) (4:20)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF60074BABBFF55A1C9F959D20F7D91668ACBB2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408281   (458408) от 11.09.2020
+
+Nils Wülker - Go (2020) [AAC|~283 Kbps]<Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distorting Time (4:51)
+02. Hidden Intentions (4:13)
+03. The You of Now (4:36)
+04. Hybrid (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CBEADC88B0052D60952A1BBF8528B17E546E8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408003   (458409) от 11.09.2020
+
+Prizm - All Night (2020) [AAC|~329 Kbps]<Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night (3:49) ~346kbps
+02. Disco Biscuit (4:00) ~336kbps
+03. Lose You (3:19) ~338kbps
+04. Mine (3:51) ~337kbps(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68EDC630E435A89D67ACCD8D4ED1B0D5036900B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408235   (458411) от 11.09.2020
+
+Illdisposed - Reveal Your Soul For The Dead (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reveal Your Soul... (01:34)
+02. ...For The Dead (04:06)
+03. With Hate (02:56)
+04. This Is Our Calling For The End (04:14)(   Читать дальше...   )Жанр: Melodic Death Metal, Groove MetalПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54CBB763462614859E598C464ECAF68BF9C7056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408304   (458413) от 11.09.2020
+
+VA - Astral Dimension (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458413.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ozymandias - Sea Emperor
+002. Makai - Are We Dreaming
+003. Sensifeel - Insane
+004. Volcano - What Is Life(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC8F943C0A86030F55B5040F5D34D7117BFE66F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408193   (458415) от 11.09.2020
+
+Protest The Hero - Palimpsest (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Migrant Mother (3:50)
+02. The Canary (4:28)
+03. From The Sky (7:16)
+04. All Hands (4:40)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445372DDDBA6C5CC5EA5BD8BAF1414292EB678A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408067   (458419) от 11.09.2020
+
+Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Requiem (03:53)
+02. Condemnation (04:02)
+03. The Divine (04:18)
+04. Edge Of The World (05:19)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1510F37CC7422D391C2647224FD83B5121D8BE3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408166   (458421) от 11.09.2020
+
+Chris Woods - From Here To Eternity (1974) 2019, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Here to Eternity [6:18]
+02. Invitation [4:13]
+03. Smoke Gets in Your Eyes [9:02]
+04. You Can't Win None of 'Em [4:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547AD92FE86764B67500C7901C47D23A500D2D72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

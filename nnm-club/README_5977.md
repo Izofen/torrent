@@ -1,26 +1,681 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1592729   (183233) от 23.11.2022
+
+Футбол. Чемпионат мира. Катар 2022. Группа "F". 1й тур. Марокко - Хорватия (23.11.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Чемпионат мира. Катар 2022. Группа "F". 1й тур. Марокко - Хорватия (23.11.2022)
+СУДЬЯ Рапаллини Фернандо (Аргентина)
+Судья на линии 1: Белатти Хуан Пабло (Аргентина)
+Судья на линии 2: Бонфа Диего Ямиль (Аргентина)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20ECEB445180E071FA3EF5A9442DE560FE034ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592620   (183235) от 23.11.2022
+
+Футбол. Чемпионат мира. Катар 2022. Группа "D". 1й тур. Франция - Австралия (22.11.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Чемпионат мира. Катар 2022. Группа "D". 1й тур. Франция - Австралия (22.11.2022)
+СУДЬЯ Гомес Виктор (ЮАР)
+Судья на линии 1: Сивела Захеле (ЮАР)
+Судья на линии 2: Пхатсоане Соуру (Лесото)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E0C1B46CAB03ACED590D0E75430D72FFFF82DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665163   (183237) от 29.09.2023
+
+Within Temptation - Live In Hell (2023) Compilation [FLAC|Lossless|image + .cue] <Gothic Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wireless (Live at Hellfest 2023) 04:45
+02. Bleed Out (Live at Hellfest 2023) 04:37
+03. Entertain You (Live at Hellfest 2023) 03:31
+04. The Purge (Live at Summer Breeze 2022) 04:15(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63480C703C8101ECDA2E55616E70E7469360F656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427428   (183238) от 28.11.2020
+
+Аквариум & Lee "Scratch" Perry - Dub in Aquarium (Bonus Game) (2020) [FLAC|Lossless|WEB-DL|tracks] <Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вавилон III
+2. Вавилон IV
+3. Вавилон V
+4. Аристократ Riddim(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A29419B6D09A5834498E2C2463FBA7B2ED6BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665029   (183241) от 29.09.2023
+
+VA - Electrónica Para Fiestas 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Me [00:02:46]
+02. Diva [00:02:45]
+03. Games [00:03:10]
+04. Jamba Jamba [00:03:29](   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65466A989789BCAD3F223620D1E5D2465573344B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427528   (183242) от 28.11.2020
+
+VA - Compilation of the Year (2020) [FLAC|Lossless|WEB-DL|tracks] <Pure Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Pure Progressive HouseПродолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7085EEACD9715F922CF93E2C9E1948182411AC6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592543   (183243) от 23.11.2022
+
+Mister Earthbound - Shadow Work (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Swamp Blues, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not To Know
+02. So Many Ways
+03. Coffin Callin
+04. Hot Foot Powder(   Читать дальше...   )Жанр: Heavy Psych, Swamp Blues, StonerПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7481A5B45CE21B4E41B1FF22DEB7015F79392460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665224   (183245) от 29.09.2023
+
+Кофе на ночь - ПМПМВМР (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183245.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тебя
+2. Стук
+3. Мы Никогда Не Узнаем
+4. Будь Со Мной(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99C512DC079E7EE60203E89140B160CB3C78894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665218   (183247) от 29.09.2023
+
+Лорел и Харди. Это моя жена! / That's My Wife! (1929) WEBRip (color)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы женаты, не позволяйте вашим друзьям слишком близко проникать в ваш семейный очаг. Мистер Харди забыл об этой истине, и вот, мистер Лорел, практически член его семьи. В один прекрасный день терпение миссис Харди лопнуло, и она ушла, захлопнув за собой дверь. И вот несчастье, через несколько минут в гости в Харди пожаловал его богатый дядюшка Бернал, мечтающий (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Ллойд ФренчАктеры: Стэн Лорел, Оливер Харди, Джимми Обри, Гарри Бернард, Дороти Кристи, William Courtright, Чарли Холл, Сэм Луфкин, Том Минтц, Вивьен ОкландПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5605C14652F426E52B9141881D4A9D4863299943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664884   (183249) от 29.09.2023
+
+Powerhead - Curse Of Stone (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Raise Hell
+03. Berzerker's Rage
+04. A Deal With The Devil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFAACA0806C13A66FDA9B1731110DFBA0DFAB6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665102   (183251) от 29.09.2023
+
+Дмитрий Лазарев | Пандемониум (Книга 2). Нашествие (2023) [MP3, Сергей Ермилов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через потери, боль и предательство идет неразлучная троица главных героев – Дмитрий Рогожин и его верные соратницы-подруги инфер-убийца Селена и эльфийка Аллерия. Многие испытания и сражения суждено им пережить вместе, хотя у каждого – своя война. Такие разные от природы, постепенно они становятся сплоченной командой. Но Тьма наступает, и кажется, нет силы, способной (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 18:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C2A1841F959D43E407B1AD6177BC7120141F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665011   (183253) от 29.09.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screamin’ At The Sky (3:25)
+02. Nervous (3:16)
+03. When The Pain Comes (3:24)
+04. Out Of Pocket (3:08)(   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039165348DA3F8BCE53D7677F7A8F396EF3C739B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592535   (183256) от 23.11.2022
+
+Mindless Paradise - Faerie's Aire and Death Waltz (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Shoegaze, Doomgaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anemoia [00:03:26]
+02. All Quiet on the Western Front [00:03:46]
+03. The Mandela Effect [00:03:00]
+04. Warzone [00:03:47](   Читать дальше...   )Жанр: Post-Metal, Shoegaze, DoomgazeПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A455EC96CCC7F81CC2175F0EA3E73B964330FE1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665170   (183257) от 29.09.2023
+
+Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Folk, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voluspo (Alternative Mix) (3:43)
+02. Ginnungagap (Alternative Mix) (3:49)
+03. Allfather (Alternative Mix) (2:46)
+04. The Feathered Consort (Alternative Mix) (3:40)(   Читать дальше...   )Жанр: Prog Folk, Progressive RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F389415845233B30C2CAF8C591C59218A8C09FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427554   (183258) от 28.11.2020
+
+Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossless|image + .cue]< Adult Alternative Pop/Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Really Want (4:46)
+ 02. You Oughta Know (4:09)
+ 03. Perfect (3:08)
+ 04. Hand in My Pocket (3:42)(   Читать дальше...   )Жанр: Adult Alternative Pop/Rock, Post-GrungeПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8F01958206FF05C34FC6669DFC99F428A30340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427519   (183260) от 28.11.2020
+
+Школьный патруль / Lise Devriyesi (2017) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-2 из 11) LDizi (обновляемая) [PR]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йигит Догрусёз является помощником комиссара, глава полиции Неждет Йылмаз дает ему особое задание. Йигит, вместе с командой должен незаметно пробраться в лицей и подружиться с Фыратом, сыном главаря мафии Четина Сойера, которого никак не могут пойматьПроизводство: Турция / Arc FilmЖанр: комедия, криминалРежиссер: Яхья СаманджиАктеры: Озан Долунай, Бахар Шахин, Исмаил Эге Шашмаз, Гёкхан Аталай, Эбру Акель, Гамзе Сюнер Атай, Асена Тугал, Доган Акдоган, Угур Карабулут, Тайлан Гюнер и др.Перевод: Двуголосый любительский (LDizi)Продолжительность: ~02:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B00E9457D4B40A6E1CACD44023F2F9B1BB668F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592622   (183262) от 23.11.2022
+
+Legal Hate - Moral Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (01:12)
+02 - Distortion (03:30)
+03 - Override (02:55)
+04 - Vicious Circle (02:59)(   Читать дальше...   )Жанр: Thrash Death Metal, Groove MetalПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1356D2E23F1B90FD12F93017C01D842799D120D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665247   (183263) от 29.09.2023
+
+Cannibal Corpse - Chaos Horrific (2023) [FLAC|Lossless|tracks + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overlords of Violence 03:07
+02. Frenzied Feeding 03:33
+03. Summoned for Sacrifice 04:05
+04. Blood Blind 04:34(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F14CA173CC6EAE7118F8F54149C082BCD638260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427463   (183266) от 28.11.2020
+
+Mono Inc. - Melodies in Black (2020) 2xCD [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183266.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Life Hates You (05:28)
+ 02. In the End (04:27)
+ 03. Time to Go (04:02)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2930374E287A7701FE43A6B1ED3E99B3C2E5330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592618   (183267) от 23.11.2022
+
+Футбол. Чемпионат мира. Катар 2022. Группа "C". 1й тур. Мексика - Польша (22.11.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Чемпионат мира. Катар 2022. Группа "C". 1й тур. Мексика - Польша (22.11.2022)
+СУДЬЯ Бит Крис (Австралия)
+Судья на линии 1: Щетинин Антон (Австралия)
+Судья на линии 2: Бичем Эшли (Австралия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE19FCC00608C64D824EB86198E853B21781573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665217   (183268) от 29.09.2023
+
+Лорел и Харди. Это моя жена! / That's My Wife! (1929) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы женаты, не позволяйте вашим друзьям слишком близко проникать в ваш семейный очаг. Мистер Харди забыл об этой истине, и вот, мистер Лорел, практически член его семьи. В один прекрасный день терпение миссис Харди лопнуло, и она ушла, захлопнув за собой дверь. И вот несчастье, через несколько минут в гости в Харди пожаловал его богатый дядюшка Бернал, мечтающий (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Ллойд ФренчАктеры: Стэн Лорел, Оливер Харди, Джимми Обри, Гарри Бернард, Дороти Кристи, William Courtright, Чарли Холл, Сэм Луфкин, Том Минтц, Вивьен ОкландПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русскиеПродолжительность: 00:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5CD0173BBBF4D6D2F9BFEDCBCE426E64A15782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427498   (183271) от 28.11.2020
+
+Эдуард Успенский | Дядя Фёдор, пёс и кот. Все истории (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183271.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу «Дядя Фёдор, пёс и кот. Все истории» вошли главная повесть «Дядя Фёдор, пёс и кот» и её продолжения: «Любимая девочка дяди Фёдора», «Зима в Простоквашино» и «Дядя Фёдор и лето в Простоквашино». Вы узнаете о больших переменах в Простоквашино, о праздниках и буднях наших любимых героев и прочитаете о новых приключениях дяди Фёдора и его друзей.
+Для младшего (   Читать дальше...   )Жанр: Сказки, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45F5D0441855DC588BB2F8A0DB40CCEB9455871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592541   (183272) от 23.11.2022
+
+We Killed The Lion - Boogie Shoe Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Bluesy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Final Stand
+02 Come On Get Down
+03 Peach
+04 Dirty Bones(   Читать дальше...   )Жанр: Heavy Psych, Stoner, BluesyПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB61D4BB4B2C6DA89445FF1C64BE03D0CC541FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665220   (183273) от 29.09.2023
+
+1861  (1911) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная дрaма времен гражданской войны в Америке. Любая гражданская война - это братоубийственная война. Противостояние основанное на безусловной верности своим убеждениям и политическим взглядам. Но ведь и человеческие чувства куда девать?
+В кадре имеется логотип киноархива.Производство: США, Selig Polyscope CompanyЖанр: короткометражный, драма, триллер, немое киноРежиссер: нет сведенийАктеры: Кэтлин УильямсПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A70B7B4993F1EE4C43C0F6FD9DA30D548A0E94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427495   (183276) от 28.11.2020
+
+Больше — Меньше (2013) HDTVRip [H.264/720p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героини приходят в клинику пластической хирургии, чтобы изменить грудь. Одна хочет ее увеличить, другая – уменьшить, потому что обе чувствуют дисгармонию с окружающим «прекрасным» «совершенным» миром.
+«Пластическая хирургия» в фильме – гипербола перекройки нашего сознания, чувств и личности. Нас призывают к толерантности и политкорректности, прикрывая этим пошлость, (   Читать дальше...   )Производство: Россия / Brave RabbitЖанр: ДрамаРежиссер: Денис БанниковАктеры: Жанна Воробьева, Елена Соловьёва, Виталий Максимов, Сергей Пиоро, Елизавета Олиферова, Елена Ощепкова, Виктор Рудниченко, Роман ХардиковСубтитры: отсутствуютПродолжительность: 01:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA73F439E93903BA9172B71CED0F906AD70B1F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592529   (183277) от 23.11.2022
+
+Doodseskader - Year One (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Grunge, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1745 [00:04:31]
+02. Bloemen Noch Kransen [00:06:19]
+03. It's Not an Addiction If You Don't Feel Like Quitting [00:04:50]
+04. Less of Everything [00:04:54](   Читать дальше...   )Жанр: Sludge Metal, Grunge, RapcoreПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193C68D68F15812229FA8333E165D8A05DF3B510
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

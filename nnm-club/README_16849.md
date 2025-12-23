@@ -1,26 +1,666 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1289745   (684327) от 17.03.2019
+
+Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злой лорд Маркус узурпировал трон королевства и похитил великого механика Леонардо - единственного человека, который мог противостоять новому правителю. Теперь, Сара, дочь Леонардо,хочет спасти своего отца и свергнуть лорда Маркуса. Помогите ей попасть в цитадель и закончить свое царствование.Тип издания: UnofficialРазработчик: Shaman GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8375F9C5F4E952E4B509E35FC7FA95CB5F18F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289640   (684328) от 17.03.2019
+
+VA - Record Super Chart 578 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  David Guetta - Better When You're Gone (feat. Brooks & Loote)
+03.  Ilkay Sencan - Do It
+04.  Going Deeper - Broken(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DEADFE029F4F7F101C533B5C3391EEA3B6B2D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289850   (684329) от 17.03.2019
+
+Журнал | Дачный клуб №4 (апрель 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684329.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161515010D3680961FE89591239859601F9BD4BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289740   (684330) от 17.03.2019
+
+VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fyah George - Chant
+02. DJ Jazzy James feat. Lara Gee - Where Is My Horse Gone (Funky Western Mix)
+03. Alex Zind - Calling Home
+04. MC Duro - Supergirl (Radio Edit)(   Читать дальше...   )Жанр: Euro-dance, PopПродолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B72E5A27747B2752EC828E1AE1BC79FF5A7216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289570   (684331) от 17.03.2019
+
+VA - It's Spring Disco Party (2019) [MP3|320 Kbps] <Disco, Electro Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy P - Sos
+02. Dj Rocca - Channa Six
+03. Dr Packer - Power
+04. Hurlee - Paradise Disco(   Читать дальше...   )Жанр: Disco, Electro DiscoПродолжительность: 08:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09017221A1A594A69950084EA1BBC710AB161587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289743   (684332) от 17.03.2019
+
+VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kayat - Nordwind (Touchstone Remix) 8:22
+02. Matteo Marini - I Want To Believe (Original Mix) 7:58
+03. Kessler - Blue Velvet (Original Mix) 7:23
+04. Andy Viva - This Is My Life (Radio Edit) 3:34(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 01:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A6927FFF2D84EC5966702B5A6856971C125FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289713   (684333) от 17.03.2019
+
+Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Information 5:42
+2. Becoming Aware 4:53
+3. The Act 8:57
+4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289910   (684334) от 17.03.2019
+
+VA - Schlagerland - Das DJ Festival (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684334.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Wolfgang Petry - Wo sind denn all die Helden (Stereoact Remix)
+02. Anna Maria Zimmermann - Himmelblaue Augen (Franz Rapid Mix)
+03. De Lancaster meets Bella Vista feat. Onkel J. - So wie im Film (United DJs Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD60D6006F3E38EF38F15BC6010BEAC71D73A63F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289846   (684335) от 17.03.2019
+
+Visitor 2035 - Visitor 2035 (1978) LP [MP3|320 Kbps] <Electronic, Rock, Prog Rock,  Jazz>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Genardo's Waltz (4:53)
+02. At The Gates Of Consciousness (4:54)
+03. Toefunk (4:14)
+04. Celestial Dream Song (7:05)(   Читать дальше...   )Жанр: Electronic, Rock, Prog Rock,  JazzПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC18C76CE65F71663BCAC865429C6CA2BD13859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289747   (684336) от 17.03.2019
+
+VA - Miami 2019 (2019) [MP3|320 Kbps] <Tech House, Deep Tech, House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emery Warman - People Keep On (Original Mix)
+02. Sergio Parrado & Chinonegro - La Siesta (Original Mix)
+03. Sami Wentz - Shade Of Black (Original Mix)
+04. Melanie Ribbe - Get It Right (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep Tech, House, TechnoПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1264741AE40F2BB335ED563E08F5900F1DFBC661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289837   (684337) от 17.03.2019
+
+VA - Ballermann Partyhits 2019 - Das Werden Die Hits Des Sommers (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684337.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Honk! - Joana
+02. Mia Julia - Nr. 1
+03. Tobee - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DB3AA1D7581312325A3E7FF9D582741437306A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289758   (684338) от 17.03.2019
+
+Н. С. Горячев | Маркс - Энгельс - Ленин о государстве и диктатуре пролетариата [Конспективный очерк] (1928) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нигде мы не наблюдаем такой пестроты, такого разнообразия теорий, как по вопросу о государстве. „По вопросу о государстве столько теорий, сколько в Америке юристов-адвокатов", заметил один ученый. Здесь мы больше всего встречаемся с ловкими манипуляциями, с корыстными потугами представителей господствующих классов замаскировать, замазать, покрыть плотной завесой (   Читать дальше...   )Жанр: История, политология, правоведение, экономика, социология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D541FB2B97C7DCFD6B3F6A19F7B19DF7CB04142
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289741   (684339) от 17.03.2019
+
+Nargaroth - Era of Threnody (2017) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Epiphany (8:08)
+ 02. Whither Goest Thou (6:23)
+ 03. Conjunction Underneath the Alpha Weel (7:07)
+ 04. ...as Orphans Drifting in a Desert Night (5:34)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8E6FB3E6790560C9A7150C22448F4B87844797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289755   (684340) от 17.03.2019
+
+Г. А. Лопатин и др. | Они встречались с Марксом. Воспоминания русских общественных деятелей (1958) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684340.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящий сборник входят воспоминания русских общественных деятелей: Г. А. Лопатина, Н. А. Морозова, М. М. Ковалевского и П. В. Анненкова.
+
+Г. А. Лопатин — русский революционер-социалист, ученик Н. Г. Чернышевского, был близким другом Маркса и его семьи. Н. А. Морозов — активный деятель революционного движения в России, народник, познакомился с Марксом в 1880 г. (   Читать дальше...   )Жанр: История, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40C523095E88D061D5A8C1C076D0484F2B37E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289686   (684341) от 17.03.2019
+
+Reptilian Death - The Dawn Of Consummation And Emergence (2013) [MP3|320 Kbps] <Brutal Death Metal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PrimEvil (1:46)
+ 02. Inchoate (2:16)
+ 03. Stimulate. Hike. Impel. Tear (3:04)
+ 04. Soaked With The Imperfections Of Puerile Blood (2:32)(   Читать дальше...   )Жанр: Brutal Death Metal, Technical Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3614844116F399037EEA3C07FF0D10697FD72A46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289947   (684342) от 17.03.2019
+
+VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Lancaster feat. Onkel J. - So wie im Film
+02. Schlagergold - Flippers Hitmix
+03. Daniela Haake - Liebesrausch
+04. Bernice Ehrlich - Nie wieder missen(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C2A7CCCE028608F729CB5596DEFA63EA45D411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759447   (684343) от 17.05.2017
+
+WhatsApp Messenger 2.17.192 (Beta) + PC 0.2.4240 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение предназначено для прямого обмена сообщениями со смартфона на смартфон без использования СМС. Поддерживается передача картинок, аудиозаписей, видео, местоположений на карте и контактных данных. Можно прикрепить как существующую аудиозапись, так и надиктовать новую с помощью встроенной функции диктофона. При этом возможна отсылка как сообщений, так и контента (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 16.05.17Разработчик: WhatsApp Inc.Поддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5B2C51595FF6737C24891D07130AD59D920083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109793   (684344) от 17.05.2017
+
+Torment: Tides of Numenera - Servant of the Tides Сontent (2017) [Ru/Multi] (1.1.0) License GOG [Immortal Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Torment: Tides of Numenera происходит во вымышленной вселенной Numenera, созданной Монте Куком - мир Numenera представляет собой планету Земля через миллиард лет, усеянную руинами и артефактами погибших цивилизаций. Главный герой игры, Последний Отверженный, в прошлом служил физической оболочкой для бессмертного божества, и перед лицом опасности вынужден (   Читать дальше...   )Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: Adventure, RPG, Isometric, FantasyЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E355C33C334A68F716F28DF45B687EA34BC70B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135032   (684347) от 17.05.2017
+
+Жена смотрителя зоопарка / The Zookeeper's Wife (2017) WEB-DLRip [H.264/1080p-LQ]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная история отважного подвига смотрителей Варшавского зоопарка Яна и Антонины Жабинских, давших убежище и сохранивших жизнь более, чем 300 евреям во время II Мировой войны. Ежедневный риск и опасность осложняются для Жабинских взаимоотношениями с бывшим другом семьи, а ныне высокопоставленным нацистским чиновником Лутцем Хеком, влюбленным в Антонину.Производство: Чехия, Великобритания, СШАЖанр: Драма, военный, биография, историяРежиссер: Ники КароАктеры: Джессика Честейн, Йохан Хелденберг, Даниэль Брюль, Тимоти Редфорд, Эфрат Дор, Иддо Голдберг, Шира Хаас, Майкл МакЭлхаттон, Вэл Малоку, Марта ИссоваПеревод: Дублированный (iTunes Russia)Субтитры: отсутствуют.Продолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418656A2CF380FEE2446530C695A798D25BA9279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134834   (684348) от 17.05.2017
+
+Grand Theft Auto: San Andreas (2015) [PS3] [EUR] 4.76 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/En]
+
+>>След.
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять лет назад после смерти брата Карл Джонсон по кличке Си-Джей покинул Лос-Сантос, Сан-Андреас. Сейчас начало 90-х — герою улиц пришло время возвращаться домой. Его мать была убита, его семья распалась, а все друзья его детства находятся на полпути к гибели. По его возвращении в родные кварталы, несколько продажных копов подставили его в убийстве. Карл был вынужден (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar NorthЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC32EE3F23D1515414755E153C3341B5C1C09893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135117   (684349) от 17.05.2017
+
+Microsoft Office 2016 Standard 16.0.4498.1000 RePack by KpoJIuK (2017.05) [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6FC8482442907EAB92F270CF28396120883BF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135089   (684350) от 17.05.2017
+
+Linkin Park - One More Light (2017) [MP3|320 Kbps] <Alternative>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Can Save Me
+02. Good Goodbye (feat. Pusha T and Stormzy)
+03. Talking to Myself
+04. Battle Symphony(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77D4F46C0819362DB53E0E7FEAAFB20CAA98A90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135003   (684351) от 17.05.2017
+
+Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Empathy – приключенческая игра от первого лица, в которой игрокам предстоит исследовать целый мир и узнать его историю. Мир, в котором они окажутся, состоит из воспоминаний и чувств исчезнувших людей, и эти воспоминания помогут восстановить то, что было разрушено, спасти этот мир и остановить надвигающийся апокалипсис. Инновационная механика повествования будет подталкивать (   Читать дальше...   )Тип издания: RepackРазработчик: Pixel NightЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A452DA8AF6143410C7AB9450D029D00A1482B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134756   (684352) от 17.05.2017
+
+Футажи - RocketStock - Stanza [MOV]
+
+>>След.
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stanza - это пакет из более чем 200 переходов для любого направления в видео-производстве.
+Для скорости и универсальности все переходы предварительно просчитаны . Вы можете сразу добавлять их прямо на временную шкалу в Premiere или Final Cut Pro X, не беспокоясь о погружении в программу After Effects.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F96F8198CBEAC461E7155E62166E12D1A47D303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134954   (684353) от 17.05.2017
+
+Shadow Defender 1.4.0.668 RePack by KpoJIuK [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Defender – программа, аналогичная программе ShadowUser, позволяющей поставить систему в режим тени - Shadow mode, при котором невозможны ни удаление важной информации, ни атака вирусов. Данная утилита также обеспечивает защиту компьютера и конфиденциальности информации, предотвращает нежелательные и злонамеренные изменения в вашем компьютере, позволяет загружаться (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2E8CB829BBB1110312CA2666545078C063B479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976291   (684354) от 17.05.2017
+
+CPU X: System & Hardware Info 1.93 (AdFree) [En] - Информация о системе
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информация о системе.Тип издания: AdFreeРелиз состоялся: 16.05.17Разработчик: Pacific DeveloperПоддерживаемая ОС: Android 5.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB37BB7002FC83917CE5A40A31D0DDD00969D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

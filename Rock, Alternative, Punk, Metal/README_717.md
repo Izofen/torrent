@@ -1,26 +1,701 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1163499   (450099) от 05.09.2017
+
+Ронин - Опора (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450099.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 августа состоялась премьера дебютного сингла проекта «Ронин», создателем которого является Александр Цой, сын Виктора Цоя. Трек вошел в пластинку «Опора». «В демонстрационных версиях некоторых песен вокал немного напоминал отцовский. Если я расслабляюсь, не слежу за собой, то в нижнем регистре получается похоже. Мне нужно было искать свою манеру», — отметил он.1. Шёпот
+2. Горсть
+3. Опора
+4. Пыль(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DC1AB46516A0DAF4953BD804FF26BB94508537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163554   (450114) от 05.09.2017
+
+Глеб Самойлоff & The Matrixx - Звезда (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЗвездаЖанр: RockПродолжительность: 00:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB83824B0C0BF8CA5DF6EF8CFAA07BE027E239D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163388   (450223) от 05.09.2017
+
+Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Garden (05:14)
+02. Winter's Night (04:13)
+03. Riddles In The Dark (06:03)
+04. Bad Man (05:19)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D3850BDF3D58B55B3B681B866EBC58E3E9D556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576760   (450239) от 09.10.2016
+
+Queen - Hungarian Rhapsody: Live in Budapest (1986) /2012, Island Records/ [FLAC|Lossless|tracks + .cue]<Classic Rock/ Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Of My Life (4:38)
+02. Tavaszi Szel Vizet Araszt (2:16)
+03. Is This The World We Created...? (2:32)
+04. (You're So Square) Baby I Don't Care (1:29)(   Читать дальше...   )Жанр: Classic Rock/ Hard RockПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A2F243A906ED4F9151EC9B140A7B43C5EDCCDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322316   (450264) от 28.08.2019
+
+Tarja - In the Raw (2019) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Promises (Feat. Bjorn Strid)
+02. Goodbye Stranger (Feat. Cristina Scabbia)
+03. Tears In Rain
+04. Railroads(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09801F138E1E126FE68AD680E552A63FE694B182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163515   (450339) от 05.09.2017
+
+Russkaja - Kosmopoliturbo (2017) [FLAC|lossless|image + .cue] <Pop-Punk, Gypsy-Punk, Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Road	 (03:49)
+02. Alive	 (03:47)
+03. Still In Love	 (02:49)
+04. Hello Japan	 (03:26)(   Читать дальше...   )Жанр: Pop-Punk, Gypsy-Punk, Ska-PunkПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBDFEA32E13183B570F3B4A6A586B75D4AFDB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163502   (450341) от 05.09.2017
+
+VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Free - Alright Now  4:22
+02.  Stealers Wheel - Stuck In The Middle With You  3:32
+03.  Elton John - Crocodile Rock  4:04
+04.  Bachman Turner Overdrive - You Aint Seen Nothing Yet  3:47(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745CC7AD58A272633BB012A09B393F30A4EB1098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060935   (450363) от 09.10.2016
+
+Green Day - Revolution Radio (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere Now (04:08)
+02. Bang Bang (03:25)
+03. Revolution Radio (03:00)
+04. Say Goodbye (03:39)(   Читать дальше...   )Жанр: Alternative, PunkПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6410C86255FA899268913FBFCE8EF73FF6768D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060854   (450608) от 09.10.2016
+
+Елена Войнаровская (Flёur) - Присутствие (2016) [FLAC|lossless|tracks + .cue] <Cardiowave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Присутствие (04:08)
+02. Карфаген (05:26)
+03. Двое у окна (05:35)
+04. Кофейные зёрнышки (04:44)(   Читать дальше...   )Жанр: CardiowaveПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B6C8E538CB4FD1DDB9DB6BC9A60CCC7062A2DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322314   (450640) от 28.08.2019
+
+Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Hardcore Metal (3:19)
+2.Pain Is Coming (3:15)
+3.Kill Your Demons (3:06)
+4.Hyped Frenzy (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F465D81BB1AF2E2940E3390DB7AB7DC13F8BD826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061084   (450774) от 09.10.2016
+
+Joe Lynn Turner - The Sessions (2016) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Cold (Feat. Vivian Campbell) 04:58
+02. Lunatic Fringe 04:23
+03. Let The Music Do The Talking (Feat. Al Pitrelli, Pat Torpey & Carmine Rojas) 04:26
+04. Mirror Mirror (Feat. Icarus Witch) 04:11(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498C607A18E8DCD0EEB42EDF4CAA15B03D2E5DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061103   (450783) от 09.10.2016
+
+Frank Zappa - ZAPPAtite - Frank Zappa’s Tastiest Tracks (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450783.jpg" />
+</div>
+
+
+###  Подробнее
+
+APPETIZERS
+01. I’m The Slime
+02. Dirty Love
+03. Dancin’ Fool(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72041D0186603A9DD7C7DFAC99FC53181D143983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061176   (450786) от 09.10.2016
+
+Molly Hatchet - Original Album Classics (2010) 5CD Box Set [FLAC|Lossless|image + .cue] <Southern Rock, Boogie Rock, Hard Rock, Jam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Molly Hatchet - Original Album Classics (2010) 5CD Box Set. Sony Music Legacy. Epic. - 88697763642
+Состав Box Set:
+1978 - Molly Hatchet (88697763642CD1)1979 - Flirtin' With Disaster (88697763642CD2)
+1980 - Beatin' The Odds (88697763642CD3)
+1981 - Take No Prisoners (88697763642CD4)
+1983 - No Guts... No Glory (88697763642CD5)Жанр: Southern Rock, Boogie Rock, Hard Rock, Jam RockПродолжительность: 03:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38B1AC0EDF83A592E05FBE69EF587BDE769F689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061047   (450787) от 09.10.2016
+
+Alter Bridge - The Last Hero (2016) Best Buy Edition [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me a Leader
+02. The Writing On the Wall
+03. The Other Side
+04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9BE8FBFF1C13AC592D6195DCD281887F4A4B07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061184   (450790) от 09.10.2016
+
+Joe Lynn Turner - The Sessions (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stone Cold (with Vivian Campbell) 04:58
+02. Lunatic Fringe 04:23
+03. Let The Music Do The Talking (with Al Pitrelli, Carmine Rojas & Pat Torpey) 04:26
+04. Mirror Mirror (with Icarus Witch) 04:11(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8291518883B9C7A64D82931C8396CD047FBD924F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942778   (450854) от 02.10.2015
+
+Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hurt
+ 02. My Bodom (I am The Only One)
+ 03. Morrigan
+ 04. Horns(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE52EA30255548689D06F12BA14015C4AF96F4E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247695   (450916) от 16.09.2018
+
+Uriah Heep - Easy Livin' (The Masters Collection) (2018) 2CD [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Livin' (2:36)
+ 02. Gypsy (6:38)
+ 03. Stealin' (4:50)
+ 04. One Way Or Another (4:40)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Progressive RockПродолжительность: 02:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51793D377EDF21C93DA0115E51BAE273B9132436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247837   (450927) от 16.09.2018
+
+T. Rex - Gold (2018)(3CD Box Set)[FLAC|Lossless|image + .cue] <Classic Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debora [03:09]
+02. One Inch Rock [01:47]
+03. King Of The Rumbling Spires [02:09]
+04. By The Light Of A Magical Moon [02:50](   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 02:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B8573254A0F38A57F8EC18AA8F23D7E9F5163E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060926   (450988) от 09.10.2016
+
+Crimson Glory - In Dark Places... 1986-2000 (2010) 5CD Box Set [FLAC|Lossless|image + .cue] <Progressive Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crimson Glory - In Dark Places... 1986-2000
+2010 5CD Box Set Metal Mind productions   - MMP 5 CD BOX 007
+Состав Box Set:
+1986 Crimson Glory (MASS CD 1375 DG)1988 Transcendence (MASS CD 1376 DG)
+1991 Strange And Beautiful (MASS CD 1377 DG)
+1999 Astronomica (MASS CD 1378 DD1)
+1999 Astronomica demos and live tracks (MASS CD 1378 DD2)Жанр: Progressive Heavy, Power MetalПродолжительность: 04:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C44B507CD4997B42E853E564AEC6FA9BE04D22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247730   (451054) от 16.09.2018
+
+Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертый альбом сайд-проекта музыкантов группы Animal ДжаZ Александра Красовицкого и Александра Заранкина.1. Зверь
+2. Токсичное чувство
+3. Стена
+4. Псих(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AA4528B8FE6107C72AD95B15B193922053899F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247621   (451087) от 16.09.2018
+
+Avi Rosenfeld - Very Heepy Very Purple VI (2017) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Battles Rain 05:54
+02.Crash Into The Burning Sun 04:14
+03.Sole Survivor 04:37
+04.Help Me My Brother 06:43(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF06EE9A00DDF87B49E29D7808966CFD096B08C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247733   (451091) от 16.09.2018
+
+Radio Tapok - Последняя песня (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трек выполнен в стиле группы Кино.1. Последняя песняЖанр: RockПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB8A632D21185CA141D35DF1D4CE8EB2D589A65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061133   (451135) от 09.10.2016
+
+Comus - Song To Comus: The Complete Collection (2005) 2CD [WavPack|Lossless|image + .cue] <Prog Rock, Folk Rock, Acid Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Down (Like a Movie Star) (4:07)
+2. Touch Down (4:46)
+3. Waves and Caves (1:34)
+4. Figure in Your Dreams (3:11)(   Читать дальше...   )Жанр: Prog Rock, Folk Rock, Acid FolkПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C2883FE5488CF4DE1930F36856ADD519668402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061080   (451151) от 09.10.2016
+
+Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Eyes
+02. The Soulless
+03. Afterlife
+04. As I Catch My Breath(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF364C6AC16D9AF9A11C4B0F3BE7F74161412250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943127   (451181) от 02.10.2015
+
+VA - 100 Hits: Rock (2007) 5CD Box Set [FLAC|track+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия 100 Hits широко известна в музыкальном мире, да и на трекере представлена достаточно полно (см. ссылку в конце поста). Но вот рок-направление упущено и сегодня восполняем этот пробел пятидисковым бокссетом. Я долго терзался сомнениями: выкладывать диск или нет - уж больно плохо поработали с ним звукоинженеры. Но потом всё же решил выложить, а там пусть каждый (   Читать дальше...   )CD1:
+01. T. Rex - Children Of The Revolution  (2:30)
+02. Zz Top - Tush  (2:17)
+03. Santana - She's Not There  (4:03)(   Читать дальше...   )Продолжительность: 06:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2A6FB05D408A798680CE2B7B114C42F4F9508E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247729   (451210) от 16.09.2018
+
+Per Gessle - Small Town Talk (2018) BMG [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's A Place (3:19)
+ 02. The Finest Prize (feat. Helena Josefsson) (4:11)
+ 03. Small Town Talk (feat. Nick Lowe) (3:40)
+ 04. Simple Sound (3:45)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1067970723E6155D0D1D196BAF1C260621703ACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

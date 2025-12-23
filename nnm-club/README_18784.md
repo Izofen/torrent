@@ -1,26 +1,671 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1012880   (778359) от 02.05.2016
+
+Phantasmat 6: Town of Lost Hope (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая поездка в спортивный лагерь превращается в ужасный кошмар, поскольку вы и ваша семья заблудились в бесконечном лабиринте событий, где за каждым углом поджидает серийный убийца – Джеффри. Избегая объятий смерти, вы встретите других несчастных, которые попались в ту же ловушку. Вопреки всему, вы должны пройти все изгибы и повороты на извилистом пути спасения (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E67DABC4BC011423E77DC94187D2954AAE020C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012829   (778360) от 02.05.2016
+
+VA - Blues Women: Collection April (2016) [MP3|320 кб/с] <Rock Blues, Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boy Bloater - I Got The Feeling Someone's Watching Me
+02. Vargas Blues Band - Burning Shuffle
+03. Airborne Blues Virus - Gone Fishin'
+04. John Mayall & The Bluesbreakers - I Could Cry(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 05:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC9A6E263D04896858306E09A14C571461E7C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012703   (778361) от 02.05.2016
+
+Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Spirit    11:13
+02. Sacred Companion    07:46
+03. And Wings to Protect You    04:14
+04. Watcher of Heaven    07:57(   Читать дальше...   )Жанр: New Age, Celtic, InstrumentalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012637   (778362) от 02.05.2016
+
+Первокурсники: Вечеринка / Feuten: Het Feestje (2014) DVDRip [Ne / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о эпической вечеринке первокурсников, старшекурсников и выпускников вместе с полицией в честь братии Амстердама.Производство: Нидерланды, Pupkin Film, BNN TV, Nederlands Fonds voor de FilmЖанр: ДрамаРежиссер: Лауренс БлокАктеры: Мануэль Брукман, Ханна Вербум, Рубен Бринкман, Анна Спеллер, Дэниэл Корнелиссен, Эвита Розенберг, Тюн Куилбур, Марсель МустерсПеревод: ОтсутствуетЯзык озвучки: НидерландскийЯзык субтитров: АнглийскийПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4101238E5E6716B560CD755E01D2882C6546A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012552   (778363) от 02.05.2016
+
+Журнал | Маленькая Diana. Спецвыпуск №2 (май 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая Diana - ежемесячный журнал по вязанию для женщин. Пользуется любовью читательниц благодаря практичным моделям на любой вкус: спортивным и классическим, для работы и отдыха. Изюминка журнала - модели для вязания на спицах и крючком, подчеркивающие женственность и сексуальность.Жанр: Домоводство, вязание, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDB55C3FAFFAADD7F1366843EBB28FA214CF221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012915   (778364) от 02.05.2016
+
+Faderhead - FH-X (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, EBM, Synth-Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generation Black [03:43]
+02. Electrosexual [03:46]
+03. The Silence Around Me [04:40]
+04. Escape Gravity [04:40](   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6A80E97D6FD1F4B8246D8AF5F71172C7C188D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012710   (778365) от 02.05.2016
+
+VA - Angels Chill out Cloud, Vol.2 (2016)  [FLAC|Lossless|WEB-DL|tracks] <Lоungе, Chillоut, Dоwntеmpо>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Mаrs - Hоw Shоuld I Knоw (Originаl Miх) 5:17
+02. Lаzу Hаmmосk - Clоsеr tо Mе (Originаl Miх) 4:54
+03. Gаngа - Whеn I Clоsе Mу Eуеs (Mаssivаn Dоwntеmpо Miх) 4:30
+04. Pеtеr Pеаrsоn - A Drеаm in Yоur Eуеs (Originаl Miх) 6:27(   Читать дальше...   )Жанр: Lоungе, Chillоut, DоwntеmpоПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8B9481A9501342178A96D0EB0F051F1FA4A693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012800   (778366) от 02.05.2016
+
+FolderSizes 8.2.134 Enterprise Edition [En/Ua]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778366.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью программы FolderSizes вы сможете определить количество свободного места на жестком диске. FolderSizes предоставляет подробную информацию о размере папок и файлов по каждому разделу жесткого диска. Кроме этого, программа использует диаграммы для наглядности. Используя данный программный продукт, вы сможете найти файлы, удаление которых позволит освободить (   Читать дальше...   )Язык интерфейса: Английский или украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307940E6C7F6ABE4D245C442BC35A13B5FCADCE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012797   (778367) от 02.05.2016
+
+Yummy FTP Alias 2.2.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yummy FTP Alias  - Удобная утилита, которая поможет легко и быстро загружать файлы с Мака на FTP-сервер, используя функцию drag&drop. Нужно только выбрать папку на FTP-сервере и нажать Save. После этого, чтобы загрузить файлы на сервер достаточно перетащить файлы на иконку Yummy FTP Alias на рабочем столе или в Dock. При этом ссылка на загружаемые файлы будет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D6A4DF4CD142D2CED89D3D37184F6C048B8FF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012568   (778368) от 02.05.2016
+
+Mattias Ia Eklundh - Freak Guitar (1999) [APE|Lossless|image + .cue] <Rock, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparatus
+02. God - The Mechanic
+03. The Grey Hat of Compromise
+04. Lisa's Passion for Heavy Metal(   Читать дальше...   )Жанр: Rock, Guitar InstrumentalПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885F23612FF90F47CF365806004184A018690E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013020   (778369) от 02.05.2016
+
+Lisbon Kid - Lisbon Kid (2016) [MP3|320 кб/с] <Alternative, Acoustic, Electronica>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the End of the Day
+ 02. We Look at the Stars
+ 03. In the Room Where You Are
+ 04. Get It On(   Читать дальше...   )Жанр: Alternative, Acoustic, ElectronicaПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199E3F611D6A001BCDB6211115961D0B8DC74452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012928   (778370) от 02.05.2016
+
+Faderhead - The World Of Faderhead (2012) [FLAC|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fistful Of F*** You [3:25]
+02. Older Now [3:05]
+03. Join Us [4:14]
+04. Inside Of Me [5:37](   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F60CF257DACEADF6184C29CD31AFE50FD3CF31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012701   (778371) от 02.05.2016
+
+Лорен Миракл, Сара Млиновски, Эмили Локхарт | Как быть плохой (2016) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джесси, Вик и Мэл. У каждой из них есть особая причина, чтобы сбежать из родного городка. Потрепанный путеводитель «Удивительная Флорида», ключи от старого «Доджа», и немного денег – этого вполне достаточно, чтобы отправиться в путешествие, во время которого сердца будут разбиты, дружба пройдет суровую проверку, а встреча с загадочным незнакомцем изменит все дорожные (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8000CB70A00F42DAC4878ACADA438650070F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012908   (778372) от 02.05.2016
+
+Privacy Eraser Free 4.12.0 Build 1969 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для очистки системы от мусорных файлов и реестра от ненужных записей. Позволяет уничтожить следы работы с web-сайтами, локальными документами, программами и т.п. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК, а также позволяет настроить очистку системы "под себя".Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED7A3A87CEF0AFBA2C57E8F278996882EA5350C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012542   (778373) от 02.05.2016
+
+Журнал | Народные рецепты №4 (апрель 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как исцелить больное сердце? Как избавиться от тяги к табаку? Можно ли похудеть легко?
+Тема номера: женские болезни. Читаем и лечимся.Жанр: Домоводство, здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72959C66F3C819D7D27EF52C12FCE5014C28D45B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013042   (778374) от 02.05.2016
+
+Side Liner & Aviron - Out Of Town (2016) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pushing The Wrong Button (06:36)
+ 02. Emotronica (06:48)
+ 03. Forget Past (05:55)
+ 04. No Borders (06:02)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, Progressive TranceПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8318976F823C8D7D92C4139113C6CFE2B837EBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012573   (778375) от 02.05.2016
+
+Sunrise - Absolute Clarity (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tower Of Fear (4:49)
+02. Star Ocean (4:08)
+03. Live In Peace (4:58)
+04. Prayer For You (4:37)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97415592DB6D31E9F4AEDFF456E29B1890834EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012669   (778376) от 02.05.2016
+
+InstaBro | Browser for Instagram 3.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете просмотреть, оставить комментарий и легко скачать Instagram фотографии
+InstaBro это простой инструмент для Mac, который позволяет загружать все фотографии и видео с любого аккаунта Instagram, хэштегом или локально.
+
+За основу взят дизайн стандартного приложения Image Capture для импорта фотографий и видео с внешних медиаустройств. Все просто — слева список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 апреля 2016Разработчик: Boris KarulinПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C6443256603F753EA9C947B3BA704D428748E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012388   (778377) от 02.05.2016
+
+VA - May Discotheque - Holiday Hit Parade N1 (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dekku - Rescue Me (Feat. Juliana Chahayed)
+02. Akcent Feat. Lidia Buble & Ddy Nunes - Kamelia (Dj Ackym Mombahton Remix Edit)
+03. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
+04. Jack U (Skrillex & Diplo) - Take U There (Feat. Kiesza)(   Читать дальше...   )Жанр: PopПродолжительность: 06:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C671616A971E96F20DD466B4AE9F1ECE13C8FDED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012534   (778378) от 02.05.2016
+
+Журнал | Дачные советы Галины Старосельцевой №5 (май 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старосельцева Галина Константиновна — автор и ведущая популярной в Самаре и Самарской области передачи «Дачные советы с Галиной Старосельцевой». Программа выходит с 2000г. Спустя 10 лет в июне 2010 года «Дачные советы» увидела вся область благодаря переходу на канал «Губерния». Галина Старосельцева не только ведущая телепередачи, но и практик-энтузиаст с большим (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C886D010EAB8D1003858C04BEC79DED14F6B25C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012987   (778379) от 02.05.2016
+
+Бульс - Осколки (2016) EP [MP3|320 кб/с] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Небеса
+02. Малефисента
+03. Манхэттен feat. Анна Щеголева
+04. Паруса feat. Каспер(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83163CD305AAC614646C0B7EBB79710F4E43E9B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013017   (778380) от 02.05.2016
+
+Clearview 1.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clearview - Программа для удобного чтения электронных книг на вашем Mac.
+Приложение работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 мая 2016Разработчик: Canoe SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E671129AB85488240A3C2223CC813D9730838283
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013009   (778381) от 02.05.2016
+
+Футбол. Кубок России 2015-2016. Финал. ЦСКА - Зенит (02.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778381.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 мая 2016, понедельник. 16:00 МСК
+Финал
+
+Стадион: Казань Арена (Казань, Россия) , 36 500 зрителей (81 % при вместимости 45 105)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Геннадий Орлов и Юрий Розанов) / ИнтершумПродолжительность: 02:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D13F3592E3D8A139A12BB37208C91D34257F03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012791   (778382) от 02.05.2016
+
+В. Г. Табачковский (отв. ред.) | Буржуазные концепции культуры: кризис методологии (1980) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778382.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии критически анализируются неко­торые современные буржуазные интерпретации куль­туры, ограниченность которых проявляется как на уровне общефилософских принципов, так и в различ­ных культурантропологических концепциях. Авторы исследуют методологические аспекты той переориента­ции, которая проявляется при переходе от классиче­ских к современным буржуазным (   Читать дальше...   )Жанр: История, политология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907B052CBED1C0E749F1C24FE9496B5EBD5FABD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012925   (778383) от 02.05.2016
+
+VA - Awesome 80s Romance (2016) [MP3|320 кб/с] <Pop, Easy Listening, Jazz Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778383.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chaka Khan - Through the Fire
+2. Al Jarreau - We're In This Love Together
+3. Chicago - You're the Inspiration
+4. Anita Baker - Sweet Love(   Читать дальше...   )Жанр: Pop, Easy Listening, Jazz VocalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068B4BC23F0E9A457721DC1F2593AA20F8DC69B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012965   (778384) от 02.05.2016
+
+VA - Sunset Lounge Music - Sexual Buddha Lounge Chill Songs Relaxation (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe du Soleil - Sunset Lounge (Sensuality) [04:14]
+02. Lounge Safari Buddha Chillout do Mar Cafe - Bollywood, India Style (Guitar) [05:07]
+03. Light On - Ambient (Electronic Music) [04:43]
+04. Indigo Zen Garden - Beach Party (Deep) [03:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D01D00B8469DB6EE8A652941E487EAE851A35E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,681 @@
+###  Публикация: 597853   (1000523) от 02.01.2013
+
+[Wallpapers] Car wallpaper (02.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000523.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpaper (02.01.13)
+Название: Car wallpaper (02.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB83643E5939EDE8BDCD86A974CBFE33362B999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597635   (1000524) от 02.01.2013
+
+Журнал | Lumiere №1 [январь 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+"Lumiere" - журнал для прогрессивных киноманов, для тех, кто любит кино и хочет знать о нём больше, а также ценит качество, современные технологии. В каждом номере – рецензии на главные хиты кинопроката, подробные обзоры вышедших DVD-дисков.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59EA7165F54C8C9CC1481D14594F50D6F2D960A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597852   (1000525) от 02.01.2013
+
+[Wallpapers] Beautiful nature (02.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000525.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Beautiful nature (02.01.13)
+Название: Beautiful nature (02.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 4000х2600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB8548BD45EFD8E6422712D457C0ED904C28B00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597679   (1000526) от 02.01.2013
+
+Рисованная графика - Spiderguile [JPG,PNG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Творчество французского художника комиксов.Разрешение файлов: от 600х379 до 2480х3437
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F428EC19CCFDC943251F6D9A506E8C425A7B6263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597461   (1000528) от 02.01.2013
+
+Love.Might.Kill - 2 Big 2 Fail (2012) [FLAC|Lossless]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save My Soul (00:42)
+02. XTC (04:39)
+03. Burn the Night (04:20)
+04. The One (05:07)
+05. Restless Heart (04:58)
+06. Home 05:45
+07. The Great Escape (04:32)
+08. Too Big to Fail (05:35)
+09. We Fall (04:27)
+10. Big Screen Pleasure (And Pain) (05:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597851   (1000529) от 02.01.2013
+
+[Wallpapers] New 2013 Wallpaper Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000529.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 2
+Название: New 2013 Wallpaper Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1440х900 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E459A785B47FE8872097766DA997A484E6D528B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597594   (1000530) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF2E1D14CD95BBA62961D550782283EB4B1414B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597740   (1000531) от 02.01.2013
+
+И. Санина | Заливное. Холодцы [2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Трудно себе представить праздничное застолье без сытного, невероятно вкусного и ароматного холодца. Это всенародно любимое блюдо так же популярно сегодня, как и сто лет назад. Существует масса рецептов, отличающихся набором продуктов, способом приготовления и осветления бульона. Лучшие рецепты вошли в эту книгу.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4077E697BC5CDD4A36FF4F97BA177462816D44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597468   (1000536) от 02.01.2013
+
+Nature Wallpapers (01.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF31CB7224DA0554164993B5D6A3DC14A9817275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597470   (1000537) от 02.01.2013
+
+Sexy Girls Wallpapers (01.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFCC03CAD58FCEDEB6566BBE037D973EED82C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597678   (1000538) от 02.01.2013
+
+Журнал | Академия домашней кухни №1 [январь 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит дом. В издании не только готовые рецепты блюд, но и разные кулинарные истории, советы по организации кухонного пространства, выбору посуды, кухонного оборудования, мебели и т.д., а также письма с вашими предложениями, рецептами, с вашим полезным опытом.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6065C942AB037A2EE749392CD587C865F4C6E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597469   (1000540) от 02.01.2013
+
+Sexy Girls Pack Wallpapers (01.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61ED4C002355D2C850A3D88D0B6BD9B8FB74263C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597105   (1000542) от 02.01.2013
+
+VA - Winter Trance Essentials (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Off - Through Your Eyes (Pete Silver Presents Argentua remix) [08:45]
+ 02. Alex Coollook & Aris Grammenos - Dream View (Loquai progressive trance remix) [07:05]
+ 03. Paul Vinitsky & Marta Lay - Heaven (Emerge remix) [06:07]
+ 04. D-Mad - Jump Into Love [06:16]
+ 05. NoMosk - Silent (feat Tory Vix - The Airstatic Digital mix) [07:45]
+ 06. Otto Uplifting - 7 Days [07:15]
+ 07. Alex Boboc - Dubai (Stunner remix) [07:55]
+ 08. Music System Power - Breakbeat [08:03]
+ 09. Darren Morfitt - Nothing Without You (Anske remix) [07:18]
+ 10. Ben'Yala - She (ASKII remix) [06:17](   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CEC0FDB5483359032A1958E3E5B0427177635A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597061   (1000544) от 02.01.2013
+
+VA - The End Of A Cosmic Cycle Part 2 (2012) [MP3|320 kbps]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Heatbeat - Another Loud Thought [08:51]
+ 02. Francis Davila - Let's Go Out Tonight (feat Flaminia - Giuseppe Ottaviani remix) [07:32]
+ 03. Chris Schweizer - Black & White (Tom Colontonio remix) [07:05]
+ 04. DJ Eco Presents Badlands - Garden State (feat Marcie - Ben Nicky vocal remix) [08:08]
+ 05. BEN - Break The Cycle (Liquid Vision respray) [07:17]
+ 06. Randy Boyer - Broken (feat Cari Golden - Exit remix) [08:48]
+ 07. Stacker & RJ Van Xetten - Digital Andromeda (Heatbeat & RJ Van Xetten mix) [07:49]
+ 08. Carl Nunes - Mysterious City Of Strangers (Sensetive5 remix) [07:37]
+ 09. LithK & DDZ - Illusion [07:45]
+ 10. Santiago Ninno - Stereo Love (feat Jaren - Matt Cerf remix) [06:50](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9806C45BBC3B09A6761BA741DD58635683E2BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597593   (1000546) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229ACC1166147DD0603F4FDB7D0EDE3BE008500C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597062   (1000547) от 02.01.2013
+
+VA - Trance Tattoe #31 (2012) [MP3|320 kbps]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Ana Criado - Suddenly Summer [07:04]
+ 02. 2nd Phase - Lesson Learned (Garry Heaney Remix) [08:07]
+ 03. Alpha Duo feat. Fisher - Fight For Love (Original Mix) [08:00]
+ 04. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix) [06:50]
+ 05. Corderoy feat. Little Neve White - Run into the Sun (Original Vocal Mix) [07:48]
+ 06. Cosmic Gate, Emma Hewitt, Omnia & IRA - Be Your Fusion (DJ Rabeone Mashup) [05:54]
+ 07. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix) [06:45]
+ 08. EDX & Nadia Ali - This Is Your Life (Original Club Mix) [05:25]
+ 09. Emma Hewitt - Miss You Paradise (Shogun Remix) [07:37]
+ 10. Estiva & Tania Zygar - Death Of Me [07:34](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E51015193BE82A5B74D02D63EAF7189C7EE03BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597582   (1000549) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC7D91F299E5465D692833D777BC0C02D9189D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597709   (1000550) от 02.01.2013
+
+Журнал | Катюшины сладости №1 [2006] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Здесь вы найдете отличную подборку несложных рецептов современной сладкой выпечки: французскую шарлотку, мандариновое суфле, много вкусных пирожных, сдобные колядки. Что является главным украшением стола? Конечно же, торт! Да не простой торт, а в виде Сказочного домика или Острова сокровищ. Поверьте, никто не останется равнодушным к таким сладостям!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDE5E26EB6AF32F576DC056246C32A1FBCDABC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597588   (1000551) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х800 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36954C0C8924E2BEFEC3F3A69E5A5A0C0824A384
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597592   (1000552) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 9
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E1DBCAF97F8DB3A215276C0E20969A271E18E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597591   (1000553) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1680х1050/1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7E9986ED8C1C9A91C279C24374FA1A8E52A580
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597590   (1000554) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E3FFF9F704B8A4304FAEE946CFB300623D26FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597587   (1000555) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116328E5BF942C91DFF646CE679491B6E657004D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597589   (1000557) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 4368х2730
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB200F5E618BFC3960C9D0CA95CCEF84716029E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597585   (1000558) от 02.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х1024 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF589D763C58E4DD39DCAB427546F5C880284C03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597058   (1000559) от 02.01.2013
+
+VA - Uplifting Progressive Trance (2012) [MP3|320 kbps]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Fanatic Emotions - My Dream [08:52]
+ 02. Benjamin Storm - Broken (Em Ray club remix) [05:24]
+ 03. Quantor - Take Off (original version) [05:54]
+ 04. Klaus Berner - Maya (Ext Zerby Sound) [07:06]
+ 05. Dr Alex & MATO - Sonika [06:11]
+ 06. Sara Pollino - After The Rain (Massimo Salustri remix) [08:08]
+ 07. Cut N Glue - Rising Sun (B.Bone In Trance remix) [06:34]
+ 08. Ziontist - My Future (Dave DJ remix) [04:50]
+ 09. Trance Arts - Dark Knight (Dave Cold remix) [08:07]
+ 10. Viker Turrit - Inexo (Cosmicspace remix) [06:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B583CCD1D921FC55E6441FB03953706EB6A4A5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

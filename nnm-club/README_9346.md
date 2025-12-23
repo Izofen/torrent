@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1185840   (291725) от 22.11.2017
+
+ТапОК - Разложение общества лучше, чем одиночество (2017) [MP3|320 Kbps] <Pop Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бойся меня
+02. Стоят заводы
+03. Вчера
+04. Учителя(   Читать дальше...   )Жанр: Pop Punk, RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F356D9FD609D09D6AC240B700B5246C194980C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185664   (291726) от 22.11.2017
+
+iExplorer 4.1.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+
+iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E40625EEF72CE5637732C1493531B86FF02822F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185594   (291727) от 22.11.2017
+
+Stan Kolev - Bijaca (2017) [MP3|320 Kbps] <House, Funky, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rewind The Happiness (Original Mix) 07:29
+02. Bija (Original Mix) 07:14
+03. Lost In Paradise (Original Mix) 06:59
+04. Paradox (Original Mix) 06:57(   Читать дальше...   )Жанр: House, Funky, ProgressiveПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C434E8110B7718A8952837D3A142B6D243EECC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185671   (291728) от 22.11.2017
+
+VA - Christmas Mega Dance 2017 [MP3|320 Kbps] <House, Electro House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Angerboyz - Infinity 03:25
+02. DJ 4Real - Together 02:46
+03. DJ Johan Weiss - Bitches 06:29
+04. DJ Luciano - Burn That House (Candy Mix) 03:06(   Читать дальше...   )Жанр: House, Electro House, DanceПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A820066A5AEA8A11823F0061085133974861FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185701   (291729) от 22.11.2017
+
+Яндекс.Браузер 17.11.0.1902 beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яндекс.Браузер - быстрый, удобный и безопасный веб-браузер с современными технологиями и возможностями. Связка движка Blink плюс интерфейсной оболочки Chromium позволяет работать веб-браузеру с максимальной производительностью, когда каждая вкладка является отдельным процессом и за освобождением памяти следит операционная система, что является более эффективным. (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D663C02039AC58766BB8DC27B5289D2DBF97560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185645   (291730) от 22.11.2017
+
+Duke Ellington - Moonlight Fiesta (1936 - 1953) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Caravan:
+01. Caravan [03:09]
+02. Stompy Jones [02:44]
+03. Clouds In My Heart [03:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61744510CA05D8A9CFB0FB83CA053F53365A6806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185808   (291731) от 22.11.2017
+
+Little G. Weevil - Something Poppin' (2017) [MP3|320 Kbps] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Come Knocking (03:08)
+02. Something Poppin (03:41)
+03. See Me In The Country (04:01)
+04. How You Want Me To Deal With This (05:10)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229882DA1C12A7B16CB6DD1A7215B554E8E86D39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185657   (291732) от 22.11.2017
+
+VA - Urban Legends: Techno Party (2017) [MP3|320 Kbps] <Hardstyle Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Knight, Green Velvet & Rene Amesz - Live Stream
+002. Ugur Yurt - Harmonix (Original Mix)
+003. Joeski - Blackbird (Gorgon City remix)
+004. Unresolved - Monster(   Читать дальше...   )Жанр: Hardstyle Techno, Tech House, ElectroПродолжительность: 10:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185800   (291733) от 22.11.2017
+
+Журнал | Моя прекрасная дача №23 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0D3089546046055F49639D91F02B753370FFE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185629   (291734) от 22.11.2017
+
+А. В. Луначарский | Марксизм и религия (1971) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291734.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре представлены главным образом те статьи и выступления А. В. Луначарского (или отрывки из них), в которых раскрываются происхождение и сущность религии как фантастического, искаженного отражения природы и общества в сознании человека.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA322887DE67C3D6DBD6AD3C4E72463851CFBF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185655   (291735) от 22.11.2017
+
+VA - Juicy Groove: Minimal Techno Mix (2017) [MP3|192-320 Kbps] <Minimal, Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Tort - Rush (original mix)
+002. PROFF - Misidentify (feat Cory Freisenhan)
+003. Dino Maggiorana - London (original mix)
+004. Anthony Cardinale - All Or Nothing(   Читать дальше...   )Жанр: Minimal, Techno, ElectroПродолжительность: 10:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC8662223527220F80AD4D300B9C5AC98D81DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185665   (291736) от 22.11.2017
+
+KeyKey 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291736.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeyKey — учимся слепому набору
+Слепая десятипальцевая печать — штука полезная. Даже если вы пишите только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
+
+Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: Sergiy VynnychenkoПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Украинский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789D5A268790A51DABCA7E03B297F4BDC37EB9ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185776   (291737) от 22.11.2017
+
+Василий Бочарников | У нас ещё один друг (1979) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о лосях. Для младшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1ED9D848DE72856A45261697AD402D145FAC5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185833   (291738) от 22.11.2017
+
+VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IF - Classic Universe (original mix)
+02. IF - Classic Universe (radio edit)
+03. Parad Planet - Black Uplifter (original mix)
+04. Nickella & Destlours - Words (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42F5961EDC657716274078512258A7327ED9C27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185699   (291739) от 22.11.2017
+
+VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jorge Caballero - The Rebirth (Original Mix)
+02. Furkan Senol - Parthenope (Skydust Remix)
+03. Tommy Reid - I Called Your Name (Original Mix)
+04. Aleksandar Radicevic - Arhe (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7473E948702AD7167C1CA41220FAF92C3DE70C81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185530   (291740) от 22.11.2017
+
+Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Boy (3:46)
+ 02. My Heart Is Open (4:01)
+ 03. Breathe Me In (3:55)
+ 04. Autumn Leaves (4:06)(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6F57B51A8B2C2B9C11274B9BED9374A16BC0F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269552   (291750) от 12.12.2010
+
+Shamindra - Baby Massage (2007) [MP3|320 kbps]<Музыка для малышей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291750.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Power of Touch 20:10
+2. Togetherness 19:57
+3. Indian Lullaby 20:30Жанр: Музыка для малышейПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A526DFD9C47871EB1377EF7053868A2B92A8CF31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268965   (291767) от 12.12.2010
+
+Робин Гуд [Режиссёрская версия] / Robin Hood [Director's Cut] (2010) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291767.jpg" />
+</div>
+
+
+###  Подробнее
+
+История лучника армии Ричарда Львиное Сердце, который борется против нормандских захватчиков и становится легендарным героем, известным под именем Робин Гуд.Жанр: боевик, драма, приключенияРежиссер: Ридли Скотт / Ridley ScottПеревод: Профессиональный (дублированный)Продолжительность: 02:35:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801044   (291784) от 07.12.2014
+
+Подшивка журналов | Электротехнический рынок (2014) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291784.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Электротехнический рынок» — специализированный рекламно-информационный журнал, посвященный исключительно вопросам, касающимся электротехнического рынка в целом и отдельных его отраслей в частности.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F9BC2EACB2D5B6CC907B6E8BABC53C54D53CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422240   (291804) от 12.12.2011
+
+Алекс Орлов | Ультиматум [Тени войны. Книга 19] (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начав карьеру с рядового десантника в армии Примарской Империи, Ник Ламберт дорос до звания генерала и командует силами наемников из его родных мест. Долгая военная жизнь многому научила Ника. Он начал задумываться о смысле и целях войны, которой не видно конца. В своих сомнениях он не одинок: десятки тысяч людей покидают воюющие государства, чтобы укрыться от войны (   Читать дальше...   )Жанр: фантастика, боевик
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8C03FF58DF71E32F5F6FE3D3857E1D696A0569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422261   (291807) от 12.12.2011
+
+Рольф Каука | Медвежонок Миша. Играем вместе с Мишей (1996) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие для игрового дошкольного обучения. Игры в помещении, на пляже, в саду и на лужайке, игры с мячом, на внимание и реакцию, песенки и считалки...Жанр: Пособие для игрового дошкольного обученияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D893CF51AC91A8B9E91BC60E2993C5520AAAEA19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185660   (291811) от 22.11.2017
+
+Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coral Odyssey (Original Mix)
+02. Coral Odyssey (Radio Edit)
+03. My Best Place (Original Mix)
+04. Moments (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96630CED147C76C211D925E4E080E8ABE30E279A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185638   (291812) от 22.11.2017
+
+VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Travel - Dolphins (Original Mix)
+02. Dream Travel - Page Up (Original Mix)
+03. Dream Travel - Space Voyage (Original Mix)
+04. Dmitry Kostyuchenko - Above The Clouds (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC70D5DF8A1F6C43281C1F60D4FB7EFA6370A95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185425   (291813) от 22.11.2017
+
+Budd Johnson And The Four Brass Giants (1960) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Love [04:06]
+02. Blue Lou [05:12]
+03. Trinity River Bottom [08:09]
+04. Driftwood [04:23](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D87FC0B5C1BC1A3DD04B534D1B0EA12F1EDB156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185651   (291814) от 22.11.2017
+
+Alexey Litunov - Total Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water Spray (Original Mix)
+02. The Time (Original Mix)
+03. The Time (Club Version)
+04. The Cradle Of Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE76C14F2809ECDB6663A5490FFC3921F38C5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080111   (291816) от 05.12.2016
+
+YoWindow Unlimited Edition 4 Build 95 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291816.jpg" />
+</div>
+
+
+###  Подробнее
+
+YoWindow - это очень удобная программа для мониторинга погоды. YoWindow отображает пейзаж, меняющийся в зависимости от погоды, дневного освещения и времени года. Программа исправно отображает все возможные погодные явления: облака, дождь, снег, ветер, туман, грозу, а также солнце, луну и звезды. По своей сути YoWindow это модель обычного окна. Но в YoWindow у Вас (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297E2D86A00681AC820AEFE986B715969545C551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

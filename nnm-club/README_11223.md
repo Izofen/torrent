@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1574490   (385702) от 05.09.2022
+
+Алексей Поляринов | Риф (2020) [MP3, Алексей Поляринов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кира живёт в закрытом северном городе Сулиме, где местные промышляют браконьерством. Ли — в университетском кампусе в США, занимается исследованием на стыке современного искусства и антропологии. Таня — в современной Москве, снимает документальное кино. Незаметно для них самих зло проникает в их жизни и грозит уничтожить. А может быть, оно всегда там было? Но почему, (   Читать дальше...   )Жанр: современная русская литератураПродолжительность: 08:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7689D9725779FE0E9D164563C7695441236519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574380   (385703) от 05.09.2022
+
+Iron Savior - Reforged - Ironbound (2022) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385703.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Children Of The Wasteland
+02. Protect The Law
+03. Starborn(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184A5FCB44365577BA25DF762B53132507DBD199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574550   (385704) от 05.09.2022
+
+Criminal Element - Abuse of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Brutal Death, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mastermind
+02. Confidential Informant
+03. Your Own Worst Enemy
+04. Abuse of Power(   Читать дальше...   )Жанр: Technical Death, Brutal Death, HardcoreПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266CA8F5E123007E59D2C0449DD1DC56D5C80C09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574500   (385705) от 05.09.2022
+
+Linda Lavin - Love Notes (2020) Club 44 [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got My Eyes on You [2:35]
+02. Not a Care in the World/Shall We Dance [2:46]
+03. I Wish I Were in Love Again [3:03]
+04. I Can't Tell You Why/I Walk a Little Faster [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDA8C11FDCC56A6889F64EF1E4C824D5A4DCC12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574616   (385706) от 05.09.2022
+
+Софи Кинселла | Моя мамочка – фея [3 книги] (2019-2022) [MP3, Ирина Ефросинина, Марина Никитина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385706.jpg" />
+</div>
+
+
+###  Подробнее
+
+У семилетней Эллы есть большой-большой секрет…Её мамочка – фея, у мамы даже есть современная волшебная палочка – Магопульт. С помощью заклинаний и нужной комбинации цифр она легко наколдует молоко к завтраку, сообразит вкусные кексы к чаю за пять минут и ускорит очередь в супермаркете. Только мамочка-фея не всегда подбирает правильные магические коды. Поэтому иногда (   Читать дальше...   )Жанр: Детские приключенияПродолжительность: 04:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9346D19424ECADF810443906634089A8770EC5B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574101   (385707) от 05.09.2022
+
+Infantry - Terminal Society (2022) [MP3|320 Kbps] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disposer of Immorality [00:05:03]
+02 - Submission [00:03:40]
+03 - Destination_ Wonderland (feat. Miranda Visser) [00:04:15]
+04 - Under Destruction [00:05:20](   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F0BBE902C85A173B6E5061E8D6F8797BA48BA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574555   (385708) от 05.09.2022
+
+The Butterfly Effect - IV (2022) [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IV (2:53)
+02. Dark Light (4:55)
+03. Wave of Tides (3:24)
+04. Nil By Mouth (3:12)(   Читать дальше...   )Жанр: Alt.Rock, Progressive RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C73B8748050C886A0061C4F69C77E9E1DEC824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574471   (385709) от 05.09.2022
+
+Leafblade - Merlin, Child of the Merrymoon (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Medieval, Celtic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother [00:04:29]
+02. Song of the Fae [00:04:14]
+03. The Fire in Mercury [00:03:54]
+04. To the Wise Woman [00:07:08](   Читать дальше...   )Жанр: Progressive Rock, Neo-Medieval, Celtic RockПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B761021956D214B275C679D1308F8137EDC01D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574475   (385710) от 05.09.2022
+
+Формула 1. Сезон 2022. Этап 15. Гран-при Нидерландов. Квалификация (03.09.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385710.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 сентября 2022, суббота. 16:00 МСК. Этап 15, Зандворт, Гран-при Нидерландов. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E09F6C265E3A7AFE3CF6DD78243DC8F5164B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574411   (385711) от 05.09.2022
+
+Endigna - Otherside (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anteambulone (00:56)
+02 - Top of the Hill (03:35)
+03 - Pretending (03:28)
+04 - Hands on My Face (03:15)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75ADD390BA3AA73429F97135B30D8E78CED0F798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719227   (385713) от 05.11.2013
+
+Сборник - Inky’s Almost Black Friday Bundle [ESP,AI,CDR,JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В составе сборника:Формат: ESP,AI,CDR,ATN,PAT,JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685ACF3DFB158297B2086AF6547AE60756709009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718855   (385714) от 05.11.2013
+
+Заложники / Hostages (2013) WEB-DLRip (Сезон 1, серии 1-6 из 15) [ViruseProject]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заложники — остросюжетный триллер, рассказывающий о докторе Эллен Сандерс, первоклассном хирурге, втянутой в политический заговор после того, как ее семью берет в заложники вышедший из-под контроля агент ФБР Дункан Карлайл. Карлайл приказывает ей убить президента, когда она будет проводить над ним операцию. Жизнь семьи Эллен находится под угрозой и Эллен предстоит (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Генри Брончтейн, Джейсон Энслер, Рассел Ли Файн, Карен Гавиола, Джеффри Начманофф, Дэвид Фон ЭнкенАктеры: Тони Коллетт, Дилан МакДермотт, Тейт Донован, Куинн Шепард, Матеус Уорд, Билли Браун, Сандрин Холт, Риз Койро, Джеймс Нафтон, Тайлер Эллиот БуркПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: ViruseProjectПродолжительность: 6 x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AD6CD50675688184A4AF9962BD0FDCD6D12093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719308   (385723) от 05.11.2013
+
+Мы такие, какие есть / We Are What We Are (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казалось бы, обычная и доброжелательная семья Паркеров, всегда державшаяся особняком от остальных жителей городка, не могла бы привлечь к себе особого внимания, однако, в тихом омуте черти водятся. За закрытыми дверями, вспыльчивый глава семейства Фрэнк правит балом и хранит семейные секреты от посторонних глаз. Секреты, которые заставят содрогнуться от ужаса любого, (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Триллер, ДрамаРежиссер: Джим МиклАктеры: Кэсси ДеПайва, Лорен Рейто, Джулия Гарнер, Эмбир Чилдерс, Джек Гор, Билл Сейдж, Келли МакГиллис, Уайатт Расселл, Майкл Паркс, Аннемари ЛоулессПеревод: Двухголосый закадровый, любительский | DeadSno & den904Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC45BF59D5E5B8B414928B8C07ECCBA2A05B3A6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403211   (385724) от 27.10.2011
+
+Ты встретишь таинственного незнакомца / You Will Meet a Tall Dark Stranger (2010) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет закручивается вокруг различных членов семьи, их запутанных отношений и их попыток разрешить свои проблемы.Производство: США, ИспанияЖанр: Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Наоми Уоттс, Джош Бролин, Антонио Бандерас, Энтони Хопкинс,Джемма Джонс, Полин Коллинз, Руперт Фрейзер, Келли Харрисон, Фрида Пинто, Элеанор ГексПеревод: ДублированныйСубтитры: НетФормат: MKVПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877021EB9423C08BE8D1CFAFFDA8D5138A1E0D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403279   (385726) от 27.10.2011
+
+Рейдер  (2011) HDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рейдеры — охотники за большим бизнесом. Чтобы завладеть успешным предприятием, они идут на подделку документов, применение силы и даже убийства. Противостоять им невозможно… Очередной заказ могущественного рейдера Спирского — захватить научно-исследовательский институт. Смещенный с должности директор захваченного НИИ обращается за помощью к известному адвокату Павлову. (   Читать дальше...   )Производство: Россия, Продюсерская фирма Игоря ТолстуноваЖанр: Драма, КриминалРежиссер: Всеволод АравинАктеры: Егор Бероев, Виталий Хаев, Екатерина Вилкова, Виктор Раков, Кирилл Плетнёв, Владимир Стеклов, Вячеслав Разбегаев, Валентина Талызина, Сергей Угрюмов, Роман Полянский, Михаил Георгиу, Карина Андоленко, Александр Сирин, Андрей Межулис, Иван Лешук, Александр Абрамович, Станислав Беляев, Борис Эстрин, Александр Комиссаров, Андрей Лебедев, Юрий Маслак, Юрий Орлов, Максим (   Читать дальше...   )Перевод: Оригинальное РусскийПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80F4415DF6C0960CFB4C449F7A92FC447324B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719238   (385731) от 05.11.2013
+
+Журнал | Дом. Спецвыпуск №2 [Строительные хитрости: Дом своими руками ] (2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Дом» - помощник для тех, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья – коттеджей, дачных и садовых домиков, а также надворных построек.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B62F8771148E3B893F10006AD30108006D6A161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574360   (385777) от 05.09.2022
+
+Kull Trigger - Primal Abilities (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire V [00:03:43]
+02. Hammer on the Steel [00:03:15]
+03. 1618 [00:04:12]
+04. The Six Killers [00:05:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A50C50B4C30102B9EE3139677ADB864B434C44D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574446   (385778) от 05.09.2022
+
+Entheogen - Transmogrify (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hebe (01:10)
+02 - Journey (08:26)
+03 - Shiva (00:20)
+04 - Cycles (06:16)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB57223A2C9BDF79392E3E675AC67C916D1EF844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574453   (385779) от 05.09.2022
+
+Gone Cosmic - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385779.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 - Sideways in Time
+2022 - Send for a Warning, The Future's CallingЖанр: Heavy Rock, Stoner, DoomПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2855D916F96F4F9AC7CD27F7C5548F7F9B6D5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574442   (385780) от 05.09.2022
+
+Whitespade - Whitespade (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thundercharge [00:02:58]
+02. Below the Law [00:03:37]
+03. Spit in Your Eye [00:02:36]
+04. Wired in Red [00:03:41](   Читать дальше...   )Жанр: Speed Metal, Hard 'n' HeavyПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21A507B13C263097400979F153305BEBE0825D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574303   (385781) от 05.09.2022
+
+Сурогат - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сурогат Now! [00:01:02]
+02. Позор [00:04:01]
+03. Мёртвая любовь [00:04:09]
+04. Двигайся [00:04:32](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 2 CD, 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1685DF8A4E5FDEBE5C6DD858C31DF58420EBD9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574353   (385782) от 05.09.2022
+
+Dark Millennium - Where Oceans Collide (2018) [FLAC|Lossless|image + .cue] <Progressive Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampire`s Empire (03:45)
+02. Lovers Die (04:10)
+03. Moving Light (04:31)
+04. Insubstantial (03:08)(   Читать дальше...   )Жанр: Progressive Death, Doom MetalПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00211C00D66332CFD77622A21DB7F98CF471259A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574373   (385783) от 05.09.2022
+
+The Last Kind Words - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ascent [00:01:38]
+02. Nihil Est [00:04:14]
+03. In Vain [00:03:30]
+04. A Sirens Call [00:04:29](   Читать дальше...   )Жанр: Post-MetalcoreПродолжительность: 2 CD, 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2783462F41DCC9FA8CB624EE15EFF71188AD9B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574400   (385784) от 05.09.2022
+
+In Gloom - Self Titled (2020) Remaster, 2022 [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorched Earth [00:01:36]
+02. II [00:01:53]
+03. Sycophant (feat. Bodysnatcher) [00:03:12]
+04. Vapid Existence [00:04:48](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C293A47472B101BA280142A75662038D603485FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574429   (385785) от 05.09.2022
+
+Endonomos - Endonomos (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wither and Thrive (06:30)
+02 - Barrier (06:31)
+03 - Atropos (09:39)
+04 - Weary (05:32)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A0A7A8B82EC6277897218A561ABBEB90195AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574340   (385786) от 05.09.2022
+
+Infantry - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disposer of Immorality [00:05:03]
+02. Submission [00:03:40]
+03. Destination: Wonderland (feat. Miranda Visser) [00:04:15]
+04. Under Destruction [00:05:20](   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 2 CD, 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ADE22188DD6FF9C2E6DA4077454046D9DE567D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

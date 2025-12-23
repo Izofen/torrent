@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1748730   (43773) от 12.09.2024
+
+VA - DJ Hits Vol. 985 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexia - Uh La La La (Radio Mix)
+02. Michael jackson - Ghosts (Radio Edit)
+03. Pandora - A Little Bit
+04. Yell 4 you - Girl (I Need Your Love) (Radio Edit)(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D103678C44BC7AB6ACB689E6D46F90B9913EC850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748775   (43774) от 12.09.2024
+
+VA - DJ Hits Vol. 999 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sash - Ecuador
+02. Dj Quicksilver - Free
+03. Naln & Kane - Beachball
+04. Red 5 - Lift Me Up(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF1B39F6B98CF2B4509050D82A3794687060EF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749057   (43775) от 12.09.2024
+
+Stryper - When We Were Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal, Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of Days (4:20)
+02. Unforgivable (4:01)
+03. When We Were Kings (4:01)
+04. Betrayed by Love (4:32)(   Читать дальше...   )Жанр: Glam Metal, Heavy Metal, Hard RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6881F2A5504856BF88BE5733036D0D462933A36E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748942   (43776) от 12.09.2024
+
+Clint Morgan - Codger (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Dry
+02. Money Mule
+03. I Blame You
+04. Old Man(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F1916CA936919C0A59F9B8632BD4BF5ECA92F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749032   (43777) от 12.09.2024
+
+Oceans Of Slumber - Where Gods Fear To Speak (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Gods Fear to Speak (6:25)
+02. Run From the Light (5:15)
+03. Don't Come Back from Hell Empty Handed (8:28)
+04. Wish (3:53)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BCA6368390838EB2FA37503D13B728FED1E662
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749061   (43778) от 12.09.2024
+
+Flotsam And Jetsam - I Am The Weapon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Kind of Hero (4:50)
+02. Primal (3:54)
+03. I Am the Weapon (3:17)
+04. Burned My Bridges (4:14)(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8458C46C29E32592B5B439A0CF2E09744FFD7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749035   (43779) от 12.09.2024
+
+C-Lekktor - 2.0 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, Harsh EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always You [00:04:22]
+02. Infected (2.0) [00:04:54]
+03. Are You Ready for the Bass [00:05:34]
+04. Hellekktro Convultion Therapy (2.0) [00:04:26](   Читать дальше...   )Жанр: Dark Electro, Harsh EBMПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08D0B82D0CB52F173A5FAC7FCCC47AC7C9A9E5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749037   (43780) от 12.09.2024
+
+Коты не танцуют / Cats Don't Dance (1997) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о бедном коте Денни, который всю свою жизнь мечтал стать звездой сцены. Но оказалось, что роли в Голливуде дают только людям. Животные на сцене могут мяукать, лаять и мычать. Но не больше. Вместе с друзьями Денни разрушает привычные стереотипы и доказывает, что мечты превращаются в реальность.Производство: США / David Kirschner Productions, Turner Feature Animation, Turner Pictures (I)Жанр: мультфильм, мюзикл, фэнтези, комедия, семейныйРежиссер: Марк ДиндалАктеры: Скотт Бакула, Жасмин Гай, Натали Коул, Эшли Пелдон, Линдсэй Риджвей, Кэти Нэджими, Джон Рис-Дэвис, Джордж Кеннеди, Рене Обержонуа, Бетти Лу ДжерсонПеревод: Дублированный (Варус Видео)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65612227C792C22ACBD494B114D3BA3AF730772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749029   (43781) от 12.09.2024
+
+Яндекс.Браузер 24.7.3.1136 (x32) / 24.7.3.1142 (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A701131D9BDC52358919A09A395600EBA128CF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749027   (43782) от 12.09.2024
+
+Уход за кожей / Skincare (2024) WEB-DL [H.264/1080p] [UKR, ENG / ENG Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнес известного косметолога Хоуп Голдман по уходу за кожей сталкивается с саботажем, когда ее соперница Энджел Вергара открывает бутик напротив. С помощью подруги Джордан Хоуп пытается выяснить, кто пытается разрушить ее репутацию.Производство: Италия, США / Iervolino & Lady Bacardi Entertainment, Jalapeno GoatЖанр: триллерРежиссер: Остин ПитерсАктеры: Элизабет Бэнкс, Нэйтан Филлион, Льюис Пуллман, Микаэла Джей Родригес, Джон Биллингсли, Эрик Палладино, Элла Балинска, Медальон Рахими, Луис Херардо Мендес, Майк ФергюсонПеревод: Многоголосый профессиональный (DniproFilm)Язык озвучки: Украинский, АнглийскийСубтитры: Украинские (Forced), АнглийскиеПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CA12CF7C4A5FA72CF83BBFDF962C43379DD1AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748996   (43783) от 12.09.2024
+
+Время прощать (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир благополучной семьи Кати и Алексея Бажовых переворачивается после убийства соседской девочки. На месте преступления заметили машину Кати. Следователь подозревает Бажовых, но в ходе следствия выясняется, что жертвой должна была стать… сама Катя. Кто мог желать ей смерти? Семье придется пройти через череду неприятных и сложных испытаний, прежде чем докопаться до (   Читать дальше...   )Производство: Россия | ООО «Киноструктура»Жанр: МелодрамаРежиссер: Мария МаханькоАктеры: Елена Аросьева, Сергей Масленников, Валентина Муравская, Федор Подчезерцев, Елизавета Мельникова, Алла Малкова, Зинфира Арсланова, Елена Прогоннова, Кирилл Краснов, Вероника НоринаСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3424CB50979A4288DC473AC14998236C38EFCE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748934   (43784) от 12.09.2024
+
+Ария - Гость из Царства Теней. Наследие (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гонка за славой (6:08)
+02. Ангелы неба (4:50)
+03. Волонтер (5:22)
+04. Герой асфальта (5:36)(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97968DD46B9BAEBB722B4BE7805A2692C09F49A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748944   (43785) от 12.09.2024
+
+Семь дорог на закате / Seven Ways from Sundown (1960) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой техасский рейнджер Севен Джонс (Оди Мерфи) получил задание арестовать и доставить в тюрьму закоренелого преступника Джима Флуда (Бэрри Салливан). Вторая часть задачи для неопытного законника оказалась еще более сложной, чем первая. В столкновениях с апачами и алчными охотниками за головами Джонсу и Флуду иногда приходилось действовать вместе, чтобы выжить. (   Читать дальше...   )Производство: США / Universal-International StudiosЖанр: драма, вестернРежиссер: Гарри КеллерАктеры: Оди Мерфи, Бэрри Салливан, Венеция Стивенсон, Джон МакИнтайр, Кеннет Тоби, Мэри Филд, Кен Линч, Сюзанн Ллойд, Уорд Рэмси, Дон КольеПеревод: Одноголосый любительский, Геннадий МиханошаЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77D7D5A7C723F3090EDE20D330F3A9F675486CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748899   (43786) от 12.09.2024
+
+Робин Шарма | Исполнение желаний и поиск своего предназначения (2024) [MP3, Валерий Смекалов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три легендарных бестселлера «Монах, который продал свой феррари», «Кто заплачет, когда ты умрешь?» и «Уроки семейной мудрости от монаха, который продал свой феррари» в одной аудиокниге!
+Робин Шарма – один из 5 ведущих мировых экспертов по лидерству. Среди его клиентов – знаменитые миллиардеры, деятели искусств, звезды профессионального спорта и многие компании из (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: Аудиокнига АСТПродолжительность: 16:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE6E97FB0EF0E0AAF3626AD51A471FA87F83D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749067   (43787) от 12.09.2024
+
+Время прощать (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир благополучной семьи Кати и Алексея Бажовых переворачивается после убийства соседской девочки. На месте преступления заметили машину Кати. Следователь подозревает Бажовых, но в ходе следствия выясняется, что жертвой должна была стать… сама Катя. Кто мог желать ей смерти? Семье придется пройти через череду неприятных и сложных испытаний, прежде чем докопаться до (   Читать дальше...   )Производство: Россия | ООО «Киноструктура»Жанр: МелодрамаРежиссер: Мария МаханькоАктеры: Елена Аросьева, Сергей Масленников, Валентина Муравская, Федор Подчезерцев, Елизавета Мельникова, Алла Малкова, Зинфира Арсланова, Елена Прогоннова, Кирилл Краснов, Вероника НоринаСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BE9257F2CEC06F65A81690DE1F72E121870A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747002   (43788) от 12.09.2024
+
+Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Babe (Willie Dixon) [03:19]
+02. Я забываю [03:53]
+03. Тонечка (Городской Романс) [05:37]
+04. Bring It On Home [05:44](   Читать дальше...   )Жанр: BluesПродолжительность: 05:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746FA0BCF896A5AFEDEA741066E3188E0585FD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748999   (43789) от 12.09.2024
+
+VA - E-Dance Weekend Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43789.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta & Morten - The Future Is Now
+002. Slander, Trivecta & Chris Howard - A Better World
+003. Steve Aoki & Banda Al9 - She Calls Me Love
+004. Nostalgix Feat. Dev - Real Girls(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 10:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47CEC2705D9527BE3AB7BB780CACCFD875C9B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748994   (43790) от 12.09.2024
+
+VA - The Jazz Tour (2024) [MP3|320 Kbps] <Jazz, Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43790.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Petter Eldh, Koma Saxo - Koma Kaprifol
+002. The Ot X - Mouth Wide Open
+003. Vito Rezza - Anne Marie
+004. Jonas Cambien - Holy Fishtail(   Читать дальше...   )Жанр: Jazz, Blues, Blues RockПродолжительность: 10:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62D361B4303A9B40EF5574E676437E1F8A79CA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748880   (43791) от 12.09.2024
+
+Грехи жены проповедника / Sins of the Preachers Wife (2023) WEB-DLRip [Line] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина отдаёт своего ребёнка в детский сад при местной церкви, но жена проповедника становится одержима её малышкой и пытается выставить женщину как плохую мать.Производство: США / Hyperborea Films, LaSalle ProductionsЖанр: триллерРежиссер: Гленн ЧианоАктеры: Анна Мари Доббинс, Ванесса Энджел, Джадсон Миллс, Джейсон Кук, Эрик Лютес, Том ДеНуччи, Glenn Robert, Шарлотта Чиано, Хоуп Блэксток, Дэвид ГирПеревод: Дублированный (Line)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5A293E6C0530A53F6CE1EEA0539FA626CE25FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748970   (43792) от 12.09.2024
+
+Тёмная жатва / Dark Harvest (2023) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год в ночь на Хэллоуин в кукурузном поле рядом с небольшим городком пробуждается существо, которое местные называют Пилозубый Джек, и до полуночи пытается добраться до церкви, а вооружённые молодые люди стараются его прикончить. 1963 год. Старшеклассник Ричи мечтает убить чудовище и стать героем, как это сделал в прошлом году его старший брат, и, несмотря (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM), Matt Tolmach ProductionsЖанр: ужасыРежиссер: Дэвид СлэйдАктеры: Кэйси Лайкс, Эмири Крачфилд, Дастин Сейтамер, Алехандро Акара, Эзра Баззингтон, Джереми Дэвис, Элизабет Ризер, Люк Кирби, Аутри Остин, Меган Бест и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:39Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E086B3DB01DC4F0029595E502E3B70FBB4B25CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749001   (43793) от 12.09.2024
+
+VA - Greatest Violin Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yevgeny Svetlanov - Violin Concerto No. 2 in B Minor, Op. 7 III. Rondo La Campanella (7:30)
+02. Libor Pešek - Serenade in G Major, K. 525 Eine kleine Nachtmusik (18:43)
+03. David Parry - 14 Romances, Op. 34 XIV. Vocalise (5:50)
+04. Sergei Stadler - 24 Caprices for Solo Violin, Op. 1 No. 5, Caprice in A Minor. Agitato (3:15)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E97218A397EBB80CD4DEA1979DABCCCDBCB2B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749016   (43794) от 12.09.2024
+
+VA - TOP Non-Stop 2020+. Deep & Organic House (2024) [MP3|192-320 Kbps] <Deep House, Organic House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred P - A Place for Us (2021) (4:28)
+02. Death on the Balcony - Freedom Song (2020) (7:31)
+03. Guy Maayan - Gently (2022) (5:45)
+04. Paresse - Gold Totem (2021) (4:25)(   Читать дальше...   )Жанр: Deep House, Organic House, Progressive HouseПродолжительность: 09:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B959A836441EDF823A5D1040F36583FA8A6B823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748932   (43795) от 12.09.2024
+
+VA - Classical Music with Violin and Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matvey Lapin - The Carnival of the Animals, R. 125 XIII. The Swan (Arr. for Violin and Piano) (2:49)
+02. Botticelli Trio - The Four Seasons, Op. 8, Concerto No. 4 in F Minor, RV 297 Winter I. Allegro non molto (Arr. for 2 Violins and Piano) (3:29)
+03. Matvey Lapin - Thaïs Meditation (Arr. for Violin and Piano) (4:31)
+04. Botticelli Trio - The Four Seasons, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723F24F1F55A7BB196B0E67A83AE6007E6F8C471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748965   (43796) от 12.09.2024
+
+Адам Сэндлер: Люблю тебя / Adam Sandler: Love You (2024) WEBRip [DVO] [AD]
+
+>>Юмор (ТВ)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Сэндлер выходит на сцену в захватывающе непредсказуемом комедийном спецвыпуске с песнями-шутками, веселыми собаками и большим количеством любви.Производство: США / Happy Madison Productions, Irwin EntertainmentЖанр: концерт, комедияРежиссер: Джош СэфдиАктеры: Адам Сэндлер, Villiam Hafoka, Джонатан Лоугрэн, Митчелл Вениг, Jhirair John Demirchyan, Джозеф Векси, Robert Digby, Лу Адлер, Уилли Тайлер, Ann Pala и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:12:55Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDBDC8B6A4E8C487F01D8EE44D09C9881FAFCFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748997   (43797) от 12.09.2024
+
+VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chanel Beads - Unifying Thought
+002. Coldplay - Speed Of Sound
+003. Harrison Storm - Better With You
+004. Zach John King - The Way I See You(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 09:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27E39C6FD771EE5845A2BCD8EAC40FDF3D787B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749017   (43798) от 12.09.2024
+
+Ashbury Heights - Ghost House Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bitter Flavour [00:04:09]
+02. You and Me Apart From the World [00:05:22]
+03. The Good the Bad and the Birds [00:03:36]
+04. Cry Little Sister [00:04:26](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3046BC60CDCB53FFA622C43FD5E02942A5377AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

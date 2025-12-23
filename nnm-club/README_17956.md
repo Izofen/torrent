@@ -1,26 +1,679 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1021129   (740980) от 29.05.2016
+
+Dan Patlansky - 2 Альбома (2006, 2012) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real    04:30
+02. Dead Shrimp Blues    05:39
+03. Only An Ocean    06:22
+04. Bad Weather Blues    07:22(   Читать дальше...   )Жанр: Blues Rock ♦Продолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2122BDA6C58C19C529C402119BC2D3B3909FDFF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021357   (740981) от 29.05.2016
+
+Журнал | Подсобное хозяйство №3 (май 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав за город, многие дачники решаются начать бизнес. Конечно, самый очевидный вариант здесь - ведение приусадебного хозяйства. Благо в соответствии с ФЗ «О личном подсобном хозяйстве» (ст. 2) реализация сельхозпродукции, произведенной в ЛПХ, не считается предпринимательской деятельностью, а значит, не облагается налогом. Дачные форумы полны рассказами об идеях (   Читать дальше...   )Жанр: Домоводство, птицеводство, фермерство, подсобное хозяйствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCBEADFF0F79C7FE1AC2099F03099B2E34C707B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021475   (740982) от 29.05.2016
+
+VA - Не печалься, любимая... (2006) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шпана фартовая [04:38]
+02. Сибирь [03:03]
+03. Нечет [03:32]
+04. Карманник [05:20](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01EF5ABC9396EB2FF53B3C5EA1F71D9BC82138B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021109   (740983) от 29.05.2016
+
+Framer Studio 63 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Framer Studio - инновационные прототипирование.
+Framer Studio построена на Framer.js, является основой для быстрого прототипирования с открытым исходным кодом.
+Framer позволяет определить анимацию и взаимосвязь.
+JavaScript framework для быстрого прототипирования. С фильтрами, Spring Physics и 3D эффектами.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 мая 2016Разработчик: PODIUM BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2F0D5CBD76BB88AA4F5ADB1CCB675E23FEEFFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021481   (740984) от 29.05.2016
+
+Parra For Cuva & Senoy - Darwis (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Deep House, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Feathers (04:59)
+02. Quadrant (06:22)
+03. Yuyun (04:08)
+04. Ellajazz (04:04)(   Читать дальше...   )Жанр: Chillout, Deep House, DowntempoПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA3590DC215B5D7914D3905771609E657DE3B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021343   (740985) от 29.05.2016
+
+VA - Girls! The Ultimate Female Rockin' Rollin' Jivin' Album (1990) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bugaloos - Rock Love (01:52)
+02. Bugaloos - Say Yeah (01:56)
+03. Bugaloos - Rock Me Robert (02:19)
+04. Bugaloos - Two Hearts Two Kisses (02:06)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D7A276DAFD82D56B1B59BAF684F07ED523D6E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021363   (740986) от 29.05.2016
+
+Daryl Hance - Wild Blue Iris (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Celebration (04:11)
+02. Those Vibrations (03:35)
+03. With The Tide (03:48)
+04. The Secret (04:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E210A1776BC70733D89D42077FF8724F8024AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021142   (740987) от 29.05.2016
+
+Alex Parche Band - Get Down To Business (1999) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare    04:23
+02. Do you really know how bad I am?    03:33
+03. Get down in business    05:08
+04. M & O Blues    03:50(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B68A04379FF565C07180FDF1001C7AB2FB9AC8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021354   (740988) от 29.05.2016
+
+Чудо техники (2016.05.29) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740988.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C82B226462B0033DC55C64BC3F2642BA8F8026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021304   (740989) от 29.05.2016
+
+Руссо туристо (2016.05.28) SATRip (выпуск 21. Куала-Лумпур)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F67DA66DEF17978F1C9098C5DC03DD417A23A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021516   (740990) от 29.05.2016
+
+Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trailer    03:17
+02. Dreams of Flying    03:58
+03. Beautiful Blue    06:36
+04. Beautiful World    03:08(   Читать дальше...   )Жанр: Rock, Country Rock, Folk RockПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F012C5AFC0534CD1E60A560504010233B94C3AC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020966   (740991) от 29.05.2016
+
+John Digweed - Transitions (612-613) (2016) [MP3|192 кб/с] <Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740991.jpg" />
+</div>
+
+
+###  Подробнее
+
+John Digweed @Miami Sunset Cruise
+01. Unknown – Unknown
+02. Termoment - Blakk Campion (Systematic - SYSTDIGI 18)
+03. U.S.U.R.A.  - Open Your Mind(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0119A9FF551D57BAFFAE5B9B74D263BF4A380B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021402   (740992) от 29.05.2016
+
+VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uffe Bengtsson - Summer in Ibiza [06:44]
+02. Dimix - Coming Alive - Fallow Remix [07:03]
+03. Nocti Luca - Volver - Zak Gee Remix [06:01]
+04. Lex Luca - Hoop [06:29](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9289C8D9B621CE5C63F3BB6B04BE916574FC0833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021122   (740993) от 29.05.2016
+
+VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, GlithHop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fr33m4n - Off We Go
+02.Access Denied - Black (Original Mix)
+03.Antiserum & Vinja Feat. Messinian - Murkulation (Original Mix)
+04.Nero - Promises (Nero & Skrillex Remix) (Tolgar's Symphony of Destruction Rework)(   Читать дальше...   )Жанр: DubStep, Drum&Bass, GlithHopПродолжительность: 02:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969FB5A964A5EA92F37D9D056C9FEE5D2B891E04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021118   (740994) от 29.05.2016
+
+Николай Свешников, Николай Лесков | Спиридоны-повороты (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свешников (Николай Иванович, 1839-1899) - букинист, писатель, уроженец Ярославской губернии. Написал: "Воспоминания", "Петербургские книгопродавцы - апраксинцы и букинисты" и несколько фельетонов ("Вяземская лавра" и другие). По его материалам Н.С. Лесков составил своих "Спиридонов-поворотов".Жанр: МемуарыПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D2B869A797C439296D328278C68659831171CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021164   (740995) от 29.05.2016
+
+Daniel Freedman - Imagine That (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Determined Soul [05:28]
+02. Baby Aya [06:03]
+03. Big in Yemen [04:47]
+04. Codex [05:07](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831F1FBD94F4281F0302FCC37D215048474F82D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021394   (740996) от 29.05.2016
+
+VA - Paul Oakenfold DJ Box May (2016) [MP3|320 кб/с] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juno Reactor - Voyager 303 (06:17)
+02. Paul Oakenfold - Lonely Ones (feat Tawiah - Daniel Davoli Ibiza remix) (06:13)
+03. Max Graham - Amnesia (original mix) (06:15)
+04. Betsie Larkin - We Are The Sound (Chris Metcalfe remix) (06:39)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100956F10AF55AEC5C1CCA3C39F1009E863BEF15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126877   (740997) от 20.04.2017
+
+Патрик Модиано | Улица тёмных лавок (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740997.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я - никто. Просто светлый силуэт, в этот вечер, на террасе кафе». Этими словами начинается роман Патрика Модиано «Улица Тёмных Лавок», удостоенный Гонкуровской премии и переведенный на многие языки мира. Ги Ролан - такое имя получает пораженный потерей памяти герой от частного детектива, к которому обратился с просьбой разыскать следы его прошлой жизни. Дальнейшее (   Читать дальше...   )Жанр: Зарубежный романПродолжительность: 05:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AACAADB4B5BAD47E1666D69F8D2C7CD826F69B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126964   (740998) от 20.04.2017
+
+Владимир Качан | Роковая Маруся (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740998.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Роковой Марусей» горжусь так, словно сам ее написал!" – сказал об этой книге Леонид Филатов. И действительно, это удивительно трогательная, смешная и ядовитая история жизни не очень удачливой театральной актрисы по имени Маруся, которая весь свой искрометный творческий потенциал расходовала на разыгрывание любовных мелодрам и на этом поприще не имела себе равных!Жанр: Современная проза, любовно-театральный романПродолжительность: 06:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E3F856582319CA838CF029BFACA87DD13DFF86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127155   (740999) от 20.04.2017
+
+PicturesToExe Deluxe 9.0.9 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBB2D733B5C49AE522BA1652F33CE0290E34F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127159   (741000) от 20.04.2017
+
+100 Watt Vipers - Something Wicked Comes This Way (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Hard Blues, Garage Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blindman  (03:48) 
+02. Hurricane  (03:13) 
+03. Doing The Best I Can  (03:27) 
+04. Under A Witches Moon  (03:14) (   Читать дальше...   )Жанр: Blues Rock, Hard Blues, Garage RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AACBE7721CC676E33CE9646ABC2FE921CD79C96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127216   (741001) от 20.04.2017
+
+The Kate Lush Band - Let It Fly (2017) [MP3|320 Kbps] <Blues, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pack It Up  (03:35) 
+02. River Flow  (04:08) 
+03. Last Mistake  (03:34) 
+04. Come With Me  (05:22) (   Читать дальше...   )Жанр: Blues, FunkПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A316029C971728DBF22942D17990F895DAF40DE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127013   (741002) от 20.04.2017
+
+Осторожно, мошенники! Смертельная недвижимость (2017.04.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D882894D4F80031B3CB160F84D1DAA9405B15F93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126805   (741003) от 20.04.2017
+
+Axxis - Retrolution (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn! Burn! Burn!  (03:02) 
+02. All My Friends Are Liars  (03:55) 
+03. Dream Chaser  (03:19) 
+04. Burn Down Your House  (03:58) (   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331E40D41CF02F0BFC66E293ED39F17228C34FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127138   (741004) от 20.04.2017
+
+Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philadelphia Scream  (01:52) 
+02. Relapse  (04:13) 
+03. Waiting for You  (03:19) 
+04. Killing Time  (03:24) (   Читать дальше...   )Жанр: Hard Rock, Grunge, Punk RockПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C594BE0D5A5AFBE63CE91159AD2E1A10D6802610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127243   (741006) от 20.04.2017
+
+Ulrich Ellison And Tribe - America (2017) [MP3|320 Kbps] <Blues-Rock, 70's Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America  (03:34) 
+02. I'm Down  (02:43) 
+03. Messing Around  (03:21) 
+04. Running on Empty  (04:12) (   Читать дальше...   )Жанр: Blues-Rock, 70's RockПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4BAE39AE7BFD373378852D660FB2632E6ABCA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

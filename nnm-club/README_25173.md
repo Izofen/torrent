@@ -1,0 +1,693 @@
+###  Публикация: 1602038   (1046265) от 03.01.2023
+
+Гаснет Свет - In Tenebris (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal, Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На распутье [4:27]
+02. Чёрная кровь [5:07]
+03. Осколки [4:03]
+04. Пленники шторма [6:42](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Epic MetalПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D50CF852F307F4F2A20E4334DF07AADBDAF1A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601961   (1046266) от 03.01.2023
+
+Steele - Steele (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tricks Up My Sleeve
+02. Love Ain't Gonna Change Me
+03. 700 Miles
+04. Flirtin' With Fame(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC74A8F8BA6324FCA94DEC6A592570F2A3A8262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602061   (1046267) от 03.01.2023
+
+7Horse - The Last Resort (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hippies On Acid (00:03:45)
+02 - Non Sono Un Ragazzo (00:02:50)
+03 - Get You There (00:03:20)
+04 - Hey Vámonos! (00:02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BF8820F1813A0B233A464CD2617215863EDC69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602008   (1046268) от 03.01.2023
+
+Greg Brice - Greg Brice (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work for a Living (3:26)
+02. Brother (4:47)
+03. Together but Long Distance (3:31)
+04. As the Crow Flies (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677A2506BCDA4F0FE104D1BDC5992D36EAC11727
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602005   (1046269) от 03.01.2023
+
+Dave Keyes - Rhythm Blues & Boogie (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Shake Shake (feat. Bernard "Pretty" Purdie) (4:42)
+02. That's What the Blues Are for (feat. Bernard "Pretty" Purdie) (5:10)
+03. Blues and Boogie (feat. Early Times) (4:40)
+04. Funny How Time Slips Away (5:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2FF174002A1071271B5441D6D2B799E762C168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601993   (1046270) от 03.01.2023
+
+Imperium of Vanity - Countdown (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Countdown (01:08)
+02 - Shameless World (05:45)
+03 - Incoming Danger (06:43)
+04 - Alone (04:42)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85473084DE7BC221B8560D17D8D5461A094842C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602016   (1046271) от 03.01.2023
+
+Angela Strehli - Ace Of Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Steps From The Blues (2:38)
+02. Person To Person (2:27)
+03. Ace Of Spades (2:37)
+04. I Love The Life I Live (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6635A168A83182ED4B3D4BE475A8A8E5645BE644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601979   (1046272) от 03.01.2023
+
+Ken Colyer's Jazzmen & Chris Barber's Jazz Band - New Orleans To London & New Orleans Joys (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Ragtime, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Home [3:21]
+02. Isle Of Capri [2:51]
+03. Harlem Rag [2:56]
+04. La Harpe Street [3:24](   Читать дальше...   )Жанр: Ragtime, DixielandПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9938AA5ABD949BC89C1D5AA28FA07007683E4ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602004   (1046273) от 03.01.2023
+
+Ingested - Ashes Lie Still (2022) [FLAC|Lossless|WEB-DL|tracks] <Slam, Brutal Death Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ashes Lie Still (04:23)
+02 - Shadows in Time (03:44)
+03 - You'll Never Learn (03:35)
+04 - Tides of Glass (04:17)(   Читать дальше...   )Жанр: Slam, Brutal Death Metal, DeathcoreПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1C49844D829AC9F1CC502C3D0C77127FE83F62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602002   (1046274) от 03.01.2023
+
+Brooks Young - Supply Chain Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Down (3:51)
+02. Ventilator (4:26)
+03. Same Old Blues (3:43)
+04. Five Long Years (4:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30326A728157705810AB3A08D755845656927068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602082   (1046275) от 03.01.2023
+
+Saint Astray - Shadow Dial (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Six O'clock
+02 - Black Canvas
+03 - Temple of Lost Souls
+04 - Shadow Dial(   Читать дальше...   )Жанр: Melodic Gothic MetalПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701B1C249AB8BD19F36E476E9378638A0E3E2C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602006   (1046276) от 03.01.2023
+
+David B. McLaughlin - Raise the Dead (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Blues (4:14)
+02. Steamroller Baby (3:07)
+03. You Don't Have to Go (4:16)
+04. Baby What You Want Me to Do (4:28)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16C0E153FDE95DB15A2D8B8035C244E3C399E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602010   (1046277) от 03.01.2023
+
+Jim Keller - Spark & Flame (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Down (2:38)
+02. Tower Of Love (3:21)
+03. Spark & Flame (2:42)
+04. Magic (4:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B18CF383DDE5D0BF0C2EF6A94E63E5201F75FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601951   (1046278) от 03.01.2023
+
+Sarah Vaughan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Grass [2:49]
+02. It's You or No One [3:11]
+03. It's Magic [3:09]
+04. What a Difference a Day Made [2:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F7A7F39A16B2B1A71B356E2F312EC401630724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602009   (1046279) от 03.01.2023
+
+Ivor S.K. - Mississippi Bound (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Bound (3:03)
+02. I Don't Roll (4:10)
+03. Get Up (3:19)
+04. Talkin' Shit Again (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D765CCFB4D2597A48AD353253B2F8C15EAC512A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601987   (1046280) от 03.01.2023
+
+Alexa - Alexa (1989) Reissue, 2006, Major MTM Music GmbH [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Shake You
+02. We Don't Remember Why
+03. Dance The Night Away
+04. Wanderlust(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26058B4BB8E58FEE53378F4EF291032A0B758F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601990   (1046281) от 03.01.2023
+
+Eric Demmer - So Fine (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Talk To Me (4:25)
+02. She's So Fine (4:05)
+03. Will It Ever Be The Same (5:05)
+04. What Was I Thinking (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78785EFF03789217A4BA21404E9D908131889D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602017   (1046282) от 03.01.2023
+
+Karin Krog & John Surman With Ben Surman - Infinite Paths (2016) Live [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Bird (Surman-Krog) - 5:39
+02. Word Overheard (Surman-Krog-Surman) - 4:22
+03. Casting High (Surman-Krog) - 6:58
+04. Picture Postcard (Surman) - 4:00(   Читать дальше...   )Жанр: Contemporary Jazz, VocalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395DCEC377954AB418B31F7731E9E2D4DC33E83B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602076   (1046283) от 03.01.2023
+
+Чарли Чейз. Дочь смотрителя / The Caretaker's Daughter (1925) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опять молодая жена, опять ревность, опять веселая неразбериха и ... автомобили. Очень забавная и озорная комедия. Жаль, что качество не очень.Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Джордж Сигман, Уильям Дж. Келли, Симона Бонифейс, Джеймс Пэррот, Джеймс ФинлейсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94A022DD7F2924587D72FD02BA64757C8A0D7F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601949   (1046284) от 03.01.2023
+
+Sarah Vaughan - 1951 - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria [3:30]
+02. A City Called Heaven [3:33]
+03. Deep Purple [3:10]
+04. These Things I Offer You [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8D88B5526A6F4907704533C83E79265BD463E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602012   (1046285) от 03.01.2023
+
+Kossuth - Necronym (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Necronym (04:22)
+02 - Erroneous Euphoria (06:35)
+03 - Ritualistic Sanctum (06:27)
+04 - Chimerical Flame (06:47)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460B76BACCBD2324354D4A21F818A3CD0CD1E05E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601984   (1046286) от 03.01.2023
+
+Ice Chemicals - Alchemy (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Legacy (04:14)
+02 - When Reason Collapse (05:13)
+03 - I'm your God (04:30)
+04 - Evolved (03:57)(   Читать дальше...   )Жанр: Progressive Death Metal, MetalcoreПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9968EA054A9C2F9968154ECBF78B46FEA2919258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602098   (1046287) от 03.01.2023
+
+Seance - Saltrubbed Eyes (1993) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulerosion
+02. 13th Moon
+03. Saltrubbed Eyes
+04. Controlled Bleeding(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD011587B865FB088419E743A9C5C1DF4FF3801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601903   (1046288) от 03.01.2023
+
+Eden Weint Im Grab - Tragikomödien aus dem Mordarchiv (2019) [FLAC|Lossless|image + .cue] <Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Meysterdetektiv
+02. Lazarus und die Tücken der Einsamkeit
+03. Der Giftmischer (In der Kammer des Grauens)
+04. Himmelsstürmer(   Читать дальше...   )Жанр: Dark MetalПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08368E23E6665DD9825B1503604B2EEDD66E91D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601859   (1046289) от 02.01.2023
+
+Меня зовут Месть / Il mio nome e vendetta / My Name Is Vendetta (2022) WEB-DL [H.264/1080p] [МVO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046289.jpg" />
+</div>
+
+
+###  Подробнее
+
+София, девочка-подросток, живет в маленьком городке со своими родителями и дядей. Однажды она выкладывает фотографию своей семьи в Интернет, несмотря на то, что ее отец Санто запрещает это делать. Когда в дом врывается преступник и убивает мать и дядю девочки, София узнает всю историю своего отца, который когда-то был членом крупнейшей итальянской мафии. Теперь девушка (   Читать дальше...   )Производство: Италия, Colorado Film ProductionЖанр: Боевик, триллер, драма, криминалРежиссер: Козимо ГомесАктеры: Алессандро Гассман, Джиневра Франческони, Алессио Пратико, Francesco Villano, Габриэль Фальсетта, Марчелло Маццарелла, Мауро Ламанна, Синья Дикс, Лука Дзамперони, Ремо ДжиронеПеревод: Любительский многоголосый (MUZOBOZ)Язык озвучки: русский, английский, итальянскийСубтитры: русские, английские (Full, Forced, SDH)Продолжительность: 01:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0148D4C263DDFF0AAC079BCCB8E4BE72596101EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601754   (1046290) от 02.01.2023
+
+Друг на продажу (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван разочаровался в отношениях после расставания со своей возлюбленной Катей, но внезапно стал главным «лотом продаж» в фейковом брачном агентстве своего друга, бизнесмена Гоши. Не подозревая об уготованной для него роли, Иван становится объектом охоты сотни незамужних девушек, которые готовы на всё, чтобы заполучить в мужья «мачо-миллионера» — именно так рекламирует (   Читать дальше...   )Производство: Россия, Наше Кино, TAYGA PicturesЖанр: комедияРежиссер: Александр ДаниловАктеры: Антон Пампушный, Антон Богданов, Вадим Галыгин, Ирина Антоненко, Михаил Башкатов, Валерия Дергилева, Алина Алексеева  Мирослава Карпович, Максим Коновалов, Игорь ГаспарянПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8F158F45DB1EF009079652BDDDC44FA90DC1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

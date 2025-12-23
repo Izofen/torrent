@@ -1,26 +1,678 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1048985   (544915) от 04.09.2016
+
+Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лес есть лес (Grove Is Grove)
+02. Подхвати мой клич (Howl)
+03. Нам туда (Go Forward)
+04. Сотня бочек (AHundred Barrels)(   Читать дальше...   )Жанр: Folk Metal, Death MetalПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049209   (544916) от 04.09.2016
+
+VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Fibreglasses (3:12)
+02. Breathe Carolina - Giants (3:24)
+03. Codeko - Halo (3:36)
+04. David Gravell - The Riddle (3:31)(   Читать дальше...   )Производство: Armada CaptivatingЖанр: TranceПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E080E60B24A34D9FD9EC1BE34E85EF479111F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049207   (544917) от 04.09.2016
+
+Сто к одному (04.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DE88575EBC45D75A69A7E598AFEFBF4042839A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049354   (544918) от 04.09.2016
+
+Особая статья. Узбекистан. после Ислама  (04.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая программа посвящена наиболее острым и актуальным журналистским статьям и расследованиям недели. В студию  приглашаются  журналист и герой конфликтной публикации. Программа дает каждой из сторон возможность высказаться и отстоять свою точку зрения. Зрителям предстоит разобраться, на чьей же стороне правда.Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4A92C7E42A9B62B8B9B6EE819AC81DAF3B9E49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049286   (544919) от 04.09.2016
+
+Photo Size Optimizer (formerly IMAGEmini) 1.70 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Size Optimizer (Ранее известный как IMAGEmini) - изменение размера и оптимизация фотографий
+Если вы чувствуете, что на вашем Mac явно не хватает свободного пространства, задумайтесь – нужны ли вам внушительная коллекция фотографий в максимальном качестве? Приложение Photo Size Optimizer поможет сжать фотографии с минимальными потерями качества, но при этом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 сентября 2016Разработчик: EffectMatrix Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028EC3444D706D89670D742C9A92ADD2910156F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049264   (544920) от 04.09.2016
+
+Joe Gorfinkle & Friends - Take A Chance (2012) [MP3|320 Kbps] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of These Days     [04:15]
+02. Still Not Over You     [04:10]
+03. Really Wanna Know     [03:50]
+04. Take A Chance     [06:51](   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753879F2F8151FFB20474751B30A1FA5B6D10BB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049114   (544921) от 04.09.2016
+
+John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Techno [07:31]
+ 02.Still Warm [06:03]
+ 03.High and Mighty [05:18]
+ 04.Protocol [03:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3277E3FF2F3D588343AC1C5F250083A60457EF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049308   (544922) от 04.09.2016
+
+Rob Tognoni - Energy Red (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take you home now     [05:41]
+02. Boogie don't need no rest     [04:04]
+03. Fire from hell     [03:31]
+04. Someone to love me     [05:24](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6919007CF68973E92017E7979BCD54CAA9F379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049011   (544923) от 04.09.2016
+
+Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Чёрный ангел (Black Angel)
+03. Страх (Fear)
+04. Патриот (Patriot)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD50F226AFC523A80766967B1E99196210FFD21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048959   (544924) от 04.09.2016
+
+Pain Confessor - Turmoil (2004) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiery Thorns
+02. Hollow Souls
+03. Whenever Dark Draws Near
+04. Erased of Empathy(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D43A1CD0CC0D18644A3314D1BE7C43AAB0EECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049141   (544925) от 04.09.2016
+
+hr - Task timer as simple as it's name 1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таймер задач для строки меню такой же простой, как его имя. Ненавязчивый, но легко доступный таймер задач, который изменяется в строке состояния будет полезным особенно если вы фрилансер. hr предлагает вам возможность быстро определить и управлять таймерами, без необходимости иметь дело со сложными настройками.
+
+Работа с hr  интуитивно понятна: просто запустить приложение, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 сентября 2016Разработчик: White DesignsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65EB7C2B518A5A186F2802E3AD96C33AE2F687B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049284   (544926) от 04.09.2016
+
+Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The One I Love [03:01]
+ 02.Darn That Dream [02:18]
+ 03.Tea For Two [03:20]
+ 04.Oh, Lady Be Good [03:02](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Piano JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8DD388311E5FDE4FF1503CB424CF5FA3A29538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695553   (544937) от 31.08.2013
+
+Газета | Дача круглый год №14 [сентябрь 2013] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все ответы на главные вопросы дачников и садоводов Вы легко найдете на страницах "Дача круглый год". Своими секретами высоких урожаев делятся огородники со стажем. Воспользуйтесь их опытом и таким образом Вы убережете посадки от многих напастей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F30172BB47C2BB1A99689F847698EF0D58CD1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695206   (544946) от 31.08.2013
+
+Н. Беляев | Догмат о папской непогрешимости [1882] [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Догмат о папской непогрешимости. Историко-критический обзор. Папский догмат в процессе образования и развития до XIV в.Язык: Русский (дореформенный)Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC3572D498FF5159D0AA14562D1C067F4152A7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817614   (544948) от 31.08.2014
+
+Фауст / Faust - Eine deutsche Volkssage (1926) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архангел Михаил и Сатана заключают пари — Сатана утверждает, что может совратить любого человека, живущего на Земле. Предметом пари становится Фауст (Гёста Экман) — знаменитый ученый алхимик. На его город Сатана насылает чуму. Фауст пытается найти лекарство, но терпит неудачу. В ярости он швыряет свои книги в огонь, но на страницах одной из них проступает заклинание (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: Драма, фэнтезиРежиссер: Фридрих Вильгельм МурнауАктеры: Геста Экман, Эмиль Яннингс, Камилла Хорн, Фрида Ричард, Уильям Дитерле, Иветт Гильбер, Эрик Барклай, Ханна Ральф, Werner Fuetterer, Ганс БраузеветтерПеревод: Немое кино (немецкие интертитры)Субтитры: Русские, английскиеПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D38CE3E587D7CBAD2F522362A65198A6DB85F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817699   (544956) от 31.08.2014
+
+Остров Головорезов / Cutthroat Island (1995) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважная дочь пирата Морган Эдамс жаждет отомстить за своего отца, погибшего от рук собственного брата. Ей досталась в наследство треть карты Острова Головорезов с обозначением места, где спрятаны несметные сокровища. Чтобы добраться до них, Морган набирает команду из старых боевых товарищей отца.
+На аукционе рабов в Порт-Ройяле на Ямайке она покупает авантюриста (   Читать дальше...   )Производство: США, Франция, Италия, Германия / Metro-Goldwyn-Mayer (MGM), Beckner/Gorman Productions, Canal+ (fr)Жанр: Боевик, Приключения, Комедия, СемейныйРежиссер: Ренни ХарлинАктеры: Джина Дэвис, Мэттью Модайн, Фрэнк Ланджелла, Мори Чайкин, Патрик Мэлахайд, Стэн Шоу, Рекс Линн, Пол Диллон, Кристофер Мастерсон, Джимми Ф. СкэггзПеревод: Авторский одноголосый (Андрей Гаврилов, ранний, поздний)Субтитры: РусскиеПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6CDE9D2B3A24B9DE12D6DFE76F54E06DB7F763
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817435   (544962) от 31.08.2014
+
+VideoHive - Crazy Party - 1851409 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для рекламы различных развлекательных мероприятий,
+презентаций клубов и тому подобного.
+Превью, файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEA330C64868BEFBD4CCE59927A52A33603AED2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049013   (544967) от 04.09.2016
+
+F.R.A.M. - Двери апреля (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Двери апреля (Doors April)
+02. Семь птиц (Seven birds)
+03. Ветер и скрипка (The wind and the violin)
+04. Королева (Queen)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86300B0A78F45D6003EBFA3230FB026AECD44AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049089   (544968) от 04.09.2016
+
+VA - Mainstream Sounds Trance Spirit (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcania  -  This Means War  6:24
+02. Super8 & Tab Ft. Julie Thompson  -  Patience (Extended Mix)  6:12
+03. R3dub And Carlos De La Garza  -  Outsider (Original Mix)  8:14
+04. UDM  -  Tornado (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 08:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DBD86B37F5D40BBD87ACBF828E6897AFB28E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048964   (544969) от 04.09.2016
+
+Mencea - Pyrophoric (2012) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phosphorus
+02. CCC
+03. Elders
+04. Hounds(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D2D9CA4C5F4A333D47370FBBDF54F6E83DA1A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048954   (544970) от 04.09.2016
+
+Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage     (04:21)
+02. How Long Is Now      (04:02)
+03. Snapchat      (04:13)
+04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049298   (544971) от 04.09.2016
+
+Николай Жданов | Новое море (1954) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставляя на влажном песке следы ног, Пташка мчался домой вдоль затона. Близ паромной переправы он внезапно остановился и, запустив руку в карман длинных штанов, торопливо ощупал табель: не потерять бы! Переведя дух, он оглянулся: школа еле виднелась на взгорье. Он с удовольствием подумал, что на все лето только и задано, что повторить несколько параграфов по грамматике (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D982D50BE49E67F97E58F0BFA7DF1C458AD115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049001   (544972) от 04.09.2016
+
+Ghosthill - Embrace of a Chasm (2010) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Billion Years of Torments (instrumental)
+02. The Last Dimension
+03. Cyclonic Death
+04. The Mist(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE292599ED682ABD12AEA40ABB311E51716EAAEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049297   (544973) от 04.09.2016
+
+VA - Whos Afraid Of 138 Top 15 (2016-09) (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery Ft. Christina Novelli  -  Save Me (John Ocallaghan Remix)  3:25
+02. Heatbeat  -  Imperio  3:37
+03. Standerwick & Chris Schweizer  -  Predator  4:00
+04. Andrew Rayel & Digital X Ft. Sylvia Tosun  -  Winterburn (Craig Connelly Remix)  3:34(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF144E0CF4696B388E8F5BC17116DC557F816E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048947   (544974) от 04.09.2016
+
+VA - Open Melody Highest (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Strochenko  -  Maybe (Original Mix)  6:14
+02. Craig Johnstone  -  Nano  7:19
+03. Guy Alexander  -  Poppy (Original Mix)  6:42
+04. Bjorn Akesson  -  Desert Style (Radio Edit)  3:52(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B025CBAF3A4CDB23E71309E7AB930C4646B01E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049072   (544975) от 04.09.2016
+
+Вiо-Месhаnical Degenerаtiоn - Wаrbeats (2016) [FLAC|Lossless|image + .cue] <Industrial, EBM, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They're Coming!
+02. Lies For Answers
+03. Invisible Threat
+04. Machine Men(   Читать дальше...   )Жанр: Industrial, EBM, ElectronicПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493467FD16A074BFBD69B6BEC882870DE87B4A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

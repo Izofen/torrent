@@ -1,0 +1,690 @@
+###  Публикация: 1442574   (1036580) от 25.01.2021
+
+Lazer Station - Time Blazer (2021) [MP3|320 Kbps] <Darksynth, Cyberpunk, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Directive (6:25)
+02. The Engine (4:51)
+03. Preparations (5:36)
+04. The Paradox Problem (5:10)(   Читать дальше...   )Жанр: Darksynth, Cyberpunk, SynthwaveПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793D5C07ABC4F0C104227DB172A88302E872A809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442488   (1036591) от 25.01.2021
+
+VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix)
+02. Susana - Dark Side Of The Moon (Ferry Tayle Remix)
+03. Ana Criado - In A Thousand Skies (Dan Stone Remix)
+04. Philippe El Sisi & Sarah Russell - You Are (Steve Dekay Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E60625CA41E26B7E2335B88987A909CDB32F54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442579   (1036594) от 25.01.2021
+
+Imperative Reaction - Mirror (2021) [MP3|320 Kbps] <EBM, Electro, Industrial, Synthpop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split (4:59)
+02. Here Is Somewhere Else (5:11)
+03. Glass (3:30)
+04. Alter Ego (4:36)(   Читать дальше...   )Жанр: EBM, Electro, Industrial, SynthpopПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45DBCCC884EBDFFF7DD93F78E1AEE28895782D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442379   (1036609) от 25.01.2021
+
+Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (Vintage Culture & Kiko Franco Remix) (05:46)
+02. Desire (Vintage Culture & Kiko Franco Remix Edit) (03:46)
+03. Desire (Charlotte de Witte Remix) (07:52)
+04. Desire (Solomun Remix) (06:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F081E866EDD5FCBCD0DE4D6128F6B2FD6DBF4111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442381   (1036618) от 25.01.2021
+
+ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Life (Kyle Watson remix) (05:44)
+02. My Life (Blond:ish remix) (07:00)
+03. My Life (Brian Cid remix) (07:12)
+04. My Life (Finnebassen remix) (05:13)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EA6A3DD078CC82938417F52CA477BEBFAE060A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442458   (1036621) от 25.01.2021
+
+Various Artists - Sick Music 2020 (2020) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grafix - Blue Dreams (03:58)
+02. Degs - Levitate Your Mind (feat. Unglued) (04:11)
+03. Keeno - I Wonder (feat. Ellie Madison) (05:22)
+04. Fred V - Sad Jungle (04:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D31E7049776A12C9D0B0A98B8F5CDAAC9C36C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442372   (1036628) от 25.01.2021
+
+Various Artists - Rooibos (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Method - You Started A Fire (04:21)
+02. Aperio, Maddy - Did You Call (ft. Maddy) (04:33)
+03. Rex Hooligan - All Right (03:26)
+04. Skyfade - Switch Funk (04:11)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D66EF5D58026211EC6C5DC65844370E35B871E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442434   (1036632) от 25.01.2021
+
+Technimatic, A Little Sound - Lakota (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technimatic, A Little Sound - Lakota (04:12)Жанр: Drum & BassПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DB71AC806273293E3AF46164107B11EAD22676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442370   (1036633) от 25.01.2021
+
+Various Artists - Fast Soul Music 2 (2018) [FLAC|Lossless|tracks + .cue] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Drum & BassПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9645F2D9182AD33E350D17FF0B2A77703DC14270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442371   (1036658) от 25.01.2021
+
+Various Artists - Chai (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tapolsky, Vovking - Medicine (04:27)
+02. Stereotype - Somewhere (03:47)
+03. Fliwo - Gold (04:54)
+04. Dustkey - Always Do (05:07)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9399526FD0C7F3683CEC90980F90A5CC8CDE8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442367   (1036660) от 25.01.2021
+
+Various Artists - High Tea Music: Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indivision, Northern Zone - Immaculate (04:51)
+02. Tapolsky & VovKING - Still (04:00)
+03. Aperio, Kasger - Night Flight (04:32)
+04. Arch Origin - Future Life (03:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C501174D5DA3B29426715D7723890A0C52E2A2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442366   (1036663) от 25.01.2021
+
+Various Artists - Caffeine Rush 2 (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain - House (Dossa & Locuzzed Remix) (03:33)
+02. Rex Hooligan, Pillerin - Anywhere (04:20)
+03. Blooom - Reality (03:19)
+04. L.A.O.S. - I'm Alive (BLVCK CROWZ Remix) (05:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2755B266325EA2DB10096673A2CE7827B817A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442653   (1036667) от 25.01.2021
+
+Gacha Bakradze - Western Arrogance (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks, Acid, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Constant (06:29)
+ 02. Big Cabin (05:30)
+ 03. Western Arrogance (07:01)
+ 04. Inside (14:04)Жанр: Electro, IDM, Breaks, Acid, TechnoПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD68CBBCD51CD29352850BF12B95B9E80B57E037
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616284   (1036675) от 01.03.2023
+
+Технология - Всё, Что Ты Хочешь (1991) Reissue, Remastered, 2003, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Нажми на кнопку
+03. Всё, что ты хочешь
+04. Странные танцы(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF0D6637A3AC865D3AFD0ABAF806907F6095014
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616017   (1036715) от 01.03.2023
+
+Caspro - Dimensions (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Synth Rock, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimensions [00:04:37]
+02. Lost in Translation (feat. The Present Sound) [00:03:17]
+03. A.I. and Me [00:03:41]
+04. Station20 [00:03:30](   Читать дальше...   )Жанр: Synthwave, Retrosynth, Synth Rock, New WaveПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B854A5DB087172BED8EDC970314D79DB7BE0260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616239   (1036716) от 01.03.2023
+
+VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-mase & Sharliz - Sky (06:25)
+02. Mant Deep - Don't Fool Me (06:09)
+03. Abee Sash - Ain't nobody (Gus One Remix) (02:38)
+04. Baccij - Only One (02:33)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655E10275BE12ED593C7DFFD50E020CD0AF9B19A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616258   (1036719) от 01.03.2023
+
+Occams Laser - The Grid Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ENCOM Forever [00:04:08]
+02. MCTRL_751 [00:01:42]
+03. Sins of the Father [00:02:38]
+04. The Grid Lives [00:04:58](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42F2B5CE59DD579ED40E6458F64E7B8846B9E1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616213   (1036720) от 01.03.2023
+
+VA - Mediterranean Sunsets: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - In the Night (4:47)
+02. Michael E - When Eyes Speak (Original Mix) (5:21)
+03. Chillson - Till the Sun Goes Down (6:15)
+04. Marga Sol - Marbella Sunrise (4:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16876D7096F9BF880C4EDBB93981328846BFB9D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616288   (1036728) от 01.03.2023
+
+VA - World Of Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cenk Basaran - The Finger (Original Mix) [6:01]
+02. Facade & Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) [6:54]
+03. Somna & Vijo Caselle - Afterglow (Original Mix) [8:37]
+04. Paul Denton - Monday Club (Original Mix) [6:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BEAA2F42C3388FF1A8CD018556843808BF98E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442208   (1036896) от 24.01.2021
+
+VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Lasting Lover (Fitness Version) (04:37)
+02. DJ Kee - Kickin Hard (Fitness Version) (04:50)
+03. DJ Space'c - Holiday (Fitness Version) (04:35)
+04. Th Express - My Head And My Heart (Fitness Version) (04:24)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442317   (1036898) от 24.01.2021
+
+Reaxion Guerrilla - I Hate You (2010) Special Edition, 2020 [MP3|320 Kbps] <Dark Electro, Harsh EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Apokalipzixxx (1:39)
+02. I Hate You (3:37)
+03. Psycho Destruxion (feat. Johan van Roy: SUICIDE COMMANDO) (4:18)
+04. Mueranse Todos (4:50)(   Читать дальше...   )Жанр: Dark Electro, Harsh EBM, IndustrialПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72168812502FF9E0DEDDBC5ACBFFF34CF4CFBB13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441750   (1036902) от 24.01.2021
+
+Sabled Sun - 2149 (2021) [MP3|320 Kbps] <Dark Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sector 33 (2:44)
+02. Quarantine Zone (4:09)
+03. The Builders (4:03)
+04. Maze (2:17)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976BBB8CFFC5C78A127E1582FA6C29C3DD0E4DA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442168   (1036929) от 24.01.2021
+
+ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036929.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Agartha (2:18)
+2. Potential Danger (5:26)
+3. Nuclear (4:14)
+4. Invasion (4:04)(   Читать дальше...   )Жанр: EBM, Industrial, TechnoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442132   (1036947) от 24.01.2021
+
+VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442079   (1036955) от 24.01.2021
+
+Various Artists - Med School: Graduation (2020) Hospital Records [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BOP - Magic.gif (04:34)
+02. S.P.Y - Black Flag (VIP) (06:03)
+03. Villem - Stereogram (05:44)
+04. Keeno - Lost For Words (05:21)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AD9D5934D30242627B9694208016AEC50E2BFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442130   (1036960) от 24.01.2021
+
+DC Breaks - DCXV (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum 'n' Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Drum 'n' BassПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6863B094F7ED54854DFF6BA030F82B2C91B8586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

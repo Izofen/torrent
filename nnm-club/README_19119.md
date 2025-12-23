@@ -1,26 +1,670 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1203466   (788175) от 02.02.2018
+
+VA - Goa Vol.65 (Compiled by DJ BIM & Materia) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Egorythmia  -  Anno Domini (Original Mix)  7:06
+02.  Ananda  -  Ancient Runes (Original Mix)  8:00
+03.  K.I.T.T.Y  -  Indigo (Original Mix)  6:47
+04.  Serenity Flux  -  Mind Under Control (Original Mix)  7:23(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 02:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2297B4994074219E7277DC3CA8C828147C7743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203511   (788176) от 02.02.2018
+
+VA - Nothing But... Psy Trance Vol.01 (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Psilocybe Project  -  I Am Darkness (Original Mix)  6:44
+02.  Waveform  -  Extraterrestrial Beings (Original Mix)  6:44
+03.  Epsylon  -  Mad As Hell (Original Mix)  6:46
+04.  Braincell & Mandala  -  Cellular Mandala (Original Mix)  8:51(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 02:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD543772B483BBF67E04434C89D20CA0A20CDCC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203425   (788177) от 02.02.2018
+
+New Candys - Bleeding Magenta (2017) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleeding Magenta
+02. Excess
+03. Mercenary
+04. Sermon(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0CAC05726004A0A83E4424D44068496EEBFBEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203458   (788178) от 02.02.2018
+
+VA - Ori Uplift - Uplifting Only 260 (incl. Vocal Trance) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE: New World - Ikigai (Intro Mix)
+02. Rene Ablaze & F.G. Noise featuring Lucid Blue - Oblivion (Extended Mix)
+03. Sheridan Grout & Michele C - Forget The World (Enzo Remix)
+04. Giuseppe Ottaviani & Jennifer Rene - Home (OnAir Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC01D4227A908B0BC4FCFAD2B21EE5343CB88232
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276220   (788179) от 16.01.2019
+
+Анатолий Жаренов | Кладоискатели (Книга 2). Фамильная реликвия (2019) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788179.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из квартир Заозерска обнаружено тело московского художника Астахова. По заключению патологоанатома причиной смерти стало отравление бытовым газом. В протоколе осмотра места происшествия указано, что пьяный Астахов решил вскипятить кофе, но не уследил за ним. И когда жидкость полилась через край, он, вместо того, чтобы снять кофейник с огня, принялся крутить (   Читать дальше...   )Жанр: Полицейские детективыИздательство: СОЮЗПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360508D0408E4E817FC5AA6C8FA47A33DF32A3BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276359   (788180) от 16.01.2019
+
+УННВ - Черная Кассета (2019) [MP3|320 Kbps] <Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Черная тишина
+03. Ичи тригер фингер нигаз
+04. Все будет хорошо(   Читать дальше...   )Жанр: RapПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930D598E8B4BF0825A7C52175B7AE85192861FDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276491   (788181) от 16.01.2019
+
+Кортни Саммерс | Сёстры (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девятнадцатилетняя Сэди Сазерн и ее младшая сестра Мэтти живут в маленьком, унылом городке. Мать давно их бросила и уехала неизвестно куда, а своих отцов девочки никогда не знали. Однако Сэди всегда старалась держаться на плаву и обеспечивать себе и любимой сестре нормальную жизнь.
+Но однажды Мэтти находят мертвой, и хрупкий мир Сэди рушится.
+Не доверяя полиции, (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыПеревод: Александра МалькоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F49BE0FCB368E7682FB098F23313CEF478814F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276595   (788182) от 16.01.2019
+
+Ньингчи / Nyingchi (2016) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нингчи находится на юго-востоке Тибета на берегу реки Брахмапутра и граничит с провинцией Юньнань на востоке, с Лхасой на западе, с Бирмой и Индией на юге. Нингчи является одним из важнейших очагов древней тибетской цивилизации. У большинства путешественников, которые никогда не бывали в южной части Тибета, складывается ложное впечатление о Тибете как о холодном, (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, путешествия, приключенияРежиссер: Хуан ИнаньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4723327C7DDA434B52907AB3E04683ED5C775038
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276174   (788183) от 16.01.2019
+
+Cherry Glazerr - Stuffed & Ready (2019) [FLAC|Lossless|tracks + .cue] <Indie, Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ohio
+02. Daddi
+03. Wasted Nun
+04. That’s Not My Real Life (feat. Delicate Steve)(   Читать дальше...   )Жанр: Indie, Female VocalПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A4D9024C7E860C73FA2A6DA8E260F182AFAB69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276398   (788184) от 16.01.2019
+
+R-Wipe & Clean 20.0 Build 2222 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788184.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Wipe & Clean это эффективная утилита компании R-Tools для очистки дискового пространства компьютера, предотвращения хищения и сохранения конфиденциальности информации. Утилита полностью удалит файлы и папки с использованием быстрых и безопасных алгоритмов очистки диска, очистит компьютер от конфиденциальной информации о вашей сетевой и локальной активности, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023A410DA3760176C9CFDAE8C93EE293E30C1353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276496   (788185) от 16.01.2019
+
+Л. Романенко | Вечерние прически для длинных волос (2007) [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного мастера-модельера, стилиста, преподавателя школы парикмахерского мастерства Ларисы Романенко с помощью подробных и наглядных пошаговых инструкций поможет начинающим парикмахерам и любительницам самостоятельно делать укладки приобщиться к искусству создания современных и классических причесок. Вы отточите мастерство и получите новые идеи для творчества.Жанр: Учебная, методическая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684BF3015E47FCEA36DEA94C11504ED6D32D97A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276457   (788186) от 16.01.2019
+
+iMazing 2.8.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788186.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CF7EFC3BFDA5C0BD403B27BBD153F39EBFC2AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276489   (788187) от 16.01.2019
+
+MacX DVD Ripper Pro 6.2.0 (build20190111) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788187.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмтра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2019Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA40839AD75FF41E1E96B1047D462F2D8A17D912
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275972   (788188) от 16.01.2019
+
+Я. Г. Бронин | Политграмота комсомольца. Учебник для комсомольских политшкол первой ступени (1927) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий учебник составлен по программе Агитпропа ЦК ВЛКСМ, предназначенной для комсомольских политшкол I ступени. В отличие от прошлого года, в нынешнем году программа политшкол I ступени сокращена с 19-ти бесед до 14-ти. Сокращение произведено не только в количестве бесед, но и в объеме материала каждой беседы в отдельности. Первое сокращение произведено с целью (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D627E1F3146AE65E46B74ADEEB81C532FC99C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276462   (788189) от 16.01.2019
+
+Pale Moon 28.3.0 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE68EBEF8981C5BE29F26F8FB6916CE26A598C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276292   (788190) от 16.01.2019
+
+Marianne Ligthart - Black Tea & Whiskey (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Tea & Whiskey 03:35
+02. Mr. Bartender 04:14
+03. In The Meantime 04:43
+04. Josephine 04:20(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973DBB0FEC1A639CB4A8625C34759AC2222E11E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276624   (788191) от 16.01.2019
+
+Trigg & Gusset - Adagio For The Blue (2015) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Contemporary Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intimate (5:56)
+02. Cook (5:53)
+03. Madagascar (4:03)
+04. Vanishing Gold (3:41)(   Читать дальше...   )Производство: Preserved Sound - PS30Жанр: Ambient, Doom Jazz, Dark Jazz, Jazz Noir, Contemporary Classical, ExperimentalПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708FA0397B1A91B05D47042204CAE5DEF66C4936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276479   (788192) от 16.01.2019
+
+VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Kurt - Let It Run (Organ Version)
+02. Arco - Touch The Sun (Original Mix)
+03. D'al Senio - A Thought In Your Mind (Vocals By Jammaroots)
+04. Francesco Poggi Feat Ida Flo - I Need Your Lovin (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C942268741B97F8AD4068B42EE5E0BB36BC7FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276572   (788193) от 16.01.2019
+
+SRWare Iron 71.0.3700.0 Portable by PortableApps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DACC66C775F869719F564F9FD3849BB2A13EA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276411   (788194) от 16.01.2019
+
+VA - New Music Releases Week 2 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788194.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Manila Killa, Sara Skinner - All 2 U
+002. Kaaze, Chad Kowal - Better Than This
+003. Surfaces - Sunday Best
+004. Jason Ross, Dimibo - The Gorge(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 08:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5AF8E6125CDBB3EB30CACB17E7056080F63082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276441   (788195) от 16.01.2019
+
+Иван Концевич | Стяжание Духа Святого в путях Древней Руси. Оптина Пустынь и ее время (2009) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788195.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены главные труды выдающегося русского мыслителя и богослова Ивана Михайловича Концевича "Стяжание Духа Святого в путях Древней Руси" и "Оптина Пустынь и ее время". В этих трудах раскрывается духовная история Святой Руси - русской цивилизации как особого благодатного свойства русского народа, делающего его новым избранным народом, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8FBEFD0FFCAC5325FF80D3E48A4705D322E56E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276450   (788196) от 16.01.2019
+
+Паскаль Киньяр | Американская оккупация (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coca-Cola, джинсы Levi’s, журналы Life, а еще молодость и джаз, джаз… Тихий городок на Луаре еще не успел отдохнуть от немцев, как пришли американцы. В середине XX века во Франции появились базы НАТО, и эта оккупация оказалась серьезным испытанием для двух юных сердец. Смогут ли они удержать друг друга в потоке блестящих оберток и заокеанских ритмов?
+Паскаль Киньяр (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1785A88E0F94B1B397156534588CC4DFC68594B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276524   (788197) от 16.01.2019
+
+VA - Fresh Dance Hits 2019 (2019) [MP3|320 Kbps] <Dance, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jair & Chrizz Morisson - Baby (Don't Let Me Be Alone) (Dolls House Remix)
+02. B.G. The Prince Of Rap feat. Timi Kullai & Nathan Reynolds III - Once You Have Me (Remundo Remix)
+03. Chrizz Morisson feat. Latisha Van Simon - From Here On Up (Dolls UK Edit)
+04. Real System - There Is No More Love (Randy Norton Edit)(   Читать дальше...   )Жанр: Dance, ElectroПродолжительность: 01:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207CE836DFF664643B1DDE807F758D5A52422C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276196   (788198) от 16.01.2019
+
+VA - Drinks at Sunset, Vol. 3 (2019) [MP3|320 Kbps] <Electro, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Speak Of The Mind
+02. Spoq - Scratch
+03. Dub Mars - No Time To Lose
+04. Stuce The Sketch - Resonating Love(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 02:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E4898F9978E7C637E3EF35AC7F93D20949C705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203386   (788199) от 02.02.2018
+
+VA - My Life In An Insulation Test (2008) electr-ohm [FLAC|Lossless|tracks+.cue] <Dark Ambient, Industrial, IDM, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.A.L - Salvation (4:21)
+02. dDamage - Iron Ape (3:45)
+03. Sonic Area - Par Amour (3:51)
+04. Uniform - A Second Between What Is And What Was (3:29)(   Читать дальше...   )Жанр: Dark Ambient, Industrial, IDM, ExperimentalПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3152116868544A4ABDAC3B3592AA211D5295B69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203595   (788200) от 02.02.2018
+
+VA - Elite Driving Trance Anthem (2018) [MP3|320 Kbps] <Uplifting, Vocal, Progressive, Emotional, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Van Gale - Mumbai Taxi (Original Mix) 4:36
+02. Activeblaze - Last Day 5:47
+03. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix) 5:47
+04. Nolans Stenemberg ft. Jennifer Lauren - The Winter (R3dub Remix) 7:35(   Читать дальше...   )Жанр: Uplifting, Vocal, Progressive, Emotional, MelodicПродолжительность: 07:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636854DA400720FCFFEDA648ACACEDD3874ADEAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

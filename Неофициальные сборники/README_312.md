@@ -1,26 +1,726 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1157921   (524489) от 13.08.2017
+
+VA - Beach House: 130 DJ Selection Progressive Mix (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524489.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bes & Meret - Abendsonne (Sax Sunset Mix)
+002. Yael Wood - Burn
+003. Topmodel - Within
+004. Zak Oil - Class(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 10:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCAE4851EFB478AF3273BFF4BADEBD3FB97A3E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240561   (524534) от 12.08.2018
+
+VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & Showtek feat. Vassy - Your Love 3:06
+02. Lucas & Steve - Source 4:22
+03. Don Diablo feat. Paije - People Say 3:09
+04. Tom Walker - Leave A Light On (Radiology Remix) 4:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C36A2DCC36308754069DD2046892D6324E38885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240374   (524538) от 12.08.2018
+
+VA - German Top 100 Single Charts 10.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - Melodien (feat. Juju)
+002. Dynoro & Gigi D'Agostino - In My Mind
+003. Bonez MC & RAF Camora - 500 PS
+004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ACBE0E55D13DF417715C4CF65ED3FE9E8C83E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240387   (524581) от 12.08.2018
+
+VA - The Official UK Top 40 Singles Chart 10.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - In My Feelings (03:39)
+02. George Ezra - Shotgun (03:22)
+03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer (04:26)
+04. Jonas Blue - Rise (feat. Jack & Jack) (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3990B6217989ECC5E82B785E58076829688E571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157848   (524600) от 13.08.2017
+
+VA - 150 Hip Digest: August Edition (2017) [MP3|320 Kbps] <Hip-Hop, Rap, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brian Angel - Fareal
+002. YFN Lucci - Key To The Streets
+003. Charlie Wilson - Smile For Me (feat. Robin Thicke)
+004. Kid Cudi - Frequency (Clean)(   Читать дальше...   )Жанр: Hip-Hop, Rap, RnBПродолжительность: 09:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CAC45C6FE9718264692C39834588C593802D1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157952   (524625) от 13.08.2017
+
+VA - Фитнес-Хит Vol. 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Matt - Alcoholic Party (Original Mix)
+02. Ian Davecore feat. SPHUD - For That Booty (Original Mix)
+03. B17 - Echo (Original Mix)
+04. Lucas & Steve x Mike Williams x Curbi (Best-Muzon.cc) - Let's Go(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01830CB589118895062B57F99F774C25B0C902F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157934   (524643) от 13.08.2017
+
+VA - Фитнес - Хит Vol.3 (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage - Runaway (Black Due 2k17 Remix)
+02. Stereo Slam - 2U (Extended Mix)
+03. Nadia ( - Feel The Summer (Radio Edit)
+04. Lotus & Rene Rodrigezz ft. Pitbull - Light up the dark (Trillogee Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CAFD2C3FCCDC8DE7C9B991060FEF6708DA2C9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157812   (524767) от 13.08.2017
+
+VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ambient Grooves - Breaking Free
+002. Koda - The Last Stand (Stray Theories Remix)
+003. The Sura Quintet - I Won't Forget You
+004. Meg Birch - Your Song(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 09:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CDAF6D1E8EA8A19C762F38EC354FE5D7AB9E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927619   (524859) от 13.08.2015
+
+БумеR (Бумер) - Именем республики (2015) [MP3|320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новая жизнь
+02. Крапленые карты
+03. Огонек
+04. Именем республики(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C24AFCD67B2EE7B6E49063DE0B2D02B61EB853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157541   (525158) от 12.08.2017
+
+VA - Ambient Area: Selected Downtempo Works (2017) [MP3|320 Kbps] <Downtempo, Ambient, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Cantoma - Early Till Late  4:46
+002.  Chillelektro - Koos  6:06
+003.  Spinne - Daemmerung  4:59
+004.  Tequila Sunset - No One Cant Stand By You (feat. Dong)  3:57(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 07:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E9673D936EF0034C6598AE2501CE0D33A0CE53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370102   (525739) от 01.08.2011
+
+VA - Лучшие Хиты Муз-ТВ Часть 6 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шахзода - Все Только Начинается
+02. The Wanted - Glad You Came (Radio Edit)
+03. Пропаганда - Наберу
+04. Deepside Deejays - Never Be Alone (Radio Edit)
+05. Александр Ломинский И Алена Водонаева - Сердце Ранимое
+06. Linkin Park - Iridescent (Radio Edit)
+07. Все Включено - Оторвемся Летом
+08. Sophie Ellis Bextor - Starlight (Radio Edit)
+09. Allysia - Почему
+10. Lmfao Feat. Natalia Kills - Champagne Showers (Radio Edit)(   Читать дальше...   )2011Жанр: PopПродолжительность: 06:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549C3D3C8952B246498883FD1E768AA97419A052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370437   (525743) от 01.08.2011
+
+VA - Твоя любимая дискотека №7 (2011) [MP3|128 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tanya Терешина - Гудки
+002. David Guetta & Snoop Dogg - Wet (DJ Nejtrino & DJ Stranger mix)
+003. Максим - Как летать
+004. Lmfao - Party rock anthem (feat. Lauren Bennett & Goon Rock)
+005. Иракли - Напополам
+006. Chris Parker - Symphony 2011
+007. Марсель - Эта песня для тебя (Vlad Zhukov remix)
+008. Mishelle feat. Randi - Only you
+009. Карина Кокс - Все решено
+010. Ferry Corsten - Feel it(   Читать дальше...   )2011Жанр: Pop, DanceПродолжительность: 12:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E91B1053AECC9021CFD3B6F211C3679C7729934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370342   (525773) от 01.08.2011
+
+VA - Вулкан удовольствий 12 50/50 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525773.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Даша Суворова - Тебе Любовь Моя
+002 Adam Lambert - If I Had You
+003 Vesna feat. Юрий Усачев - Для чего
+004 Stars On 45 - 45 (Radio Mix)
+005 Карина Кокс - Все решено
+006 Mohombi feat. Akon - Dirty Situation
+007 Quest Pistols - Ты так красива
+008 Nadine Coyle - Insatiable
+009 Винтаж - Мама Америка
+010 T.I. feat. Christina Aguilera - Castle Walls(   Читать дальше...   )2011Жанр: PopПродолжительность: 05.52.11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A76821B4025E697F10AA4D9B8761A3795DDD65F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157106   (525832) от 10.08.2017
+
+VA - Hits Cocktail Vol.11 (2017) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Together (Radio Edit)
+02. MC Duro - Summer In My Town (Radio Edit)
+03. R3hab x Felix Cartal - Killing Time (Original Mix)
+04. Davy Bee feat. The Romy - Summertime(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 06:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F126333229CEEF06A43425A4C4AA18C3A20E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157104   (525842) от 10.08.2017
+
+VA - Billboard Hot 100 Singles Chart (19.08.) (2017) [MP3|320 Kbps] <Pop, Dancehall, R&B, Synthpop, Indie>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
+02.  DJ Khaled feat. Rihanna & Bryson Tiller - Wild Thoughts  3:25
+03.  Kendrick Lamar - Humble  2:58
+04.  Ed Sheeran - Shape Of You  3:54(   Читать дальше...   )Жанр: Pop, Dancehall, R&B, Synthpop, IndieПродолжительность: 05:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBCA10C03E0E29C14C6D92C535020A82F9FC44B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157029   (525849) от 10.08.2017
+
+VA - 100% Clubland Dance: Synthpop House (2017) [MP3|320 Kbps] <Synthpop, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Royal Visionaries - Back To Yazoo
+002. Robert Marlow - Smile
+003. Glass Apple Bonzai - Wouldn't That Be Nice?
+004. Scandroid - Awakening With You (PYLOT Remix) (Instrumental)(   Читать дальше...   )Жанр: Synthpop, Dance, PopПродолжительность: 08:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093AD3BF8BFF5D3182D557441F03C7887A1F03EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157089   (525867) от 10.08.2017
+
+VA - Bolero By Trance: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525867.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harri Kakoulli - The Moon Trick
+002. Frainbreeze - Black Eagle (Radio Edit)
+003. Adagio Sensus - Easy For You (Frainbreeze Radio Edit)
+004. Pondora - Hello Coco(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EBAD5ECC4040226AF024A4F06C349CBAB70136
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053430   (526001) от 17.09.2016
+
+VA - Cafe Del Mar - Cafe del Mar ChillWave 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gelka - Empathy [04:19]
+02. Niia - Body [03:47]
+03. Sam Brookes - Numb [04:05]
+04. Forteba - Agu Mea [04:53](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CD94C7F0D53A9782DD7E480BAC8338B95B0777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052374   (526006) от 17.09.2016
+
+VA - 44 Hits Summer (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526006.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Sia - Cheap Thrills [03:27]
+2. Alan Walker - Faded [03:29]
+3. Bailar feat. Elvis Crespo - Deorro [02:37](   Читать дальше...   )Жанр: PopПродолжительность: 02:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE239994E0C0DDB2D48A2C68590B80BF69E0CB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053413   (526119) от 17.09.2016
+
+VA - Traxsource Top 100 July (2016) [MP3|320 Kbps] <UK Jackin, Indie Dance, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Full Intention - Dancin' 05:12
+002. Midnight Star - Midas Touch (Jamie Lewis Touch The Stars Mix) 07:43
+003. Soul Vision - Don't Stop (Dario D'Attis Remix) 06:56
+004. David Penn, Hosse - Con Son Ft. Africa G. (Vocal Mix) 05:33(   Читать дальше...   )Жанр: UK Jackin, Indie Dance, Nu DiscoПродолжительность: 11:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5697868310AB750D586854F17C022659E06CEA1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053419   (526121) от 17.09.2016
+
+VA - 100% Ibiza - The Closing (2016) [MP3|320 Kbps] <Funky, Club, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freakbreak - Midnight Rain 06:31
+02. Noctiluca - Volver (Zak Gee Remix) 06:00
+03. Flip And Flap & Axis - Winter Dust 06:49
+04. Morgan Dora - This Is How I Want 05:47(   Читать дальше...   )Жанр: Funky, Club, Tech HouseПродолжительность: 04:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99D827587B9DFE3EF59CE0D37847DC5E30BA584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053488   (526123) от 17.09.2016
+
+VA - Empire Outside 75 (2016) [MP3|225-320 Kbps] <House, New wave, Futurepop, Drum & Bass, Psychedelic, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melbourne Bounce - The Trumpet (Melbourne Bounce Radio Mix) 3:33
+02. Alignments - Outlaw 8:07
+03. Basslovers United feat. D.A.D. - Wake Me Up (Radio Edit) 3:40
+04. DeiBeat - In Your Face (Original Mix) 6:17(   Читать дальше...   )Жанр: House, New wave, Futurepop, Drum & Bass, Psychedelic, , DanceПродолжительность: 07:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83AD036461C7D44E8B91717F55E41382A49809F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053398   (526128) от 17.09.2016
+
+VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.M.P - Distance (Addex Remix] 06:59
+02. John Cosani - Spaceman (Kastis Torrau Remix] 07:36
+03. Yone b - L'Heure Bleue (Nikosf. L'Heure Photographique Remix] 07:08
+04. D.M.P - Distance (Original Mix] 07:30(   Читать дальше...   )Жанр: Minimal, Deep, Funky, Tech HouseПродолжительность: 12:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329C3755473F1E71B9733DD1FB9189A96B47870F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369711   (526310) от 31.07.2011
+
+VA - Мегахиты Русского Радио. Ассорти Энергичных Хитов (2011) [MP3|256 kbps]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вика Куприна - Сильная, Как Ветер
+02. Потап И Настя Каменских - Если Вдруг
+03. Dj Slon - Дельфины (Radio Dance Remix)
+04. Dj Vengerov Feat Maksim - Весна ( Club Mix )
+05. Паола - Острова
+06. Ярослав Кардэлло, Dj Nicks, Dino - Она Летает
+07. Dj Cosmo & Е. Поликарпова & А. Арабов Feat. Stilet - Прости Меня
+08. Ирина Билык - Девочка
+09. Алекс Гришин - Лети За Мной
+10. Саша Ветер - Луна(   Читать дальше...   )2011Жанр: DanceПродолжительность: 06.14.03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7853A0FC33A40F5764BF3968F8880DDB21079B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156786   (526382) от 09.08.2017
+
+VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nickelback - Far Away
+002. Whitesnake - Is This Love
+003. Pierce the Veil - Dive In
+004. Saosin - The Silver String(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580987F028F325C775B9CF602B564B7F1E07602E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053053   (526479) от 16.09.2016
+
+VA - Хиты 90-х. Зарубежные (2016) [MP3|128-320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Mix - Eurodance90's mix
+02. G.E. Con-X-Ion feat. Samira - Gotta Have The Music
+03. L.A. Style - Got to Move
+04. Beat Control - Dancing Madness(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 09:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E42D459448CF3D127F1597E9C1D7B4975BEEB5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,26 +1,676 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1146885   (612960) от 30.06.2017
+
+Денис Орлов, Александр Пикуленко | Cadillac. Бриллиант из Детройта (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612960.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь 110-летия бренда Cadillac выпущена аудиокнига "Бриллиант из Детройта". Авторами ее выступили автомобильный историк Денис Орлов и автомобильный обозреватель радио "Эхо Москвы" Александр Пикуленко. В книге не просто описывается история легендарной марки, но и изложены малоизвестные широкой публике факты. Например, рассказано о том, как на (   Читать дальше...   )Жанр: Автомобили и ПДД, Корпоративная культура, Привлечение клиентовПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E33E5C87481B821EA08923C6CB1E39098EED62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146792   (612961) от 30.06.2017
+
+VA - The Legend Of The City: Club House Sounds (2017) [MP3|320 Kbps] <Club, Dance House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612961.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jay Frog - Like It! (Radio Edit)
+002. Neon City Inc - Music Shower (Radio Edit)
+003. Cliff Wedge - No One Like U (Radio Edit)
+004. Nora En Pure - Waves (Original Club Mix)(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 08:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4095F6F062EFEB4FBB32877889D5B646E8957D4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146521   (612962) от 30.06.2017
+
+Innerspace - The Village (2012) [FLAC|Lossless|image + .cue]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Land of Hope
+03. Wild Flower
+04. Mister Mayor(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984119136E3E8C53D951A14C562EED99AAFC1B5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146688   (612963) от 30.06.2017
+
+Paradise Frame - Paradise Frame (1978) LP [MP3|320 Kbps] <Electronic, Space-disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galaxie Flite (3:14)
+02. Nemo's Triad (5:54)
+03. Time Tunnel + Love Is The Natural Way (4:25)
+04. Stair + Wave Op (2:41)(   Читать дальше...   )Жанр: Electronic, Space-discoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D62D9447330E19012BE5727998C9284034B0E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146683   (612964) от 30.06.2017
+
+VA - La Bomba Party (2k17) (2017) [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pit Bailay & Steve Cypress present Coco Caribe – La Bomba (Malle Edit) 03:03
+02. Jose Esperanza – Un dos tres 04:00
+03. Thommy Luke – Baila 04:04
+04. Carmen – Ritmo de la Noche 03:47(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEFCF23B7D3348B5826E8060923CA9B8BD3E58E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146796   (612965) от 30.06.2017
+
+VA - Sensual Mood Lounge Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Charly McLion - Open Sky (Original Mix)  3:57
+02.  Euphonic Traveller - Moro Bay (Original Mix)  8:19
+03.  Florzinho - A La Luna (Original Mix)  4:49
+04.  Camiel - Sigueme (Original Mix)  3:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D509B8211095971684F7658B5F4463FDD9B4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912362   (612986) от 25.06.2015
+
+Кеннет Оппель | Серебряное крыло (2005) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они единственные, кто не сражался в битве птиц и зверей. Они никогда не должны видеть солнце. Их время - ночь. Такой приговор много лет назад был вынесен стае сереброкрылых летучих мышей. Но Высшие силы дали Обещание, что однажды запрет будет снят.
+Во время страшной бури юный сереброкрыл Шейд потерял свою стаю, но взамен встретил верную спутницу - летучую мышь Марину. (   Читать дальше...   )Жанр: Детям и родителям, Фантастика и фэнтезиПеревод: Ольга ЖаковаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667597C8A2B78195F07826C25560E068A249093C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912374   (612988) от 25.06.2015
+
+Виль Джемс | Дымка (2007) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о настоящем ковбойском коне.
+Вы не знаете, что такое настоящий ковбойский конь!
+Он несет всадника по бескрайней прерии, и даже леопард уходит с его пути. Иногда трудно понять, кто в этой паре главный - человек или конь. Да, по правде говоря, и сами ковбои, эти всадники с винчестерами, немного стоят без своих коней.
+Вот и прочтите наконец правду о настоящем (   Читать дальше...   )Жанр: Детям и родителям, Повести и рассказы о животныхПеревод: Михаил ГершензонФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75FD93BC662DC510F927217F2B384718F814551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912321   (612989) от 25.06.2015
+
+Mic Gillette Band - Turning Two (2014) [MP3|320 кб/с]<Blues & Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Rather Be An Old Man's Sweetheart [03:04]
+02. Let It Roll [04:34]
+03. Unchain My Heart [03:31]
+04. That's Enough [03:47](   Читать дальше...   )Жанр: Blues & JazzПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2433551D53B106CE6C92A10E5E155851B8EE20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911888   (612990) от 25.06.2015
+
+Reno Bo - Lessons from a Shooting Star (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart Deal (3:35)
+02. How Do You Do (3:02)
+03. Just Say Go (3:05)
+04. Strange Maps (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E313149A9867F459530EFF1347E87B6D8027A72C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912274   (612991) от 25.06.2015
+
+Mourning's Hope - The Storm Within (2015) [MP3|320 кб/с]<Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow of Death
+02. Forsaken Sorrow
+03. Until We Meet Again
+04. The End of Time(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB13FC27E36C8DCF273606C7E587AD3BFEF3DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912019   (612992) от 25.06.2015
+
+Supresion - Emerging Extermination (2015) [MP3|320 кб/с]<Thrash / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness Retreat
+02. I Don't Care
+03. War Is Beginning
+04. U.L.U.S(   Читать дальше...   )Жанр: Thrash / Death MetalПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9852CBD3FDC2C5725DD68B93DE7B22454EFA006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912279   (612993) от 25.06.2015
+
+Brutallian - Blow On The Eye (2015) [MP3|320 кб/с]<Thrash / Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Prelude To Aggression
+02. Blow On The Eye
+03. Black Karma
+04. Primal Sigh(   Читать дальше...   )Жанр: Thrash / Heavy MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376793771D20E9AF2505CC1DF2195688ED3015C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911695   (612994) от 25.06.2015
+
+Titans Eve - 3 альбома (2010-2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612994.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Defy
+2. Warpath
+3. No Kingdom
+4. Another Day(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220421E613AD7FA55ED50C87EE98F004FDB0E022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912380   (612995) от 25.06.2015
+
+Время покажет с Петром Толстым (25.06.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612995.jpg" />
+</div>
+
+
+###  Подробнее
+
+России нет ни одного региона, жители которого не стали бы жертвами бойцовых собак, и чаще всего страдают дети. Только в июне  в результате  нападения собаки из питомника в Костромской области погибла девочка, а дети трех и десяти лет из Иркутска и Саратова находятся в больнице с тяжелейшими травмами. В Москве в год с укусами собак в больницы попадает 35 тысяч человек. (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7841C08A6903B3822436B8CCF0D085AF9E29D2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912271   (612996) от 25.06.2015
+
+Taylor's Code - Mirrors (2015) [MP3|320 кб/с]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Through the Mirror 5:58
+02. Aim for Your Star 4:11
+03. It's Just Your Cloud Return 4:38
+04. The Spin Garden 7:01(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997D5288E0C9CE65B9E9BF75448E74CC73AC5E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911756   (612997) от 25.06.2015
+
+Helrunar - Niederkunfft (2015) [MP3|320 кб/с]<Pagan-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Niederkunfft
+2. Der Endchrist
+3. Totentanz
+4. Devils Devils Everywhere!(   Читать дальше...   )Жанр: Pagan-Black MetalПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B96A975E98629D1A1BB2195EAE4F071F1A4CA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912346   (612998) от 25.06.2015
+
+Kris Di Natale & Dragon's Fury - Alice vs. Thor (2015) [MP3|320 кб/с]<Progressive / Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice
+02. Evil Men
+03. Metal Neo Classic Presto Vivace
+04. Night in Rub Al Khali Desert(   Читать дальше...   )Жанр: Progressive / Heavy MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62A4E00B57B0E7DFBAF111225F4F9E7A3DA8018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912012   (612999) от 25.06.2015
+
+Aasgard - Obscurantist Purification (2015) [MP3|320 кб/с]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Excommunicated Whispers (intro)
+2. Revelation of Dignir Xul
+3. The Wise Lord of Oracles
+4. Invocation to the Infernal Shadow(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4AC392763F5ABC1ACFB32A5248488AD942CC19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911703   (613000) от 25.06.2015
+
+Sacrario - 3 альбома (2008-2015) [MP3|320 кб/с]<Thrash / Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catastrophic Eyes
+02. Empire Of Lies
+03. Drug Addiction
+04. The Witness(   Читать дальше...   )Жанр: Thrash / Death MetalПродолжительность: Кодек: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881189CBD627A970D99EB7A2BA57E9B63876F3E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296247   (613001) от 16.04.2019
+
+Стекло / Glass (2019) BDRip [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613001.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках встречи с обладающим фантастическими способностями и снова убивающем девушек Зверем Дэвид Данн выходит на след Кевина Крамба. Но решающая схватка не успевает состояться, наших героев ловят и отправляют в психиатрическую больницу. Там уже содержится хрупкий человек Элайджа Прайс, несколько лет назад устроивший крушение поезда, единственным выжившим в котором (   Читать дальше...   )Производство: США, Universal Pictures, Blinding Edge Pictures, Blumhouse ProductionsЖанр: Драма, Фантастика, ТриллерРежиссер: М. Найт ШьямаланАктеры: Джеймс МакЭвой, Брюс Уиллис, Сэмюэл Л. Джексон, Аня Тейлор-Джой, Сара Полсон, Спенсер Трит, Кларк Чарлэйн Вудард, Люк Кирби, Адам Дэвид Томпсон, М. Найт Шьямалан ...Перевод: Дублированный, профессиональный многоголосыйСубтитры: Русские (Forced), английские (full, SDH)Продолжительность: 02:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7F359AAAA976051657697D9A9D55471454E7AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296349   (613002) от 16.04.2019
+
+Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подходит к завершению жестокая и мрачная эпоха раннего Средневековья. Отгремели крестовые походы, феодалы подчинились государям, а купцы и путешественники обратили взоры к дальним морям и неведомым землям. На севере Италии набирает силу ВенецияТип издания: RepackРазработчик: Related DesignsЖанр: Add-on, Strategy (Manage, Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F4B325C74E9A5D79CBD2FC5F5BB657257D645B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296245   (613003) от 16.04.2019
+
+Стекло / Glass (2019) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613003.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках встречи с обладающим фантастическими способностями и снова убивающем девушек Зверем Дэвид Данн выходит на след Кевина Крамба. Но решающая схватка не успевает состояться, наших героев ловят и отправляют в психиатрическую больницу. Там уже содержится хрупкий человек Элайджа Прайс, несколько лет назад устроивший крушение поезда, единственным выжившим в котором (   Читать дальше...   )Производство: США, Universal Pictures, Blinding Edge Pictures, Blumhouse ProductionsЖанр: Драма, Фантастика, ТриллерРежиссер: М. Найт ШьямаланАктеры: Джеймс МакЭвой, Брюс Уиллис, Сэмюэл Л. Джексон, Аня Тейлор-Джой, Сара Полсон, Спенсер Трит, Кларк Чарлэйн Вудард, Люк Кирби, Адам Дэвид Томпсон, М. Найт Шьямалан ...Перевод: Дублированный (iTunes)Субтитры: Русский (Forced)Продолжительность: 02:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB136818C23ADE591DEA20C5F06D78BEC988367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296243   (613004) от 16.04.2019
+
+Windows 7 SP1 (x86-x64) [9in1] by ivandubskoj (15.04.2019) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка из 9-ти русских редакций Windows 7 SP1 (x86-x64) на основе оригинальных образов Windows 7, с интегрированными обновлениями и минимальным набором необходимых драйверов и ПО.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877F269162E1B9B2F9396D7B44FE07606606C9D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296235   (613005) от 16.04.2019
+
+Стекло / Glass (2019) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613005.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках встречи с обладающим фантастическими способностями и снова убивающем девушек Зверем Дэвид Данн выходит на след Кевина Крамба. Но решающая схватка не успевает состояться, наших героев ловят и отправляют в психиатрическую больницу. Там уже содержится хрупкий человек Элайджа Прайс, несколько лет назад устроивший крушение поезда, единственным выжившим в котором (   Читать дальше...   )Производство: США / Walt Disney Pictures, Universal Pictures, Blinding Edge PicturesЖанр: Фантастика, триллер, драма, детективРежиссер: М. Найт ШьямаланАктеры: Джеймс МакЭвой, Брюс Уиллис, Сэмюэл Л. Джексон, Сара Полсон, Аня Тейлор-Джой, Спенсер Трит Кларк, Чарлэйн Вудард, Люк Кирби, Адам Дэвид Томпсон, М. Найт ШьямаланПеревод: Дублированный, профессиональный многоголосыйСубтитры: Русские (Forced), английские (full, SDH)Продолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B83E77EF2F7F8AEF12D6DF993A92B80339E99B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810549   (613006) от 16.04.2019
+
+Лок / Locke (2013) BDRemux [1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Лок живет размеренной жизнью и очень много работает, чтобы добиться успеха. Завтрашний день — один из важнейших в его жизни, его ждет карьерный рост. Но вечером раздается телефонный звонок, который перевернет его жизнь с ног на голову. Теперь, чтобы выжить, ему предстоит выиграть схватку со временем. У него есть всего 90 минут.Производство: Великобритания, США / IM Global, Shoebox FilmsЖанр: Триллер, драмаРежиссер: Стивен Найт / Steven KnightАктеры: Том Харди, Оливия Колман, Рут Уилсон, Эндрю Скотт, Бен Дэниелс, Том Холлэнд, Билл Милнер, Дэниэл Уэбб, Элис Лоу, Сайлас КарсонПеревод: Многоголосый закадровый (любительский)Язык субтитров: Русский, английский (full, SDH, SDH-colored)Продолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C17FA113E3650309DECFE3CCC712345A5F0A4A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

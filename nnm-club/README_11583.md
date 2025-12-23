@@ -1,26 +1,680 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 832594   (410523) от 19.10.2014
+
+Арджума | Оромика [5 книг] (2005-2009) [DJVU, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа Арджумы является кратким изложением основ древнего африканского учения о природе и эволюции человека. Она интересна своим современным практическим подходом и предназначена для духовно и интеллектуально развитых читателей, которые интересуются устройством Мироздания и будущим Человечества, для тех, кто еще не разучился задавать "вечные" вопросы и искать на них ответы. Автор приводит краткое объяснение некоторых исторических и современных социальных явлений с точки зрения древнего африканского (   Читать дальше...   )Формат: DJVU, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3898981CC5CE078313FD1A1605E94DB1A34C0DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573689   (410536) от 01.09.2022
+
+VA - Future Nu Disco Classics Vol. 08 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaycee Styles - Like The Son
+02. Dave Mathmos - YOU & ME
+03. Luxxury - Midnight Special
+04. D.P.V. - Flaming Night(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:18:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5ADE9B5D98E08F41E796008CE8138CC3ED8D793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573683   (410537) от 01.09.2022
+
+VA - Future Nu Disco Classics Vol. 07 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conan Liquid - Friends of Daniel
+02. Tony Postigo - Together (Radio Mix)
+03. Ezirk - Righteous Jams
+04. Hotmood - Old School(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:08:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3766059ED1BD70DBD7313FAACB0F77881B7612ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573720   (410538) от 01.09.2022
+
+Scamp - Man meets ape (2022) [MP3|320 Kbps] <Groove Metal, Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Messiah
+02. Strike Zone
+03. Peace
+04. Fired(   Читать дальше...   )Жанр: Groove Metal, Math MetalПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDEDABDB52235D10EA88D8AA27EBC95C638170D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573517   (410539) от 01.09.2022
+
+Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradigm [00:02:44]
+02. Nova [00:03:32]
+03. Metamorph [00:02:43]
+04. Shallow Graves [00:03:19](   Читать дальше...   )Жанр: Progressive Metalcore, ElectronicПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BDE59F6BB3387A1A070B56ABDEE27D6EE9B6B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573621   (410540) от 01.09.2022
+
+WidsMob Panorama 4.26 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте высококачественную панораму в один клик.
+WidsMob Panorama - это профессиональная программа для создания панорам, которая автоматически создает панораму. Это программное обеспечение для сшивания панорамных изображений может сшивать панораму и обычные фотографии с невероятной скоростью и простыми шагами.Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2022 WidsMobПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6545725220E022E48884D8B6C543AB41B143BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573686   (410541) от 01.09.2022
+
+Miss May I - Curse Of Existence (2022) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Smile That Does Not Exist (3:32)
+02. Earth Shaker (3:23)
+03. Bleed Together (4:30)
+04. Into Oblivion (4:15)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E678044F35E57B6365FC78230A05CEB7FF2B938E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573711   (410542) от 01.09.2022
+
+Defacing God - The Resurrection Of Lilith (2022) [MP3|320 Kbps] <Symphonic Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Moon (2:10)
+02. The Invocation Pt. I "Lilith" (4:40)
+03. The Resurrection (4:31)
+04. The Invocation Pt. II "Jezebel" (3:07)(   Читать дальше...   )Жанр: Symphonic Melodic Black Metal, Female VocalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32DEDF5D5B7F6520848778FFC95C69A7C3A9B77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573642   (410543) от 01.09.2022
+
+The Silver Birds - Under My Wing (2022) [MP3|320 Kbps] <Hard Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Forget About Me (04:53)
+02. I Rewind (04:34)
+03. Under My Wing (04:24)
+04. Goodbye (05:13)(   Читать дальше...   )Жанр: Hard Blues Rock, Classic RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3081A3E5803E83FE5920D22530722D1E111625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573630   (410544) от 01.09.2022
+
+Parallels (project by Tim Morse) - Awaken (2022) Yes tribute [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken (15:31)
+02. Some Are Born (05:50)
+03. Opening Sketches (06:32)
+04. Future Times Rejoice (06:51)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2A386B340C1EEAFE53E7FD6EA90F74C9F23A59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573613   (410545) от 01.09.2022
+
+Walter Trout - Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts
+02. Ride
+03. Follow You Back Home
+04. So Many Sad Goodbyes(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6643CC71AD1500151716EA76CC9580DFA09ADF65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573608   (410546) от 01.09.2022
+
+Aspect Ratio X 2.1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aspect Ratio X - калькулятор для расчёта соотношения сторон, разрешения экрана, прост в использовании с дружественным интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7718010456822882E0FAC17625EFE840E0925EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573755   (410547) от 01.09.2022
+
+Mp3tag 1.6.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390BF91FD545FD99F54E007FD9FF3E4F8B7B4923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573530   (410548) от 01.09.2022
+
+Blood of Indigo - Dawn of the Shaded World (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mimesis (00:14:18)
+02 - Resurrection (00:03:48)
+03 - Corpse Bride (00:06:46)
+04 - Anne Marie Indigo (00:05:32)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2944CF4260F17A19FF171F8173FDC66D50F82A14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573618   (410549) от 01.09.2022
+
+WidsMob Montage 2.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы делаете какой-то плакат для занятий, проектируя монтаж фигуры на день рождения?
+WidesMob Montage должен быть отличным производителем монтажа, чтобы превратить все в потрясающие мозаики. Это универсальный фотомонтаж, который может создавать потрясающую фотомозаику с тысячами изображений в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6704C353D8BD6517F6D3BB9643CDFBACB8B87C06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573567   (410550) от 01.09.2022
+
+Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thad's Pad [7:27]
+02. Ah, Henry [8:12]
+03. The Summary [6:01]
+04. Little Rascal on a Rock [6:22](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BD58B670D64AF1D5FA55963F0F80952CA82D1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168201   (410553) от 23.09.2017
+
+Power Of Zeus - The Godspel According To Zeus (1970) Reissue, 1995, Buy Or Die Records [MP3|320 Kbps] <Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Couldn't Be Me
+02. In The Night
+03. Green Grass And Clover
+04. I Lost My Love(   Читать дальше...   )Жанр: Hard Rock, Psych-Prog RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6F5DD8A9E1B7A76D472D933D9F543C39F9F0F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168143   (410554) от 23.09.2017
+
+Бесогон ТВ. Хочет ли Серебренников быть Мейерхольдом? (22.09.2017) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская Программа Никиты Михалкова Бесогон TV на канале Россия 24 выходит 1 или 2 раза в месяц.
+Цель этого авторского канала, - поделится мыслями и опровергнуть домыслы появляющиеся в сети и не отражающие истинного мнения автора передачи, - Никиты Михалкова о том или ином событии.
+Темы выпусков самые разные, но доминируют политика и общество.
+(   Читать дальше...   )выход из попечительского Фонда кино, Кирилл Серебренников, Мейерхольд и Иисус Христос, Иван Вырыпаев и ценности, гапоновщина, Алексей Соломин и Матвей Ганапольский, Пушкин или Лермонтов, Люся Штейн депутат, Н. Петров и полторы тысячи миллионов, Николай Виноградов, Ирина Прохорова, Pussy Riot, Сергей Юрский, Анна Варпаховская, Екатерина Деготь, телеканал Дождь, рабочий (   Читать дальше...   )Телекомпания: Россия 24Жанр: Телепередача, общественно-политическая программаПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0364B5EA5BECACAFF12688D34DC9DA7E4F80A378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168383   (410557) от 23.09.2017
+
+Nocturnal Rites - Phoenix (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Heart As Black As Coal (4:21)
+ 2. Before We Waste Away (4:46)
+ 3. The Poisonous Seed (4:30)
+ 4. Repent My Sins (3:52)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233C201DA32AA4F63099C5560F66472E0C692364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168185   (410558) от 23.09.2017
+
+Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Time To Go (04:27)
+02. I Always Turn The Blues On (04:25)
+03. What Happens After Midnight (Nothin' Good) (05:31)
+04. Whether Blues (05:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BDA7AA580760F2C22B3AD995F37DC5FB7003E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168247   (410560) от 23.09.2017
+
+Открытый микрофон (2017.09.22) WEB-DLRip (сезон 2, выпуск 6)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410560.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71121AD4DE21AF770A0800294819864651057D25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168309   (410561) от 23.09.2017
+
+Geekbench 4.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 4 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+
+Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073DD3C41FC6300FE8A36A2FF130DF4FBA6006C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168357   (410563) от 23.09.2017
+
+Журнал | Живая история [+приложение] №5 (23) (июнь 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный исторический журнал. Издается при участии Музея современной истории России с 2015 г. На страницах журнала освещаются темы, связанные с событиями отечественной истории последних 150 лет. Его авторами выступают ведущие ученые и преподаватели вузов, известные писатели и публицисты.Жанр: Научно-популярный исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9A44BCCC6257603A1BE40E590D249B6FB451A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167898   (410564) от 23.09.2017
+
+Бесогон ТВ. Всё ли экономическое на экономическом форуме и зачем стояла очередь на выставку Валентина Серова (21.02.2016) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская Программа Никиты Михалкова Бесогон TV на канале Россия 24 выходит 1 или 2 раза в месяц.
+Цель этого авторского канала, - поделится мыслями и опровергнуть домыслы появляющиеся в сети и не отражающие истинного мнения автора передачи, - Никиты Михалкова о том или ином событии.
+Темы выпусков самые разные, но доминируют политика и общество.
+(   Читать дальше...   )Телекомпания: Россия 24Жанр: Телепередача, общественно-политическая программаПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462C3E1A513AF55C106DE44E02E5AD9E848C138C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168334   (410565) от 23.09.2017
+
+Carbon Copy Cloner 5.0.2 (5102) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner – утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Bombich Software, IncПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C997A1D958B62C03504F302C844DA5E0FA58DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168271   (410566) от 23.09.2017
+
+Журнал | Живая история №3 (10) (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный исторический журнал. Издается при участии Музея современной истории России с 2015 г. На страницах журнала освещаются темы, связанные с событиями отечественной истории последних 150 лет. Его авторами выступают ведущие ученые и преподаватели вузов, известные писатели и публицисты.Жанр: Научно-популярный исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B520731E451D559950AB22B94A6FEBE61640311A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

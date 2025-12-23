@@ -1,26 +1,667 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1369330   (903665) от 23.03.2020
+
+Twinkstar 7.0.300.2003 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twinkstar - китайский браузер на базе Chromium. В Twinkstar удалены как все второстепенные, так и многие базовые функциональные возможности. Во многом за счет этого разработчикам удалось достичь небывало высокой производительности и отличной скорости загрузки веб-страниц.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646BF513F84F27FAC7CFF2F13D3BE16657BDDA3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369313   (903666) от 23.03.2020
+
+Пол Андерсон | Сугубо временно (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903666.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Третьей мировой войны власть оказывается в руках диктатора. Тоталитарное общество: люди разобщены и живут в постоянном страхе за свою жизнь. В самом сердце страны растет сопротивление. Спасенный подпольщиками от смерти в тюремных застенках профессор Новоамериканского университета Арнольд Левизон создает супероружие, которое должно помочь свергнуть ненавистную (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DD4999E1686EF5744A08ECEFA89681CB05E63B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369384   (903667) от 23.03.2020
+
+В.В. Шигин | Матросская революция (2018) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга известного российского писателя-мариниста Владимира Шигина посвящена революционным матросам России и охватывает период от Февральской до Октябрьской революции. Именно в это время матросы проявили себя как самостоятельная сила, с которой заигрывали все без исключения политические партии, стремясь заручиться их поддержкой. При этом сами матросы стремились (   Читать дальше...   )Жанр: Военная история, ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C837A31D14181DC5EE5988D8FE664C184F26CC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369349   (903668) от 23.03.2020
+
+PeaZip 7.1.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903668.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814490BF14B7445615F9DDB3DAC52CC882ADB11D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099388   (903669) от 02.02.2017
+
+VA - Jazz Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chill Factory - Dark Glassed  3:34
+02.  Yves St. Pierre - Only Presence  2:53
+03.  Caanall Groove - Around The Planet  3:13
+04.  Chill Ars Project - Attached To Life (International Mix)  3:13(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86001B52B71FDF61ECCBDEB6CBA3E469B2812E13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099702   (903672) от 02.02.2017
+
+The Necks - Unfold (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Rise 15:33
+2 Overhear 16:17
+3 Blue Mountain 20:59
+4 Timepiece 21:47Жанр: Jazz, Free ImprovisationПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A84B63BF19CBF0A1C51C065849AF940BEEBDC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099721   (903676) от 02.02.2017
+
+Thelonious Monk Quartet with Johnny Griffin - Thelonious In Action (1958) 1995, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Light Blue [05:15]
+ 02.Coming On The Hudson [05:25]
+ 03.Rhythm-A-Ning [09:26]
+ 04.Epistrophy (theme) [01:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91102A91353DBF32DAEEE43A6C8CA752989EA80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293069   (903677) от 09.02.2011
+
+Амстердамский кошмар / Amsterdamned (1987) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодому детективу полиции Эрику Виссеру поручают расследовать серию загадочных убийств, совершенных неизвестным маньяком в каналах Амстердама. Бессмысленность и зверская жестокость убийств не позволяет сделать каких-либо выводов и затрудняют следствие. Как успокоить местное население? С помощью помощника и молодой женщины Лауры Эрику удается напасть на след преступника.Жанр: Боевик, ТриллерРежиссер: Дик МаасАктеры: Хуб Стапель, Моник ван де Вен, Серж-Анри Вальке, Хидде Мас, Лу Ландре, Татум Дагелет, Эдвин БаккерПеревод: Двухголосый закадровыйПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79F7CF609762BB6EFFEF60EB0D9CC1AF7285891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099605   (903678) от 02.02.2017
+
+VA - Smoking Lounge: Luxury Chill-Out & Lounge Tunes Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alberto Traversi - Blue Moon  4:43
+02.  Rainer Schnelle - Beyond The Blue (Underscore Version)  2:16
+03.  VST - Awakeing  4:47
+04.  David Starck - Early Morning  1:34(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE2852394BDB89544380CBEB0DC8FB9BF26A95F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099583   (903681) от 02.02.2017
+
+VA - Midnight Lounge Vol.25 Allure (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gysnoize - Million Miles Away  4:38
+02.  Riccardo Ascani - Chiringuito (No Theme)  3:17
+03.  Dreamw41ker - A Long Walk  5:01
+04.  Valefim Planet - Space Clock  5:18(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D326575ACA37731A6C868CF93F47542665A4CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991945   (903684) от 29.02.2016
+
+Far Cry 3: Blood Dragon (2013) [Xbox360] [RegionFree] 16537 [LT+1.9] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сержант Рэкс Кольт, кибер-коммандо 4-го поколения. В 2007 году Земля пытается оправиться от последствий ядерной войны, разразившейся в 90-е годы прошлого века. Конфликт между Востоком и Западом нанес удар по целым поколениям, и человечество пытается встать на ноги после катастрофического десятилетия. Нужно найти новые пути для достижения мира.Тип издания: LicenseРазработчик: Ubisoft EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1929D0B46D35B5690AC5619883A502AEF0B7C2FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099643   (903685) от 02.02.2017
+
+Concerto Moon - Angel Of Chaos (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Power, Neoclassical, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Earth Dies Screaming 01:11
+02. Angel Of Chaos 05:08
+03. Lost In The Dark 05:18
+04. Right Here, Right Now 04:39(   Читать дальше...   )Жанр: Power, Neoclassical, Heavy MetalПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4861A20DBD76A8082055AA7D1A6B9B5F4C6835DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099649   (903688) от 02.02.2017
+
+Concerto Moon - Between Life And Death (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Power, Neoclassical, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone In The Dark 04:41
+02. Struggle To The Death 04:20
+03. Between Life And Death 05:49
+04. I'll Close My Eyes 05:22(   Читать дальше...   )Жанр: Power, Neoclassical, Heavy MetalПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEED00087870A1F6032CBFDDE1930C658B56FCE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991748   (903690) от 29.02.2016
+
+Ставка на любовь (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Костя и Давид — друзья детства, и вот спустя годы им, наконец, суждено проверить дружбу на прочность. Давид собирается сделать предложение своей возлюбленной, Анне, а Костя хочет выйти в финал международного чемпионата по покеру. Два, казалось бы, совершенно несвязанных события, становятся решающими в жизни друзей, так как Давиду придется играть в покер, а Косте (   Читать дальше...   )Производство: Россия / Yellow, Black & White, НебоЖанр: Комедия, МелодрамаРежиссер: Артем МихалковАктеры: Ованнес Азоян, Андрей Бурковский, Катерина Шпица, Ян Цапник, Вадим Андреев, Ольга Тумайкина, Александр Ревва, Дмитрий Хрусталев, Ирина Чипиженко, Алла МихееваПеревод: Не требуется (русский) iTunesПродолжительность: 01:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4ED3D35DA9BBA3D45715D124B8D4257236CFCF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760186   (903692) от 24.02.2014
+
+The Pixel Door - Opus of unrequited love (2014) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Modern Сlassical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus of unrequited love pt.1 (2:46)
+02. Opus of unrequited love pt.2 (3:47)
+03. Opus of unrequited love pt.3 (3:17)
+04. Opus of unrequited love pt.4 (3:09)(   Читать дальше...   )Жанр: IDM, Glitch, Modern Сlassical, AmbientПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BC55BD8F43136AA462306D828FA6B0AB365773
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099625   (903694) от 02.02.2017
+
+Tomer Bar - Memories (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Memories - 07:04
+2. Teenager part 1 - 04:08
+3. Rainy Night - 07:52
+4. Teenager part 2 - 05:17(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C104C9EB9381BFFEBCDBBE97662C88C8B1C1DB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981528   (903695) от 29.02.2016
+
+Клим (2015) HDTVRip (сезон 1, серии 1-8 из 8)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клим Рощин, опытный питерский следователь с уникальными навыками ученого-этолога, приступает к расследованию двойного убийства. Единственной свидетельницей преступления является дочь погибшей супружеской пары, Алиса. В деле много странностей, которые настораживают Клима. Работа поглощает все его время, поэтому он не сразу замечает, что его отношения с женой Зоей (   Читать дальше...   )Телекомпания: Россия / Первый канал HDЖанр: драма, криминал, триллерРежиссер: Карен ОганесянАктеры: Константин Лавроненко, Дарья Мингазетдинова, Анна Вартанян, Павел Чинарёв, Сергей Шнырёв, Сергей Кудрявцев, Виталий Коваленко, Татьяна Колганова, Евгений Добряков, Григорий Чабан, Денис Старков, Валерия Кожевникова, Олег Рязанцев, Иван Николаев, Никита Панфилов, Антон Багров, Алексей Фокин и др.Продолжительность: ~ 00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1057B8EB243ED4049840D36DACB44FEFEE68C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991803   (903698) от 29.02.2016
+
+Векторный клипарт - Яркая инфографика в векторе [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инфографика в векторе.
+7EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFFC5D79240312EFDA59F4373A24E9595CFA233B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099784   (903699) от 02.02.2017
+
+Renee Rosnes - Written In The Rocks (2016) Smoke Sessions Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The KT Boundary [04:45]
+ 02.Galapagos [07:16]
+ 03.So Simple a Beginning [06:18]
+ 04.Lucy from Afar [06:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFB51B4C4E6A740DCCD75B052B460883DE5587B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099801   (903702) от 02.02.2017
+
+Dãm - Purity (The Darwinian Paradox) (2005) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Spiritual Void 4:48
+2 City Of Envy 4:39
+3 No God With Me 3:40
+4 Come To Dust 4:21(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DFF0A3B83742BA8BF8CC805FDB0BCF843ED7EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991902   (903703) от 29.02.2016
+
+Векторный клипарт - Офис и школа - шаблоны для дизайна [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офисный и школьный клипарт в векторе.
+10 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DE66C751BFB2B82D66F1208663844AF6B6DC73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099902   (903707) от 02.02.2017
+
+Harry Verbeke & Rob Agerbeek Quartet - Seven Steps (1982) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Seven Steps [05:53]
+ 02.Ghana [07:19]
+ 03.Without A Song [07:10]
+ 04.Ladies Birthday [05:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5CAFC5C0DD9BEAA5C6E527DEE2AE748C02B7AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991852   (903708) от 29.02.2016
+
+One Upon Light (2016) [Ru/Multi] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ради человечества... ради науки! Наука принесла человечеству много чудесных открытий. Но покорение силы тени? Звучит опасно, и, скорее всего, так оно и есть. Особенно, если безобидный свет вдруг становится смертельным врагом... One Upon Light приглашает вас в мир, где не действуют законы света и тени, на поиски разгадок в руинах лабораторий Aurora Science. Что произошло? (   Читать дальше...   )Тип издания: LicenseРазработчик: SUTD Game LabЖанр: Logic, Puzzle, 3D, Top-downЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51CFFF8C55B7872D1ECE2E2E8ADDD1ADD165F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099792   (903712) от 02.02.2017
+
+Lawrence Brown - Slide Trombone (1955) 1999, Verve[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rose Of The Rio Grande [03:57]
+ 02.Caravan [06:01]
+ 03.Down The Street, 'Round The Corner Blues [04:22]
+ 04.Where Or When [03:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFA93185E79D134F3E318883C8731089FDCDE32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992006   (903715) от 29.02.2016
+
+Duplicate File Remover 3.8.30 Build 0 RePack by D!akov [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного ('Byte by Byte') анализа файлов, который подразумевает абсолютную точность при сравнении.  Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412CA18AA5B7F2EF3109CB50BF1118D877E0CD47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099686   (903717) от 02.02.2017
+
+Зимняя Универсиада 2017. Алма-Ата (Казахстан). Церемония открытия (29.01.2017) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903717.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 января 2017 прошла Церемония открытия 28-я Всемирная Зимняя Универсиада 2017 в Алма-Ате (Казахстан).
+28-я Всемирная Зимняя Универсиада 2017 пройдёт с 29 января по 8 февраля 2017 года.
+В соревнованиях Зимней Универсиады - 2017 в Алматы (Алма-Ате) примут участие 1613 спортсменов из 54 стран мира. К соревнованиям Универсиады допускаются студенческо-молодёжные участники (   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1DCBA944A6F88BD4470A590BB6A3C6CF318EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

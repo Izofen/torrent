@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1007215   (819657) от 16.04.2016
+
+George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament    02:23
+02. Where Are You Now    04:03
+03. Remembrance    03:50
+04. Where The Sun Rises First    05:06(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007875   (819658) от 16.04.2016
+
+VA - Дорожные истории. Лучшие хиты шоферского шансона (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сборная Союза - Не Судьба
+02. Сергей Сердюков - Не Оставляй
+03. Сергей Трофимов - Дядя Вова
+04. Слава Благов - Прокурор Наташа(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF518F55510605519919CA893AA1381B69F5FA07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008033   (819659) от 16.04.2016
+
+Павел Клушанцев | Отзовитесь, марсиане! (1968) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга об открытии и изучении Марса. Читатель узнает о том, как на протяжении столетий менялись представления людей о Марсе и как с началом космической эры развеялись многие легенды, окружавшие эту таинственную планету.Жанр: Научная фантастика детямФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531E7DAECFF1014C5DB7CA2F42E658C0541FB2F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007733   (819660) от 16.04.2016
+
+Izabella - Iza (1992) [MP3|320 кб/с] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Izabella Dorota Skorupko - Изабелла Скорупко — шведская модель и актриса, польского происхождения, наиболее известна по роли «девушки Бонда» Натальи Семёновой в фильме «Золотой глаз» 1995 г..
+Родилась 4 июня 1970 года в Белостоке на севере Польши. Когда ей был всего год, её отец и мать развелись, и дочь осталась с матерью. В 1978 году они переезжают в Стокгольм, (   Читать дальше...   )Трeклист:
+01. Shame Shame Shame   (3:51)
+02. Write You A Love Song   (3:40)
+03. Everything To You   (4:36)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED036DFEF17A1AC93E63249696011326EA2BD0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007704   (819661) от 16.04.2016
+
+VA - Nashville Country Blues (2016) [MP3|320 кб/с] <Rock Blues, Country, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Boy Bloater & The Limits - The Devils Tail
+002. Dolly Parton - Jolene
+003. Glen Campbell - Rhinestone Cowboy
+004. Blake Shelton - Ol' Red(   Читать дальше...   )Жанр: Rock Blues, Country, FolkПродолжительность: 06:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2827D5631603F4EAB098FF80427CEF06E2A5E63C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503547   (819682) от 19.10.2021
+
+Tweak Photos - Image Editor 2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819682.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все любят фотографировать. Но насколько хорошо Вы можете редактировать тысячи снимком, используя Ваш Mac является большим вопросом" - говорят разработчики Приложения.
+Компания Systweak разработала совершенно новое приложение для пакетного редактирования изображений на Mac - Tweak Photos. С помощью Tweak Photos , редактирование тысячи Ваших фотографий - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2021Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C5483BB2035E475B12AC55031890272A41CDB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503493   (819683) от 19.10.2021
+
+Regal Worm - The Hideous Goblink (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action By HAVOC (3:27)
+02. The Inner Vacuum (3:02)
+03. Bonzai Master (Edit) (2:35)
+04. Pollinators (9:19)(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCE29947FAABB6F3E54396A1B36588B2E390F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503615   (819684) от 19.10.2021
+
+MacX Video Converter Pro 6.5.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819684.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
+MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным устройством, включая даже смартфоны и планшеты не самой первой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D606DA6E361DD0440498A2B39CD7E1AE6CE5B53A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503442   (819685) от 19.10.2021
+
+Sphäre Sechs - Particle Void (2018) [AAC|~282 Kbps] <Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Multiverse (5:59)
+02. Quantum Shift (8:14)
+03. Transference (5:31)
+04. Ngc 8541 (5:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663E8DF5521592253807371CE5FB339D655315A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503474   (819686) от 19.10.2021
+
+TextSoap 8 v8.6.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819686.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextSoap для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2021Разработчик: Unmarked Software, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDEF00854C104EB189AE480FFBE3C76765A6630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503610   (819687) от 19.10.2021
+
+WinX HD Video Converter for Mac 6.5.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819687.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinX HD Video Converter – многофункциональный программный продукт, служащий для преобразования видеофайлов. Приложение поддерживает множество форматов, как распространенных, так и "экзотических". Кроме того, поддерживается конвертация файлов для последующего просмотра на мобильных устройствах. Так что WinX HD Video Converter позволяет наслаждаться просмотром (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403F0F70659D567D5353A39A8B40D4C88D4E1DCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503321   (819688) от 19.10.2021
+
+Leverage - Blind Fire (2008) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow In The Rain
+02. King Of The Night
+03. Stormchild
+04. Sentenced(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835BF0A2EA8A7F3288B5E72A586922F1E7E1CE2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503612   (819689) от 19.10.2021
+
+Viper FTP 6.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярный протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
+Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.10.2021Разработчик: Grzegorz StaszczykПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AD3DF186ECD01C94430824B631EA5C5D7D3A87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503366   (819690) от 19.10.2021
+
+Hurry Scuary - Break It Up (1988) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Top Dog~Reaching for the Sun
+02 We Can Try Again
+03 You Need a Man
+04 Open Your Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0DAC047027CF7318E7BCD8837C8A961D6D9557
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503620   (819691) от 19.10.2021
+
+Acon Digital Acoustica Premium Edition 7.3.15 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium — многофункциональный аудиоредактор с поддержкой многоканальных форматов объемного звука 5.1 и 7.1. Средства программы обеспечат точное управление деталями производства аудио CD (длина пауз, индексные маркеры, поля CD-TEXT). В Acoustica Premium встроен широкий диапазон инструментов профессионального качества для мастеринга и звукового дизайна, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2021Разработчик: Acon AS.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5702FDD901E894BEC3FF556C2B10F515440FB947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503621   (819692) от 19.10.2021
+
+Artstudio Pro 3.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2021Разработчик: Lucky ClanПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068C898C37D3BD501128DDD633442033ABF68CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503563   (819693) от 19.10.2021
+
+Kylie Minogue - DISCO (2020) [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss A Thing (3:57)
+03. Real Groove (3:15)
+04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C0F516BAD455C14B7A9053E3A09C13C7F67F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503314   (819694) от 19.10.2021
+
+Cyborg Halucinations - Entheogenesys (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Entheogen
+03. Hallucinate
+04. Exterminacion(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99217CA764D73F89622DCB5CCA4822AF2E967D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503187   (819695) от 19.10.2021
+
+Бёрдмэн / Birdman (2014) BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета бывший актер, некогда сыгравший роль популярного супергероя Бёрдмэна, и теперь, переступая через свое эго, он решает принять участие в новой бродвейской постановке с целью вернуть себе былую славу, блеск и величие.Производство: США / New Regency Productions, M Productions, Grisbi Productions, TSG Entertainment, Worldview EntertainmentЖанр: Драма, КомедияРежиссер: Алехандро Гонсалес ИньярритуАктеры: Майкл Китон, Эдвард Нортон, Эмма Стоун, Наоми Уоттс, Зак Галифианакис, Андреа Райзборо, Эми Райан, Линдси Дункан, Дэмиэн Янг, Джереми ШамосПеревод: Дублированный (BD EUR)Субтитры: ОтсутствуютПродолжительность: 01:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF095E64657D8071F5B707059639D7498DE277AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503411   (819696) от 19.10.2021
+
+VA - The Best of Italo Disco, Vol. 4 (2011) [AAC|~356 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Ross - Fall Into a Trance (Remix) (5:43)
+02. Maurice Mc Gee - Gravity (Original Mix) (5:17)
+03. Jago - I'm Going to Go (Original Mix) (5:17)
+04. Ronnie Jones - My Dance Exercizes (Extended Mix) (5:33)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AC01A6FF6C509AF220FC0602871867FF30F899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503625   (819697) от 19.10.2021
+
+Filmage Screen-Screen Recorder 1.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmage Screen Recorder - это универсальное программное обеспечение для записи экрана и редактирования видеофайла, позволяющее создавать потрясающие видео.  Recorder прост в использовании, интуитивно понятен, легкий и стабильный. С помощью этой последовательности на Mac вы можете создать новую запись экрана. Запишите и сделайте снимок экрана Mac, или создайте новый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Filmage Screen-Screen RecorderПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Упрощенный китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FEAF16C6DFB71DDCFE310E15FC51784E502671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503556   (819698) от 19.10.2021
+
+Максим Леонидов - Седьмое небо (2021) [AAC|~322 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В твоём городе осень (4:25)
+02. В зоне доступа твоих губ (3:08)
+03. Убить дракона (3:15)
+04. Кот (4:13)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E3D8ADE31E678A9FE54E0636AE0751F397E77E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503408   (819699) от 19.10.2021
+
+VA - The Best of Italo Disco, Vol. 2 (2010) [AAC|~345 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Creatures - Maybe One Day (Dance Mix) (5:46)
+02. Evelyn Barry - Take It As a Game (New Super Remix) (6:08)
+03. Xenon - Opera (Dance Version) (5:19)
+04. Band of Jocks - Good Times (Original Italian Mix) (4:45)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923399ACF67499A5E349A0A793F26A22AFCDBC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503286   (819700) от 19.10.2021
+
+VA - Inner Awen Vol. Vi (2021) [AAC|~326 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Matter (ISR) - Perception (Paul Angelo & Don Argento Remix) (7:03)
+02. Saccao - Sirens of Odyssey (7:23)
+03. Dark Matter (ISR), Tom Shwartz - Out of Bounds (8:31)
+04. Add-us - Moments (7:49)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0801F6879C21824493D348F8A3E6939ACE9BEA40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503410   (819701) от 19.10.2021
+
+VA - The Best of Italo Disco, Vol. 3 (2011) [AAC|~340 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patty Johnson - I'm In Love (Europe Version) (6:03)
+02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:08)
+03. International Music System - Dancing Therapy (128 Bpm) (6:05)
+04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7633303B6AB6358815E2E78F23CB6D7EA1F60F0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776083   (819711) от 11.04.2014
+
+Векторный клипарт - Флаги мира 2 / World flags 2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаги мираФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5569FFF22E701D5856DB013703ACB11D344C927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,26 +1,682 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1237621   (550392) от 25.07.2018
+
+Берт Эхгартнер | Крах гигиены. Как война с микробами уничтожает наш иммунитет (2018) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организм человека – это огромный зоопарк, и по разнообразию биологических видов он не уступит лесам Амазонки. Вообразите только: на каждую человеческую клетку нашего тела приходится десять клеток-«сожителей», то есть микроорганизмов. И все они играют свою партию в концерте нашего здоровья.
+
+Никто не спорит, что соблюдение принципов гигиены – одно из важнейших достижений (   Читать дальше...   )Жанр: Медицинская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1FC5F7BEDD1D3A5C38EB54BF48DFB395A2CCD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 815991   (550407) от 25.08.2014
+
+Paul Hardcastle - Jazzmasters 7 (2014) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unlimited Love (feat. Candy Bradley)
+02. Rythm Of Life
+03. Free To Fly
+04. Starlight Express(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FDFCF851A104A10DEB41E553EA32CFB2863AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816014   (550413) от 25.08.2014
+
+Евгений Мильнер | Как жить без лекарств в России (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Мильнер собрал многие народные и авторские методики оздоровления в один удобный и понятный справочник. В нем вы найдете много информации о том, как:
+вылечиться без таблеток и врачей;
+поддерживать свое здоровье и заботиться об организме;
+очиститься от шлаков и токсинов и правильно питаться;
+делать профилактику заболеваний с помощью различных дыхательных практик; o
+подарить себе вечную молодость и бодрость тела и духа.
+Методики естественного оздоровления
+Лечение без лекарств
+Лечение солнечным светом, свежим (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57AEA8DF7D646E17D3E97B6C8CAA30ED54D3DAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309573   (550435) от 20.06.2019
+
+Векторный клипарт - Vector Children Collection #31 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Дети
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1DB41D880BB55F0114561A6F05995040000648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309598   (550436) от 20.06.2019
+
+Two Door Cinema Club - False Alarm (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once (3:21)
+02. Talk (4:25)
+03. Satisfaction Guaranteed (feat. Mokoomba) (3:50)
+04. So Many People (4:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789ECD8D33B1F29A9D8863C29339D6DD42F031C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309620   (550437) от 20.06.2019
+
+Журнал | Автомир [Россия] №26 (июнь 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550437.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE4C12A29E3B83E63EA623277FE420F18DB8035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309711   (550438) от 20.06.2019
+
+Растровый клипарт - Home Farm #07 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт домашняя ферма для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 140x100-7897x4628
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92939A59DC8BB0A1D490B672091F89F1710BD9AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309592   (550439) от 20.06.2019
+
+Black Mountain - Destroyer (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550439.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Future Shade (5:11)
+2. Horns Arising (6:51)
+3. Closer To The Edge (2:54)
+4. High Rise (6:12)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C29A5FA98C4165855B7BA342E41D9DD5D8BD20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309520   (550440) от 20.06.2019
+
+VA - The Summer Album 2019 (2019) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550440.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01.  Wham!  -  Club Tropicana
+02.  John Travolta & Olivia Newton-John  -  The Grease Mega-Mix
+03.  ABBA  -  Summer Night City(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1646439C817415C483E27BC970378C1AF11E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309603   (550442) от 20.06.2019
+
+Михаил Казовский | Любовница Дюма (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий проснулся, как всегда, от звонкого голоска маленькой Гюзель:
+– Доброе утро, господин. Ваш кофе.
+Он открыл глаза. Перед ним стояла хозяйская дочка в шальварах, кофточке с бисером и в платке, прикрывавшем часть подбородка. Овдовев год назад, молодая женщина с ребенком возвратилась к отцу и усердно помогала ему в его небольшой гостиничке, приносила кофе постояльцам (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 03:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F03EFD51BD8ED80A865DFD92A09575F486AEC9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309444   (550444) от 20.06.2019
+
+ExactScan Pro 19.4.24 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550444.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2019Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.6.6+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38780B91E2AC23C7FC1604AAC44E300526ACEC23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309748   (550445) от 20.06.2019
+
+Обои - Wallpapers Кошачьи #57 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD573D5101DD1B3A9339DA3833079174B59A24B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309548   (550447) от 20.06.2019
+
+Typinator 8 v8.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typinator – это простое проложение которое сэкономит ваше время, вставляя заранее заготовленные шаблоны вместо установленных вами сокращений.
+Например, набрав на клавиатуре «подп.», вместо него автоматически будет вставлено:
+Имя, Фамилия
+Должность(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: июнь 2019Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2BD4E8A14F7D31D34CB2B89B137A058E82A1A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309543   (550448) от 20.06.2019
+
+VA - 55 Hits Été 2019 (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Pedro Capo feat. Farruko - Calma
+02. Angele - Balance Ton Quoi
+03. M. Pokora - Les Planetes(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A51F413E44445EAAA2272A32D2C3BC489ADEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309574   (550449) от 20.06.2019
+
+Векторный клипарт - Vector Pets Collection #13 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Домашние животные
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD6C6E57DC18CF42F894751BB5B8044DF02AFE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309752   (550450) от 20.06.2019
+
+Обои - Wallpapers Кошачьи #58 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DF519A02F60E0E7C12AEAEF1A62328448F4CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309577   (550451) от 20.06.2019
+
+Векторный клипарт - Vector Roses Collection #28 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Розы
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C91A8F6928457E4A2FE6699A436645CFB8A4DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309622   (550452) от 20.06.2019
+
+The Gospel Gold Singers - Gospel Gold (1999) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels (3:42)
+02. The Warrior Is A Child (4:05)
+03. Just A Closer Walk With Thee (4:22)
+04. Will The Circle Be Unbroken (2:59)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC987ACCBD76C6072362069A46C718B61A70232
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309703   (550453) от 20.06.2019
+
+Газета | Тайны ХХ века. Секретные архивы №5 (май 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сморите очередной номер нового издания «Секретные архивы".
+Редакция подготовила для вас захватывающие сюжеты о людях и событиях, до недавнего времени известных только узкому кругу лиц. В основе всех статей - документы, с которых лишь несколько лет назад был снят гриф "секретно" - деятельность спецслужб, тайны жизни и смерти людей, вершивших судьбы (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100E7821928BE66A0DAD9638F8FF5B4BF5A8BEBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309445   (550454) от 20.06.2019
+
+KCNcrew Pack 15-6-19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550454.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 19.06.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DA2BE96FE5CEDCFCA61C1940D7EDD544FC501C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047125   (550455) от 29.08.2016
+
+Defaillance - Contemplation Misanthropique De L'Humanite... (2008) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contemplation 12:52
+02. Misanthropique 12:42
+03. De l'Humanite... 05:24Жанр: Black MetalПродолжительность: 00:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3932F62915B2115C960A9A082EA6BFF05BE8BAAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047294   (550456) от 29.08.2016
+
+VA - Tropical Vibes - Catch Waves Sound (2016) [MP3|245-320 Kbps] <Indietronica, Bigroom, Fidget House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550456.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ticli And Gas Feat Malcolm - Summer Love (Radio Version) 03:46
+002. Mark Bale Ft Tom Skyler - Faith In The Music (Club Mix) 05:48
+003. Dirty Disco Feat. Debby Holiday - Was That All It Was (Dirty Disco Private Dub) 07:23
+004. Aasif Productions - Unicorn 04:47(   Читать дальше...   )Жанр: Indietronica, Bigroom, Fidget HouseПродолжительность: 10:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4A3CFA660B3886DFB8BF4C1D983556B761D06C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047339   (550457) от 29.08.2016
+
+Bobbi Humphrey - Flute-In (1971) 1982, Applause[APE|Lossless|image + .cue] <Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ain't No Sunshine [02:34]
+ 02.It's Too Late [03:06]
+ 03.Sidewinder [06:16]
+ 04.Sad Bag [05:08](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D826F752D2F332EF78B460D02D7AD7490CBB2080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047199   (550458) от 29.08.2016
+
+Rein De Graaff Trio - Drifting On A Reed (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Drifting On A Reed [04:04]
+ 02.Alone Together [06:21]
+ 03.I Waited For You [05:12]
+ 04.For Lennie And Lee [02:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1049746D7CCA9F41A2A0D2F33B11CEC9F2E1AD26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047230   (550459) от 29.08.2016
+
+Gary Burton - Something's Coming! (1963) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.On Green Dolphin Street [04:09]
+ 02.Melanie [03:56]
+ 03.Careful [04:12]
+ 04.Six Improvisatory Sketches [05:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78E145166E3AEA6C295BAA039EB118C94BC1275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047135   (550460) от 29.08.2016
+
+Lоst Sосiеtу - Теrrоr Нungrу (2014) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spurgatory
+02. Game Over
+03. Attaxic
+04. Lethal Pleasure(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EC1F1F92D5A09A35D1DE834FCE1498598C406D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

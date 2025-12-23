@@ -1,26 +1,688 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1094534   (929382) от 18.01.2017
+
+VA - Winter Fitness Hits Times (2017) [MP3|217-320 Kbps] <Club, Vocal, Nu Disco, Progressive, Bigroom, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsedriver, Chris Deelay & Brooklyn Bounce - Past, Present, Future (Festival Mix) 04:43
+02. Stonebridge, Crystal Waters - Be Kind (Club Dub) 05:56
+03. Nick & Vincent - Am I Wrong (Bbop & Roksteadi Extended) 05:20
+04. Xenia Ghali Feat. Katt Rockell - Broken (Extended) 04:51(   Читать дальше...   )Жанр: Club, Vocal, Nu Disco, Progressive, Bigroom, FunkyПродолжительность: 08:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368A8C11E3AAC3939CA6D233CFD61079D1C26D23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094553   (929383) от 18.01.2017
+
+VA - Utopia Electrifying (By Cortex) (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cortex - Ouija (Original Mix) 08:01
+02. D-Ther - Human Nature (Original Mix) 08:10
+03. Cortex - The Enter Sandman (Original Mix) 06:07
+04. Paradox - Trendy Things (Original Mix) 07:29(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAF32CF9FC1CE823230B4BB8CC6FB4B65DC2668
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094052   (929384) от 18.01.2017
+
+VA - Зимний шансон года. Версия № 5 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Никита Хазановский - Ты Меня Не Дождалась 3:31
+002. Константин Крымский - Лодочка 3:44
+003. Александр Блик - Увезу Тебя На Море 3:16
+004. Виктор Матросов - Ты Где-То Рядом 3:44(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE84914F5B9F59B5DD2EF996D755D797E3C12A70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094517   (929385) от 18.01.2017
+
+Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coolin'
+2. Best Woman, Best Friend
+3. Live Your Love A Lie
+4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094532   (929386) от 18.01.2017
+
+Николай Телешов | Избранные произведения (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929386.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу избранных произведений Н. Д. Телешова, известного русского советского писателя-реалиста, современника А. П. Чехова, М. Горького, И. А. Бунина, вошли повести, рассказы, легенды и сказки...Жанр: ПрозаПродолжительность: 18:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261661ABE525679180E4C4EA8A4304A06625FA28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094540   (929387) от 18.01.2017
+
+Clearview 1.9.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clearview - Программа для удобного чтения электронных книг на вашем Mac.
+Приложение работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 января 2017Разработчик: Canoe SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC83DAE4E47DBDFAA3A97994DB34A99A718D09E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094490   (929388) от 18.01.2017
+
+Brad Wilson - Power Blues Guitar (2016) Live [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Got My Mojo Working  (04:21) 
+02|  I'm Tore Down  (05:39) 
+03|  I Can't Quit You Baby  (08:11) 
+04|  All Kinds Of A Fool  (03:26) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC60F7E321DFD2A566D6DD885AA4D897E588B813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094574   (929389) от 18.01.2017
+
+John Pizzarelli - Dear Mr. Cole (1995) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Style Is Coming Back In Style (2:45)
+02. What Can I Say After I Say I'm Sorry (2:26)
+03. Little Girl (2:55)
+04. You Must Be Blind (3:42)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB1EE9AEFBDA921EB92F5162D1FC6FD528816AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094621   (929390) от 18.01.2017
+
+Alfredo Rodriguez - Tocororo (2016) Mack Avenue[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chan Chan [02:10]
+ 02.Yemaya [03:43]
+ 03.Raices (Roots) [04:29]
+ 04.Gitanerias [03:59](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban JazzПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7775956C9958CBC2377C6BA3380CC8D79B3B682C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094451   (929391) от 18.01.2017
+
+Teruyuki Nobuchika - Still Air (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Air (02:09)
+02. Into The Silence (02:46)
+03. La Reve (02:50)
+04. Pulsation (04:55)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF570ABD62FDE78166A586779B5907061F50070B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094355   (929392) от 18.01.2017
+
+Hunter & The Dirty Jacks - Mixed Company & The Midnight Hokum (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Back On Shaky Ground 02:47
+02 Bad Bad Bad 04:47
+03 Deal 04:05
+04 Come On In My Kitchen 04:30(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E254A4ADB42BC9191E337AC18BB08A003705FC5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094550   (929393) от 18.01.2017
+
+VA - Essence of Uplifting Trance Vol. 3 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaman - Satellite (Radio Mix) 05:08
+02. Rave - Pavlodar (Original Mix) 08:27
+03. Betelgeuze - Open That Door (Original Mix) 06:09
+04. Betelgeuze - 138 BPM (Original Mix) 06:20(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C85A65821A8D68EB3D33545D84D62894AC51B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094552   (929394) от 18.01.2017
+
+Modern Jazz Quartet - Modern Jazz Archive (1951, 1952) 2CD, 2004, Membran Music[FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929394.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Bluesology:
+01.Milt Meets Sid [03:07]
+02.D & E [02:56]
+03.Yesterdays [02:31](   Читать дальше...   )Жанр: CoolПродолжительность: 01:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C59C850F16A9EB33E26EBFD80251809F97865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744158   (929404) от 09.02.2014
+
+Принц Персии: Пески времени / Prince of Persia: The Sands of Time (2010) BDRip [720p] [hand made 60fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевик, Фэнтези, ПриключенияРежиссер: Майк НьюэллАктеры: Джейк Джилленхол, Джемма Артертон, Бен Кингсли, Альфред Молина, Стив Туссэн, Тоби Кеббелл, Ричард Койл, Рональд Пикап, Рис Ричи, Гисли Орн ГардарссонПеревод: ДублированныйЯзык субтитров: Rus (форсированные), Rus (плоные), Eng (Полные)Продолжительность: 01:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789C05C3D25314DE1390F4A3884A3689EF03D97D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754960   (929416) от 09.02.2014
+
+Проекты - VideoHive - Flowers Day Promo Worker - 2951129 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929416.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Этот проект можно использовать для романтического видео, промо и свадебного видео.
+От себя добавлю, что проект актуален в преддверии дня 8 марта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5330A8B053456B06C7668CB39EFCCC68A2EB0D44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754959   (929427) от 09.02.2014
+
+Иван Царевич и Серый Волк 2 (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929427.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Тридевятом царстве, где живут наши герои — тишь, да благодать. Иван женился на Василисе, и «жили они долго и счастливо», да не тут-то было. Иван целыми днями пропадает с Волком на службе — укрепляет рубежи и оборонную мощь, мечтает перевести стрелки часов на семь часов назад, чтобы меньше спать, и больше работать. А Василисе — скучно, как всем девушкам, ей хочется (   Читать дальше...   )Жанр: Мультфильм, Приключения, Семейный, ФэнтезиРежиссер: Владимир ТоропчинПерсонажи: Никита Ефремов, Татьяна Бунина, Иван Охлобыстин, Михаил Боярский, Ирина Рахманова, Александр БоярскийПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FBEA09DB141462F9FDCD23C6F07EC476A2858F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285465   (929440) от 25.01.2011
+
+The Revivalists - Vital Signs (2010) [MP3|192-320 kbps]<Indie / Jazz / Reggae / Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929440.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Not Turn Away
+2. Shot of Tears
+3. Catching Fireflies
+4. Soul's Too Loud
+5. Purple Heart
+6. Straw Man
+7. Ride the Earth
+8. Appreciate Me I
+9. Appreciate Me II
+10. Don't Get Caught Up(   Читать дальше...)Жанр: Indie / Jazz / Reggae / RockПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85621D2B2EBC11D5FDAD8CD556DFBF8F4A691C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 287071   (929446) от 25.01.2011
+
+VA - Ледяной Дискач (2011) [MP3|128 kbps]<Dance,Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance,ClubПродолжительность: 12:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A16C18C5CBAE7834C3F4FD0AE96863879B2366
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094554   (929455) от 18.01.2017
+
+Tiziana Ghiglioni - Sings Gaslini (1995) Soul Note[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mingus Memory [04:17]
+02.Forse Sei Tu? [03:09]
+03.Fellini Song [04:01]
+04.Canto alto [03:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40F6E2099FAF9FECF1AC9C3A350E7B38F2ADFA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094558   (929456) от 18.01.2017
+
+Jack McDuff with Jimmy Forrest - Tough 'Duff (1960) 1995, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Smooth Sailing [06:48]
+ 02.Mean To Me [05:41]
+ 03.Tippin' In [05:25]
+ 04.Yeah, Baby [08:57](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6970306036C5E43250332680631A6D7B53DADEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177126   (929457) от 22.02.2010
+
+Lee Morgan - Lee-Way (1960 / 2008 Remaster) [FLAC|Lossless]<Jazz / Hard Bop / Post Bop / Trumpet>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929457.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. These Are Soulful Days
+2. The Lion and the Wolff
+3. Midtown Blues
+4. Nakatini Suite
+
+Исполнители:
+
+ Lee Morgan (trumpet)
+Jackie McClean (alto saxophone)
+Bobby Timmons (piano)(   Читать дальше...)Жанр: Jazz / Hard Bop / Post Bop / Trumpet
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285475   (929471) от 25.01.2011
+
+Кино в деталях. В гостях Юлия Высоцкая (эфир 27.12.2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929471.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эфире СТС программа "Кино в деталях" - Федор Бондарчук продолжает анализировать "важнейшее из искусств", придерживаясь изначально выбранного кредо: навигатор по киноиндустрии на СТС не должен быть похож ни на одну из программ на отечественном ТВ. В своей программе Федор показывает кино с разных ракурсов: обсуждает эстетическую сторону кино и его бизнес-составляющую. В программе звучат только авторитетные мнения и только свежие новости мира кино.Жанр: ТелепередачаПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA0A76551388E9F9BDC41A37871F86FFC79124C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754586   (929492) от 09.02.2014
+
+Квартира 143 / Emergo / Apartment 143 (2011) HDRip [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда парапсихологов намеревается исследовать серию аномальных явлений, возникших в недавно заселенной квартире. Телефонные звонки в отсутствие звонящего, таинственные тени, необычные световые аномалии, парящие в воздухе объекты, взрывы лампочек — всё это лишь некоторые события, с которыми им предстоит столкнуться, попутно снимая все на камеру. Используя инфракрасную (   Читать дальше...   )Производство: ИспанияЖанр: Ужасы, ТриллерРежиссер: Карлес ТорренсАктеры: Франческ Гарридо, Фиона Глэскотт, Рик Гонсалес, Кай Леннокс, Джина Мантенья, Майкл О'Киф, Дамиан Роман, Лаура Мартусцелли, Ферми Рейксач, Марсель БарренаПеревод: Дублированный (Чистый звук)Продолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0349F04C5C6F418B426E21BF6CAEA9499AA70BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755217   (929510) от 09.02.2014
+
+Орландо / Orlando (1992) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на романе Вирджинии Вулф, фильм начинается в Лондоне 17-го столетия. Орландо - юноша-аристократ, гермафродитный по моде того времени и серьезно настроенный превратить жизнь, о которой он знает так мало, в искусство, о котором он знает еще меньше.
+Орландо привлекает внимание стареющей королевы Елизаветы I, и ее величество приказывает ему не взрослеть и (   Читать дальше...   )Жанр: фэнтези, драма, мелодрамаРежиссер: Салли Поттер / Sally PotterАктеры: Тильда Суинтон, Билли Зейн, Лотер Блюто, Шарлотт Валандре, Джон Вуд, Хиткоут Уильямс, Квентин Крисп, Питер Айр, Том Хоффман, Сара КроуденПеревод: Двухголосый закадровый + Авторский одноголосый (А.Алексеев)Язык субтитров: русские и английские (встроенные, отключаемые)Продолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC656E62B3653D309D69B54C75D78B34FEF91A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628364   (929518) от 14.03.2013
+
+Pinnacle Studio 16 Ultimate 16.1.0.115 VPP 2013 (58.2GB) [MULTi / Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Corel официально выпустил новую версию известнейшей платформы для обработки видеоматериалов Pinnacle Studio 16. Это первый релиз Pinnacle Studio с тех пор, как компания Corel приобрела бизнес компании Avid по выпуску потребительских инструментов видеомонтажа в июле этого года. На данный момент компания Corel свертывает развитие линейки продуктов Avid Studio, (   Читать дальше...   )Язык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629926   (929520) от 14.03.2013
+
+Gears of War: Judgment [XBOX360] [Region Free] [RUSSOUND] [LT+3.0] (XGD3 / 15574) (2013) | R.G. X360Club
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Gears of War: Judgment стала одной из самых динамичных и сложных по сюжетной линии игр, возвращающих вас в наиболее значимый день Вселенной, где разворачиваются события игры, – в момент, наступивший сразу после Дня Прорыва. Игра как будто впервые испытывает вас на прочность характера в супер динамичном многопользовательском режиме.
+Сюжет новой серии «Judgment» вращается вокруг отряда солдат Kilo Squad, который возглавляют Деймон Байрд (Damon Baird) и Август «Колтрейн» Кол (Augustus «The Cole Train» Cole), сформированного за несколько лет до событий предыдущей серии трилогии Gears of War.
+В этой серии к ним присоединились новички София Хендрикс и Гарон Падак, объединенные одной целью – спасти оккупированный новым ужасным врагом город Халво Бей.
+
+Gears of War: Judgment предоставляет возможность совместной игры с тремя друзьями через Xbox LIVE (всего 4 человека), с которыми вы сможете спасти планету Сера от уничтожения Локустами. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Epic Games и People Can FlyЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42FF057079581949C56AA477146D6D6BE9937F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

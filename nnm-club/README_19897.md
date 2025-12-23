@@ -1,26 +1,678 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1382988   (815450) от 13.05.2020
+
+VA - Kraftsport Mix (2020) [MP3|320 Kbps] <Rock,  Hip Hop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sum 41 - Still Waiting (2:38)
+2.Hilltop Hoods - Cosby Sweater (3:37)
+3.Papa Roach - Last Resort (3:19)
+4.Machine Gun Kelly - why are you here (2:55)(   Читать дальше...   )Жанр: Rock,  Hip Hop, OtherПродолжительность: 05:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16779F8EEC608BF369822F889955A45566DD1D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383005   (815451) от 13.05.2020
+
+Capture One 20 Pro v13.1.0.164 Beta4  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.05.2020Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4600994DA696CB1718622ACE3239A44A5419E2AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382908   (815452) от 13.05.2020
+
+VA - Ibiza Summerhouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Club House, Deep House>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_815452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - Bring Me Love (Superdope Remix) 2:30
+02. Franky Rizardo - X Marks The Spot (Original Mix) 6:42
+03. kaTaa - Going Deeper (Qubiko Remix) 3:48
+04. Danny Dove feat. Anni - Movin' Too Fast (Original Club Mix) 3:53(   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 06:18:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382891   (815453) от 13.05.2020
+
+Acoustica Premium Edition 7.2.6 RePack (& Portable) by TryRooM [Ru/En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_815453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382966   (815454) от 13.05.2020
+
+Cockos REAPER 6.10 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_815454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 316006   (815461) от 30.03.2011
+
+CoreAVC 2.5.1 Professional Edition [Eng]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815461.jpg" />
+</div>
+
+
+###  Подробнее
+
+CoreAVC - это H.264 видео декодер, созданный, базируется на MPEG-4 стандарте, который используется в Blu-ray и High Definition DVD (HD-DVD). Данный декодер считается одним из лучших в мире H.264 видео декодеров. Эффективность CoreAVC заключается в программном подходе к декодированию, он не полагается на аппаратные средсва ПК для увеличения производительности при воспроизведении H.264 видео в отличии от других решений подобного рода. Самый поразительный вывод - декодер CoreAVC, не имеющий аппартной поддержки обогнал по производителтьности собратьев от Cyberlink и NVIDIA, такую имеющих. В последних версиях поддержка деинтерлейсинга осуществляется на программном уровне.Язык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 315905   (815467) от 30.03.2011
+
+Крепыш (1950) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимой в неравной схватке с Волком погибает мать щенка Крепыша. Осиротевшего, полузамерзшего крепыша приютила Зайчиха.
+Всю зиму проводит щенок в семье зайцев, храбро защищая своих новых друзей от лесных хищников.Жанр: Рисованая анимацияРежиссер: Леонид Амальрик, Владимир ПолковниковПерсонажи: собаки, зайцы, волк, вороныПродолжительность: 00:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6155A071E770B24C66A625F626FF5F9A216E7036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118058   (815475) от 24.03.2017
+
+VA - MUM: The Collection (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - We Are Family (3:37)
+02. Chaka Khan - I'm Every Woman (4:07)
+03. Duran Duran - Girls On Film (Night Version) (5:43)
+04. Plan B - Love Goes Down (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64C1B82A3F53DF5F337D5ABC8EA63652DBC28B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117506   (815476) от 24.03.2017
+
+Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preleminaries (8:52)
+02. Act 1 (5:43)
+03. Act 2 (5:40)
+04. Act 3 (6:05)(   Читать дальше...   )Жанр: New Age, Enigmatic, EroticПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117964   (815477) от 24.03.2017
+
+Sweet Mary Jane - Winter In Paradise (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Your Eyes (4:34)
+02. No Retreat, No Surrender (3:16)
+03. Winter In Paradise (5:00)
+04. Madeleine (2:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20556B36577DAAF24EA9D8A6A817679F6BE00716
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117948   (815478) от 24.03.2017
+
+Cosmic Flow - The Hermit (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Saint Of Sin - Moments In Love (Cosmic Flow Remix)  6:00
+02.  Cosmic Flow - Archangels (Original Mix)  7:53
+03.  Crucial Fiction - Little Red (Cosmic Flow Remix)  7:11
+04.  Cosmic Flow - Indiana (Original Mix)  8:12(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 02:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFB5540E245C6A3530B207BD5D349437CD6F6C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117815   (815479) от 24.03.2017
+
+VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fliflo M. & SinDator - Winter Snow
+02. Michelle Buzz ft. Unlike Pluto - Found You
+03. Ember Island - Need You (Not Your Dope & Jakoban Remix)
+04. Fabian Mazur & Dia Frampton - Young Once(   Читать дальше...   )Жанр: Chillout, ChilltrapПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117898   (815480) от 24.03.2017
+
+VA - Vocal Anthems Miami (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel & Jan Johnston - Skysearch (Ruslan Radriges Radio Edit)  3:05
+02.  Roman Messer & Armos - Higher (feat. Angel Falls) (Original Mix)  6:30
+03.  Three Faces & Christian Zechner - Lost In Time (Steve Allen Radio Edit)  4:23
+04.  Armos & Lucid Blue - Call Of The Wild (Ruslan Radriges Remix)  5:15(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5168A50A6D2DE12AA24936DA10FF217EF86C97F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118111   (815481) от 24.03.2017
+
+USDownloader 1.3.5.9 Portable (24.03.2017) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8015147BC6D6AF81CF26F441324E2D590843FA5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118095   (815482) от 24.03.2017
+
+Вечерний Ургант (2017.03.24) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0BF9F7EAE5E9811E4C84C06230B505DFB0AD65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117945   (815483) от 24.03.2017
+
+PicturesToExe Deluxe 9.0.5 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0003524797DF135C4488EB3119E3AD451BA2AB94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117875   (815484) от 24.03.2017
+
+Quinn Sullivan - Midnight Highway (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой американский музыкант, гитарист и блюзмен, которым по-настоящему восхищается Бадди Гай. Сегодня даже матерые музыканты, глядя на гитариста-подростка, удивлены – он слишком хорошо, совсем 'не по возрасту' играет блюз. При этом сам Куинн говорит, что он вовсе не сводит свою жизнь к игре на гитаре – он ведет обычную жизнь обычного американского подростка.
+American (   Читать дальше...   )01. Something For Me (4:53)
+02. Tell Me I'm Not Dreaming (3:52)
+03. Midnight Highway (5:56)
+04. Crazy Into You (4:02)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1ECADA4B98D82A883F0A471702BBDCB3828A502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117727   (815485) от 24.03.2017
+
+VA - Private Lounge - Spring Session (2017) [MP3|320 Kbps] <Lounge, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KTB - Another Day in Paradise (Highpass Remix)
+02. Skyfall 5 - Free (Deep Dub)
+03. Kim McNichols - Frozen
+04. Genevieve Somers - Moon Dust(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB80BE60616C210EABD1C3E2AF62C569FCC83B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117997   (815486) от 24.03.2017
+
+GraphicConverter 10.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815486.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter - графический редактор и конвертер
+GraphicConverter - полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов.
+
+Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 марта 2017Разработчик: Lemke Software GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F3ECD011F354051DAB1CF528BADF29F4DEA3C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118016   (815487) от 24.03.2017
+
+Журнал | Дачный клуб №4 (апрель 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815487.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD48171DC7C54F737FFDA9447DBA0F3396440A3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117805   (815488) от 24.03.2017
+
+The Orb - Cydonia (1999) 2001, Island Records [FLAC|Lossless|image + .cue] <Downtempo, Dub, Ambient, Abstract>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once More
+02. Promis
+03. Ghostdancing
+04. Turn It Down(   Читать дальше...   )Жанр: Downtempo, Dub, Ambient, AbstractПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74F3A5AC9BFCE25A53C09008437925641C76C1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117966   (815489) от 24.03.2017
+
+VA - Grotesque Essentials Spring 2017 Edition (Mixed by ReOrder & Ciaran McAuley) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone & Ferry Tayle - Lifeline (Intro Edit) (6:01)
+02. Stoneface & Terminal - Southern Lights (Extended Mix) (7:04)
+03. Ferry Corsten - Live Forever (Gareth Emery Remix) (feat. Aruna) (3:26)
+04. Jak Aggas - Subversion (Original Mix) (6:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F2F5BD20210B73B3A0D00D314E6AE03E22F0C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117943   (815490) от 24.03.2017
+
+Derwood - Renegade (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away (3:49)
+02. Cold Blooded (3:48)
+03. Did My Best (3:57)
+04. Reckless (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885750434AB4A157BEBAE7DCF1E04685952DFE19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117870   (815491) от 24.03.2017
+
+VA - Beautiful Lounge Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruggero - Zaffiro
+02. Deephouse 84 - A Night on the Beach
+03. Alyssa Lee - Morning Light
+04. Mont Hanary - Dog(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A317918D01B53D9CE713A994AA2B18BFC4FA28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117733   (815492) от 24.03.2017
+
+Julian Sas - Feelin' Alive (2016) Live, 2017, Cavalier Recordings [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Jump For Joy  (04:48) 
+02| High And Low  (06:26) 
+03| Did You Ever Wonder  (04:04) 
+04| Fear Of Falling  (08:00) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96C3EDF27136966C9AA9C6AC92B9F56D57CF839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117991   (815493) от 24.03.2017
+
+Green - Waltz-N-All (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock, Rock, Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girls (4:22)
+02. Heading Down (4:40)
+03. The Letter (5:04)
+04. My Whole World (6:02)(   Читать дальше...   )Жанр: Blues-Rock, Rock, Rock'n'RollПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F815E0223F3DD48A17563675E36ED7E291B1471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

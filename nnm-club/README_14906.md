@@ -1,26 +1,684 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 809760   (586419) от 02.08.2014
+
+Dire Straits - 25 Best Songs (2014) [MP3|~245 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money For Nothing 1985
+02. Calling Elvis 1991
+03. Once Upon A Time In The West 1979
+04. Sultans Of Swing 1978(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8CAEDBFF3676E5260B283A04C0FE0CDFD9B6B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809768   (586421) от 02.08.2014
+
+Madonna - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterpiece 2012
+02. Music 2000
+03. Hung Up 2005
+04. 4 Minutes (Feat. Justin Timberlake and Timbaland) 2008(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8DF397482B7F9B9CBCF23EB39AF78BBD404CF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808767   (586422) от 02.08.2014
+
+Пик Данте / Dante's Peak (1997) BDRip [720p] [hand made 60fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый-вулканолог Гарри Далтон, потерявший жену во время извержения вулкана, отправляется на Пик Данте, в маленький городок, расположенный на северо-западном побережье, для того, чтобы заняться там рутинной работой — исследованием сейсмической ситуации.
+Ученый немедленно обнаруживает тревожные признаки надвигающейся катастрофы, грозящей обернуться концом света. Правительство (   Читать дальше...   )Производство: СШАЖанр: Боевик, Триллер, ПриключенияРежиссер: Роджер ДональдсонАктеры: Пирс Броснан, Линда Хэмилтон, Джейми Рене Смит, Джереми Фоули, Элизабет Хоффман, Чарльз Хэллахан, Грант Хеслов, Кирк Тратнер, Арабелла Филд, Ци МаПеревод: Профессиональный двухголосыйЯзык субтитров: Русские (полные), Английские (полные)Продолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5212E9B4A45D482597D19D09875624D3E097B7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809556   (586424) от 02.08.2014
+
+Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do The Rap 3:35
+02. Cartooney Tunes (Incl.Happy Birthday) 4:24
+03. La Bamba 4:14
+04. I'm Rock And Rollrpecker 2:28
+05. Communication Outer Space 3:09
+06. Woodpeckers From Space 5:57
+07. Give Me That Banana 4:07
+08. Do You Like Surfing ? 3:21
+09. Sky Rider 3:13
+(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040431   (586434) от 05.08.2016
+
+Трагическая сестра Титаника / Titanic's Tragic Sister (2007) DVB
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британник, сестра злополучного Титаника, был спущена на воду всего за шесть месяцев до начала Первой мировой войны и вскоре была принята в эксплуатацию в качестве плавучего госпиталя. 21 ноября 1916 года, в то время как судно проходило через канал в Эгейском море, взрыв разорвал корпус Британника и менее чем через час корабль затонул, унеся жизни 30 человек. Было (   Читать дальше...   )Телекомпания: США, Lone Wolf Documentary GroupЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357C7B0676E35EB3CECB11F58B9189843D5F0B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040536   (586435) от 05.08.2016
+
+VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiosonik X Jerome - Thong Song
+02. Willy William - Ego (Radio Edit)
+03. TWiiNS - One Night Stand (Radio Edit)
+04. Vengaboys - 2 Brazil! (Dance Radio Edit)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897D901AAE0190DBB6CE53548D8745C0477D881A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040523   (586437) от 05.08.2016
+
+IconLover 5.45 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586437.jpg" />
+</div>
+
+
+###  Подробнее
+
+IconLover -  программа для редактирования и создания  иконок.
+Программа имеет большое количество  функций, можно настраивать уровень прозрачности, добавлять эффекты теней, сглаживания, зеркалирование. Реализована поддержка многослойных изображений, можно импортировать и экспортировать графические форматы, присутствует пакетная обработка иконок.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAFD11A7053C1F16C1196F41C82F0C5F2DB684F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040518   (586439) от 05.08.2016
+
+360 Total Security 8.8.0.1030 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586439.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Total Security предлагает комплексную защиту от всех видов вредоносных программ и онлайн угроз. Бесплатный антивирус от Qihoo 360 использует защиту в реальном времени с антивирусными движками Avira и Bitdefender, проактивным QVM II и облачным 360 Cloud, а также "Исправление системы" для комплексной оценки и быстрого восстановления аномальных изменений (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6CB7056BEF9402526015F8B690CCC0B254FBD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040604   (586440) от 05.08.2016
+
+VA - Goa Culture, Vol: 17-19 (2015) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellinio - The Cure (9:00)
+02. Dedale & Hekula - Spiritual Identity (7:09)
+03. Opposite8 - Never Give Up (7:57)
+04. Egorythmia & Static Movement - Other Dimensions Of Space (7:37)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 07:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EBE860E7AA0EAE1312E2A811A0ACFBA3A94DB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039271   (586441) от 05.08.2016
+
+Insove - Beyond the Invisible (2016) [MP3|320 kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронно-атмосферный музыкальный веб-дуэт Insove, исполняющий инструментальную музыку без привязки к определённому жанру, сочетающий в себе электронику, эмбиент, бесконечные эксперименты и немного тяжёлых гитар.
+Существует с 2011 года.
+
+Альбом01 - Turn the Key
+02 - Darkness, Decay, Tenderness & Lightness
+03 - Slumber
+04 - Peace of Mind(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398B6316F992B15D16A1346D0D39393E2961A58D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040568   (586442) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Transparent Sketching 3 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Transparent Sketching 3 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2400CBB391B90D287F681385D024387AD3AF711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040595   (586443) от 05.08.2016
+
+Экшены - PhotographyPlanet - Dragan-Inspired Actions [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragan-Inspired - Andrzej Dragan создал стиль в фотографии, который многие пытаются подражать. С помощью этого набора действий, вы можете легко преобразовать обычные фотографии в мощный стиль Dragan. В комплект входит 17 действий.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDC8E6CD5EFB46DC1BA7EFED6A91BE68E433F68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040529   (586444) от 05.08.2016
+
+Judas Priest - Battle Cry (2016) Live, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Intro) Battle Cry
+02. Dragonaut
+03. Metal Gods
+04. Devil's Child(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E400BB6C8F9F4C54B97D4614920EF90A74086F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040632   (586445) от 05.08.2016
+
+DJ Snake - Encore (2016) LP [MP3|320 Kbps] <Midtempo, Trap, Moombahton>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (A86)
+ 02. Middle (Ft. Bipolar Sunshine)
+ 03. Sahara (Ft. Skrillex)
+ 04. Sober (Ft. JRY)(   Читать дальше...   )Жанр: Midtempo, Trap, Moombahton, BassHouse, Hardstyle, FutureBass, Hip-Hop, HouseПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F0FBA40B50E1416EBFF54A9E46F03959072B2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040515   (586446) от 05.08.2016
+
+David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation
+02. The Letter
+03. Talavera
+04. Resurgam(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040608   (586447) от 05.08.2016
+
+Желаю удачи (1968) Screener [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586447.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Василя Быкова "Четвертая неудача".
+Солдат Турóк, с которым вечно случаются неприятности, должен отвести на КП раненого капитана...Производство: СССР, БеларусьфильмЖанр: Военный, ПриключенияРежиссер: Вениамин СмагинАктеры: Владимир Мартынов, Николай Ерёменко (ст.), Игорь Комаров, Степан Хацкевич, М. СидорокПродолжительность: 00:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85482AE6E1ADDB26921C67C7880B5D2FBF352C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040607   (586448) от 05.08.2016
+
+Armin van Buuren - A State of Trance 775 (2016) [MP3|320 Kbps] <progressive trance, vocal trance, progressive house>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A State of Trance - Intro
+02. Ashley Wallbridge - Amnesia
+03. Rodg - Flaked
+04. Headstrong feat. Ghost Wars & Carrie Skipper - Angel Blue Eyes (Aurosonic Progressive Mix)(   Читать дальше...   )Жанр: progressive trance, vocal trance, progressive houseПродолжительность: 01:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBDF9E565A91EDA4D9C6960E9FCE267B92DFF6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040482   (586449) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Pop Culture [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Pop Culture - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63097EF330B2E6FAB9A72C85C8B67BFB15DD4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040537   (586450) от 05.08.2016
+
+Santana - Abraxas (1970) MFSL UDCD 775, 2008 [FLAC|Lossless|image + .cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singing Winds, Crying Beasts 4:51
+02. Black Bagic Woman / Gypsy Queen 5:19
+03. Oye Como Va 4:17
+04. Incident At Neshabur 4:58(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48877FE2E34B665F9B2F0363BE5933B30C56B410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039960   (586451) от 05.08.2016
+
+Игорь Николаевич Белоусов | К вопросу о наследственности шизофрении в свете современной генетики (1967) [DOC]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересен с генетической точки зрения вопрос о постоянстве частоты шизофрении в населении. Известно, что многие мутантные формы могут существовать лишь в гетерозиготном состоянии, гомозиготные же особи не развиваются, т.к. погибают (так называемые летальные гены), вследствие чего неизбежно происходит элиминация болезненных гамет. Явление элиминации находит свое выражение (   Читать дальше...   )Жанр: Медицина, Психиатрия, ПублицистикаФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A689375BEAC7DCF36A6159F9F04E2B5DC5F6FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040122   (586452) от 05.08.2016
+
+Юрий Жуков | Укрощение "тигров" (1961) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Жуков в Великую Отечественную войну был на фронте военным корреспондентом. В данной книге собраны его фронтовые заметки о Курской дуге и последовавшим за ней боям за Харьков. Многие бои расписаны буквально по минутам.
+Выдержки из книги:"...Это была ударная группировка эсэсовского танкового корпуса, и дрались они с отчаянием смертников...". "...Сюда (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC7AE2C042F8618D4B291A4538D8BE0990C6B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040622   (586453) от 05.08.2016
+
+The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
+02. 565, Where Are You (6:07)
+03. Mind The Cosmic Rocker (6:55)
+04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809470   (586455) от 02.08.2014
+
+Монтевидео: Божественное видение / Montevideo, Bog te video! (2010) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Югославия, 1930 год. Тирке – молодой парень, обожающий футбол, но на футболе не заработаешь. В национальную футбольную федерацию Югославии приходит официальное приглашение принять участие в первом чемпионате мира по футболу, который пройдет в столице Уругвая, Монтевидео. Готовить сборную к чемпионату назначен Бошко Симонович, всеобщий объект насмешек. Никто не верит, (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Драган БьелогрличАктеры: Милош Бикович, Петар Стругар, Нина Янкович, Данина Йефтич, Войин Четкович, Виктор Савич, Никола Джурицко, Небойша Илич, Милутин Караджич, Бранимир БрстинаПеревод: Одноголосый закадровый, любительский - ViruseProjectПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A300BAA9658D44DDE1E19F11CB618F093ACE049C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809491   (586456) от 02.08.2014
+
+Веселые и беззаботные / Fun and Fancy Free (1947) BDRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две музыкальные истории, участниками которых являются персонажи студии «Дисней». Устав от переездов и плохого обращения,
+цирковой медвежонок по имени Бонго сбегает в лес. Жизнь в дикой местности оказывается не так уж легка,
+но смелый малыш находит самое главное — настоящую любовь. А далее Микки Маус, Дональд Дак и недотепа Гуфи
+пускаются в захватывающие приключения, (   Читать дальше...   )Производство: США |  Walt Disney ProductionsЖанр: Мультфильм, семейный, музыкаРежиссер: Джек Кинни, Гамильтон ЛаскиПеревод: Дублированный (Невафильм), многоголосый закадровыйПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5F2DB64E6FF57F9E21A1EB07717FE904DDF4CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809570   (586459) от 02.08.2014
+
+VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4331E4E45F40397C09186571CBFACB90F9A463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809657   (586462) от 02.08.2014
+
+Журнал | Chip [Украина] №8 (Август 2014) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A157F686A3B6C58F04876850E6083AB472922E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

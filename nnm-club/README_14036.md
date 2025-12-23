@@ -1,26 +1,725 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1557132   (542697) от 14.06.2022
+
+Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel
+02. Merciless Killing
+03. Putrid Autopsy
+04. Horrible Creation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADECFE9A86FC13B58920124303C7F7088AF9E131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557111   (542698) от 14.06.2022
+
+Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tlaloc
+02. Seito Kara Kyōshi-e
+03. Stenbec
+04. Rabarama(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Doom, Desert RockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE16971A852FDF7FA433C223FEA81047DCB6C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557308   (542699) от 14.06.2022
+
+Stray Gods - Storm The Walls (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bob Katsionis начинал с дарк-метала в NIGHTFALL и блэк-метала в SEPTIC FLESH и прошел путь до покрытого блестками AOR в OUTLOUD и пауэр-метала в SERIOUS BLACK. А еще в его жизни были 15 лет сотрудничества с Gus G. в FIREWIND, гостевое участие в качестве автора в KAMELOT, недавняя работа в нашумевших в андерграунде WARRIOR PATH и, конечно, шесть инструментальных сольных (   Читать дальше...   )01. The Seventh Day
+02. Black Horses
+03. Alive For A Night
+04. Silver Moon(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C39B856208D73C928642558EC1ABBAED2D9EE66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556832   (542700) от 14.06.2022
+
+10cc - The Things We Do For Love: The Ultimate Hits and Beyond (2022) 2CD, Digital Deluxe, Xploded Music Limited [MP3|320 Kbps] <Art Rock, Art Pop, Progressive Pop, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Your Love [00:02:38]
+02. Heart Full of Soul [00:02:53]
+03. Bus Stop [00:03:03]
+04. Son of Man [00:05:00](   Читать дальше...   )Жанр: Art Rock, Art Pop, Progressive Pop, Soft RockПродолжительность: 2 CD, 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8397E01913787014606A6D95163AE57EB41A3AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557256   (542703) от 14.06.2022
+
+Shaman's Harvest - Rebelator (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Your Skin [03:23]
+02. Toe the Line [03:52]
+03. Flatline [03:26]
+04. Voices [04:00](   Читать дальше...   )Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E647D4B661D6B47CAD4D4408EF44BDF73DDCE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557245   (542704) от 14.06.2022
+
+Sleazy RoXxX - Trinity Junction (2022) [MP3|320 Kbps] <Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyz4boyz [00:03:30]
+02. Curse Of Generation [00:04:57]
+03. Drunk To Forget [00:04:06]
+04. Everything [00:03:27](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CED2675E0874E85CDD21C620B0DDC1085F38C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557153   (542705) от 14.06.2022
+
+Doomsday Dementia - Mass Graves And System Slaves (2022) [MP3|320 Kbps] <Crust Punk, Doom Metal, Sludge Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mass Graves [00:06:33]
+02 Harbinger Of Doom [00:07:15]
+03 Wake Up [00:05:52]
+04 Officer Friendly [00:06:43](   Читать дальше...   )Жанр: Crust Punk, Doom Metal, Sludge Stoner MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6768059DD2718A0DCE4ED2BC3108675EB5A24E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818188   (542709) от 02.09.2014
+
+Превосходство / Transcendence (2014) BDRip [720p] [Line]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся исследователь в области изучения искусственного интеллекта доктор Уилл Кастер работает над созданием компьютера, который сможет собрать в себе все знания и опыт, накопленные человечеством. Достаточно спорные эксперименты, проводимые Уиллом, прославили его и в то же время сделали основной целью радикальной анти-технологической группировки. Экстремисты делают (   Читать дальше...   )Производство: Великобритания, Китай, СШАЖанр: Фантастика, Драма, ТриллерРежиссер: Уолли ПфистерАктеры: Джонни Депп, Ребекка Холл, Пол Беттани, Киллиан Мёрфи, Морган Фримен, Кейт Мара, Клифтон Коллинз мл., Коул Хаузер, Джош Стюарт, Кори ХардриктПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF8FEDD15EC96305CB7C8E0B5399244EECC1DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818135   (542722) от 02.09.2014
+
+Александр Берг | Затерянные среди звезд (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла  «Мусорщики».
+
+Может ли быть что-­нибудь хуже, чем при выполнении боевого задания столкнуться с намного превосходящими силами противника? Казалось бы нет, а если вас при этом ещё и похитят инопланетные работорговцы? Обыденный рейд разведвзода превращается в смертельную западню. Выжившие разведчики попадают в далекую звездную империю и теперь у них (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6184469F8D5AEEC4CEEA6294E61E525EB33E4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817663   (542723) от 02.09.2014
+
+Прирожденный гонщик 2 / Born to Race: Fast Track (2014) WEB-DLRip [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэнни Крюгер выиграв стипендию на обучение в престижной гоночной академии, пытается конкурировать с одними из самых
+жестоких молодых водителей в мире. Напряжение витает на и вне трассы, и страшный инцидент оставляет Дэнни без гоночного партнера.
+Уволенный из академии  он вынужден объединиться со старым соперником. Пара должна научиться забыть о своих разногласиях, (   Читать дальше...   )Производство: США |  American Cinema International, ESX Productions, Soundscape MediaЖанр: БоевикРежиссер: Алекс РанаривелоАктеры: Бретт Даверн, Бо Мирчофф, Диого Моргадо, Тиффани Дюпон, Билл Сейдж, Шэрон Лоуренс, Николь Бадаан, Стив Бонд, Корбин Бернсен, Грант ШоуПеревод: ОтсутствуетПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F559D75A3120E5109421AA36E236F09A7BBDD3C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818052   (542728) от 02.09.2014
+
+Симпсоны в кино / The Simpsons Movie (2007) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542728.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Гомер сбросил отходы в водохранилище, Спрингфилд объявили карантинной зоной и накрыли гигантским стеклянным колпаком, а местные жители ополчились на Симпсонов, за то что их отрезали от остального мира…Производство: США / 20th Century FoxЖанр: Комедия, Приключения, МультфильмРежиссер: Дэвид СилверманАктеры: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Марсия Уоллес, Билли Джо Армстронг, Тре Кул, Майк Дирнт, Тресс МакНилл, Памела Хейден, Джо Мантенья, Альберт Брукс, Русси Тейлор, Карл Видерготт, Мэгги Росвэлл, Том Хэнкс, Фил РозентальПеревод: Профессиональный (полное дублирование)Продолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65CE25F24F2B81E2C1DD6BA8A5733D0435363C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818018   (542729) от 02.09.2014
+
+Гонка / Rush (2013) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542729.jpg" />
+</div>
+
+
+###  Подробнее
+
+70-е годы XX века. Золотое время «Формулы-1»: обтекаемые формы гоночных машин, брутальные на треке и ранимые в обычной жизни гонщики, сексуальные поклонницы, литры шампанского на финише для победителя… Два непримиримых соперника в истории гонок — обаятельный плейбой-англичанин Джеймс Хант и дисциплинированный перфекционист-австриец Ники Лауда — доводят себя до предела (   Читать дальше...   )Производство: США, Германия, Великобритания. (Cross Creek Pictures,	Double Negative,	Exclusive Media Group,	Imagine Entertainment,	Revolution Films,	Working Title Films)Жанр: Спорт, Драма, БиографияРежиссер: Рон Ховард / Ron HowardПеревод: Авторский (одноголосый закадровый)Субтитры: Вшитые отключаемыеЯзык субтитров: Русские (полные), Английские (полные)Продолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C320009235697BB7E8F4ABC2710078F61ECEBF2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818077   (542730) от 02.09.2014
+
+Revostock - Our Wedding Slideshow Montage - 664016 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revostock - Our Wedding Slideshow Montage - проект 2012 года
+Свадебный фото альбомФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979C884BCAF44DD0B27DFD6891EAA8AA3062C786
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531445   (542733) от 05.08.2012
+
+Звезды YouTube / Зірки YouTube. Выпуск №11 (2012) SATRip [RUS/UKR]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B871E9673721D771A9B1F75B36927157268544BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531750   (542734) от 05.08.2012
+
+Звезды YouTube / Зірки YouTube. Выпуск №12 (2012) SATRip [RUS/UKR]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FC9548AE842A7AFA2639624C6941D202E90104
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531201   (542736) от 05.08.2012
+
+The Levitation Hex - The Levitation Hex (2012) [FLAC|Lossless]<Progressive Death Metal/Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longest Path Possible (4:45)
+02. Manipuliar (4:05)
+03. Scratch A Life, Find A Thief (4:20)
+04. Depresedemic (5:25)
+05. Internal Chatter (4:59)
+06. A Breathing Aparatus (4:39)
+07. Breaking Point (6:26)
+08. Flirting With Schizophrenia (5:16)
+09. Dream Deficit (7:39)Жанр: Progressive Death Metal/PsychedelicПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530979   (542740) от 05.08.2012
+
+Дональд Стэнвуд | Седьмой лимузин [2000] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нашумевший бестселлер Дональда Стэнвуда можно отнести к жанру "ретроспективного детектива" - действие происходит в двух временных плоскостях, в Германии двадцатых и Европе - Америке шестидесятых годов. Вымышленные персонажи действуют бок о бок с реальными историческими личностями (Гитлером и его окружением, миром кино предвоенного Берлина, "автомобильным королем" Этторе Бугатти), - в поисках "седьмого лимузина", королевского "Бугатти", который можно по праву считать центральным героем этого остросюжетного романа.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A2EE3580B680785F7EB3CD646CB6153011A315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531255   (542741) от 05.08.2012
+
+Faal - The Clouds Are Burning (2012) [FLAC|Lossless]<Death Doom Metal/Funeral Doom>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Body Glows Red (11:37)
+02. The Insistance's Wish (9:18)
+03. Tempest (10:45)
+04. The Clouds Are Burning (13:35)Жанр: Death Doom Metal/Funeral DoomПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531515   (542743) от 05.08.2012
+
+VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bells of Babylon - Anthony Grant
+02. Gemini Infinity - Thai Chai
+03. Deep Vibes - Tito Torres
+04. Forever Walking - Forever walking
+05. Zucca Vuota - Peter Flower
+06. Don't Know - DJ Commy
+07. Be Together - Studio 15
+08. Galactica Soul - Dr. Drummer
+09. Soulsalicious - The Speakers
+10. DJ Boost - Sa Trincha Feeling(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C925562CF37F2F539B66E4524FADD43D4672237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531676   (542744) от 05.08.2012
+
+Anthony Phillips & Andrew Skeet - Seventh Heaven (2012) [MP3|320 кб/с]<Progressive & Art-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542744.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Credo In Cantus (Instrumental)
+2. Sojourn
+3. Speak Of Remarkable Things
+4. Nocturne
+5. Long Road Home
+6. The Golden Leaves Of Fall
+7. Credo
+8. Under The Infinite Sky (Guitar Ensemble Version)
+9. The Stuff Of Dreams
+10. Old Sarum Suite(   Читать дальше...   )Жанр: Progressive & Art-Rock |Продолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A476CAF19C0ADB5E4CA33762FC189232AAEDF4F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530829   (542745) от 05.08.2012
+
+Evoken - Atra Mors (2012) [FLAC|Lossless]<Death Doom Metal/Funeral Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atra Mors (11:55)
+02. Descent into Chaotic Dream (11:14)
+03. A Tenebrous Vision (2:20)
+04. Grim Eloquence (9:40)
+05. An Extrinsic Divide (10:12)
+06. Requies Aeterna (1:59)
+07. The Unechoing Dread (9:48)
+08. Into Aphotic Devastation (10:07)Жанр: Death Doom Metal/Funeral DoomПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531083   (542746) от 05.08.2012
+
+Big Sexy Noise - Trust the Witch (2011) [FLAC|Lossless]<Rock, Blues, Punk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballin' The Jack
+02. Cross The Line
+03. Won't Leave You Alone
+04. Mahakali Calling
+05. Trust The Witch
+06. Devil's Working Overtime
+07. Where You Gonna Run
+08. Collision Course
+09. Not Your Fault
+10. Forever On The RunЖанр: Rock, Blues, PunkПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531560   (542747) от 05.08.2012
+
+VA - Русская Новинка Пляжного Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542747.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ВИА Гра - День без тебя
+002. Александр Серов - Сказочный версаль
+003. Жанна Фриске - Пилот
+004. Согдиана - На Седьмое Небо
+005. Лолита - Не Заморачивайся
+006. Дима Билан и Юля Крылова - Слепая любовь (новая верия)
+007. Елена Терлеева - Немая любовь
+008. Стас Михайлов - Где-то там
+009. T-Killah feat. Виктория Дайнеко - Мира Мало
+010. Анжелика Варум - Зимняя вишня (New Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2039DB449B16D0EE13854ACBAB66855779E7C1E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531505   (542748) от 05.08.2012
+
+М.М.Вольский | Рабская обработка земли [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается книга отечественного экономиста М.М.Вольского 1834-1876), посвященная исследованию способа обработки земли, возникающего в истории человечества с ускорением и постепенным развитием личной поземельной собственности в качестве рабочей силы подвластных землевладельцу лик — рабов. Автор ставит задачу проследить влияние данной формы землевладельческого производства на народы, среди которых она успела распространиться, в сферах экономической, нравственной, умственной и политической жизни. В книге представлен исторический обзор рабовладельческого землевладения. В первой главе рассматривается явление обработки земли рабами в древности. Вторая глава посвящена изучению рабской обработки земли в колониях европейских государств. Наконец, третья глава знакомит с историей рабовладельческого способа производства в Северо- Американских Соединенных Штатах.
+Книга рекомендуется историкам, обществоведам, правоведам, всем заинтересованным  читателям.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB4309A42FE605688177917E03C9A626C159CD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531054   (542749) от 05.08.2012
+
+Aaron Goldberg - Worlds (2006) [MP3|320 кб/с]<Post-Bop/Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542749.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lambada de Serpente (8:05)
+2. Taurus (8:31)
+3. Kianda's Song (2:27)
+4. Unstablemates (5:05)
+5. Modinha (5:10)
+6. Salvador (5:28)
+7. Oam's Blues (4:26)
+8. Inutil Paisagem (6:57)
+9. Oud to Omer (11:01)
+10. Between Worlds (1:58)Жанр: Post-Bop/Piano JazzПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D0DBA033FCF218DF4D98EE48205BE8BBE35FEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531589   (542751) от 05.08.2012
+
+VA - Pa Saber De Flamenco (2003-2007) [MP3|320 кб/с]<flamenco, instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фламенко (исп. flamenco) — традиционный музыкально-танцевальный стиль, происходящий из Андалусии (Испания) - это слияние музыкального сопровождения (токе), пения (канте) и танца (байле). Стиль представлен несколькими десятками разновидностей (более 50). Танцы и песни фламенко, как правило, сопровождаются гитарой и перкуссией: ритмическим битьем в ладоши (пальмас), игрой на перкуссионном ящике (кахон); иногда — кастаньетами. Исполнители фламенко называются «байлаор» (танцор) и «кантаор» (певец), «токаор» (гитарист).
+
+16 ноября 2010 года ЮНЕСКО присудила Фламенко статус объекта Всемирного Наследия1. Camarуn de la Isla - Caminando (rumbas) (3:02)
+ 2. Paco de Lucia con La Tana - Cositas buenass (tangos) (4:22)
+ 3. Camaron de la Isla, Ana Belen, Royal Philharmonic Orchestra - Amor de conuco (rumbas) (3:31)
+ 4. Manolo Sanlucar - Maestranza (4:03)
+ 5. Carmen Linares - Quiero tu nombre olvidar (3:24)
+ 6. Manolo Caracol - La flor que amaba (5:53)
+ 7. Pitingo - Familia Habichuela (4:03)
+ 8. El Chato de la Isla - No quiero escuchar tu voz (3:59)
+ 9. Porrina de Badajoz - Vengo de mi Extremadura (2:39)
+ 10. Lole Y Manuel - Asturiana (3:05)(   Читать дальше...   )Жанр: flamenco, instrumentalПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AA19BABE4A278B67B51891BC4F63023AFE3CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

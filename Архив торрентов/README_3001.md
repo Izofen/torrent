@@ -1,26 +1,696 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 540998   (502665) от 30.08.2012
+
+VA - Future Trance Vol. 61 (29.08.2012) [MP3|~245 кб/с (V0)]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cc.K Meets Scoon & Delore - Not Gonna Save the World (S&D Club Remix)
+02 Rocco & Bass-T Vs. Basslovers United - ASAP
+03 Tom Mountain Feat. Nicco - Run it Back (Crystal Lake Remix)
+04 DJ Gollum Vs. Empyre One - the Bad Touch (Empyre One Remix)
+05 Modana & Carlprit - Club Go Mad (CC.K Remix)
+06 Philipp Ray & Viktoriya Benasi - Esta Manana (DJ Gollum Remix)
+07 Slin Project & Rene De La Mone - Taking Over the Dancefloor (Dan Winter Remix)
+08 Sasha Dith & Steve Modana - Radio Loves You (Kris Mctwain Remix)
+09 Gerald G! Feat. Mr. Freeman - Dreaming on the Dancefloor (Addicted Craze Remix)
+10 Luengo & Diaz - Sex Criminal (Manox Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531492D799F68FA3933A821A0841E72231C78B69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234307   (502672) от 07.09.2010
+
+Бархатные пальчики / Fingersmith (2005) DVDRip (2 серии)
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1862 год. Викторианский Лондон. 20-летняя Сью Трайндер с детства знала только одну «семью» — шайку карманников. Мошенник Ричард Риверс по прозвищу Джентльмен предлагает ей помочь в осуществлении хитроумной аферы.
+Он задумал жениться на богатой наследнице Мод Лилли, выманить у нее деньги и отправить в сумасшедший дом и обещает поделиться добычей со Сью. Однако тщательно (   Читать дальше...   )Производство: ВеликобританияЖанр: ДрамаРежиссер: Уолш Эйслинг / Aisling WalshАктеры: Айлин Пэйдж, Анна Джордан, Анна Моттрам, Дэвид Тротон, Илэйн Кэссиди, Имельда Стонтон, Карен Сикомб, Ричард Дерден и др.Перевод: Двухголосый закадровый + оригинальный английскийПродолжительность: 01:30:05 + 01:30:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540843   (502675) от 30.08.2012
+
+Surazo - The best of Surazo (2010) [MP3|320 кб/с]<Native American, Ethno, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Native love song
+02 - Avio tusuy
+03 - Five spirit
+04 - Love mountain
+05 - Tatanka
+06 - Tor cheney nahana
+07 - Pukaj phullu
+08 - Ananau
+09 - Allin qampi
+10 - Bufalo blanco(   Читать дальше...   )Жанр: Native American, Ethno, FolkПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAC10398C4B197E04247C1187011331E072A232
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540762   (502678) от 30.08.2012
+
+Any Video Converter Ultimate 4.5.1 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Converter Ultimate предоставляет пользователям DVD риппер все-в-одном, конвертер видео и создание DVD, который поможет вам преобразовывать DVD во все популярные видео форматы, включая MP4, AVI, RM, RMVB, QT, MOV, 3GP, 3G2, FLV, MPEG-1, MPEG-2, DVR-MS, VOB, MKV, ASF, DivX, OGM в MP4, AVI, WMV, 3GP, 3G2, FLV, MPG и SWF с быстрой скоростью преобразования и отличным выходным качеством видео, HD AVI, HD MP4 и WMV HD. Программа имеет мультиязычный интерфейс, включая русский язык.
+
+(   Читать дальше...   )Название программы: Any Video Converter ProfessionalЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541057   (502680) от 30.08.2012
+
+Kinfolk Thugs - Extortion 2 (2012) [MP3|320 кб/с]<Dirty South>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ova Wit
+2. Bad Side
+3. Holla At Me
+4. What's Yo Problem
+5. What I'm Talkin Bout ft. Golliath
+6. No Other Way
+7. Give A Fuck
+8. Championship Shit ft. Don Trip
+9. Going Dumb ft. Chyna Monroe
+10. 3 In Da Mornin ft. Young Dolph(   Читать дальше...   )Жанр: Dirty SouthПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792A83C0F3F6917CAB695C4AAD5BD54B51B1874E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563910   (502705) от 16.07.2022
+
+KCNcrew Pack 07-15-22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502705.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под macOS с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется.Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2005-2022 KCNcrewПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83056C9A2F4C82CD445ACDDF8A62CD785C84D1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563974   (502706) от 16.07.2022
+
+Color Wheel 7.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2022 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAA98A93019A93A44D68F330B204FA159BE95F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563899   (502709) от 16.07.2022
+
+Iridient Developer 3.7.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D495CD7859BCD28F0E3243AC1AC1311B0C745A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563976   (502710) от 16.07.2022
+
+TunesKit AceMovi Video Editor 4.9.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502710.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.05.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A239774B1429DB9152E185FBDEFAAA9B2F5A01B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564000   (502715) от 16.07.2022
+
+Darkroom: Photo & Video Editor 6.0.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A157C58B52DB51E0916A4AE96A3987B8DCC6CB8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541181   (502716) от 30.08.2012
+
+Журнал | Школа гастронома №17 (211) [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502716.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Школа гастронома" - журнал для тех, кто любит готовить. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру, будь то яичница-глазунья или замысловатый французский соус, иллюстрирован цветными фотографиями. Все рецепты подобраны так, чтобы входящие в них продукты могла позволить себе средняя семья.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0E887C9EAEB5F337366DCE519B89B84176E1AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540865   (502720) от 30.08.2012
+
+LibreOffice 3.6.1 Stable Portable by punsh [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502720.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; Calc – электронные таблицы; Impress – создание и просмотр мультимедийных презентаций; Draw – редактор векторной графики; Math – редактор математических формул. Одно из крайне положительных качеств - возможность работы всех этих приложений с соответствующими документами форматов MS Office.
+
+(   Читать дальше...   )Название программы: LibreOfficeЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539162   (502722) от 30.08.2012
+
+DJ Kocmoc - Electro Sensation vol.34 (2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502722.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zedd feat. Matthew Koma - Spectrum (Extended Mix)
+2. Brodinski feat. Louisahhh! - Nobody Rules The Streets (Original Mix)
+3. DubVision - All By Myself (David Jones Remix)
+4. Joman - Another Late Night 2012 (FTampa Mix)
+5. Justin Bieber - Boyfriend (Dada Life Remix)Жанр: Electro House, Electro ProgressiveПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91084BD39785F02329E082DA0D7CBCD972010984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541135   (502723) от 30.08.2012
+
+VA - Дискотека хит за хитом 7 50/50 (2012) [MP3|128 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502723.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 МакSим - Небо-самолеты
+ 002 Owl City & Carly Rae Jepsen - Good Time
+ 003 Дмитрий Колдун - Под дождем
+ 004 Anna - Tell Me Why
+ 005 Наташа Богацкая - Магистрали
+ 006 Calvin Harris feat. Example - We'll Be Coming Back
+ 007 Никита - Подожди
+ 008 Nicky Romero Feat. Basto! - When Love Calls (Radio Edit)
+ 009 B.K - Секс
+ 010 Roma Pafos feat. Sunblind - For A Second (Original Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 11:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55035EA66A3570065776CDB3399D3314AF307BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540346   (502726) от 30.08.2012
+
+VA - MegaHit Европы плюс 3 50/50 (2012) [MP3|192-320 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T1One - Каплями
+02. Galena feat. Costi - Chik Chik (Radio Edit)
+03. Ksenona - Далеко-Далеко
+04. Nelly Furtado - Parking Lot
+05. Hi-Fi - Земляничный Дождь (Новая Версия)
+06. Wisin & Yandel - Tu Nombre
+07. Паулина Анис - Умная
+08. Milk & Sugar feat. Neri Per Caso - Via Con Me (It's Wonderful) (Radio Version)
+09. Ирина Кулькова - Я Искала Тебя
+10. Madcon feat. Maria Mena - Fakke Fly Bort(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F235CEB4FE664741357D6C5DA9A825F3617225
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539173   (502729) от 30.08.2012
+
+DJ Kocmoc - Euphoria Summer Dance vol.6 (2012) [MP3|320 кб/с]<Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Jay Powell - Coming from the Heart
+ 02. Disco Cell - Everybody in the Club (Let's F**k!)
+ 03. Miguel Cortesano - Love Me
+ 04. Caudill & Turnipseed - Detroit Is Dead
+ 05. Andy Jay Powell - Yesterday Becomes Tomorrow
+ 06. Miguel Cortesano - Here I Go
+ 07. DJ Enzo.ch - Reach Up
+ 08. Brain Blast Creators - Morning Rain
+ 09. Disco Cell - Oxygene 4
+ 10. DJ Fait - Shining Star 2.0(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8EE91DCA5AE86D6302931E8749A36751B10B06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540077   (502731) от 30.08.2012
+
+[Wallpapers] Обои для рабочего стола - Девушки [474шт.]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола - ДевушкиЖанр: ДевушкиРазрешение файлов: 1600x1200 - 4078x3078
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C3439F7E595FD2196C7C3A4C20A8582D56E26C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540497   (502735) от 30.08.2012
+
+Design and interior of the wallpaper (29.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E393F34193655B8EE483681EB17D77EED02AC0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233732   (502741) от 07.09.2010
+
+Секс-пылесос / Super Sucker (2002) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фред Барлоу, неудачливый продавец пылесосов, ходит от одного дома к другому, пытаясь продать хоть кому-нибудь систему «Super Sucker». Барлоу верит в свой товар, но удача постоянно ускользает у него из рук. А вот у его конкурента Уинслоу Шнэбельта нет отбоя от покупателей. Уставший от конкуренции между собственными сотрудниками, босс торговой фирмы решает устроить (   Читать дальше...   )Жанр: КомедияРежиссер: Джефф ДэниелсАктеры: Джефф Дэниелс,  Мэтт Летчер,  Харви Преснелл,  Доун Уэллс,  Джон Сейберт,  Гай Санвилль,  Кейт Пекхэм,  Сандра Бирч, Уилл Дэвид Янг, Мишель МаунтинПеревод: Многоголосый закадровыйПродолжительность: 01:34:12.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563971   (502766) от 16.07.2022
+
+BookMacster 2.12.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502766.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие битых ссылок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Sheep SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33172C86A02B54DC9DE17D57D5293E1CDFB7245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563884   (502767) от 16.07.2022
+
+Synkmark 2.12.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synkmark - это приложение для синхронизации закладок между Safari, Google Chrome, Firefox, Vivaldi, Opera, Brave и Epic. Synkmark также может упорядочивать ваши закладки в алфавитном порядке по вашему усмотрению, проверять их и на наличие дубликатов. Synkmark совместим с закладками Safari в iCloud, Firefox Sync, Chrome Sync, Vivaldi’s Sync и Opera Sync поэтому, если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Sheep SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300A56E84E6B1D2459757DF2F6B89243D8549545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563900   (502768) от 16.07.2022
+
+PDF Search 12.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502768.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Muharrem OzkanПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2E8DDD81717B29CF0DBE72C461E641A071E5EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541032   (502770) от 30.08.2012
+
+Улетное видео по-русски. Новый сезон  (2012.08.21) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1B031123FCCE3551742CA53380D1E74A853BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539767   (502776) от 30.08.2012
+
+Butterfly - Organic Synthesis Episode 004 (26.08.2012) [MP3|320 кб/с]<IDM, Ambient, Downtempo, Experimental, Abstract>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rory Gallagher & Luigi Palagano -  Es Vedra (Chillout Mix)
+02. Bersarin Quartett -  Der Mond, Der Schnee Und Du (Original Mix)
+03. Planet Boelex & Mikael Fyrek -  Suddenly (Original Mix)
+04. Planet Boelex -  Sailor's Dilemma (Original Mix)
+05. Tetarise -  Everything's White (Original Mix)
+06. Tetarise -  Pure Heart (Original Mix)
+07. Organoid -  Alienation Horizon (Original Mix)
+08. Kattoo -  ll-- l- l--l-ll- l-ll (Original Mix)
+09. Kattoo -  Equilibration (Original Mix)
+10. Asa & Stumbleine -  Tinderbox (Original Mix)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, Experimental, AbstractПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC08AD385B965B4C5E80C435EC823A193F0A709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541046   (502777) от 30.08.2012
+
+Журнал | Maximum PC (USA) [октябрь 2012] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502777.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале представлены обзоры технических и программных средств. Основные темы номера - гибридные графические решения, компьютеры-моноблоки. Обзор "железа" - Asus GeForce GTX 690, Asus ZenBook UX32VD, Gygabyte G1Sniper M3 (материнская плата).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7DC9A564100E992306F538BDCD0B038C482E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541166   (502778) от 30.08.2012
+
+David Asch | Focus On Photoshop Elements [2011] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для всех, кто хочет научиться работать с Adobe Photoshop Elements. Получить навыки каталогизирования изображений (сортировка, рейтинг, ключевые слова); научиться улучшать фото; подготовить их к печати или выложить в сеть.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182DD01DE64C526D923D6306DAB8874B7CBBD614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

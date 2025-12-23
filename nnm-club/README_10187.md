@@ -1,26 +1,675 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1579513   (334698) от 28.09.2022
+
+Chaos Control - Call Of The Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude to Chaos (02:15)
+02 - Karma (04:56)
+03 - Call of the Abyss (03:31)
+04 - Rebellious (03:49)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4619D5680EFFC3934AD0CAACA409DA47C6B3F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258828   (334699) от 31.10.2018
+
+Yo La Tengo - Upside-Down (1992) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upside-Down (2:39)
+ 02. (The) Farmer's Daughter (2:22)
+ 03. Out Of Control (2:09)
+ 04. Upside-Down (One More Time) (2:47)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F36E3B4FB43911AE749FBB187BADA5850A6D2CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420054   (334700) от 30.10.2020
+
+Zewski - Classic on the rocks (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Intro (Eichler)		01:30
+02.	Te Deum (Charpentier)		01:53
+03.	Sonata Facile (Mozart)		03:38
+04.	Siciliano  (Bach)		04:15(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2658541BFD4673DF095EE17F96F09286F52D4D1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579028   (334701) от 28.09.2022
+
+Infected Rain - Ecdysis (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Postmortem Pt. 1 [00:04:59]
+02. Fighter [00:05:05]
+03. Longing [00:05:14]
+04. Goodbye [00:05:28](   Читать дальше...   )Жанр: Metalcore, Female VocalПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265F69DF1ED136F720E55A8169B49C04B5FB7209
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258684   (334702) от 31.10.2018
+
+Phineas Newborn, Jr. - The Classic Albums 1956-1962 (2015) 5CD, Enlightenment [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334702.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Barbados [4:00]
+02. All The Thigs You Are [7:20]
+03. The More I See You [3:59](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289429FBB4C2B223ED63C2A45C9F7ED6143EF293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419537   (334703) от 30.10.2020
+
+VA - Ремиксы 2К20 6 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #2Маши - Босая 2020 (Alex Shik Radio Edit) (2:52)
+02. 5sta Family - Один на один (ASPARAGUSproject Remix) (3:59)
+03. Agunda - Ну почему (Mixtrell & DJ Alex Ezhov Remix radio) (1:58)
+04. Artik &Asti&Dirt Cheap - Один на Миллион (DJ STROBB Mash up) (4:27)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563E11A856DF5729229D7ECC896C129537675553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579700   (334704) от 28.09.2022
+
+Battlesword - Towards the Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Departure (00:51)
+02 - The Awakening (05:35)
+03 - To Become the Wolf (04:26)
+04 - Terra Combusta (05:36)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E92D22F9043186A5F7B3348D8B82A1690F98B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579659   (334705) от 28.09.2022
+
+Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stab the Brain [00:03:15]
+02. Final Frost [00:04:09]
+03. The Voracious One [00:04:26]
+04. Born in Blood [00:03:47](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D27859F952CCB4682EBDB2153681CC8AFDF525
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579672   (334706) от 28.09.2022
+
+Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sårede Blør i Hjerter [00:03:57]
+02. Movers & Shakers of the shit machine [00:04:11]
+03. Possibilities [00:03:48]
+04. Norwegian Psycho [00:04:59](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF59D82A9520620E6FAE14CACA3AB2A846C7F8C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954339   (334707) от 10.11.2015
+
+Агенты А.Н.К.Л. / The Man from U.N.C.L.E. (2015) BDRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наполеон Соло — агент ЦРУ, на счету которого огромное количество успешно проведенных операций. Он считается одним из лучших секретных агентов во всем мире, и с ним может сравниться только один человек — самый молодой и перспективный агент КГБ, Илья Курякин. Их противостояние переросло в настоящую войну, в которой никто не собирается уступать. Однако обстоятельства (   Читать дальше...   )Производство: США, Великобритания / Davis Entertainment, RatPac-Dune Entertainment, Warner Bros. Pictures, Wigram ProductionsЖанр: Боевик, Комедия, ПриключенияРежиссер: Гай РичиАктеры: Генри Кавилл, Арми Хаммер, Алисия Викандер, Элизабет Дебики, Хью Грант, Лука Кальвани, Сильвестр Грот, Джаред Харрис, Кристиан Беркель, Миша КузнецовПеревод: Дублированный iTunesПродолжительность: 01:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9EF7C3C44C9172D6481EF6FBD073652F0BDA59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258681   (334708) от 31.10.2018
+
+Поликсена Соловьева | Дедушкино кольцо (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пьесы в стихах.
+Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95CED6A7734DD36B9A9057135CF1568428DD0C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579456   (334709) от 28.09.2022
+
+Psycada - Hiking Lung (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract [00:01:21]
+02. Halal [00:04:01]
+03. Forest [00:08:43]
+04. Opaque [00:06:12](   Читать дальше...   )Жанр: Psychedelic, Space Rock, Stoner RockПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F34E3F0EF3B9D7F4ABD59B34049275EE1A296D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955381   (334710) от 10.11.2015
+
+Red Giant Magic Bullet Suite 12.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Bullet Suite представляет собой набор из восьми инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion и Avid Media Composer. В пакет включены - Cosmo, Colorista, Denoiser, MisFire, Mojo, Magic Bullet Film (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 ноября 2015Разработчик: Red Giant LLCПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69B130CCFC0733141F12CF117510DDCE934CA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258702   (334711) от 31.10.2018
+
+SpamSieve 2.9.34 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
+
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04332B3EE0FB7024203E6C0965B5DBD8A4D4EB1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579018   (334712) от 28.09.2022
+
+We are Legend - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - We Are Legend (EP)
+2013 - Rise of the Legend (Extended Version Remastered)
+2022 - Fallen AngelЖанр: Power MetalПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD1D76BF8976E6022DCABCCD9203D3C730ED012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257494   (334713) от 31.10.2018
+
+Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nevertheless, She Persisted [6:15]
+02. Little Did She Know [4:10]
+03. She Needed A Hero, So That's What She Became [6:07]
+04. Females Are Strong As Hell [3:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFA50F9A71F317A5C18E0BF20B8B4E3C7C34D5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579654   (334714) от 28.09.2022
+
+Первый шум - Круг (2022) [MP3|320 Kbps] <Rapcore, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Меня зовут Паша (Кажется) [00:03:53]
+02 - Мухи (Король Мертвых) [00:03:54]
+03 - Вдохновение [00:03:59]
+04 - Бессонница [00:03:43](   Читать дальше...   )Жанр: Rapcore, GrungeПродолжительность: 00:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5752BCD11A01CB7FE90D6EDA5A33E6B804E4234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419979   (334715) от 30.10.2020
+
+365 дней / 365 dni (365 Days) (2020) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Массимо Торичелли - молодой красивый босс сицилийской мафиозной семьи. После убийства отца конкурентами он вынужден взять на себя его обязанности. Лаура Бель - директор по продажам в роскошном отеле. Она успешна в профессии, но в личной жизни ей не хватает страсти. Лаура делает последнюю попытку сохранить отношения. Вместе с женихом и друзьями она летит на Сицилию, (   Читать дальше...   )Производство: Польша / Ekipa, Future Space, Next FilmЖанр: Драма, мелодрамаРежиссер: Барбара Бяловас, Томаш МандесАктеры: Анна Мария Сиклуцка, Мишель Морроне, Бронислав Вроцлавский, Отар Саралидзе, Магдалена Лямпарская, Наташа Урбаньска, Гражина Шаполовска, Томаш Стокингер, Джанни Паризи, Матеуш ЛасовскиПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: Русские, английские (отдельно)Продолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6F47009F67AA4CA335EBE532F14A78FDD07988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258829   (334716) от 31.10.2018
+
+Zumpano - Goin' Through Changes (1996) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind the Beehive (3:56)
+ 02. Broca's Ways (3:34)
+ 03. Throwing Stars (3:50)
+ 04. Here's the Plan (3:49)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1863206B0B038E52B83E4255F7CD853E6F0A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579740   (334717) от 28.09.2022
+
+Николай Некрасов | Осенняя скука (1953) [MP3, Владимир Муравьёв и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по одноимённой комедии Николая Алексеевича Некрасова. Один обычный осенний вечер. Помещику Ласукову, прожившему типичную жизнь провинциального дворянина («и в кавалерии служили, и на балах танцевали»), отчаянно скучно доживать ее в деревне, и он пытается себя развлечь, раздавая своим многочисленным слугам все новые бессмысленные поручения и распекая (   Читать дальше...   )Жанр: Классика, РадиоспетакльПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D56C69C9E817F82450F99B33F450AF2179F745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379005   (334718) от 30.10.2020
+
+Алиса (2020) WEBRip (серии 1-5 из 5)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро водителей такси попадают в смешные, трогательные и жуткие приключения в компании бортового компьютера Алисы. Вместе с ними искусственный разум испытывает свои границы на прочность и разрешает моральные дилеммы. Истории разворачиваются из перспективы Алисы — ей предстоит узнать о себе кое-что новое в этом безумном мире гендерфлюидной любви, стендапа на грани (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: комедияРежиссер: Иван Петухов, Василиса КузьминаАктеры: Ирина Горбачева, Никита Кукушкин, Александр Филиппенко, Даниил Вахрушев, Евгений Егоров, Иван Дергачев, Владимир Любимцев, Михаил Горевой, Иван Колесников, Сергей Епишев и др.Продолжительность: ~00:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924AF03EE88BC23FF5C83D519D02786440F9E9E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579489   (334719) от 28.09.2022
+
+Colour Haze - Temple (2006) Remastered, 2022, Electrohasch [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempel (Remastered) [00:08:30]
+02. Gold & Silver (Remastered) [00:06:42]
+03. Earth (Remastered) [00:04:02]
+04. Ozean (Remastered) [00:04:40](   Читать дальше...   )Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1C40B0B128DBEB74ACFC6C3A171AB784051721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383965   (334720) от 30.10.2020
+
+Вольница | Супер Сила 1: Научим вас моушен дизайну (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334720.jpg" />
+</div>
+
+
+###  Подробнее
+
+СуперСила предназначена как для новичков, так и для опытных специалистов – каждый найдет что-то важное для себя. Единственное условие: вы должны быть готовы много практиковаться, ведь так просто супергероями не становятся. Мы учим техникам, учим приемам, но самое важное — мы учим делать СТИЛЬНЫЕ вещи. Три преподавателя, каждый мастер в своем деле, создали для вас (   Читать дальше...   )Производство: ВольницаЖанр: Создание эффектовПродолжительность: 21:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B44ECEBC24C876698C62E12C5011E21C3F6D54B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579477   (334721) от 28.09.2022
+
+Saints’ Anger - Danger Metal (1985) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bullet 3:40
+02. Wrong Or Right 4:05
+03. Danger Metal 3:10
+04. Highway 4:34(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00320B596F2CBA2863EB1262D637901CF84F6FDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390992   (334722) от 30.10.2020
+
+Alwa's Legacy (2020) [Multi] (1.5) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alwa's Legacy - современная игра в стиле ретро, полная магии, тайн и приключений. Alwa’s Legacy - ретро-игра, в которой вы найдете множество опасных подземелий, волшебных предметов и древних тайн. Улучшив свою магию, вы не ошибетесь с выбором пути в этом нелинейном игровом приключении, полном простора для исследований.Тип издания: LicenseРазработчик: Elden PixelsЖанр: Приключение, ФэнтезиЯзык субтитров: Английский, ШведскийЯзык интерфейса: Английский, Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3490BFB1632179203B0BF4798676FF1237ED10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955286   (334723) от 10.11.2015
+
+Растровый клипарт - Скрап-набор ''Зона полетов'' [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно красивый и нежный детский скрап-набор посвященный дню рождения.Формат: PNG, JPGРазрешение файлов: от 500х500 до 3600х3600 (300 dpi)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2B07D9877FAEAF227E5D26839995A11F192754
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

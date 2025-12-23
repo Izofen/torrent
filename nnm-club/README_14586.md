@@ -1,26 +1,682 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1043820   (570934) от 17.08.2016
+
+Я всегда знал, что вы сделали прошлым летом / I'll Always Know What You Did Last Summe (2006) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570934.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого свои секреты — и не всегда они безобидны. Некоторые из нас хотели бы похоронить свои тайны навечно. Вот только не у всех они желают покорно лежать в могиле памяти… Из-за глупого розыгрыша товарищей во время праздника гибнет один из пятерки закадычных друзей. Четверо оставшихся скрытно избавляются от тела, поклявшись навсегда забыть о происшедшем.
+Но ровно (   Читать дальше...   )Производство: США / Destination Films, Original Film, Screen GemsЖанр: УжасыРежиссер: Сильвен УайАктеры: Брук Невин, Кей Си Клайд, Торри ДеВито, Бен Истер, Стар ЛаПойнт, Сэт Пакард, Майкл Флинн и др.Перевод: Профессиональный (многоголосный, закадровый) R5 Columbia/SonyПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1E2C9B63BC43D93AEEFFEDDDF94EEC432E4E35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043630   (570937) от 17.08.2016
+
+С. А. Агамалы оглы и др. (ред.) | Культура и письменность востока [10 книг] (1928-1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из кардинальнейших вопросов культурной революции на Востоке, значение которого чрезвычайно велико и за его пределами, — это вопрос о создании шрифта, письменности, облегчающей быстрое усвоение грамоты массами. Этот вопрос стоит перед народами, так называемой, «мусульманской культуры». Вопрос замены арабского алфавита другим является вопросом преодоления старой, (   Читать дальше...   )Жанр: История, политология, лингвистика, языкознание, культурология, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BFFEE0A19B1C140CEC44952FA8131158F95E01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043741   (570939) от 17.08.2016
+
+Император – основатель династии Мин / Zhu Yuan Zhang (2007) DVDRip [H.264] (серии 1-2 из 2) [MP4|720x432@768x432]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху распрей и междоусобиц семья маленького мальчика была разорена и уничтожена. Став взрослым, волею судеб он, необученный военному делу, оказался в отряде воинов. Правители страны заметили храброго юношу, и с тех пор его судьбой стала война. Ступень за ступенью он поднимается к вершинам могущества, но этот путь не устлан розами.
+Мечтая создать новое, крепкое (   Читать дальше...   )Производство: Китай, Cnina International TV CoЖанр: Драма, ИсторияРежиссер: Фэн СяонинАктеры: Джан Ху, Ксуе Джу и другиеПеревод: Многоголосый закадровыйПродолжительность: ~01:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE56116F5A877D76FFB1764D46FB1F6CF898A203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043819   (570941) от 17.08.2016
+
+VA - For Massive Future Beats (2016) [MP3|320 Kbps] <House, Electro House, Drum & Bass, Progressive, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ummet Ozcan  -  Wake Up The Sun  3:26
+02. Rene Rodrigezz & Robbie Wulfsohn  -  We Are We Are (Nizami Plus & Envilo Remix)  4:29
+03. Avicii  -  Broken Arrows (Kid Remix)  4:23
+04. Blasterjaxx  -  Forever (Feat. Courtney Jenae) (Retrohandz Remix)  3:17(   Читать дальше...   )Жанр: House, Electro House, Drum & Bass, Progressive, Dance, ClubПродолжительность: 07:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16420EA9EEED873A6497011637A068F271315B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043867   (570943) от 17.08.2016
+
+VA - Vocal Trance Hits (2016-03) (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Rising Star  -  Again (Andrew Rayel Remix)  3:54
+02. Aly & Fila & Luke Bond & Audrey Gallagher  -  Million Voices  3:48
+03. Gareth Emery & Janet Devlin  -  Lost (Super8 & Tab Remix)  3:21
+04. Andrew Rayel & Digital X  -  Winterburn (Craig Connelly Remix)  3:34(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F7BF81FBF5F9AFE1C538D99C1E42D26BB7F194
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043733   (570945) от 17.08.2016
+
+PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Community Of Hope 02:23
+02. The Ministry Of Defence 04:11
+03. A Line In The Sand 03:33
+04. Chain Of Keys 03:09(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043748   (570947) от 17.08.2016
+
+iStat Menus 5.20 (677) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570947.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 5 — лучшее приложение для контроля работы Mac
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
+
+Первым хочется пожелать и дальше наслаждаться работой, а вот вторым стоит обратить внимание на крупное (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 августа 2016Разработчик: BjangoПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский?!, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F9C7BD2B641DE16B1D9DCA4C281CD9A5101B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043641   (570949) от 17.08.2016
+
+Viscosity 1.6.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viscosity – клиент OpenVPN для Mac
+Viscosity является VPN клиентом для Mac, обеспечивая графический интерфейс пользователя для создания, редактирования и управления VPN соединениями. Viscosity обеспечивает полное решение OpenVPN для Mac OS X и не требует никакого дополнительного программного обеспечения.
+
+Viscosity может подключаться к любому серверу VPN работает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 августа 2016Разработчик: SparkLabsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58266630C6C532AB4CC20C783D71F2F17BE19BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043651   (570951) от 17.08.2016
+
+Юрий Бондарев  | Берег   (2006) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой романа "Берег" - выживший в жаркой схватке с фашизмом, помудревший человек, который мучается над многими проблемами бытия, среди которых, однако, главнейшими являются все те же, порожденные войной. Известный советский писатель, отправляется в Гамбург по приглашению общества любителей литературы. В богатей владелице книжных магазинов он узнает (   Читать дальше...   )Жанр: Военно-исторический романПродолжительность: 16:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5099F92812256C591DD14C64530F9EC7FEA34A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224579   (570952) от 05.08.2010
+
+Девушка с гитарой (1958) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый художественный фильм, посвящённый Международному фестивалю молодёжи и студентов в Москве.
+Около хорошенькой продавщицы музыкального магазина Танечки Федосовой, мечтающей стать актрисой - всегда много покупателей. Больше всего они раздражают директора, который боится потерять привлекательную сотрудницу и ценного работника. Он старается помешать возможной Таниной (   Читать дальше...   )Жанр: КомедияРежиссер: Александр ФайнциммерАктеры: Людмила Гурченко, Михаил Жаров, Фаина Раневская, Борис Петкер, Владимир Гусев, Олег Анофриев, Сергей Голованов, Сергей Блинников, Борис Новиков, Сергей Филиппов, Михаил Пуговкин, Георгий Вицин, Юрий Никулин, Павел Винник, Светлана Харитонова, Валентин БрылеевПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023EE7F64EB19BD9AC8C810A98C1E516D9C2C1B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043690   (570953) от 17.08.2016
+
+Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossless|image + .cue] <Crossover, Thrash, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hail To The Tsar
+02 - Still In The Game
+03 - Chainsaw In The Dark
+04 - Slay The Dragon(   Читать дальше...   )Жанр: Crossover, Thrash, HardcoreПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D19999E190F23BC039133B0881B64C02E35775
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303725   (570960) от 22.05.2019
+
+Эрик Вюйар | Повестка дня (2018) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внецикловая повесть.
+
+20 февраля 1933 года. Суровая берлинская зима. В Рейхстаг тайно приглашены 24 самых богатых немецких промышленника. Национал-социалистической партии и ее фюреру нужны деньги. И немецкие капиталисты безропотно их дают. В обмен на это на их заводы вскоре будут согнаны сотни тысяч заключенных из концлагерей – бесплатная рабочая сила. Из сотен тысяч (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Анастасия Дмитриевна ПетроваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A180E0FE071BB1CB738B08D3476307A4EF3506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303680   (570963) от 22.05.2019
+
+Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Love Again [4:15]
+02. Can't Stop The Feeling [4:05]
+03. Change The World [4:15]
+04. Sailing [4:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C93FE3C45E9181688386C93479F47C9B2BCD1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303507   (570964) от 22.05.2019
+
+Joe Jackson - Fool (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Black Cloud (06:01)
+02. Fabulosly Absolute (04:15)
+03. Dave (05:04)
+04. Strange Land (05:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9664D95BBAD1A44C719A88C039D4A24C5F82B786
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303590   (570965) от 22.05.2019
+
+Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room Temperature
+02. Right Side of My Neck
+03. Hurts Me Too
+04. Pigeon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303654   (570966) от 22.05.2019
+
+Maklak - The Age of Anxiety (2019) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fistula (02:59)
+2. Slug Mass (04:34)
+3. Orchid Thief (03:28)
+4. Castaway (05:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EDD756F7A6C8B9AD85B0ACD3EC0FD3F0F55509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303731   (570967) от 22.05.2019
+
+Луиза Эрдрич | Лароуз (2018) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагическая история одной семьи накладывается на сложную индейскую историю. Отцу семейства придется заплатить за собственную ошибку. И чем ему расплатиться, как не собственным сыном?
+
+Единое полотно романа выстраивается из маленьких историй, каждая из которых по-своему любопытна и захватывающа.Жанр: Современная зарубежная прозаПеревод: Михаил ТарасовФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63E36DED7E9587D9197BCFE3DEF860D3EDB5B2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303647   (570968) от 22.05.2019
+
+Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jouer le jeu (3:57)
+02. De l'autre côté (3:32)
+03. Déposer les armes (3:36)
+04. L'élyme des sables (4:41)(   Читать дальше...   )Жанр: French Pop, Pop RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB5D5D20D1D64A5D272EBDA01B50279D00B93E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362337   (570992) от 13.07.2011
+
+VA - Эх, Разгуляй! Летний Выпуск (2011) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 12:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD5B5F1B333F0F5EFA643E6FE33A80E15FE7FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362584   (571006) от 13.07.2011
+
+MotoGP 2011 / Этап 8 из 18 / Италия / Гонка / 125сс + "Королевский класс" + Moto2 / Авто-Плюс (2011) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись трансляции гонки чемпионата MotoGP на гран-при Италии сезона 2011 в МюджеллоЖанр: СпортПродолжительность: 03:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADD29794D8FB0E308C6C5FA147B55FC983F1819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234264   (571011) от 05.07.2018
+
+Ольга Федотова - Сомнений нет! (1998) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уйя - Айя
+02. Зимушка
+03. Шут
+04. Сомнений нет!(   Читать дальше...   )Жанр: РорПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9B10B2FD096B07EF3CD333F9DFE8BD11107C7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234502   (571012) от 05.07.2018
+
+Vanello - Essential (Italo & Space) (2015) [MP3|320 Kbps] <Synth-pop, Italo-Disco, Italodance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.S. For Love (05:39)
+02. Future Vibes (05:13)
+03. Your Eyes Don't Lie (05:24)
+04. Get Ready For Spacesynth (04:49)(   Читать дальше...   )Жанр: Synth-pop, Italo-Disco, ItalodanceПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4A4AB60699F4FCDD9B1EDF11B8B0AF3C57E2A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234393   (571013) от 05.07.2018
+
+MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Грубый возраст
+02. Baby
+03. Правильная девочка
+04. Лимбо(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC217256394191E7606B38BE382AEF449EFEB61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118706   (571014) от 05.07.2018
+
+Kellermensch - Goliath (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Prog Rock, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Sign (3:25)
+02. The Pain Of Salvation (4:48)
+03. Atheist In A Foxhole (4:34)
+04. Mediocre Man (4:51)(   Читать дальше...   )Жанр: Alternative Rock, Prog Rock, Experimental RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A21F668EC4A5FDDBA751E73FA2C3AA503BCD98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234500   (571017) от 05.07.2018
+
+Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inesi (1:15)
+02. Windland (4:48)
+03. Argonauts (4:48)
+04. Pulstar (4:20)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, SpacesynthПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7723757965EEAAA8DB22A0125DD8EDD26F4C9D66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234435   (571019) от 05.07.2018
+
+Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket Man (5:04)
+02. Space Boogie (4:33)
+03. Across The Universe (4:06)
+04. Telstar (4:24)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EC91631D2ADB91E383887230E2D8B5A5028A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

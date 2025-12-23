@@ -1,26 +1,695 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1035320   (628667) от 16.07.2016
+
+Эрнест Григо | Рассказы в картинках [3 книги] (1978-1987) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы в картинках. Для младшего возраста.Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBE9C0F0795AF70D7A0D992E55B16DF1403D695
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035326   (628668) от 16.07.2016
+
+Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mío
+02. De Verano a Invierno
+03. Perfecto para Mi
+04. El Mejor(   Читать дальше...   )Жанр: Latin PopПродолжительность: 0:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D0D3EBBD2C78E10AE47B6F3B1A0C8EF7BEF092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035159   (628669) от 16.07.2016
+
+Cartoon Theory - Planet Geisha (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hypnotic Nova's Dance (feat. Plini and Luke Martin)
+2. O'Hanami 花見
+3. Wizardry Mind (feat. Plini)
+4. Planet Geisha I Sacred Geometry (feat. Plini & David Maxim Micic)(   Читать дальше...   )Жанр: Progressive Metal, Djent, ElectronicПродолжительность: 0:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085DED3EB8D8E66A1C8A691B644B5244286727FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035516   (628670) от 16.07.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (16.07.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628670.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383C9711FB68E031EE2ABA972AB92D2522AA8780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035316   (628671) от 16.07.2016
+
+Bonrud - Save Tomorrow (2012) Japan Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist
+01. We Collide [03:45]
+02. Bullet in the Back [03:32]
+03. American Dream [02:59](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 0:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C415419C2774F337A09FA3CB56C69A5288243CD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035125   (628672) от 16.07.2016
+
+Mutzie - Light of Your Shadow (1970) Reissue Synton Archive Productions[MP3|320 Kbps] <Heavy Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Highway
+2. The Light Of Your Shadow
+3. Cocaine Blues
+4. Jessie Fly(   Читать дальше...   )Жанр: Heavy Psychedelic RockПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838894275CA74B0C0DDC43DBA5EE127EBC7AAD5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035300   (628673) от 16.07.2016
+
+В центре событий с Анной Прохоровой (15.07.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628673.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Россия – НАТО. Совет да нелюбовь! Итоги встречи в Брюсселе. 2. И это – не Британия! Кто же на самом деле развалит ЕС? 3. Бандера – агент Кремля! До чего ещё договорились польские националисты в приступе русофобии? 4. Умереть за Европу. К чему власти Украины готовят собственный народ?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A562548D98A16FEC4FC7D563B9750CF57F32CEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035237   (628674) от 16.07.2016
+
+Mortuorial Eclipse - The Aethyrs' Call (2012) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Summoner's Procession 01:03
+02. Advent Of A Sinister Omen 04:08
+03. Crepuscular Necromantic Visions 06:17
+04. Perpetual Covenant 01:00(   Читать дальше...   )Жанр: Symphonic Black Metal, Death MetalПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F35B067D1AE3B43606BF5A5CFE91F3EFBD7CD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035231   (628675) от 16.07.2016
+
+Hellwitch - Anthropophagi (1994) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Days Of Nemesis
+02 - At Rest
+03 - Anthropophagi
+04 - Torture Chamber(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771DFED0F03DF4A09798091FB95839D4EB87501B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035431   (628676) от 16.07.2016
+
+VA - Ultimate Ibiza Trance (2016) [MP3|320 Kbps] <Trance >
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempo Giusto -  Pick Your Poison (Radio Edit) 3:04
+02. Fabio XB & Liuck ft Roxanne Emery -  Nowhere To Be Found (Radio Edit) 3:43
+03. LTN & Arielle Maren -  Let Me Go (Johan Vilborg Radio Edit) 3:08
+04. Daniel Kandi & Zack Mia -  Sector 7 (Radio Edit) 4:09(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D962EC28E6A6339334594E0CC3713F6FD9C136C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035250   (628677) от 16.07.2016
+
+The Resistance - Coup de grâce (2016) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death March
+02. I Welcome Death
+03. Smallest Creep
+04. Violator(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2A68ADDBF709CE2A170CDCE38AA0CA8563CCFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035340   (628678) от 16.07.2016
+
+VA - Naxwell - Hands Up Masterpieces: All His Singles & Remixes (2016) [MP3|320 Kbps] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naxwell -  Magic Melody (Club Mix) 5:13
+02. DJ Schwede -  Here We Go Again 2k16 (Naxwell Remix) 4:05
+03. John Wiix -  Can U Pump on It (Naxwell Remix) 4:04
+04. Patricio AMC -  Believe (Naxwell Remix) 4:04(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8607D115123D2677E2DB20EAADD2E0181EDA63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035226   (628679) от 16.07.2016
+
+Evol - The Saga of the Horned King (1995) [APE|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Present Age 3:36
+02. The Chant of the Witch 4:22
+03. From the Unknown Domain...(The King Awakes) 1:49
+04. Through Foggy Plains and Mystic Woods He Rides...2:43(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9EDA04EDC1F7F1DCFCA3A44BE843844D0630AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035241   (628680) от 16.07.2016
+
+Thanatos - Angelic Encounters (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Angelic Encounters
+02 In Utter Darkness
+03 Sincere Chainsaw Salavation
+04 Infuriated(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748205CC38DE4B1755696B2B0C64C76631A749F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035424   (628681) от 16.07.2016
+
+VA - Enhanced Mainstage Anthems Vol. 2 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tritonal ft Chris Ramos & Shanahan -  This Is Love (Blasterjaxx Radio Edit) 3:21
+02. Volt & State -  Anthems (Radio Edit) 3:15
+03. BT -  Flaming June (Ashley Wallbridge Radio Edit) 3:01
+04. Tritonal & Angel Taylor -  Getaway (Radio Edit) 3:38(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CADF86E114E517B404E231D60C3C4AF44BC3CF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035235   (628682) от 16.07.2016
+
+Klandestyn - Wounds Bleeding Black (2009) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profane the Name of God 07:32
+02. SS-18 (Doom) 05:24
+03. Frigus Magnum 02:36
+04. Black Mantra 07:28(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285FFF01103E3A97D2035BD8EB4FFBAC24947DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802470   (628683) от 05.07.2014
+
+Новые приключения старой Кристин / The New Adventures of Old Christine (2006-2007) DVDRip (сезон 2, серии 1-22 из 22) ViruseProject
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристин — разведённая работающая мать, которая через силы превозмогала стрессы, связанные со служебными обязанностями и семьёй, пока заново не восстановила замечательные отношения со своим бывшим мужем по имени Ричард. Стресс героям и смех зрителям — гарантированы!Жанр: КомедияРежиссер: Энди ЭкерманАктеры: Джулия Луис-Дрейфус, Кларк Грегг, Хамиш Линклэйтер, Тревор Ганьон, Эмили Рутерферд, Трисиа О’Келли, Алекс Кэпп Хорнер, Ванда Сайкес, Лили Гофф, Марисса Бланчард и др.Перевод: Многоголосый закадровый, профессиональный ViruseProjectПродолжительность: 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667FB5530F1FDFBE329F5DD72C9ED4FF54C8954E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706457   (628693) от 05.07.2014
+
+Ход белой королевы (1971) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628693.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной повести Льва Кассиля.
+Тренер решает уйти из спорта, но его ученица, будущая "белая королева", победившая на чемпионате по лыжам в Высоких Татрах, возвращает его к любимому делу. В фильм включены документальные кадры первенства мира по лыжам в Высоких Татрах.Жанр: ДрамаРежиссер: Виктор СадовскийАктеры: Кирилл Лавров, Светлана Головина, Виктория Фёдорова, Николай Озеров, Анатолий Папанов, Евгений Евстигнеев, Леонид Куравлёв, Алексей Смирнов, Алексей Кожевников, Иосиф Конопацкий, Константин КорнаковПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC03CCC2754FA43C3DC27746257D877FFE75CDD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521174   (628727) от 10.07.2012
+
+VA - Убойный сборник от Авторадио 50/50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628727.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Nicki Minaj - Va Va Voom.
+002 David Vendetta Feat. Booty Luv - Sun Comes Up (Radio Edit).
+003 Paulina Starborn - Never Gonna Let Me Go.
+004 Pitbull Feat. Okary - La Pauta Mi Bombon (Remix).
+005 Greg Parys - The Girl Is Mine (Radio Edit).
+006 Timbaland Feat. Dev - Break Ya Back (Album Version).
+007 Pete Fox Feat. Joey Moe And Jeanette Zeniia - St Jernetegn (Radio Edit).
+008 No Rules - It Will Be Alright (Radio Edit).
+009 Brainstorm - Lantern.
+010 The Cataracs Feat. Waka Flocka - All You.(   Читать дальше...   )Жанр: РорПродолжительность: 05:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522141FEE82AB0630657D2608B0D86058C7625B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520850   (628733) от 10.07.2012
+
+Cactus - 10 Альбомов (1970-2010) [MP3|320 кб/с]<Hard Rock\Blues-Rock\Boogie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cactus — американская рок-группа, образовавшаяся в 1970 году в Нью-Йорке и исполнявшая жёсткий хард-рок с элементами блюз-рока. Пять альбомов Cactus входили в Billboard 200, наивысшей позиции (#54, 1972) достиг дебютный альбом. Группа первоначально задумывалась как результат слияния ритм-секции из Vanilla Fudge (Тим Богерт, Кармайн Эппис) c ядром The Jeff Beck Group, Джеффом Беком и вокалистом Родом Стюартом. Но Бек попал в автомобильную аварию и выбыл из строя на полтора года, а Стюарт вошёл в состав The Faces. На их место в начале 1970 года были приглашены гитарист Джим Маккарти из Detroit Wheels и вокалист Расти Дэй (настоящее имя Russell Edward Davidson) из The Amboy Dukes, группы Теда Ньюджента. Квартет, некоторое время рекламировавшийся как «американский Led Zeppelin», исполнял жёсткий блюз-/хард-рок с элементами гаражного рока и традиционного буги. В числе известных музыкантов, называвших себя фанатами Cactus, были Эдди Ван Хэлен, Дэвид Ковердейл, участники Monster Magnet. После распада группы в 1972 году (   Читать дальше...   )Жанр: Hard Rock\Blues-Rock\Boogie RockПродолжительность: 01:17:23
+01. Feel So Bad [00:05:31]
+02. Hometown Bust [00:06:39]
+03. One Way...Or Another [00:05:09]
+04. Hound Dog Sniffin' (Unreleased) [00:05:19]
+05. Restrictions [00:06:17]
+06. Token Chokin' [00:03:10]
+07. Guiltless Glider [00:08:48]
+08. Evil [00:03:17]
+09. Alaska [00:03:40](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C54783A8719CBA7A60FAB3DCE87A9FBEF59D68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521143   (628734) от 10.07.2012
+
+И Друг Мой Грузовик - Годы геологов (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628734.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Годы геологов
+ 2. Медуза
+ 3. Кончиками пальцев
+ 4. Какие пластинки вы слушали в 2009-м году?
+ 5. Fracasos
+ 6. Кантрик
+ 7. Хардик
+ 8. Уткик
+ 9. Севастопольский мех
+ 10. м. Маяковская(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608BA81B30B8851917232B0A416985467A3764AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521127   (628736) от 10.07.2012
+
+Последнее дыхание / Respire (2010) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние римляне верили, что вместе с последним выдохом душа человека покидает тело. Легенда гласит, что последний выдох умирающего, «респире», может даровать другому вечную жизнь. В середине 1930-х годов ученый по имени доктор Рэндольф Каминский понял, как подчинить человеку силу последнего выдоха и сделать его бессмертным. Но не успел ни с кем поделиться этим великим открытием. Был убит… Результаты его исследований долгое время считались навсегда утраченными.
+
+И вот в наши дни шкатулка, некогда принадлежавшая доктору Каминскому и скрывающая секрет его открытия, случайно обнаружена в антикварной лавке. Несколько человек во что бы то ни стало стремятся завладеть ею. Ральф Коллинз надеется, что таинственный артефакт поможет вылечить его смертельно больную сестру. Алекс По преследует иные, разрушительные цели. А тут еще владелица антикварного магазина Сьюзен Джордан узнает, что у нее последняя стадия рака, и вступает в ожесточенную схватку за тайну бессмертия.Жанр: ТриллерРежиссер: Дэвид А. КроссАктеры: Трейси Тиг, Мэтью Дж. Райт, Винс Юстас, Джессика Килер, Елена Торрез, Мэри Ли Адамс, Криста Кларк, Джон Доути, Тимоти Дайкс, Кори ЭйдПеревод: Профессиональное (многоголосое)Продолжительность: 01:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476BD5454AEB95E68F4BD4ADBD3A237FB1A9C79B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520959   (628739) от 10.07.2012
+
+О.Д.Ларина,  Т.С.Резниченко | Говорим правильно. Дифференциация согласных звуков [2004] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Логопедический альбом предназначен для коррекции звукопроизношения, развития языкового чутья, понимания смысловых и стилистических оттенков речи. Это пособие представляет собой cборник упражнений, заданий и игр, предназначенных для выработки умения различать смешиваемые звуки на слух и правильно произносить их в собственной речи.
+Пособие предназначено cпециалистам-дефектологам, педагогам дошкольных учреждений и общеобразовательных школ, родителям.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB2A6A4A5E06205FE61851E8F3A765CC352F7B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520721   (628742) от 10.07.2012
+
+Хитрая лисичка / The Cunning Little Vixen (2003) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация оперы Леоша Яначека "Prihody Lisky Bystrousky" ("Приключения лисы-плутовки", 1925). В ней рассказывается о жизни лисы Остроушки, еще детенышем пойманной лесником, повзрослевшей в его доме и сбежавшей обратно в лес. Благодаря своей природной хитрости, Остроушка ловко обводит вокруг пальца других животных и даже людей.Жанр: мультфильмРежиссер: Джофф ДанбарПеревод: Многоголосый закадровыйПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52A8DA8098EF6EAA3DEE23E3A3EC285A5B6506A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802367   (628776) от 05.07.2014
+
+Закон и порядок: Преступные намерения / Law & Order: Criminal Intent (2007-2008) WEB-DL [H.264/1080p-LQ] (сезон 7, серии 1-22 из 22)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступник — это главная фигура в преступлении, свидетель содеянного, а зачастую и жертва жестоких жизненных обстоятельств. Постоянными действующими лицами сериала являются нью-йоркские детективы департамента по расследованию убийств.
+Главный герой — проницательный детектив Роберт Горен работает в паре с женщиной-детективом Алекс Имс. Возглавляет департамент капитан (   Читать дальше...   )Жанр: Детектив, Криминал, ДрамаРежиссер: Фрэнк Принзи, Том ДиЧилло, Кен ДжироттиАктеры: Кэтрин Эрбе, Винсент Д`Онофрио, Джейми Шеридан, Кортни Б. Вэнс, Лесли Хендрикс, Эрик Богосян, Крис Нот, Джефф Голдблюм, Джулианна Николсон, Саффрон БерроузПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~ 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FA43E58BF791FA0C3AAFD485C9E9C14ADA55F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802322   (628785) от 05.07.2014
+
+Журнал | Автомир [Россия] №28 (июль 2014) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628785.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78765A7B73234FBEBC36A2C3D5343EF34A630D22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

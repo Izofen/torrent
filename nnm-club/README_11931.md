@@ -1,26 +1,654 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1324042   (429714) от 07.09.2019
+
+AnyMP4 Video Enhancement 7.2.22 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429714.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E585122354312E8700A47FECE3D781A835C20C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322470   (429715) от 07.09.2019
+
+Детская литература | Литературно-критический и библиографический ежемесячник [11 книг] (1966) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературно-критический и библиографический ежемесячник Комитета по печати при Совете Министров РСФСР и Союза писателей РСФСР.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3E2D14196CFC3068AF9E37537DA4AC141F067A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324076   (429716) от 07.09.2019
+
+Sangam & Kid Smpl - Brave Warrior (2019) Display [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno, Jungle>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brave Warrior (12:12)
+02. Basin Cradle (11:01)
+03. Ruined Prophet (10:26)
+04. Hazel Smoke (10:46)Жанр: Ambient, Experimental, Techno, JungleПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FCC90343B088B20DD2BE1E234B4EDFEEA91F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324084   (429717) от 07.09.2019
+
+VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429717.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Apache 207 - Roller
+002. Rin - UP IN SMOKE
+003. Tones and I - Dance Monkey
+004. Shawn Mendes & Camila Cabello - Señorita(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DE71973952E3170C541470509062D967B663E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555470   (429719) от 04.10.2012
+
+Sexy Girls Pack Wallpapers (02.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680x1050 - 6650x3741
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A36DA53DB01A37F7A83AC93948E26350B979D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555472   (429723) от 04.10.2012
+
+Wallpapers Sexy Girls (02.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х1996
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B331FFBA2321F710D5532CA3C42F5F9E3B0C8083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555460   (429725) от 04.10.2012
+
+HQ Wallpapers Perfect Women (02.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F6A15028B56EAE12C4B2B9FFF2D14D48B0F701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555471   (429727) от 04.10.2012
+
+Wallpapers Sexy Girls Pack (02.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680x1050 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D8C9DD11ACD5898F5071514F2708FB5D50913D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411077   (429729) от 24.09.2020
+
+VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Abigail - Eight Zero (feat Antonique Rivela - radio edit) (3:35)
+02. Christopher Phonk - Can Do Without You (4:22)
+03. Chris Feelding - Feel So Good (4:12)
+04. DJ Farre - What's Love (radio edit) (3:40)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8FA5EDFD9319F914B337187B24087A96AA0690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411155   (429731) от 24.09.2020
+
+Растровый клипарт - Elements Collage 134 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 187x653-1511x1052
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE17E60DD6BC486C4C36955D0B2037B48B9352A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411162   (429732) от 24.09.2020
+
+Растровый клипарт - Elements Collage 136 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 227x400-1927x1081
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B93FC5CB00CC0E8D82FAEA3CEA58612B2C386F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411159   (429733) от 24.09.2020
+
+Растровый клипарт - Elements Collage 135 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 153x383-1500x1126
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C1A9915ED9BE40EFED5ED2A2EAD98CB37B8D8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411170   (429734) от 24.09.2020
+
+Cycling'74 Max 8 v8.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429734.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAX 8 - это визуальный язык программирования для музыки и мультимедиа. За время своей более чем 20-летней истории, он был использован композиторами, исполнителями, разработчиками программного обеспечения, исследователями и художниками.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2020Разработчик: Cycling '74Поддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCA14ED01BA87AE6778D3E08334CE6312646F28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411192   (429735) от 24.09.2020
+
+Wondershare Recoverit 9.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3DBE24643F8EA428E14D306402987BC47884AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411002   (429736) от 24.09.2020
+
+VA - R&B Soul Classics Songs (2020) [MP3|320 Kbps] <R&B, Rap, Hip Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zayn - Fresh Air
+002. Jor'dan Armstrong - Lose My Number
+003. Bigg Robb - Take It Off
+004. The Boys Choir Of Harlem - Interlude Don't Compare My Singin'(   Читать дальше...   )Жанр: R&B, Rap, Hip SoulПродолжительность: 07:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6F183623D5F8D661B16974A8B3CDBD8B47A2A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411218   (429737) от 24.09.2020
+
+VA - Indigo Trance Set (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429737.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avaxx - Spotlight
+002. Marcks - Darkofobia
+003. Sven Nielsen - Rewind
+004. Tides Of Melody - Fallen Horizon(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0124699A2AB66031B35BA94E00F72E29D0CB0E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411223   (429738) от 24.09.2020
+
+PTE AV Studio Pro 10.0.13 Build 4 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429738.jpg" />
+</div>
+
+
+###  Подробнее
+
+PTE AV Studio Pro - дальнейшее развитие программы PicturesToExe Deluxe.
+Используя PTE AV Studio вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск.
+К каждому слайду можно добавить текстовый и звуковой комментарий (wav, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6665E1AB414195ECD564E1BC83F1FE78347F328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410939   (429739) от 24.09.2020
+
+Fleetwood Mac - Live in Helsinki (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homework (Live: Helsinki, Finland Sep 1969) (03:51)
+02. Man Of The World (Live: Helsinki, Finland Sep 1969) (03:05)
+03. Like It This Way (Live: Helsinki, Finland Sep 1969) (05:14)
+04. Only You (Live: Helsinki, Finland Sep 1969) (04:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C1CAD4744AC87703FB00A32FA6C932E0E90C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411169   (429740) от 24.09.2020
+
+Растровый клипарт - Elements Collage 139 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 207x759-1584x1414
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9B2DD4318DB7948E9190D5CB1B9083F7181A9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411014   (429741) от 24.09.2020
+
+Zoner Photo Studio X 19.2009.2.276 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2657537CB48BED57B5E96E1769B7B49326EFB70E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411101   (429742) от 24.09.2020
+
+Ace Frehley - Origins, Vol 2 (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times, Bad Times (3:24) (Originally by Led Zeppelin)
+02. Never in My Life (4:04) (Originally by Mountain)
+03. Space Truckin’ (5:04) (Originally by Deep Purple)
+04. I’m Down (2:59) (feat. John 5) (Originally by the Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFFA21B26BC200B940D531557A404242E345016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411145   (429743) от 24.09.2020
+
+QLab Pro 4 v4.6.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429743.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 22.09.2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCABE554C62900A4217BB2FEA9A3F11493199D08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411039   (429744) от 24.09.2020
+
+La Maschera Di Cera - S.E.I. (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il tempo millenario [00:21:35]
+02. Il cerchio del Comando [00:09:56]
+03. Vacuo senso [00:13:30]Жанр: Progressive Rock, Art RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE369E0401CB90C8D4AA33D1AE64496BE727D492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411241   (429745) от 24.09.2020
+
+Wondershare DVD Creator 6.1.4.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
+Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2020Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EC14637AC2D4B1322BB800B679FAF074EB083B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411064   (429746) от 24.09.2020
+
+Аманда Квик | Искушение (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Импульсивная, эксцентричная Гарриет Померой больше всего на свете любила охотиться за древними окаменелостями в приморских пещерах. И внезапно она с ужасом обнаружила, что ее любимые «охотничьи угодья» служат пристанищем для опасной бандитской шайки! Хрупкой девушке ни за что справиться с этими негодяями, ей нужен в защитники сам дьявол… такой, к примеру, как Гидеон (   Читать дальше...   )Жанр: Любовный романПродолжительность: 11:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F763EBA0282E35FBB82B759B6DE0BD7AC3479F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411246   (429747) от 24.09.2020
+
+Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|tracks|Vinyl] <Drum n Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Are You (06:45)
+ 02. Serpent Navigators (06:14)
+ 03. London Step (05:40)
+ 04. Nu Birth Of Cool (Rogue Unit Mix) (06:29)Жанр: Drum n Bass, JungleПродолжительность: 00:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87D8618244836FC240CC89A89F51DAD4C1ADD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

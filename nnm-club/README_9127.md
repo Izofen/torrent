@@ -1,26 +1,680 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1264383   (281152) от 23.11.2018
+
+VA - Звёздные фабриканты: Лучшее (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влад Соколовский - Катя (4:04)
+02. Дмитрий Колдун - Дай мне силу (3:08)
+03. Доминик Джокер - Плачут небеса (4:35)
+04. Зара - Любовь-красавица (4:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E8BE899E255CE6DE5EA19A34866F3AA59C75A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264309   (281153) от 23.11.2018
+
+Веселая пасха / Joyeuses Pâques (1984) [BDRip] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Бельмондо, преуспевающий бизнесмен и неисправимый ловелас, проводив жену в аэропорт, тут же знакомится с юной прелестницей. Он приводит ее к себе домой, но внезапно возвращается жена. Пытаясь выкрутиться, герой Бельмондо выдает девушку за свою дочь…Производство: Франция / Cerito Films, Sara FilmsЖанр: КомедияРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Софи Марсо, Мари Лафоре, Рози Варт, Мишель Бон, Мари-Кристин Декуар, Жерар Эрнандес, Элизабет Кольаммар, Флора Альберти, Марк ЛамольПеревод: Профессиональный многоголосый и профессиональный двухголосыйСубтитры: Русские  (вшитые, отключаемые)Продолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B7D68FCF3F7539DEF9164AEDD893EEA0320D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264330   (281154) от 23.11.2018
+
+VA - Italodisco Remix And Reloaded (2018) [MP3|320 Kbps] <Italo Disco, Reloaded>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Martinelli - Cenerentola
+002. Gina - Let Me Free (Single Version)
+003. Marc Reason - I Like Chopin (Radio Mix)
+004. Rick The Moore - It's Love(   Читать дальше...   )Жанр: Italo Disco, ReloadedПродолжительность: 08:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F418D686ECE8231F3FC7E7C3E124938981D0E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264358   (281155) от 23.11.2018
+
+In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Empty Streets
+2. Substance Vortex
+3. Respect My Solitude
+4. Cloud Seeder(   Читать дальше...   )Жанр: Doom Metal, Atmospheric Black MetalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264293   (281156) от 23.11.2018
+
+Дм. Дьяков | Профессиональное и рабочее образование в Америке и Австралии (1928) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281156.jpg" />
+</div>
+
+
+###  Подробнее
+
+В связи с индустриализацией СССР проблема профтехнического образования приобретает колоссальное практическое значение. И естественно, что в этой работе опыт таких стран, как Соединенные Штаты и Австралия, вдобавок, опыт очень мало нами изученный, представляет для нас крупный интерес.
+
+Предлагаемая вниманию читателя книга тов. Дьякова и имеет своей задачей осветить (   Читать дальше...   )Жанр: История, политология, психология, социология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC40004C601989379A52ADB57C251E5EDCE787BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264389   (281157) от 23.11.2018
+
+VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Der Waldlaufer - Yanaras Light (original mix) 04:34
+02.  Island Sun - Be Happy The Day (Endless Fly mix) 05:56
+03.  Marga Sol - Hold Me (original mix) 04:59
+04.  Frank Borell - Mystic Colours (In Heaven mix) 05:59(   Читать дальше...   )Жанр: Ambient, Chillout, LoungeПродолжительность: 01:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264329   (281158) от 23.11.2018
+
+VA - Time2Dance Best of '90s - '00s, (Vol. 1-2) 2CD (2018) [MP3|320 Kbps] <Europop, House, Techno, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Time2dance: Best of 90s - 00s, Vol.1:
+01. U.s.u.r.a. - Open Your Mind (Radio Mix)
+02. Alex Gaudino, Crystal Waters - Destination Calabria (Radio Edit)
+03. Aladino - Brothers in the Space (Grunge Happy Mix)(   Читать дальше...   )Жанр: Europop, House, Techno, ItalodanceПродолжительность: 04:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FEA094D4B20199E98692A10A68CC5903F78F17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264356   (281159) от 23.11.2018
+
+Canary Mail - Encrypted Email 2.15 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Французский, Итальянский, Финский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C476798C7566B768ECAC9A9AEF40D393DB48B885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264346   (281160) от 23.11.2018
+
+Pagan's Mind - 5 Albums, 2 Lives (2000 - 2015) 13 CD [FLAC|APE|Lossless|tracks + .cue|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pagan’s Mind — метал-группа из Норвегии, исполняющая музыку в стиле прогрессивный метал, образованная в 2000 году и в этом же году выпустили свой первый альбом. В 2005 году альбом «Enigmatic : Calling» занял 15 место в норвежских чартах. В ноябре 2007 года группа выпустила свой новый альбом «God's Equation», который, как и все прошлые был записан в Норвегии и занял (   Читать дальше...   )Список альбомов:
+2000 - Infinity Divine
+2002 - Celestial Entrance
+2005 - Enigmatic Calling(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 14:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49548D347A4216ACA7D4EEADED89EDBCBF92DCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264433   (281161) от 23.11.2018
+
+Александр Петрушевский | Разсказы про старое время на Руси (1915) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монголо-татарское иго на Руси, 13-15 вв.
+Для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD36BC76288819F0C7FB03757AD11CA5E89B0D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264373   (281162) от 23.11.2018
+
+Vivaldi 2.1.1337.51 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB7894BFAADB027F4E3282288885CB7599CA7DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264429   (281163) от 23.11.2018
+
+Декабрь - Она одна (2018) Single [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Она одна
+2. Где тыЖанр: Hard RockПродолжительность: 00:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B46BEC65F44376DF243506642019624E7AD84E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264240   (281164) от 23.11.2018
+
+iStat Menus 6 v6.30 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281164.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS High Sierra.
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться работой, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2018Разработчик: Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D449512C12B00E69998BF3218AE336CCECC1975
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264268   (281165) от 23.11.2018
+
+The Beaches - Late Show (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Of My Heart
+02. Money
+03. Moment
+04. Let Me Touch(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C620CDE97C698A44BF46D38430BA3271A42F9F15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264288   (281166) от 23.11.2018
+
+MovieMator Video Editor Pro 2.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281166.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 года в процессе создания, Video Editor MovieMator наконец-то стал простым, но мощным программным обеспечением для редактирования видео. Он не только позволяет пользователям выполнять все основные работы по редактированию, такие как обрезка, обрезка, разделение, поворот, слияние и многое другое, но также предоставляет более продвинутые функции редактирования, такие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: EtinysoftПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85A5AEA710B7A8CE161E5E904A47BDC8091C002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 424297   (281197) от 18.12.2011
+
+Nox Arcana - The Dark Tower (2011) [MP3|128-192 kbps]<Neo-Classical, Dark Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281197.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:47]  01. Darkness Rising
+[03:29]  02. Born Of The Night
+[02:47]  03. Crimson Thirst
+[02:55]  04. Vasaria
+[03:25]  05. Vesper Tolls
+[03:49]  06. Path Of Shadows
+[01:31]  07. Banshee
+[02:45]  08. Ghost At The Gate
+[01:56]  09. Nightwatcher
+[04:31]  10. The Dark Tower(   Читать дальше...   )2011Жанр: Neo-Classical, Dark AmbientПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733808   (281221) от 15.12.2013
+
+Открытая могила / Open Grave (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281221.jpg" />
+</div>
+
+
+###  Подробнее
+
+История человека, который однажды обнаруживает себя в яме в окружении трупов. При этом он ничего не помнит, не знает, кто он, откуда и как сюда попал. С помощью товарищей по несчастью, тоже потерявших память, он должен вычислить убийцу, который, по всей вероятности, находится среди них.Производство: США | Atlas Independent, 852 Films, Speranza13 MediaЖанр: УжасыРежиссер: Гонсало Лопес-ГальегоАктеры: Шарлто Копли, Джозеф Морган, Томас Кречман, Эрин Ричардс, Джози Хо, Макс Роттсли, Кати Домби, Ева Ботос, Марта Сабо, М. ФрайксПеревод: Двухголосый закадровый, любительский (DeadSno & den904)Субтитры: ОтсутствуютПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662BB0CBCBB34AAF91DB3848AF9B77A6E8D5EB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264094   (281232) от 23.11.2018
+
+Владимир Дегтярёв | Коварный камень изумруд (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281232.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун 1797 года офицер фельдъегерского полка Её Императорского Величества Екатерины Второй поручик Александр Егоров по воле злого случая стал дезертиром. Сбежал в Америку, где, опять же волей злого случая, пересидел русско-персидскую войну, войну с Наполеоном. А злым случаем был огромный камень изумруд, каковой по милости сильных мира сего перемещался по странам (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2F58190C6C26CF4C8E63F1D3B26BE0E9A02B4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264327   (281233) от 23.11.2018
+
+VA - Enhanced Lounge And Chillout (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Entheogenic - Kykeon
+002. Donatello - Tears
+003. Fade - Space (Original Mix)
+004. Farsot - Erde I(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071581F505CDCB64ADDA3226412F9BB5A3C72319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264509   (281234) от 23.11.2018
+
+Формула 1. Сезон 2018. 21-й Этап. Гран-при Абу-Даби. Свободная практика 2 (23.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281234.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 2018 года, пятница. 16:00 МСК
+Формула 1. 21-й Этап сезона 2018 года. Гран-при Абу-Даби. Абу-Даби (ОАЭ).
+Свободная практика 2
+Кругов:	71 - Длина круга:	4,309 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4962041AFA4896005F84D8F9ECD04C43D106359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264336   (281235) от 23.11.2018
+
+VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
+02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
+03. Brian Flinn & Type 41 - Back to Yesterday
+04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264507   (281236) от 23.11.2018
+
+Формула 1. Сезон 2018. 21-й Этап. Гран-при Абу-Даби. Свободная практика 1 (23.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281236.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 2018 года, пятница. 12:00 МСК
+Формула 1. 21-й Этап сезона 2018 года. Гран-при Абу-Даби. Абу-Даби (ОАЭ).
+Свободная практика 1
+Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE94762FE49A5DEB00FC20570D3A1FBAC6CE6F11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264231   (281237) от 23.11.2018
+
+EdgeView 2 v2.476 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281237.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 2 - это новейший просмотрщик изображений; вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения; вы также можете напрямую подключиться к FTP и открывать файлы; EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F67A54F4C9954FF87BAF842393DE4ADB062B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264510   (281238) от 23.11.2018
+
+Count Five - Psychotic Reaction (1966) Remastered, 2007, Repertoire Records [MP3|320 Kbps] <Psychedelic, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double-Ducker Bus
+02. Pretty Big Mouth
+03. The World
+04. My Generation(   Читать дальше...   )Жанр: Psychedelic, Garage RockПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353A37A9BBBB7F11C1F30DCA4E20F6FB19D7CAF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264313   (281239) от 23.11.2018
+
+VA - Future Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281239.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. N3v1773 - Aztech
+002. Alpha Portal - Full Throttle
+003. Klaustrophobia - Distant Vantage Point
+004. Bionix - Days of Light (Original Mix)(   Читать дальше...   )Жанр: Psychedelic, Goa, TranceПродолжительность: 12:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9B0C973914F43AD6545676EF8763BDF7C23908
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264334   (281240) от 23.11.2018
+
+VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz vs. Jam El Mar – The Lotus
+02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
+03. Raito – Dark Ritual
+04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

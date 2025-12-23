@@ -1,26 +1,670 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1038251   (608613) от 27.07.2016
+
+VA - Midnight Passion Elite Jazz (2016) [MP3|320 Kbps] <Jazz, Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemonjazz - Close Your Eyes - Erotic Sunset to Sunrise Mix
+02. Acid Jazz Johnson - Midnights Mood
+03. Hildegard lernt fliegen - Suite for muderers & drinkers
+04. Enrico Pieranunzi - Prolusion(   Читать дальше...   )Жанр: Jazz, Blues, SoulПродолжительность: 04:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1BFC79A3B0B59E27444A47D520BE48561965B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038194   (608614) от 27.07.2016
+
+VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.2 (2015) [MP3|192-320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 | Seoan | Far from Paradise (Heaven Voices Mix) | 04:18min
+002 | Frank Borell | Feel the Space (Final Fly Mix) | 04:40min
+003 | Spiritchaser | Yesterday's Gone (Club Mix) | 06:44min
+004 | The Beloved | The Sun Rising | 04:59min(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 03:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B4182C5B84665B001D52E3FFAE35630CC05D6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354669   (608622) от 24.06.2011
+
+Левостороннее Движение - Легендарные песни (2004) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B6686DC7DD58D721F58F15F77CE6090AABE935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296945   (608635) от 19.04.2019
+
+Airwave - 20 Years - Remastered Classics (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwave – I Want To Believe (Remastered Remix)
+02. Airwave – Above The Sky (Remastered Original Mix)
+03. Airwave – Alone In The Dark (Remastered Original Mix)
+04. Airwave – Lightspeed (Remastered Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C81E57175B397468D305F59ED93AA11C62BB271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296928   (608636) от 19.04.2019
+
+Akado - A U R A (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A U R A (3:23)
+ 02. A U R A (Instrumental) (3:23)Жанр: Alternative Rock, Indie RockПродолжительность: 00:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CF5526DB278BD7D1DFAF10434F2DFEE7B31F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296936   (608637) от 19.04.2019
+
+Internet Download Manager 6.32 Build 10 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247FE3E748188F2FAB0AFCA57A9AC9532E7950E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296627   (608638) от 19.04.2019
+
+Хадзимэ Камосида | Кошечка из Сакурасо [Книга 4] (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японская школа искусств Суймэй славится своим общежитием и домом под названием «Сакурасо». Жизнь общежития регламентирована сводом строгих правил, но совсем другое дело «Сакурасо». Здесь запретов и правил нет, именно поэтому его и называют психушкой. В «Сакурасо» живут неординарные личности , выделяющиеся из толпы. Именно благодаря этому, здесь всегда интересно и (   Читать дальше...   )Жанр: Комедия,ПовседневностьПродолжительность: 05:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD55A857510BEAE5B74869243A8C401A21971A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296419   (608639) от 19.04.2019
+
+Александр Спахов | Лицо для Риты (2019) [MP3, Александр Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец девяностых. Рита Пестова получает письмо из Парижа с приглашением на вскрытие завещания своего мужа. Она в растерянности, ведь муж исчез три года назад, в Москве. Что это? Знак свыше или чьи-то хитроумные происки? И что сулит Рите это завещание? Безумные приключения или шанс начать новую жизнь?Жанр: Шпионский детективИздательство: АКПРЕССПродолжительность: 08:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCBAADB9B847568A136A8E6717F31D371BDF661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296801   (608640) от 19.04.2019
+
+Sabine Sauvant & Compagnie - To The Music Hit-Makers (1978) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabine Sauvant - To The Music Hit-Makers (Part I, Part II) (10:45)
+02. Claudia Field - The Son Of Hickory Holler's Tramp (4:32)
+03. Claudia Field - Pastime Paradise (3:47)
+04. Red Face - (I Can't Get No) Satisfaction (4:11)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A8B45A8656585CAA33A7CE5B98D22FB33999A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296211   (608641) от 19.04.2019
+
+Игорь Ткаченко | Эписодии одного Армагеддона (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокруг много миров, но никак не удается ему попасть в тот единственный, в котором он был счастлив и безмятежен. А вокруг бурлят события, идет битва с изродами. Но что стоит за всем этим? И где найти Веронику, мечту-любовь, если её не удается найти ни в Новом Армагеддоне, ни в Дремадоре, ни в других мирах??Жанр: ФантастикаПродолжительность: 04:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8342CA7895D8A99BC2840856F130DCFA4C54B74D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296938   (608642) от 19.04.2019
+
+Николай Гомолка | Шестой океан (1961) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Николая Гомолки давно полюбился ребятам. Редакция и автор получили много писем, которые говорят о возросшем интересе юного читателя к проблемам космических перелетов, к новейшим достижениям науки и техники.
+События последних лет — запуск автоматической ракеты, с которой была сфотографирована обратная сторона Луны, беспримерный полет Юрия Гагарина заставили (   Читать дальше...   )Жанр: фантастика, детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF449117989CA419891D68267C17CBBA9D66AFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296645   (608643) от 19.04.2019
+
+Василий Смирнов | Открытие мира. [Книга 1] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга романа-эпопеи Василия Александровича Смирнова "Открытие мира".
+Мир русской деревни в канун первой мировой войны и революционных событий.
+Мир, день за днем открываемый через восприятие смышленого пытливого деревенского парнишки Шурки, большой и сложный мир, полный горя и радостей, мрака и света.Жанр: Современная прозаПродолжительность: 13:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B9A03B2221B0F2AB59C728BB705BEAF7D37D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296951   (608644) от 19.04.2019
+
+Б. Пастернак и др. | Крестный Путь. По стихам русских поэтов (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крестный путь воссоздаёт в памяти верующих основные моменты страданий Спасителя. Молящиеся в единении со скорбящей Богородицей мысленно сопровождают Спасителя на Голгофу, совершая 14 стояний, размышляя о Его крестных муках и прославляя Его искупительный подвиг.
+Уже в первые века христианской эры в Иерусалим из разных стран стали устремляться паломники, желавшие явственнее (   Читать дальше...   )Жанр: Молитва, поэзияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9017FBFEC12CA0924C78A71778B53571045444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296817   (608645) от 19.04.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 April (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orjan Nilsen X Dennis Sheperd X Nifra X Estiva - Cabin Fever (Extended Mix)
+02. Giuseppe Ottaviani - Panama (Extended Mix)
+03. Markus Schulz & Christina Novelli - Symphony of Stars (Festival Mix)
+04. Dave Neven - Lethal (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731587F34A539C30EE5E09499BC6CA88CD755BD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296206   (608646) от 19.04.2019
+
+Лестер дель Рей | Небо падает (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небо падает. Причём, огромными кусками. Для мира, где всё держится на магии, а магия завязана на знаки зодиака, это катастрофа.
+Справится с ней у правителей не получается, и тогда, для того, чтобы починить небо маги призывают инженера с Земли. Нашего с вами современника.Жанр: ФэнтезиПродолжительность: 04:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8762DDC73BD5C9D2A992C11220DF1BE21A53627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296913   (608647) от 19.04.2019
+
+Antreib - Назад дороги нет (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Назад дороги нет
+02. Панк-рок
+03. Кто, если не ты?
+04. Наши голоса(   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281D62A497D5091D599A246F4BEC55EB47F253F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296939   (608648) от 19.04.2019
+
+Журнал | Лена. Креатив №11 (2018) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изысканные салфетки, связанные крючком, изумительные вышивки крестом и гладью, мастер-класс по обратному декупажу, украшения в технике квиллинг и многое другое... Всё для вас!Жанр: вязание, вышивание, крючокФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B1A3D3B89DFB325DC4B026CE163B64ADD8AD8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296424   (608649) от 19.04.2019
+
+Оноре де Бальзак | Неведомый шедевр. Поиски абсолюта (2019) [MP3, Владимир Панфилов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608649.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Неве́домый шеде́вр» (Le Chef-d’œuvre inconnu) — новелла Оноре Бальзака, опубликованная в 1831 году под названиями «Метр Френхофер» и «Екатерина Леско». Через 15 лет была включена в состав «Человеческой комедии» под названием «Неведомый шедевр».
+По жанру это характерная для литературы романтизма новелла о художниках. Другими примерами этого жанра могут (   Читать дальше...   )Жанр: Зарубежная литератураИздательство: Нигде не купишьПродолжительность: 10:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413BD0D0E0475CE039E92C2BF14FDABE148CAD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296966   (608650) от 19.04.2019
+
+Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Psytech>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live. Love. Create (Protoculture Remix) (07:20)
+02. Live. Love. Create (Austin Leeds remix) (09:09)
+03. Live. Love. Create (09:04)Жанр: Progressive House, Techno, PsytechПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26628391573A6F6F16C789B11C8820E7728FBE64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296890   (608651) от 19.04.2019
+
+Marracash & Gue Pequeno - Santeria (Voodoo Edition) (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop, Italian>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninja (3:42)
+02. Ca$hmere (3:39)
+03. Piazza Rossa (3:37)
+04. Scooteroni (RMX) (4:32)(   Читать дальше...   )Жанр: Rap, Hip Hop, Italian |Продолжительность: 00:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72D57BF2A37DDADFE7C2E2DD0D6C300ADBF8712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296791   (608652) от 19.04.2019
+
+Paul Weller - Stanley Road (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Changingman (04:03)
+02. Porcelain Gods (04:53)
+03. I Walk On Gilded Splinters (05:23)
+04. You Do Something To Me (03:39)(   Читать дальше...   )Жанр: Indie Rock, Rock & RollПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9E4169765F2B0D5D45E40E05F5A44EDEF6942F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296773   (608653) от 19.04.2019
+
+The Beautiful South - Miaow (1994) [FLAC|Lossless|tracks + .cue] <Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on to What? (06:29)
+02. Good as Gold (Stupid as Mud) (03:51)
+03. Especially for You (03:50)
+04. Everybody's Talkin (Fred Neil) (02:29)(   Читать дальше...   )Жанр: Brit PopПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD06E26337A59D78E1FF1AD8A84427B6C97D1ABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296935   (608654) от 19.04.2019
+
+VA - Markus Schulz - Global DJ Broadcast: In Bloom (All-Vocal Trance Mix) (2019) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz featuring Nikki Flores - We Are the Light (Intro Mix)
+02. Eli & Fur - Parfume (Dosem Remix)
+03. Max Graham featuring Jessica Jacobs - I Know You're Gone
+04. Ferry Corsten & Nevve - Freefall (Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715EC7D8E642E0ED47D0C13312753A1479B0DE39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464606   (608657) от 16.06.2018
+
+Тайны века. Валентина Терешкова. Звезда космического счастья (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валентине Терешковой было 26 лет, когда к ней, первой в мире женщине-космонавту, пришла слава, которой не знала ни одна женщина на планете.
+Ее именем названы малая планета и лунный кратер. Ей присвоен титул "Величайшая женщина ХХ века". Ее собеседниками мечтали стать короли, президенты, генеральные секретари, миллионеры, звезды. Чем обернулась для нее слава, (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FD5D275CF5C8543CF71E4F4EC3B1793127C2EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231062   (608661) от 16.06.2018
+
+VA - Global Explosion Progressive House 8 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Sparkes - Worgull (original)
+02.  C-Jay - Shogun (Dirty Disorder remix)
+03.  Alexi Bongioanni - Do It Yourself (original mix)
+04.  Downpour - Cloudy (original mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E96626243AFDB2292F344726DE6D3156449E05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985789   (608662) от 16.06.2018
+
+Оркестр Большого Театра, Дирижер Геннадий Рождественский - Петр Ильич Чайковский, Щелкунчик (1960) 2CD, 1999 Мелодия [FLAC|Lossless|tracks + .cue] <ballet>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Щелкунчик: Действие II, Картина III. Дворец сластей Конфитюренбург (3:56)
+02. Щелкунчик: Действие II, Картина III. Прибытие Мари и Щелкунчика (4:15)
+03. Щелкунчик: Действие II, Картина III. Дивертисмент (а) Шоколад: испанский танец (1:07)
+04. Щелкунчик: Действие II, Картина III. Дивертисмент (б) Кофе: арабский танец (3:04)(   Читать дальше...   )Жанр: BalletПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C9252E999E4DF949BF28008C15DBA2454571C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

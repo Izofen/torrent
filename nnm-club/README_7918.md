@@ -1,26 +1,665 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1637866   (238253) от 06.06.2023
+
+Blue Recluse - Rarely Fatal - Rarely Fatal (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Me Ragged (4:40)
+02. Black Coffee (3:35)
+03. Hard and Sure (5:38)
+04. Bad Rooster (6:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3788907BB042D3F6224396DEFC89B94FB5BAAB6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580601   (238254) от 02.10.2022
+
+Wizzerd - Space? Issue No. 001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Launch [00:01:51]
+02. Sisters of the Sun [00:04:17]
+03. Super Nova [00:02:18]
+04. Attack of the Gargantuan Moon Spiders [00:04:53](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3D4C72FA89605D59D6F716FF9B0AD2F884FA50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491854   (238255) от 27.08.2021
+
+Журнал | Auto Express [UK] №34 (август 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auto Express — еженедельный британский автомобильный журнал, издаваемый Dennis Publishing с 1988 года. Единственный еженедельный конкурент популярного издания Autocar. Сотрудничает с немецким журналом Auto Bild и французским Auto Plus. В 2011 году являлся самым продаваемым автомобильным журналом в Великобритании.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2846CC1C90C00F5EA0ECDFBF917F852BC956D4E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623708   (238256) от 03.04.2023
+
+VA - Night Grooves (House Edition), Vol. 2 (2023) [MP3|320 Kbps] <House, Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kosmoss - Gosling (Original Mix) 02:47
+02. Sharkhuman - Dark Is Love (Extended Mix) 05:21
+03. Clay Pirinha - I Can't Feel Your Heart 03:30
+04. Andrew James - Talking Top (Original Mix) 04:01(   Читать дальше...   )Жанр: House, Deep House, Chill HouseПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D518C42A42305D2FC6BDD2A598687900A26B45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629111   (238257) от 25.04.2023
+
+Люсинда Райли | Семь сестер. Сестра солнца (2022) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестой роман цикла «Семь сестёр».
+Для всего мира Электра – настоящая счастливица, знаменитая модель, ее образу жизни могут позавидовать многие. Но обратная сторона популярности – жизнь под прицелом фотокамер – убивает ее психическое здоровье. Разрыв с известным рок-музыкантом, в которого Электра была по-настоящему влюблена, а затем весть о смерти приемного отца Па (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Зинаида КрасневскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8019558B7635F47621BC1C7FB61040CA262F819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629266   (238258) от 26.04.2023
+
+Валентин Ковалев | Законы природы и бизнес (2022) [MP3, Сергей Кузьмин]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому человеку свойственно задумываться:
+В чем смысл его существования?
+Каково его предназначение?
+Почему на его жизненном пути встречаются испытания?(   Читать дальше...   )Жанр: ПсихологияПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBF066FD94EDFBA834867E98F93146BC269D3EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639472   (238259) от 13.06.2023
+
+MediaHuman YouTube Downloader 3.9.9.82 (1006) RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238259.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE784A2B59B4B395A93DD04DBA59FD000C989C08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637535   (238260) от 06.06.2023
+
+Bloodgutter - Death Mountain (2023) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katabatic Death Wind
+02. Rot Awaits
+03. Artillery Supremacy
+04. Torture Sacrifice(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6337412D36133B0CCFFC7C0D0F6697FF4544622F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573136   (238261) от 30.08.2022
+
+CyberLink PowerDirector Ultimate 20.8.3211.0 (x64) [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238261.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBB5CF8ED49185C4E4C5D0F10580AE14B3B83CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445559   (238262) от 06.02.2021
+
+VA - Fokuz Recordings - 2017 Recap (2017) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edlan - Blades (05:39)
+02. The Vanguard Project - In The Ground (05:16)
+03. Air.K & Cephei - Savannah (Gerra & Stone Remix) (04:47)
+04. Need for mirrors - Vantage (05:14)(   Читать дальше...   )Жанр: JungleПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3067CA2C10D5A1552949D468D850B8AD252851B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580596   (238263) от 02.10.2022
+
+Toxik - Dis Morta (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dis Morta [00:04:32]
+02. Feeding Frenzy [00:03:50]
+03. The Radical [00:04:11]
+04. Power [00:04:17](   Читать дальше...   )Жанр: Technical Speed, Thrash MetalПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF514EF796B649E771F40410531FF849DAB69216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623798   (238264) от 03.04.2023
+
+Радуга Финиана / Finian s Rainbow (1968) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий написан на основе одноимённого мюзикла 1947 года. Финиан приехал из Ирландии в Америку со своей дочерью Шерон в надежде обрести покой и счастливую жизнь. Для улучшения благосостояния отец привез с собой и волшебный горшок с золотом, который он украл у лепрекона по имени Ог, жителя волшебной страны. Финиан закапывает горшок рядом с домом в ожидании наступления (   Читать дальше...   )Производство: США, Warner Brothers/Seven ArtsЖанр: мюзикл, фэнтези, семейныйРежиссер: Фрэнсис Форд КопполаАктеры: Фред Астер, Петула Кларк, Томми Стил, Дон Фрэнкс, Кинэн Уинн, Барбара Хэнкок, Эл Фримен мл., Рональд Колби, Дольф Свит, Райт Кинг, Луис СайлэсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F32179E054EA242BBA080BA779F011F04F1998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547764   (238265) от 30.04.2022
+
+Камон Камон / C'mon C'mon (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоведущий Джонни, который живёт один, без жены и детей, и соглашается присмотреть за сыном своей сестры — 9-летним Джесси. Однако вскоре после этого Джонни вызывают обратно на работу в Нью-Йорк, и племянник едет вместе с ним. Совместное путешествие навсегда изменит каждого из них. Трогательная история об отношениях взрослых и детей.Производство: США, A24Be, Funny When You CanЖанр: ДрамаРежиссер: Майк МиллсАктеры: Хоакин Феникс, Вуди Норман, Габи Хоффманн, Скут МакНэри, Молли Уэбстер, Джабук Янг-Уайт, Дебора Стрэндж, Санни Паттерсон, Дженни Элиску, Мэри ПассериПеревод: Дублированный, Любительский двухголосыйСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73747069077D71FBE98F58D020A006951517F57F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629123   (238266) от 26.04.2023
+
+VA - This Is Deep House 2023 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Corbalan - In Your Arms (Extended Mix) (3:57)
+02. Audioboy - Fall Apart (Extended Mix) (4:02)
+03. Remundo - Malaga (Extended Mix) (3:27)
+04. Nik Stone feat. Joey Law - Brush Fire (Extended Mix) (3:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCD4BA62039A33908765D4B24360A02CD9F95CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629037   (238267) от 25.04.2023
+
+BABY Audio - Crystalline 1.3.0 VST, VST 3, AAX (x86/x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы спросили себя, что бы сделали пионеры легендарной цифровой реверберации, если бы у них были ресурсы, которые есть у нас сегодня, — и тогда мы сделали Crystalline, со всеми прибамбасами, которые понадобятся современному инженеру.
+Crystalline - это новый, ультрасовременный плагин реверберации с первозданным и современным звуком.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054A6D6AC09FEFB6408969AD9C5414E9F76EC3B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639342   (238268) от 13.06.2023
+
+Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clutch — американская рок-группа из города Джермантаун, штат Мэриленд.1993 - Transnational Speedway League
+1995 - Clutch
+1997 - Impetus (EP)
+1998 - The Elephant RidersЖанр: Stoner RockПродолжительность: 14:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573229   (238269) от 30.08.2022
+
+MacDroid Pro 1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238269.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacDroid поможет вам преодолеть барьер передачи данных между Android и Mac. Передача фотографий, видео, музыки и папок между компьютером Mac и устройством Android, подключенным через USB. Все, что вам нужно, это MacDroid.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2021 Electronic Team, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B756EEDB127C30B936C39FAA517F8849F599DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580560   (238270) от 02.10.2022
+
+Autonoesis - Moon of Foul Magics (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile (03:59)
+02. Moon of Foul Magics (09:20)
+03. Raise the Dead (04:54)
+04. Crypt of Thought (07:11)(   Читать дальше...   )Жанр: Melodic Thrash, Black, Death MetalПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC960D9D8CC79BE88C31C1482066123F5DF75444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445544   (238271) от 06.02.2021
+
+Newt - 37 °C (1999) Flatline Records [FLAC|Lossless|tracks+.cue] <IDM, Drum n Bass, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patina (06:39)
+ 02. Phasenverschiebung (06:51)
+ 03. Testone (05:30)
+ 04. Abyss (07:08)(   Читать дальше...   )Жанр: IDM, Drum n Bass, Techno, ExperimentalПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316A961315319A67500AF7AC95CD46687B8C958D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623814   (238272) от 03.04.2023
+
+System Toolkit 5.14 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238272.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 03.04.2023Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BB46D093D6FDE18DE3027867F2CC98E2BEBB41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547956   (238273) от 30.04.2022
+
+От кутюр / Haute couture (2021) WEB-DL [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эстер всю жизнь проработала швеей в мастерской дома Dior. Женщина готовится к выходу на пенсию: она чувствует, что уже достигла вершины своей карьеры, став старшим специалистом. Однажды в метро у нее крадет сумку молодая девушка по имени Жади. В этот момент в сердце Эстер что-то дрогнуло: она не вызывает полицию, а берет юную воровку под свою опеку.Производство: Франция, Les films du 24, Les Productions du RenardJouror ProductionsЖанр: комедия, драмаРежиссер: Сильви ОайонАктеры: Натали Бай, Лина Кудри, Паскаль Арбийо, Клод Перрон, Сумэй Бокум, Адам Бесса, Александрина Туркан, Ромен Бро, Клодин Винсент, Фарида УшаниПеревод: Дублированный (iTunes)Язык озвучки: русскийСубтитры: нетПродолжительность: ~01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ABF49A75D11AEB6F58112BB3345B84AC762463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629284   (238274) от 26.04.2023
+
+CyberLink AudioDirector Ultra 13.4.2817.0 (x64) [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238274.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink AudioDirector Ultra – мощный инструментарий для обработки музыки. AudioDirector позволяет создавать собственные саундтреки с помощью многодорожечной записи, использовать средства микширования, автоматически удалять шумы и помехи и выполнять восстановление аудио. Благодаря возможности воспроизведения видео параллельно с редактированием звука пользователи (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (Русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42FA9EEF76529B10F8A4A5F7BB04DB2FFC8F79D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637458   (238275) от 04.06.2023
+
+Eddie Condon - 1942 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me Daddy [2:39]
+02. Fidgety Feet [2:42]
+03. Mammy O'Mine [4:22]
+04. Lonesome Tag Blues [4:06](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8F35BBDE09A42961C8ECA3D2A4B8281D24026A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491356   (238276) от 24.08.2021
+
+TunesKit Video Cutter 2.3.0 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный инструмент для резки видео, который может не только обрезать и объединять видео и аудио с сохранением 100% качества без потерь, но также редактировать и сохранять разделенные видеоклипы с несколькими эффектами в любом популярном формате для воспроизведения на любом устройстве.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFF09219AD3AC8D6E112E19459C765564A7362E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639406   (238277) от 13.06.2023
+
+Tibet - Tibet (1978) Remastered, 2013, Belle Antique [FLAC|Lossless|image + .cue] <Symphonic-Prog, Art-Space-Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238277.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fight Back (Dieter Kumpakischkis, Fred Teske, Jürgen Krutzsch, Karl Heinz Hamann, Allan Borel) - 4:59
+2. City By The Sea (Kalus Werthmann, Deff Ballin) - 4:24
+3. White Ships And Icebergs (Deff Ballin) - 6:15
+4. Seaside Evening (Kalus Werthmann) - 4:13(   Читать дальше...   )Жанр: Symphonic-Prog, Art-Space-Rock, KrautrockПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9ACCB809A85983EEF4187103439A6ACB50A071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445734   (238278) от 06.02.2021
+
+Сто к одному (06.02.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8399A0DD9E1CFD68444BCEAA33A032C8B77ECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

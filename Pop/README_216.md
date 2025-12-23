@@ -1,26 +1,708 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1298056   (602149) от 26.04.2019
+
+Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hustle
+02. (Hey Why) Miss You Sometime
+03. Walk Me Home
+04. My Attic(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DBFE9EE6CA2E4942C2D9F9EC2FB9BF09E35100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232224   (602333) от 23.06.2018
+
+TB Frank (ex. The Neon Judgement) & Baustein - Tock! (2018) [MP3|320 Kbps] <Alternative Pop, Electro Rock, IDM>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother of Earth
+02. Bombies
+03. Margarita
+04. Snow White(   Читать дальше...   )Жанр: Alternative Pop, Electro Rock, Electro Funk, EBM, IDM, Synthpop, ReggaeПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B41AF95B386578B3EF277C9DD30258524E5323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547457   (602378) от 29.04.2022
+
+VA - Billion Sellers - The Best Of DMC (Classic Mixes) (Vol.1) (2022) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatles - Ultimate Beatles Mix (Part 2 & 3) (Mixed By Kevin Sweeney)
+02. Elvis Presley - Elvis Presley Megamix (Brian Butler & Sharon Fisher)
+03. Michael Jackson - DMC 25 Years On Sony Megamix (Part 2 & 3) (Mixed By Rod Layman)
+04. Elton John - Elton John Megamix (Part 1 & 2) (Mixed By Rod Layman)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:19:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9EB5879299C871E35C89F979655FDB3E238165
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547438   (602468) от 29.04.2022
+
+VA - DMC Essential Club Hits 188 (2022) [MP3|320 Kbps] <House, Tech House, Techno, Electro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Take Me Out (Extended)
+02. Bolier & Moya - Cold Tonight (VIP Extended)
+03. Burns - Talamanca (Robin Schulz Extended Remix)
+04. Dario D'Attis & Dani Koenig Ft Ron Carroll - Come Back (Original)(   Читать дальше...   )Жанр: House, Tech House, Techno, Electro HouseПродолжительность: 01:18:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A43B6A33860A95BB84B6A29BC07F7D4B113DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297879   (602640) от 25.04.2019
+
+Madonna - The Confessions Tour (2007) CD [FLAC|Lossless|tracks + .cue] <Dance-Pop, Euro House, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Future Lovers / I Feel Love (8:00)
+02.Like a Virgin (4:12)
+03.Jump (4:53)
+04.Confessions (3:53)(   Читать дальше...   )Жанр: Dance-Pop, Euro House, DiscoПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C209666C220F3F43FB80BF1D542815889FAA4B09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297679   (602669) от 25.04.2019
+
+Chrysta Bell - ThisTrain (2011) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Train
+02. Right Down To You
+03. I Die
+04. Swing With Me(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2437F452DE986C2D25569BE3DD92368F84CE61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231868   (602767) от 22.06.2018
+
+VA - 50 Jahre Discofox (2018) [MP3|320 Kbps] <Disco, Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602767.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Anna-Maria Zimmermann - Tanz (DJ Echolot Mix)
+02. Annemarie Eilfeld - Dein Herz ist eine Geisterstadt (Radio-Edit)(   Читать дальше...   )Жанр: Disco, Pop, SchlagerПродолжительность: 01:16:53
+
+01. Thomas Anders - Love is in the Air (Radio Version)
+02. Bad Boys Blue - Come back and stay(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F9320528AFED6B52F4D265E1FCBD705251FC52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231814   (602770) от 22.06.2018
+
+VA - Disco De Ouro 18/19 (2018) [MP3|320 Kbps] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602770.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Quim Barreiros - A Feira
+02. Emanuel - És A Minha Vida(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:36
+
+01. Irmãos Verdades - É Demais
+02. José Malhoa - Há Baile Na Aldeia(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A6E67681DC6D3A65E7B432C30571C626C18A6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297713   (603086) от 24.04.2019
+
+Emly Starr - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мари-Кристин Марелс (нидерл. Marie-Christine Mareels; род. 5 сентября 1958 в Ларне, Бельгия) - бельгийская певица и киноактриса, более известная под псевдонимом Эмли Старр (нидерл. Emly Starr); представительница Бельгии на конкурсе песни Евровидение 1981.01. Do Svidaanja (4:07)
+02. Hey Aloha (Honolulu) (3:34)
+03. The Reason To Live (3:44)
+04. Up And Down (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6621AA80C0643E820C878E92AF54455611D0388B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297686   (603093) от 24.04.2019
+
+Chrysta Bell - Feels Like Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight We Rise
+02. Feels Like Love
+03. Red Angel
+04. Everest(   Читать дальше...   )Жанр: Pop Rock, Dream PopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7D95E91419DBE65B5FB3C43F1F79208E7101A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231943   (603175) от 21.06.2018
+
+Donna Summer - Love to Love You Donna (2013) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love To Love You Baby (Giorgio Moroder Feat. Chris Cox Remix) (4:21)
+ 02. Dim All The Lights (Duke Dumont Remix) (6:01)
+ 03. Hot Stuff (Frankie Knuckles And Eric Kupper As Director's Cut Signature Mix) (6:00)
+ 04. I Feel Love (Afrojack Remix) (6:00)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2D3EB6C301A8AF9E7682B90771E5C91E1D4777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231552   (603198) от 21.06.2018
+
+Italoconnection - Metropoli (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon (5:00)
+02. Humanize (3:55)
+03. Sleeping (4:39)
+04. King of the Night (3:39)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467FE3BC3DD30DFA5BD04C1AABDE0C33CD8A447C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231576   (603201) от 21.06.2018
+
+Tobias Bernstrup - 4 Albums, 1 EP (2002-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, EBM, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Me Wrong (4:28)
+02. Trannies At Night (4:22)
+03. 27 (4:19)
+04. Videodrome (5:00)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, EBM, ElectroПродолжительность: 03:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606FB001D96B490DC9B5514CB28A1D4365C8D415
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231526   (603241) от 21.06.2018
+
+Italoconnection - Metropoli (2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon (5:00)
+02. Humanize (3:54)
+03. Sleeping (4:39)
+04. King Of The Night (3:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767E187BB28651F1366096A7B58A3CFCEA75B226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088318   (603308) от 27.04.2022
+
+VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Underdog Project - Summer Jam
+02. Despina Vandi - C'est La Vie (Simera)
+03. J-Five - Find A-Way
+04. Neneh Cherry feat. Youssou N'dour - Seven Seconds(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5E520BF63A4475BA6500FA68A01B700DF1F5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547189   (603386) от 27.04.2022
+
+Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forever Blue - пятый альбом американского музыканта Chris Isaak'а вышедший 23 мая 1995. 15 марта 1996 года альбом был сертифицирован RIAA как платиновый, в Австралии альбом стал трижды платиновым, а в Канаде получил золото. Forever Blue был номинирован на Grammy в категории Best Rock Album, а сингл Somebody's Crying получил номинацию Grammy в категории Best Male (   Читать дальше...   )01. Baby Did a Bad Bad Thing (2:54)
+02. Somebody's Crying (2:48)
+03. Graduation Day (3:10)
+04. Go Walking Down There (2:50)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773B995ECB4B70A249997263C4EF57E2304705C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547227   (603427) от 27.04.2022
+
+VA - DMC Dance Mixes 299 Ibiza (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic & Luke J West - Paradise (Extended)
+02. Burns - Talamanca (Robin Schulz Remix)
+03. Charli XCX Ft Rina Sawayama - Beg For You (Just Kiddin Remix)
+04. Dave Aude & Nicole Markson - It's Your Body (Until Dawn Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:50 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AFA0F1729B248201C525B272A5957674AD4517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547221   (603434) от 27.04.2022
+
+VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso & Katy Perry - When I'm Gone (VIP Extended)
+02. Clean Bandit Ft. A7S - Everything But You (VIP Mix Extended)
+03. Deekline & Project 5 - Without You (Extended)
+04. Disco Fries - Family Affair (Hawk & Beyge Extended Remix)(   Читать дальше...   )Жанр: House, Breaks, Dance-pop, VocalПродолжительность: 01:18:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E1E58586C7095570386D0CAD64C5C97004A595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547225   (603436) от 27.04.2022
+
+VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aluna & Diplo & Durante - Forget About Me (Club Mix)
+02. Blinkie Ft. Izzy Bizu - Wind Blows (Extended)
+03. Burns - Talamanca (AmyElle Extended Remix)
+04. Chapter & Verse - You Know It's Time (Extended)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED57D06FF835547A5E189AF948D39CF5F186A675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148666   (603495) от 07.07.2017
+
+Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 What You Need 04:34
+02 Play Your Game 04:42
+03 Yours Faithfully 04:34
+04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297563   (603590) от 23.04.2019
+
+VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603590.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Barbie Young - Duppy Huppy (Happy Mix)
+002. Divina - Free 4 Love (Extended Dance Version)
+003. Alvin - Shocking Fever (Long Edit)
+004. Zippers - Buffalo Bill (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297582   (603596) от 23.04.2019
+
+Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Vocal >
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tonight We Rise
+02.Feels Like Love
+03.Red Angel
+04.Everest(   Читать дальше...   )Жанр: Pop Rock, Dream Pop, VocalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DC4B7E621AE7EA43D0E24A06F99824FCA2AC86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078975   (603801) от 26.04.2022
+
+VA - Фабрика звёзд Аллы Пугачёвой (5) (2004) 6CD [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Орбакайте и Михаил Веселов - Ты буди меня
+02. "Корни" и Майк Мироненко - Ты объявила войну
+03. "Отпетые мошенники" и Лерика Голубева - Мани-мани
+04. "Hi-Fi" и Дарья Клюшникова - Не дано(   Читать дальше...   )Жанр: PopПродолжительность: 06:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D7424036162D20F7613D680CE67DB83007BC6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148319   (603908) от 06.07.2017
+
+Kat Mandu - I Wanna Dance (1995) CD, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Break (Remix) (8:44)
+02. Don't Stop Keep On (6:45)
+03. I Wanna Dance (6:28)
+04. Wanna Get To Know You Well (4:22)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1CBF7854410D866888CE79CCACA52AFFD5B5FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546975   (603915) от 26.04.2022
+
+VA - ZYX Italo Disco New Generation Vol. 20 (2022) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italoconnection - Rainbow Warrior (Feat. Tobias Bernstrup)
+02. Stockholm Nightlife Feat. Helly - Back Together Again (Cliff Wedge Extended)
+03. Suvage - Do You Want Me (Also Playable Mono ZYX Edit)
+04. Roberto Turatti - My Lover Feat. Jeffrey Jey & Chorma8 (Flemming Dalum Remix)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 2CD, 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FACD9F288448C05E79A8F6C02FB8E9F926E0049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297503   (604047) от 22.04.2019
+
+VA - Вечеринка у t.A.T.u. 2 (Unofficial) (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. МакSим - Заведи
+02. Пропаганда - Никто (Юрий Усачев Remix)
+03. Ariana - Я уже не помню слова
+04. Никита - Безумие лета(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5ACB09D5B10FCFBACBD80ED5F62AAACF4FE447
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

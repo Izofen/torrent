@@ -1,26 +1,723 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 938315   (481415) от 18.09.2015
+
+David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5 A.M.
+02. Rattle That Lock
+03. Faces Of Stone
+04. A Boat Lies Waiting(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC2C000FB7E91D19279382FDB4A62BD73DC858F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140441   (481544) от 15.09.2009
+
+KISS - Дискография (1974-2008) [MP3|320kb/s]<Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Glam RockФормат: MP3Продолжительность: 00:53:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405771   (481631) от 31.08.2020
+
+Three Colours Dark - The Science Of Goodbye (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter, Soubrette (04:58)
+ 02. Wonderland (How Can This Be Love) (05:24)
+ 03. Know You Now (04:30)
+ 04. Ghosts In The Wind (05:46)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0634E7570707CB44A480D179A0C7F5F3066D703D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237769   (482534) от 20.09.2010
+
+Sting - Discography (1985-2010) [MP3|320 kbps]<Rock / Soft-rock / Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1985-2003Жанр: Rock / Soft-rock / PopПродолжительность: 00:16:11
+
+01 | Rise And Fall (Radio Edit) feat. Sting | 04:00
+02 | Rise And Fall (MJ Cole Remix) | 06:15
+03 | Rise And Fall (Kings Of Souls Remix) | 05:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237382   (483046) от 20.09.2010
+
+Black Country Communion - Black Country (2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Black Country
+2.One Last Soul
+3.The Great Divide
+4.Down Again
+5.Beggarman
+6.Song of Yesterday
+7.No Time
+8.Medusa
+9.The Revolution in Me
+10.Stand (At the Burning Tree)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565795   (484615) от 28.07.2022
+
+Suspension Solar - Crisis del Arte (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crisis del Ser Abstracto [00:04:39]
+02. Ventanal [00:02:16]
+03. Despertar [00:05:14]
+04. Punto y Línea Sobre el Plano [00:06:40](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CEC34075A44E89A723DC936F192433805FA039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543593   (484753) от 10.09.2012
+
+Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial Rock, Alternative RockПродолжительность: 00:44:40
+1. So Far Away (4:10)
+2. Perfect (3:46)
+3. I Remember (5:43)
+4. Wasted (4:45)
+5. Happy (4:03)
+6. The Only Thing (5:38)
+7. Angel (4:22)
+8. Breathe You In (4:00)
+9. High (3:21)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66179C24EA105B549525F60B69B0D232AB19215B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545345   (485368) от 10.09.2012
+
+Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485368.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Heavy Into Ross (3:30)
+2.  Nightmare Epiphany (4:40)
+3.  Blues For Sandra (3:07)
+4.  Don't Fear The Reaper (acoustic version) (5:30)
+5.  Gammer Is Missing (3:23)
+6.  Fall At Your Feet (2:57)
+7.  Secret Road (4:39)
+8.  Loofah (3:09)
+9.  Real Estate Attorney (2:54)
+10.  I'm Alive (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3ADAFE1417D3F476DB3A5CE58C600419A9C3AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159230   (486250) от 19.08.2017
+
+Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486250.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Samantha's Rabbit
+2. Medley
+3. Woman Drum
+4. Der Elektrolurch(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158942   (488007) от 18.08.2017
+
+Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get A Feeling Going Round
+02. Two Circles
+03. Lucy
+04. Heaven(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3044FE50D43140526BEDDB067A6B8913EB46B996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158998   (488133) от 18.08.2017
+
+Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488133.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sitting In The Forest
+2. Garden Of Loneliness
+3. StonedЖанр: Prog Rock, KrautrockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B39ECF3093BF0BEC6E953D359B61D24E1CCCA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404922   (489254) от 27.08.2020
+
+Pink Floyd - Transmissions + 1969 (2020) Unofficial Release, 2xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489254.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Point Me At The Sky (04:22)
+ 02. The Embryo (03:27)
+ 03. Baby Blue Shuffle In D Major (03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71D6692DAE2DFB417558E569DF1939A86FBE6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544709   (489315) от 08.09.2012
+
+Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contact
+02. Skygarden
+03. Lost Years
+04. Freak Show
+05. No Point In Living
+06. Hollow Man
+07. Paranoia
+08. There Are Millions Of Reason To Carry On (Instrumental)
+09. Close To The Edge
+10. SequencesЖанр: RockПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C16D2FB0EE1F18DCE995443821A0B40E02F5B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565750   (490436) от 25.07.2022
+
+Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo-Classical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canticle
+02. Amber Skies: Shadows of My Becoming
+03. An Unfamiliar Embrace
+04. Bury Me in Silence(   Читать дальше...   )Жанр: Epic Doom, Neo-Classical MetalПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36456ECFA0BD1E42F963335E5CB94BE74C11EA24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565808   (490439) от 25.07.2022
+
+Joe Macre - The Dream Is Free (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dream Is Free [00:03:51]
+02. Tell Me [00:03:47]
+03. Ride Or Die [00:03:13]
+04. Drop Me Off At The Rainbow [00:04:58](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DED5CB406CC5ABD18F6CE98404E0931D0F5DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235713   (490640) от 16.09.2010
+
+Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pokka (Irina) (02:01)
+02. Sukset (Popeda) (02:20)
+03. Minttu Sekä Ville (Jonna) (02:48)
+04. Rising Sun (Asturm Und Drang) (02:25)
+05. Hyvännäköinen (Markku Aro) (02:19)
+06. Relax, Take It Easy (Mika) (02:42)
+07. O Fortuna (Carmina Burana) (01:00)
+08. Hetki Lyö (Kirka) (01:59)
+09. Ni Una Sola Palabra (Paulina Rubio) (03:03)
+10. Sleeping Sun (Nightwish) (02:37)(   Читать дальше...   )Жанр: Comedy Rock |Продолжительность: 01:01:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318861   (490679) от 08.08.2019
+
+Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Stars (Live)
+02. Sweet Freedom (Live)
+03. Gypsy (Live)
+04. Drum Solo (Live)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5B7E2C6C9AB86D566D1CA7AF14C4C77115D3AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404678   (491177) от 26.08.2020
+
+VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rolling Stones - Gimme Shelter
+02. John Mellencamp - Pink Houses
+03. Guns N' Roses - Sweet Child O' Mine
+04. The Who - Baba O Riley(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49AFB547629F9D76009E2A43702A162FC26C10B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565584   (492441) от 24.07.2022
+
+The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah, I Like You (4:24)
+02. War (4:34)
+03. Save Me From Myself (3:16)
+04. Let the Sun (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A373165D357CDD6D37BDCA40B9CFF5574E16F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404326   (493040) от 25.08.2020
+
+VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donovan - Season of the Witch (Re-Recorded / Remastered)
+02. Switchblade Symphony - Witches (Temple of Rain Mix)
+03. The Symphonic Rock All-Stars - Your Betrayal (Made Famous By Bullet for My Valentine)
+04. George Benson - Witchcraft(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A7982F13704F02FEDFFFBF4BB474617666E0A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158222   (493567) от 15.08.2017
+
+Sitting Bull - Trip Away (1971) Reissue, 2002, Long Hair [MP3|320 Kbps] <Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trip Away
+02. Song Of Junk
+03. Every Time
+04. Indian Fate(   Читать дальше...   )Жанр: Rock, KrautrockПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BA47C6166898FCA38172A9D1C968E904306404
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 139350   (494054) от 08.09.2009
+
+The Beatles - Ремастированная дискография (стерео) - Stereo Remastered Box (2009) [16CD, MP3|320 Kbps] <Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Track listing:Жанр: RockПродолжительность: 10:19:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936669   (494160) от 12.09.2015
+
+Abbi Walker - Feisty (2015) [MP3|320 кб/с]<Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feisty (03:41)
+02. Well Behaved Too Long (03:29)
+03. Give Em Hell (04:55)
+04. Oklahoma Royalty (03:58)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0C032CC535CDC95AA551605FD97105BCC6DDBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235567   (494543) от 14.09.2010
+
+God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-Rock / Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Post-Rock / AmbientПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565087   (494661) от 23.07.2022
+
+Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highwired
+02. Transmission From Mothership Earth
+03. Wilted Flowers
+04. Melt Your Head(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A14CC329FDAFDF681F9CC32612CDD665F0DC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318425   (494691) от 06.08.2019
+
+Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494691.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Iron Heart (3:19)
+2.Step by Step (3:15)
+3.Rock Your Jock (3:06)
+4.Tears of Sweat (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BF7F9CC1389FF8639DEAFD02BE2BCDD174E907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

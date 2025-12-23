@@ -1,26 +1,645 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1291044   (673944) от 22.03.2019
+
+Иконки - fps - 274 Vector Solid Icons for free [SVG, EPS, PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в векторе и растре с дополнениями.  Материал раздается с официальной документацией.
+Автор: fpsФормат: SVG, EPS, PNGРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B2DD039F2C79933C665F3E6F58E9833282CEBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290903   (673950) от 22.03.2019
+
+Иконки - Flaticon - Interaction Set [SVG, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673950.jpg" />
+</div>
+
+
+###  Подробнее
+
+560 Иконок в векторе и растре с дополнениями.
+Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4D2B5777FBAE45E4E7615D28B093479789ACE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290835   (673958) от 22.03.2019
+
+Иконки - InstantShift - Christmas Icon Pack [EPS, PNG, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в растре и векторе на тему "Рождество" в 2-х вариациях (контурные, чёрно-белые закрашенные). Материал раздается с официальной документацией.
+Автор: iShift StaffФормат: EPS, PNG, SVGРазрешение файлов: 330 x 330
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B66433F17FBB15A94B2A0B96A04D6433B399167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290636   (675938) от 21.03.2019
+
+Иконки - Flaticon - Essential Set [SVG, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675938.jpg" />
+</div>
+
+
+###  Подробнее
+
+380 Иконок в векторе и растре с дополнениями.
+Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD4A61AB95A17670527C2B4A64417EB2ED1ABF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290734   (675952) от 21.03.2019
+
+Иконки - Flaticon - Interaction Collection [SVG, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675952.jpg" />
+</div>
+
+
+###  Подробнее
+
+560 Иконок в векторе и растре с дополнениями.
+Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8609BDF86BADA6674212CF7486661593546B91A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290628   (676016) от 21.03.2019
+
+Иконки - Flaticon - Interaction Assets [SVG, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676016.jpg" />
+</div>
+
+
+###  Подробнее
+
+560 Иконок в векторе и растре с дополнениями.
+Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788C4837FBC8794CD33336FE770D34CAADD5D82A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290631   (676017) от 21.03.2019
+
+Иконки - Flaticon - Essential Collection [SVG, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676017.jpg" />
+</div>
+
+
+###  Подробнее
+
+380 Иконок в векторе и растре с дополнениями.
+Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110773E1B4450AC5BB60D1FC34824A58EF2DE7BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290731   (676018) от 21.03.2019
+
+Иконки - Flaticon - Essential Compilation [SVG, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676018.jpg" />
+</div>
+
+
+###  Подробнее
+
+380 Иконок в векторе и растре с дополнениями.
+Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19795AAA91E7FB2EDF1F0B0F43EE05167D3BF6B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290831   (676020) от 21.03.2019
+
+Иконки - InstantShift - Weather Icon Pack [PNG, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в растре и векторе на тему "Погода" в 3-х вариациях (контурные, цветные, контурные цветные). Материал раздается с официальной документацией.
+Автор: iShift StaffФормат: PNG, SVGРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24308448990B937236FD04E305787A7D614F0ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288588   (685980) от 16.03.2019
+
+Иконки - WebdesignerDepot - 100 GRADIENT ICONS [PNG, EPS, SVG, AI]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685980.jpg" />
+</div>
+
+
+###  Подробнее
+
+100% бесплатные иконки в векторе и растре (бесплатно для коммерции и личного пользования). Материал раздается с официальными дополнениями.
+Автор: WDD STAFFФормат: PNG, EPS, SVG, AIРазрешение файлов: 48 x 48 - 121 x 121
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DFAD128063CC0CCE25CDD159AD4EF787FF37DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288449   (685983) от 16.03.2019
+
+Иконки - MightyDeals - Web Design Icon Pack [PNG, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры в векторе и растре, цветные и чёрно-белые, контурные и объёмные. Материал раздается с официальной документацией.
+Автор: FlaticonФормат: PNG, SVGРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809DD8ECFABC9C0EE417E4B63D4C3ADCF923801A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288439   (686115) от 16.03.2019
+
+Иконки - Dribbble - Prometheus Free Icon Set - 4045963 [EPS, SKETCH]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры в векторе.
+Автор: Taras Shypka (Ukraine, Dnipro)Формат: EPS, SKETCH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0635190BC46736C2F3569C457C47E437F3D8DC40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287616   (701220) от 08.03.2019
+
+Иконки - MightyDeals - 60 Exclusive Free Icons: "Childish" [PNG, EPS]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в векторе и не только на детскую тематику. Материал раздается с официальной документацией.Формат: PNG, EPSРазрешение файлов: 32 x 32 - 128 x 128
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9817A65E8AB27BB563E2DDFFE9DC1EF23029C1DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287372   (703325) от 07.03.2019
+
+Иконки - WebdesignerDepot - Valentine’s day icon set [AI, EPS]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные векторные иконки на тему дня Святого Валентина.
+Автор: tezar tantular (Bali, Indonesia)Формат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F9B50084F570331CBC20717D1B0F87DBC5303B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285834   (718582) от 27.02.2019
+
+Иконки - Unblast - 460+ Crafted icons Line Icons (SVG) [SVG, PNG, Sketch]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в векторе и не только! Материал раздается с официальной документацией.
+Автор: Aleksey Popov (UA)Формат: SVG, PNG, SketchРазрешение файлов: 24 x 24 - 64 x 64
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237BE02197922B4AD4EBFABF3FA15526C3C89CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285688   (718669) от 27.02.2019
+
+Иконки - Pixelbuddha - Capitalist Food & Drinks Icon Set [AI, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718669.jpg" />
+</div>
+
+
+###  Подробнее
+
+100% Бесплатные иконки (для личного пользования и коммерции). Материал раздается с официальной документацией.Формат: AI, EPS, PNG, PSD, SVGРазрешение файлов: 128 x 128 - 256 x 256
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250FC1A2EC4F576B0425A2A3BD8938F255ADB1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285683   (718672) от 27.02.2019
+
+Иконки - Pixelbuddha - Capitalist Vacation & Hotels Icons [AI, EPS, PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718672.jpg" />
+</div>
+
+
+###  Подробнее
+
+100% Бесплатные иконки (для личного пользования и коммерции). Материал раздается с официальной документацией.Формат: AI, EPS, PNG, PSD, SVGРазрешение файлов: 128 x 128 - 256 x 256
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EB89FAE9FB11DC3C0FC76B5B71235B49E22376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399949   (724510) от 02.08.2020
+
+Иконки - Creative Market - 110 Online Education Icons | Astute - 4257156 [AI, EPS, SVG, PDF, PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ваша работа связана с онлайн-образованием, то эти 110 значков онлайн-образования для вас! Вы можете представить свои идеи для маркетинга или для визуализации концепции! Мы надеемся, что сможем вдохновить вас вдохновить других!Формат: AI, EPS, SVG, PDF, PNGРазрешение файлов: 256x256-512x512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B874E4F876829EEBA307EA94228DA1283F73507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283052   (740869) от 15.02.2019
+
+Иконки - Behance - Complete Native iOS10 & iOS11 Icons for FREE Download [AI]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в стиле iOS10 & iOS11 (более 500)
+Автор: Isken AsanaФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDC99C07D62354C3D65D48F837CA40A6D626077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283005   (740870) от 15.02.2019
+
+Иконки - Baianat - Blobs [Ai, PSD, SVG, PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 1000 бесплатных различных иконок в векторе и не только.Формат: Ai, PSD, Sketsh, SVG, PNGРазрешение файлов: 64 x 64 - 256 x 256
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43BEE5BD2B207732AA96561E7BF1B346307F5D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281428   (751498) от 08.02.2019
+
+Иконки - Iconscout - Unicons [SVG, EOT, TTF, WOFF]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 1000 бесплатных иконок с дополнениями.
+Автор: IconscoutФормат: SVG, EOT, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176A01576051A21E4687ABA4C7F0F22DD6B2DF9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281063   (754964) от 06.02.2019
+
+Иконки - Linea - Linea: a free outline iconset  featuring 730+ Icons. [PNG, SVG, EOT, TTF]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки с дополнениями. Материал раздается с официальной документацией.
+Автор: Dario FerrandoФормат: PNG, SVG, EOT, TTF, WOFFРазрешение файлов: 64 x 64
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB133BAA55613A824ECDD0C871967CC4540EBEAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281057   (754965) от 06.02.2019
+
+Иконки - Freebiesbug - 177 Design icons by AI + PSD [AI, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки.
+Автор: Robin KylanderФормат: AI, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CF9BD08F605B007AA314D35B047BAB68A23F60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280920   (756585) от 05.02.2019
+
+Иконки - InstantShift - FinBiz Icon Set: 100 Free Business & Finance Icons [PNG, AI, EPS, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки.
+Автор: iShift StaffФормат: PNG, AI, EPS, SVGРазрешение файлов: 64 x 64 - 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6048192E69973EFD5773788D317901460FC482FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280918   (756695) от 05.02.2019
+
+Иконки - Freebiesbug - Free set of 200 vector icons for Illustrator [AI]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в векторе.
+Автор: Henrik Ostergaard (Sweden)Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9EE5F1803060E3A3F5E806AEAE44162CB78110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280922   (756700) от 05.02.2019
+
+Иконки - InstantShift - DataPik Icon Set: 150 Free Data Work Icons [PNG, AI, EPS]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки.
+Автор: iShift StaffФормат: PNG, AI, EPSРазрешение файлов: 32 x 32 - 128 x 128
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F13D159D0B5F0EC90F65553AF381DE1F60E3F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

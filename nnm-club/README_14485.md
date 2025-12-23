@@ -1,26 +1,679 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1555801   (565512) от 06.06.2022
+
+Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Songwriter's Gone 03:09
+02. Connected 03:02
+03. You Leaning On Me 03:24
+04. Magic Child 04:25(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FDD9C564CBBAAF48051CC3CB4C91B49460D49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235016   (565513) от 08.07.2018
+
+Проекты - VideoHive - Light Grunge - 16289857 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две версии проекта для создания фото/видео сладшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AC58B57E6666B4670FDFA1C609D247EC39998C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044344   (565515) от 20.08.2016
+
+VA Out Of Left Field - Where Soul Meets Country (2016) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daaron Lee - Who's Making Love (2:51)
+02. Jeannie C Riley - He Made A Woman Out Of Me (2:13)
+03. Hank Williams Jr - Out Of Left Field (3:48)
+04. Waylon Jennings & Willie Nelson - The Dock Of The Bay (3:21)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2D03EA04400AF84FE462CD6EB2C6DB5986C26C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555960   (565516) от 06.06.2022
+
+Сергей Вересков | В краю молочных рек (2022) [MP3, Станислав Воронецкий]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565516.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пришествие» – сильная община, о которой все пишут и которую все обсуждают. Ее возглавляет молодой харизматичный Лидер – про него говорят, что он способен творить настоящие чудеса. Те, кого отвергла семья и отвергло общество, всегда могут рассчитывать на его помощь. Дима и Лиза едут в общину по разным причинам. Ему недавно исполнилось восемнадцать, и для него «Пришествие» (   Читать дальше...   )Жанр: Истории из жизни, Современная русская литератураПродолжительность: 05:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8BC97F92EAC0DCF33823440A6BFA92ECE351F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234608   (565517) от 08.07.2018
+
+Подборка | Подборка статей по оружию (2018) [CHM]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565517.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой раздаче собраны материалы об оружии. Здесь описаны различные виды пистолетов, винтовок,
+бронетехники, флотилии  и других видов вооружения. Материалы содержат множество иллюстраций.Жанр: Оружейная литература.Формат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC6DD36E87873F2E8DD295D009295638725FD2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044531   (565519) от 20.08.2016
+
+Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painful Kiss 04:33
+02. Lonesome Daze 04:11
+03. Catarina 04:04
+04. The Rubicon 04:26(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA4516ACC9C4D7610B4DCA80E864409F424EC21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555910   (565520) от 06.06.2022
+
+Buddy DeFranco (De Franco) - Charlie Cat 2 (2007) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Cat II [7:53]
+02. All My Life [4:57]
+03. By Myself [5:39]
+04. Walk This Way [5:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEFFE0DD0AB7F8133A55A7BB1CFB352D82B14F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044645   (565523) от 20.08.2016
+
+The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Louise
+02. Try Another Day
+03. I Feel The Same Way Too
+04. My Mind Cries(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46217F78BFAB8F90C2329C90BE4A68AAE7E12DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235019   (565525) от 08.07.2018
+
+Владимир Семибратов | Попаданец в юбке. Из инструкторов аэроклуба в летчики-истребители Великой Отечественной войны (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто сказал, что попаданцами могут быть только мужчины, а чем женщины хуже или лучше? Провалиться в прошлое может каждый, ведь слепой стихии в принципе безразлично кто ты мужчина, женщина или ребенок. Явления природы этого не учитывают. Пошла на другой берег озера за Ежевикой и вот тебя уже нет здесь. Ты в другом времени, в июле 1941 года. Ну, как быть в такой ситуации (   Читать дальше...   )Жанр: Альтернативная история, Попаданцы, ПовестьФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE752672D7036F302D81C8DC2B48B5925EE68A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304305   (565528) от 25.05.2019
+
+Diva Gray And Oyster - Hotel Paradise (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Tropez (5:29)
+02. Up And Down (6:12)
+03. Hotel Paradise (5:13)
+04. Good Good Tequila (6:29)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D25639786D0AEEAD47D447B0A17B65AA86F21C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235012   (565529) от 08.07.2018
+
+Мир крепежа (2011) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оля и Митя очень любят друг друга и не хотят прожить жизнь, как «обычные люди». Серая реальность и перспектива превратиться в обывателей их пугает. Будущее слабопрогнозируемо. Но зачем прогнозировать то, что можно организовать? Профессионалы уже спешат на помощь, всё пройдёт организованно.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Михаил СегалАктеры: Андрей Мерзликин, Дарья Носик, Андрей ПетровСубтитры: ОтсутствуютПродолжительность: 00:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78DC94A87A376FFFF3C3AA7DCFEFC5C85A3D6A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304248   (565531) от 25.05.2019
+
+UnicaZürn (UnicaZurn) - Sensudestricto (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Drone, Post-Industrial, Dark-Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For The Dark Planets (10:08)
+02. Into Burning Labyrinths (Fuse-Fire-Seed) (8:13)
+03. Stems Of The Shadowmind (7:33)
+04. A Gulp Of Moss, A Breath Of Stone (13:10)(   Читать дальше...   )Производство: Touch – TO:113Жанр: Experimental, Ambient, Drone, Post-Industrial, Dark-JazzПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E655CAB2D62AE53C883CFD9EA80035061044E083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304400   (565532) от 25.05.2019
+
+Venus Dodson - Night Rider (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's My Turn (6:48)
+02. Shining (7:35)
+03. Night Rider (6:43)
+04. Where Are We Headed (4:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758C449A8D2B585B9D42DC275E53DA13278EC560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044380   (565533) от 20.08.2016
+
+Sinister - Dark Memorials (2015) Limited Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565533.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Malicious
+2. Beneath the Remains (Sepultura cover)
+3. Exhume to Consume (Carcass cover)
+4. Unleashed upon Mankind (Bolt Thrower cover)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FC8E35BC65C40835CFAD0BE7CD7F1B3C3C4191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304242   (565534) от 25.05.2019
+
+Honeyblood - In Plain Sight (2019) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - She's a Nightmare
+02 - The Third Degree
+03 - A Kiss from the Devil
+04 - Gibberish(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4444F614287B8F6B5623F80066D3701D3C6996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304265   (565535) от 25.05.2019
+
+Журнал | Автомир [Россия] №21 (май 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565535.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9538301995CDFF86B74BBD8AB123D8F9E3C33705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234930   (565536) от 08.07.2018
+
+Елена Звездная | Авантюра (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565536.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Авантюра» - это повесть по миру Гаэры, косвенно связанная с «Подставой» и «Аферой».
+
+Она легко шагала по коридорам управления, на ходу читая последние новости и едва ли реагируя на приветствия. Длинные прямые черные волосы доходили до края коротких кожаных шортиков, до них же не доходили филигранно порванные чулки в пошлую черную сетку, как не касался последних (   Читать дальше...   )Жанр: Любовно-фантастические повестиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7668FBC226960761D3B27F36F37AC028406E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152468   (565537) от 23.07.2017
+
+КВН-2017. Премьер лига. 1.8 финала. Игра 1 (2017.07.22) HDTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F858D4BEEA1B346D018938DD91C54FD264537F1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044436   (565538) от 20.08.2016
+
+Now Or Never - II (2016) Jpanase Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice Inside
+02. Sonic Ecstasy
+03. King for a Day
+04. I Shall Remain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBC3987300124978CCAB2EE0705D20380B1CBB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304328   (565539) от 25.05.2019
+
+Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gentling (04:17)
+ 02. After The Rain, Moss (so) Alive (04:20)
+ 03. Cascade Of Prisms (04:46)
+ 04. Snow Begins To Fall (06:48)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234926   (565540) от 08.07.2018
+
+Йен Макдональд | Волчья Луна (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Луна».
+
+Луна может убить. Луна может принести целое состояние. На Луне всем заправляют пять Драконов, пять корпораций, власть которых абсолютна. Так было раньше. Но теперь все изменилось. Пятый Дракон пал, его богатства делят между собой победители. Рухнул годами выстраиваемый порядок, рвутся былые связи, и в новой реальности даже самые опытные (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаПеревод: Наталия ОсоянуФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC86A429A286D79B246D6445C2B985773E192BC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304189   (565541) от 25.05.2019
+
+SpamSieve 2.9.36 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
+
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.05.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85053C68DBA44B3A6669F6809C784B037623B53E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152660   (565542) от 23.07.2017
+
+Эмманюэль Пиротт | De Profundis (2017) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бельгия, наше время. На Европу обрушился свирепый вирус лихорадки Эбола, вакцины нет, лекарства не помогают, больницы переполнены.
+Роксанна привыкла жить незаконным промыслом, и теперь источник ее существования – лекарства, которые она продает тем, кто готов отдать любые деньги, лишь бы спастись.
+Она не боится смерти и бравирует этим, словно саму себя проверяет на (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Нина ХотинскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0840E275AC928DCDD2FBF9A21C05BDF550455792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044476   (565543) от 20.08.2016
+
+Heavenwood - The Tarot Of The Bohemians [Pt.1] (2016) [FLAC|Lossless|image + .cue] <Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Juggler
+02. The High Priestess
+03. The Empress
+04. The Emperor(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A69B1BF95A5B9E5528CBB51A3C469661E438F3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304261   (565544) от 25.05.2019
+
+The Amazons - Future Dust (2019) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother (4:46)
+02. Fuzzy Tree (3:30)
+03. 25 (3:17)
+04. The Mire (0:33)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309D3A764637CD187F5AF8E431E56689966C3F36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044416   (565545) от 20.08.2016
+
+VA - In The Club (2016.2) (2016) [MP3|249~291 Kbps] <House, Electro House, Progressive, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tujamo & Taio Cruz  -  Booty Bounce (Radio Edit)  3:16
+02. Dimitri Vegas & Like Mike & Steve Aoki vs. Ummet Ozcan  -  Melody (Radio Mix)  3:44
+03. Axwell  -  Barricade (Club Mix)  6:20
+04. Martin Solveig feat. Sam White  -  +1 (Radio Edit)  3:12(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 05:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170DC81F4EAD6B0BECD728F867A00716032F1F83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

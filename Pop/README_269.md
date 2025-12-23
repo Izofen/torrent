@@ -1,26 +1,702 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1280162   (763642) от 01.02.2019
+
+VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Ava Max - Sweet But Psycho 3:08
+02. HUGEL feat. Amber Van Day - WTF 2:41
+03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280082   (763650) от 01.02.2019
+
+НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рай
+02 - Проснись
+03 - Ау
+04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394477   (763750) от 05.07.2020
+
+The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOMO (05:06)
+02. Angel Of My Life (04:00)
+03. So Did I (04:12)
+04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214523   (763972) от 22.03.2018
+
+VA - 44 Hits Latino (2018) [MP3|320 Kbps] <Reggae Fusion, Salsa, Bachata, Dembow>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763972.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Camilla Cabello - Havana 3:37
+02. Maluma Feat. Nego Do Borel - Corazon 3:04
+03. Luis Fonsi Feat. Demi Lovato - Echame La Culpa 2:54(   Читать дальше...   )Жанр: Reggae Fusion, Salsa, Bachata, DembowПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7BD56BB3127FB7C33658EF6075C9F70B2AEE1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214553   (763988) от 22.03.2018
+
+VA - NRJ Future Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763988.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Maitre Gims & Super Sako feat. Hayko  -  Mi Gna (Maitre Gims Remix)  3:35
+02.  Luis Fonsi & Demi Lovato  -  Echame La Culpa  2:54
+03.  Madame Monsieur  -  Mercy  3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4625D88457D4C534438FAC45945C8179EE4F8C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214578   (764058) от 22.03.2018
+
+Motion - Make My Feet Wanna Dance (1997) The Best Of [MP3|320 Kbps] <Electronic, Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop (6:23)
+02. Forever (5:07)
+03. Emotion (4:24)
+04. Make My Feet Wanna Dance (4:51)(   Читать дальше...   )Жанр: Electronic, Disco, ElectroПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA99C16D53F66589E49E48E6790D35FDBCAAACA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279854   (764232) от 31.01.2019
+
+Тима Белорусских - Твой первый диск - моя кассета (2019) [MP3|320 Kbps] <Pop, Rap>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я больше не напишу 3:11
+02. Витаминка 2:56
+03. Возвращаться уже поздно 3:20
+04. Цветочный сад 3:02(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FA412C41FBD9E7A0B0200FCD34A4737EF53277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521627   (764340) от 03.01.2022
+
+VA - THE BEST OF EFFECTIVE RECORDS 2021 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. MORGENSHTERN/Imanbek/Fetty Wap/KDDK - Leck
+2. Ramil'/Rompasso - Убей меня
+3. Imanbek/Sean Paul/Sofia Reyes - Dancing On Dangerous
+4. Alan Walker/Imanbek - Sweet Dreams(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D728E3755DA535DBEAA731AB7ABABC85D1AD37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521711   (764349) от 03.01.2022
+
+VA - Hooked On Number Ones-100 Non Stop Hits (1988) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Medley 1
+Medley 2
+Medley 3
+Medley 4Жанр: PopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1136CF9857B88453B0DD0CB5F67033395D3B9AD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126958   (764483) от 19.04.2017
+
+The Three Degrees - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственные два знаменитых альбома известной американской поп-группы The Three Degrees (основана еще в 1963м. году, сменный состав) в которых, поднимая их угасающий рейтинг, автором и продюсером стал Giorgio Moroder.01. Giving Up, Giving In (6:09)
+02. Falling In Love Again (5:34)
+03. Looking For Love (5:29)
+04. The Runner (6:19)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA879A0963C64B3052488FE03314B0342EF1DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126960   (764486) от 19.04.2017
+
+VA - The Best Of Pop Dance 80 Vol.1 (2010) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Creatures - Inspiration  5:31
+02.  Kano - She's A Star (Original Version)  5:55
+03.  Patty & Orlando Johnson - Woman Is Light  5:30
+04.  Peter Richard - Marlene  4:31(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A69379E92008F9ED415086BF323BBC18B7FCDDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126963   (764605) от 19.04.2017
+
+The Great Disco Bouzouki Band - Disco Bouzouki (1978) LP [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio (4:14)
+02. Greek Magic (Instrumental-Medley): Never On Sunday, Zorba The Greek, Pireas (5:06)
+03. Ouzo & Retsina (3:32)
+04. Disco Bouzouki (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F985522DCCA290FC7371C0A418EA950FBB9D2DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214444   (764921) от 21.03.2018
+
+Bosson - One In A Million (2001) Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (3:34)
+02. I Believe (3:51)
+03. We Live (3:46)
+04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C8423497F63AB0E9182A67C1BE2AA30657554F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214293   (764964) от 21.03.2018
+
+Don Bernini - Telepatia (1979) [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snake-Dance (4:20)
+02. Ikebana (5:20)
+03. Huntsman Of Thought's (4:38)
+04. Richiamo (3:36)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E92835A5EF5AB473C77D13DEE512C77F83380A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214429   (764970) от 21.03.2018
+
+Bosson - One In A Million (2001) [MP3|320 Kbps] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (3:34)
+02. I Believe (3:51)
+03. We Live (3:46)
+04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1F0F64EA1E21F78AA3EFB4A114BC724F9F0C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126598   (765184) от 18.04.2017
+
+ESTRADARADA - Дискотека Века (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дауншифт (5:12)
+02. Love Is (Асфальт) (3:30)
+03. Лайф из лайф (#Lifeislife) (2:59)
+04.Жанр: Pop, DanceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EA0C8E4B7378D4AE6D88E3F1190BBC02DADF0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279590   (765253) от 30.01.2019
+
+Ottawan - The Very Best Of Ottawan (1992) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.I.S.C.O. 04:56
+02. You're Ok 05:09
+03. Hands Up 04:48
+04. Help, Get Me Some Help 04:25(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A5C39966FBE8FE988529319624F7141AD9FB7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279522   (765334) от 30.01.2019
+
+TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entratura (01:43)
+02. I Don't Mind (04:04)
+03. Eyes Back On Your Face (04:21)
+04. Sacred Throne (04:43)(   Читать дальше...   )Жанр: Dream Pop, AlternativeПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B08A7492E3C89510EFCFDE7B3EA2AAB4C15CC8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394051   (765348) от 03.07.2020
+
+Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765348.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Подумаешь, с женой не очень ладно
+2. В пику, а не в черву
+3. Попутчик
+4. Про соседа-завистника(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752A70E74AB80AB236CA1FBDD92CC72C30188BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126548   (765410) от 18.04.2017
+
+Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo-Disco, Eurobeat, Parody, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incredible (3:44)
+02. I Look Into Your Eyes (5:26)
+03. Not Today Not Tonight (4:17)
+04. Toledo (5:00)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Eurobeat, Parody, PopПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FF41B01B6BF511622AF688AE8E2F96432D9CC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126625   (765440) от 18.04.2017
+
+Espionage - Espionage (1983) Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Breaking Hearts
+02. Your Love Is For Sale
+03. The Great Escape
+04. Freedom(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550FBAABC0D7E47A24062955B826D8D2D3C38E6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126624   (765477) от 18.04.2017
+
+VA - Club Latino (2000) приложение к журналу Stereo & Video 032 [FLAC|Lossless|image + .cue] <Latin, Pop, Mambo, Lambada, Cha-Cha>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica Jay - Chilly Cha Cha
+02. Gato Santos - La Gallinita
+03. Lia Crucet - La Movidita (fun dance mix)
+04. 40 - Corazon Perdio(   Читать дальше...   )Жанр: Latin, Pop, Mambo, Lambada, Cha-ChaПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126512   (765479) от 18.04.2017
+
+VA - Total Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron – Mr Worldwide (Original Mix)
+02. Jack Le Funk – The Disco Ride (Audio Jacker Remix)
+03. Serial Thrilla – Ain’t A Game (Hype The Phunk Remix)
+04. Discotron – I Gotta Go (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EB826816DFE1B64B5877AF84ED29C88F6561BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126526   (765480) от 18.04.2017
+
+Sign System - Burning Down (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man On The Run (3:48)
+02. On Fire (4:24)
+03. Stay With Me (4:44)
+04. Game Of Love (4:01)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-Disco, EuropopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF038A9698B09A76FC136D2DF3FFB8695E70A5DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126607   (765486) от 18.04.2017
+
+Sound Of Music - 2 Albums (1986, 1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведская поп-группа, существовавшая с 1985 по 1987 год в составе вокалисток Angelique Widengren, Nanne Nordqvist со своим мужем Питерем Gronvall, композитором, клавишником и продюсером, сыном известного Benny Andersson из ABBA.01. A Pretty Lovesong (4:27)
+02. Eldorado (4:49)
+03. Peek-A-Boo (3:30)
+04. West Indies Nights (4:45)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD7894390B2DD6CFEDD54D297290BB2ECA0E699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126303   (766004) от 17.04.2017
+
+VA - 100 Hits 80s Pop (2017) 5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкая ностальгия вас иногда пронизывает? Меня ностальгия не мучает – разве что иногда приятно вспомнить суету и веселье тех времен когда ничего в магазинах не было, но у всех всё было, когда была бесшабашная молодость и шабашки летом. А вы когда путешествуете по родным, далеким местам, какие чувства испытываете? Вот и этот сборник по волнам нашей памяти унесет нас (   Читать дальше...   )CD1:
+01. Dead Or Alive - You Spin Me Round (Like A Record)  (3:16)
+02. Haircut 100 - Fantastic Day  (3:15)
+03. Bros - I Owe You Nothing  (3:36)(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B5AFCA43564E2B160C45ED7218C3E146A3854C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

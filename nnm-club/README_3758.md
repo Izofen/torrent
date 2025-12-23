@@ -1,26 +1,666 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1699928   (117353) от 15.02.2024
+
+Christine Ebersole - Strings Attached (2013) Motema [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shall We Dance [3:02]
+02. The Things We Did Last Summer [4:29]
+03. This Time the Dream's on Me [3:50]
+04. Ev'ry Time We Say Goodbye [5:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DE566CDC3B65BB2EC4CF64BA1C78EF76B2FBFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699793   (117354) от 15.02.2024
+
+Rod Tate - Smooth and Peaceful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side by Side (4:48)
+02. On the Prowl (5:57)
+03. Smooth and Peaceful (6:00)
+04. Rocket Love (8:02)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2CA1EC13A8798874C114894F8B375489104A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700035   (117355) от 15.02.2024
+
+AutoKrypt 13 for Mac 13.09 U2B [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для шифрования данных, предназначенная для автоматизации. Автоматическое шифрование и расшифровка файлов и папок по расписанию.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 1999 - 2014 Hitek Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C63044CCD882F1D0643CA62C6FFEB08C7FFBCAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700067   (117356) от 15.02.2024
+
+Folder-Factory 7.7.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folders Factory — сделай уникальными свои папочки в OS X.
+«Вам надоели угрюмые одинаково синие папки? С помощь Folders Factory вы сможете легко изменить их цвет, добавить картинки, написать текст или даже сделать оттиск наподобие системных папок».
+Речь идет о замечательном приложении — Folders Factory.
+Единственная и главная функция этой программы — создание уникальных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2012-2023 TryBestПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30562C53B6AC238AD16572C4F1D72284D2BB0AD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699845   (117357) от 15.02.2024
+
+Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20E08C7C989AE5CF6EB456C1FC0041368597F74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700038   (117358) от 15.02.2024
+
+Automize13 Enterprise for Mac 13.09 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Automize - пакет программ автоматизации для повышения производительности и экономии времени. Это наш флагманский продукт. Automize - лидер в области многоплатформенного (Windows, Mac OS X и Linux) программного обеспечения для планирования и автоматизации задач.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 1999 - 2014 Hitek Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAB8088F226AB132F02F65B3D7A4C11435ADA95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699930   (117359) от 15.02.2024
+
+EazyDraw 11.5.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117359.jpg" />
+</div>
+
+
+###  Подробнее
+
+EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2022-2023 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBD632F0300F460C3F02C7A29C051C844F92456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700099   (117360) от 15.02.2024
+
+EdgeView 4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117360.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AC26D8C80CC2E1DBF6C31D8057E4100CD02517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699926   (117361) от 15.02.2024
+
+Barry Harris Trio - Breakin' It Up (1958) 2007, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [5:04]
+02. Ornithology [3:31]
+03. Bluesy [4:31]
+04. Passport [3:44](   Читать дальше...   )Жанр: Hard Bop, Bop, Piano JazzПродолжительность: 01:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A19CDEF1D52ABC0F2011465F52715C4C2C12E5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699843   (117362) от 15.02.2024
+
+Сибирская Благозвонница | Святая Наталия (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наталия названа «бескровной мученицей». Ее муки особые и самые, может быть, тяжелые: она видела пытки и страдания мужа, она подбадривала его, она просила его предпочесть смерть в вере жизни без Христа. В Житии святых рассказано о великой любви Наталии и Адриана, которые считаются одними из покровителей семейной жизни. Поэтому и имена их, как и святых Петра и Февронии, (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33752200E06FFB120EBEDFC448063295ED0C34A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700082   (117363) от 15.02.2024
+
+Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Void [00:01:51]
+02. ELEGY [00:04:55]
+03. ENEMY [00:04:53]
+04. In the Darkness [00:04:23](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243EA286ADD4308260C88CB388E40E18EB15780C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699898   (117364) от 15.02.2024
+
+King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Face Down (2:23)
+02. Crack The Mantle (4:59)
+03. Ze Chicken Feet (2:58)
+04. If God Is A Woman (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5A137A7FC7420297B9F120080B0E9E5D79A026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699906   (117365) от 15.02.2024
+
+The Devils - Let The World Burn Dow (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Is The Illusion (4:20)
+02. Killer's Kiss (3:17)
+03. Mr Hot Stuff (3:31)
+04. Big City Lights (2:45)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9DA4DA6F7CA5738343895C3FC1C2DD3776298E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699892   (117366) от 15.02.2024
+
+Zataban - Naturally Seasoned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Brown (4:40)
+02. Late at Night (3:39)
+03. Better Off (4:53)
+04. Straight Up (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EBFA64136ED900B358B058C3C0ADFF1F3DB38F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699967   (117367) от 15.02.2024
+
+MediaMate for Mac 3.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение MediaMate - это новые, потрясающие визуальные эффекты для громкости, яркости и текущего воспроизведения.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2022-2024 Wouter HennenПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA93E54864CC4F3EFB053D1661FDD7859A84250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699927   (117368) от 15.02.2024
+
+doubleTake 2.6.13 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117368.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2024 Echo OneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4014AD1717FFD4D777D8411E23BBCFEF9B19D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699931   (117369) от 15.02.2024
+
+Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This I Dig of You [6:25]
+02. Prelude to Peace [8:26]
+03. With the Wind and the Rain in Your Hair [7:19]
+04. Dance Only with Me [5:17](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4A796F750B48E023CF19F6B9FE83EB949DCDFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700112   (117370) от 15.02.2024
+
+Сибирская Благозвонница | Святая Анна (2012) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна – древнееврейское имя, в переводе означающее «благодать». В библейские времена это имя прославили святая пророчица Анна, мать пророка Самуила, и святая Анна Пророчица, присутствовавшая при сретении Богомладенца Иисуса святым праведным старцем Симеоном. Ещё большую благодать стяжала святая Анна, ставшая матерью Божественной Отроковицы Марии. Она была особенно (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC623EFD66B7EC2CD70082A52B908D63744BCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699901   (117371) от 15.02.2024
+
+Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jackie’s Midnight (0:41)
+02. Frog Catchers (3:59)
+03. Portrait of a Young Dragoon (5:52)
+04. The Annual Fair at Deruvinople (0:56)(   Читать дальше...   )Жанр: Blues, Rock, CountryПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0181F102985092866C89B0BF0846188F66B8AFB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699894   (117372) от 15.02.2024
+
+Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hound Dog (4:08)
+02. Walking By Myself (3:19)
+03. I Can t Be Satisfied (3:25)
+04. I Like It This Way (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAC49E378F5A1B97D6C6A1D9EC284BCAFCFD29B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700063   (117373) от 15.02.2024
+
+Vellum 3.6.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 180gПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05E8B2256C3C7F9336CEBFDFE1E871D3CCA8C3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700079   (117374) от 15.02.2024
+
+Гюстав Флобер | Простая душа (2020) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XIX век. Зарубежная проза.
+Аудиокнига «Простая душа» – произведение классика французской литературы, одного из крупнейших европейских писателей XIX века Гюстава Флобера (1821–1880). Эту маленькую повесть автор знаменитых романов «Госпожа Бовари» и «Воспитание чувств» создал в конце жизни, в 1877 году. Именно в «Простой душе» наиболее отчётливо проявляется (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB9B417539CB99940D723D6D4DC09DBF8560148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699891   (117375) от 15.02.2024
+
+The Smack Dabs - The Smack Dabs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Back To Arkansas (2:59)
+02. Why Should I Spend My Money? (2:34)
+03. I'm Gonna Get High (2:48)
+04. Your Love Belongs To Me (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB9566AA08FA8A59B06CD1E06AFBBAA39F252AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699987   (117376) от 15.02.2024
+
+DiskCatalogMaker 9.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117376.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskCatalogMaker  - простая утилита для управления и каталогизации дисков. Приложение умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 15.12.2023Разработчик: © 2024 Fujiwara SoftwareПоддерживаемая ОС: macOS X 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C022D71E57D7650AE991EF5165E90FF50205CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699882   (117377) от 15.02.2024
+
+One Dime Band - Side Hustle - One Dime Band - Side Hustle (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side Hustle (4:52)
+02. Blackfoot Sun (feat. Ilana Katz Katz) (4:48)
+03. Mockingbird Way (3:06)
+04. What You Done? (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B615BE1A0681E8C3E1F205812D9C4C110BC672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699990   (117378) от 15.02.2024
+
+Моды - Медленно Двигаюсь Вперёд (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117378.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Медленно Двигаюсь ВперёдЖанр: RockПродолжительность: 00:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D42B96FC708AD5CF58E9E7C4E00F7B0AE8F1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

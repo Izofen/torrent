@@ -1,26 +1,677 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1306330   (555538) от 05.06.2019
+
+Волна преступности / Crimewave (1985) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следите за невероятными и уморительными приключениями наших героев: гордой и красивой девушки Нэнси, обаятельного простого парня Вика, каверзного мальчишки — проказника, двух гадких злодеев — экстерминаторов, местных коллег Шарикова Краша и Коддиша, очень крутого и очень ревнивого героя — любовника Ренальдо и еще доброго десятка других персонажей.
+Они станут участниками (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Embassy Pictures, Renaissance PicturesЖанр: комедия, криминалРежиссер: Сэм РэймиАктеры: Луиза Лэссер, Пол Л. Смит, Брайон Джеймс, Шири Дж. Уилсон, Эдвард Р. Прессман, Брюс Кэмпбелл, Рид Бирни, Ричард Брайт, Антонио Фаргас, Хамид ДэнаПеревод: Многоголосый профессиональный, одноголосый авторскийСубтитры: English (SDH)Продолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C88ECA617CE05D87AAB26E815EF8EC5C362024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306556   (555540) от 05.06.2019
+
+Download Master 6.17.4.1625 RePack (&Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Download Master эффективно решает 3 главных проблемы, возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Download Master позволяет значительно (   Читать дальше...   )Язык интерфейса: Русский, Белорусский, Украинский, Транслит.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0F46CB876C70E525F1DBDC24E34E3C1A704E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306580   (555541) от 05.06.2019
+
+NG: Загадки исполинов каменного века / Riddle of the Stone Age Giants (2019) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытие двадцать лет назад храмового комплекса Гёбекли Тепе полностью изменило наши представления об истории эволюции человечества. Сегодня, новые находки искусно сделанных наскальных рисунков открывают перед нами новые сведения о том, как и почему развивались общественные институты и цивилизации на их основе.Производство: США, National GeographicЖанр: Документальный, история, исследованияРежиссер: Лаура АндерсонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D20346CA45671034862411E23108273415D7361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306564   (555544) от 05.06.2019
+
+SamDrivers 19.5.1 LAN [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.19 / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.19.4 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45DDC93BAF3DE2BCB96EF3E1589A9D959470A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306622   (555545) от 05.06.2019
+
+Женщины Ндрангеты / Lady 'Ndrangheta (2015) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помимо сицилийской мафии Коза Ностра и неаполитанской Каморры, в Италии есть еще одна – не столь известная, но не менее могущественная преступная сеть в Калабрии – Ндрангета. Женщины в этих семьях не имеют никаких прав, они должны заниматься домашними делами и уважать законы клана, гарантирующие им защиту и богатство. В фильме рассказывается о стиле жизни мафии с (   Читать дальше...   )Производство: Италия, США, Production Aesthetics, Storyville Films, WildsideЖанр: Документальный, драмаРежиссер: Уши ДжейкобиПеревод: Одноголосый закадровый, профессиональныйСубтитры: Норвежские (неотключаемые)Продолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3EA54AEA903EE67E1B844EBE3D39DA12006399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306641   (555546) от 05.06.2019
+
+Opera 60.0.3255.151 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0892DB6F99B9346DB131DBA2BC06C489C26E1B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306356   (555547) от 05.06.2019
+
+VA - Summer Pool: European Dance Hit (2019) [MP3|320 Kbps] <Pop Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aksel - Fading Pictures
+002. Agus - Voices
+003. Factory Of Souls - Big Game (Original Mix)
+004. Fabio Gandolfo - Hьtchenspieler(   Читать дальше...   )Жанр: Pop Dance, Club, HouseПродолжительность: 09:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0A482989BFB8487CAE8AC8B61A4AF2583E73B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306656   (555548) от 05.06.2019
+
+Вулканы: двойное разрушение / Volcanoes: Dual Destruction (2018) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 2018 года и мир потрясены двумя драматическими извержениями вулканов: Килауэа на Гавайях и Фуэго в Гватемале. Оба вызывают ужас, но по-разному.
+У вулканов издавна устрашающая репутация. И это оправдано, ведь вулканы - самая важная сила в формировании планеты такой, как мы ее видим сегодня. Путешествие по озеру лавы и тоннелям подземных пещер поможет понять, (   Читать дальше...   )Производство: Великобритания, Emporium ProductionsЖанр: Документальный, познавательныйРежиссер: Марк СтриксонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F00ACF5D52A5BCF849FAC2FB9CC2B5370A5B03B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306655   (555549) от 05.06.2019
+
+VueScan Pro 9.6.42 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555549.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE6721F745959004BEB8E9FFDE56E715A3C16F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306522   (555557) от 05.06.2019
+
+Meiko - In Your Dreams (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Knows (03:50)
+02. Gimme Gimme (02:32)
+03. My Brain Is a Computer (04:28)
+04. Roses (02:57)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B355FC6BD4D07BFB823ED08D4C485681DC4EC947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306570   (555559) от 05.06.2019
+
+VA - So Fresh: The Hits Of Autumn 2019 [FLAC|Lossless|tracks + .cue] <Pop, Dance, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - 7 rings
+02. Mark Ronson - Nothing Breaks Like a Heart (feat. Miley Cyrus)
+03. Post Malone - Wow.
+04. Dean Lewis - 7 Minutes(   Читать дальше...   )Жанр: Pop, Dance, R'n'BПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2732D4120EE9FE089F6E1B75D0337696B766A121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306563   (555561) от 05.06.2019
+
+VA - Friendly Reminder: Punk Rock Collection (2019) [MP3|320 Kbps] <Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Down Memory Lane - Xenophobic
+002. Sharp Sleeves - Old Soul
+003. Burn Burn Burn! - Fugue State
+004. Big Black - Pavement Saw(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 08:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CF4BEDBBD82C61F4CE7B26F01233D0B41C814E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306572   (555562) от 05.06.2019
+
+NASCAR-2019. 14-й Этап. Поконо. Гонка / Monster Energy NASCAR Cup Series 2019. Pocono 400. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555562.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASCAR Cup Series 2019 - Сезон 2019 года
+Воскресенье, 02 июня 2019 года. Лонг–Понд (штат Пенсильвания, США).
+14-й Этап. Pocono 400
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFACB835496A993B99D72AA8B4510FE47DBEFE8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306581   (555565) от 05.06.2019
+
+Хоккей. НХЛ. Кубок Стэнли 2019. Финал. 4-й Матч. Сент-Луис Блюз — Бостон Брюинз (2019) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555565.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 июня 2019, вторник. 03:00 МСК
+Финал Кубка Стэнли 2019 — решающая серия розыгрыша Кубка Стэнли НХЛ 2018–2019 годов.
+4-й Матч.
+Сент-Луис Блюз — Бостон Брюинз(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43392155F7FEB9953A9ADAA2E2D9C6B716691A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306577   (555567) от 05.06.2019
+
+Баскетбол. НБА 2018-2019. Финал. 2-й Матч. Торонто Рэпторс — Голден Стэйт Уорриорз (2019) IPTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555567.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 июня 2019, понедельник. 03:00 МСК
+Финал НБА 2019 года — заключительная стадия регулярного чемпионата НБА в сезоне 2018/19 и окончание плей-офф.
+2-й Матч.
+Торонто Рэпторс (Торонто) - Голден Стэйт Уорриорз (Окленд)(   Читать дальше...   )Телекомпания: Setanta Sport +Жанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CA945AF5F04D6B9DE54C3491372FF150CDCA8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306498   (555570) от 05.06.2019
+
+The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is blind (02:53)
+02. Soulful dress (02:59)
+03. Acai (02:44)
+04. Chemistry of love (03:07)(   Читать дальше...   )Жанр: Rhythm & Blues, RockabillyПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306600   (555573) от 05.06.2019
+
+Газета | Сезон у дачи №9 (286) (Май 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77BADD6EB9726C00BCABF70157CADECDAD335DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306549   (555574) от 05.06.2019
+
+Ben Platt - Sing to Me Instead (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habit (04:22)
+02. Ease My Mind (04:36)
+03. Temporary Love (03:38)
+04. Grow As We Go (04:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8804EF58FF4937771E0ACDE8AD5FE014D30CEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306551   (555575) от 05.06.2019
+
+Lou Karsh - Phantom Structures (2019) Furthur Electronix [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seep (05:48)
+ 02. Biotic Interaction (05:21)
+ 03. Opaque Acid (06:05)
+ 04. Palatial (07:49)(   Читать дальше...   )Жанр: Electro, IDM, Acid, AmbientПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983FAED322969E296AFB41EB643106347E751294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306555   (555576) от 05.06.2019
+
+Charlotte Cornfield - The Shape Of Your Name (2019) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. June (03:54)
+2. Storm Clouds (04:46)
+3. Balladeer (03:42)
+4. Andrew (03:31)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A91F61A9D01B5F258EC16ABC2DFCB2A25D2AC75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306483   (555577) от 05.06.2019
+
+Oh Shu - Big Fish (2019) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny
+02. Lucky
+03. 0418
+04. Muzhhik(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEAB181818036E58BD3CD9584CAB597A2DAD188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306674   (555578) от 05.06.2019
+
+Gary Peacock & Ralph Towner - Oracle (1994) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaya (5:39)
+ 02. Flutter Step (5:48)
+ 03. Empty Carrousel (5:51)
+ 04. Hat and Cane (5:15)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B590416135CBB8E85B9D726056C05CBF5C6C1F38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306552   (555580) от 05.06.2019
+
+Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (Napoleon's Sword) (02:28)
+2. Life Escaping through the Candle's Smoke (04:22)
+3. Forever Faithful to the Emperor (04:54)
+4. Catacombs Beneath the Castle of the Marquis (04:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306583   (555581) от 05.06.2019
+
+Black Swan - The Sentimental Drift (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Drone, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth (02:50)
+02. Infinite Tides (03:46)
+03. The Color of Distance (03:09)
+04. No Enemy But Time (05:49)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D18D68120DFA3F212333533F0ED8EACE6C7A5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306508   (555582) от 05.06.2019
+
+Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Caravan Of Weird Figures
+02. Another Awful Hobs Tale
+03. From Blood To Stone
+04. Ask A Silly Question(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306484   (555583) от 05.06.2019
+
+Samana - Ascension (2019) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before the Flood (04:44)
+02. Harvest (05:04)
+03. The Art of Revolution (05:03)
+04. The Sky Holds Our Years (04:32)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D21EF9EFB435490FE5070E8B137ABFF3C2F11B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

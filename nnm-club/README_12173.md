@@ -1,26 +1,684 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1409634   (443274) от 18.09.2020
+
+Flying Colors - Third Stage: Live In London (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Ocean (Live) (07:51)
+02. A Place In Your World (Live) (06:01)
+03. The Loss Inside (Live) (05:40)
+04. More (Live) (06:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CC671F8FBE07D162F115C30BF8A942D091EDFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409765   (443275) от 18.09.2020
+
+TouchCopy 16.40 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передача музыки с вашего iPod, iPad и iPhone в iTunes
+TouchCopy позволяет копировать вашу iPod, iPhone и iPad музыку на жесткий диск. Вы даже можете передавать музыку, плейлисты и видео прямо на iTunes, включая все ваши данные песни, ваши рейтинги и обложки альбомов
+
+TouchCopy позволяет просматривать данные, хранящиеся на сенсорных устройствах iPhone, iPAD, или iPod, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: Wide Angle Software LtdПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA002D73A7A247806BBC9F13EE180B99DDF6C12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409621   (443276) от 18.09.2020
+
+Adapt To Survive - The Endless Condition (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:12)
+02. Snake Skin (2:32)
+03. My Pain Your Sickness (4:14)
+04. A Girl Named Misery (3:16)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF42171689D7206E38B95E0ED166E6A8CB4B191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409736   (443277) от 18.09.2020
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 September (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davey Asprey - The Road So Far (Extended Mix)
+02. Arkham Knights - Distorted (Extended Mix)
+03. Kolonie - Inception (Extended Mix)
+04. Darkness Falls - Absent Mind (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0B140CEF8FF7A7C54DB64083B0D339B5067D98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409637   (443278) от 18.09.2020
+
+Panzerballett - Planet Z (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Metal, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prime Time (5:23)
+02. Who The Jack Is Migger (6:37)
+03. Mind Your Head (3:34)
+04. No One Is Flying The Plane (7:08)(   Читать дальше...   )Жанр: Jazz Rock, Metal, FusionПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DF1B669877EC89AA4C5A3E8BA7DBE90F9A1112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409733   (443279) от 18.09.2020
+
+Sagath - Тёмное добро (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огни [03:46]
+02. Маяк (feat. Katanacss) [03:53]
+03. Война [02:56]
+04. Улететь (feat. MXP) [04:00](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4981E5640D6B1C1E5D0F206C066982FA999E2F63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409686   (443280) от 18.09.2020
+
+VA - Radion6 - Vocal Trance Selections (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radion6 feat. Katty Heath - Beautiful Nothing (Radio Edit)
+02. Radion6 feat. Neev Kennedy - Nothing Here But Goodbye (Radio Edit)
+03. Radion6 with Cathy Burton - One Truth At A Time (Radio Edit)
+04. Radion6 feat. Sarah Lynn - A Desert Rose (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F249B8C2210707A61947F5C90227AD3A970E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391576   (443288) от 24.09.2011
+
+Формула 1 Гран-при Сингапура 2-я практика (2011) HDTV
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Сингапура — один из этапов чемпионата Мира по автогонкам в классе Формула-1. Проводится с сезона 2008 года. Проходит на городской трассе по улицам города-государства Сингапур. Это первая в истории Формулы-1 гонка при искусственном освещении.
+Гонки Гран-при уже проходили в Сингапуре с 1961 по 1973 год, но не входили в календарь Формулы-1. До 1965 года, когда Сингапур обрёл независимость гонка имела название — Гран-при Малайзии. После смертельных инцидентов в гонках 1972 и 1973 годов она была закрыта.Жанр: СпортПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1429FA43E1700283C38383C3A0B7DF11CB946B7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553344   (443296) от 28.09.2012
+
+Три часа на побег / В упор / À bout portant / Point Blank (2010) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессия Сэмюэля Перрье — спасать людей. Но в этот раз медбрат спас ну совсем «не того» парня. И вот теперь его беременную жену похитили бандиты, чтоб заставить Сэмюэля помочь их пахану свалить из больницы. Чтобы спасти жену и выжить самому, ему предстоит выиграть смертельные гонки на выживание с бандитами и полицейскими не только по улицам Парижа но и под землей.Жанр: Боевик, Триллер, КриминалРежиссер: Фред КавайеАктеры: Жилль Леллуш, Рошди Зем, Жерар Ланвен, Елена Анайя, Мирей Перье, Клер Перо, Мусса Мааскри, Пьер Бенуа, Валери Дэшвуд, Вёрджил БрэмлиПеревод: Авторский одноголосныйПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587CB439CEAFA41E223EB3C67A51B502C19AFE0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553414   (443297) от 28.09.2012
+
+П. Т. Гилл, А. К. Легг | Renault Megane & Scenic 1999-2002. Ремонт и техническое обслуживание [2011] [PDF]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство базируется на конкретном опыте, полученном в ходе полной разборки и сборки автомобиля с использованием самых доступных инструментов. Для каждого вида работы определен уровень ее сложности: от простых операций обслуживания для новичка до сложных задач, доступных специалисту.
+ Пошаговые инструкции, сопровождаемые сотнями иллюстраций, показывают, как выполнить ту или иную работу. Руководство содержит следующую информацию: текущее обслуживание - простые еженедельные проверки, техническое обслуживание - полное пошаговое обслуживание, поиск неисправностей - простое решение специфических проблем, дорожные неисправности - что делать в таких случаях, подготовка к техосмотру - пошаговая проверка систем автомобиля, приложение - включает словарь технических терминов, тормозная система - контроль и ремонт, системы питания и зажигания - некоторые объяснения, электрооборудование - поиск и устранение неисправностей, двигатель - регулировки, малый и большой ремонт, электрические схемы - упрощают поиск элементов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8A25D11F51CC4871E0B9034DAC1A9BB58132E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553377   (443301) от 28.09.2012
+
+И.Пыхалов, Л.Лопуховский и др. | «Умылись кровью»? Ложь и правда о потерях в Великой Отечественной войне [2012] [PDF]
+
+>>След.
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443301.jpg" />
+</div>
+
+
+###  Подробнее
+
+День Победы до сих пор остается «праздником со слезами на глазах» — наши потери в Великой Отечественной войне были настолько велики, что рубец в народной памяти болит и поныне, а ожесточённые споры о цене главного триумфа СССР продолжаются по сей день: официальная цифра безвозвратных потерь Красной Армии в 8,7 миллиона человек ставится под сомнение не только профессиональными антисоветчиками, но и многими серьезными историками. Заваливала ли РККА врага трупами, как утверждают антисталинисты, или воевала умело и эффективно? Клали ли мы по три-четыре своих бойца за одного гитлеровца — или наши потери лишь на треть больше немецких? Умылся ли СССР кровью и какова подлинная цена Победы? Представляя обе точки зрения, эта книга выводит спор о потерях в Великой Отечественной войне на новый уровень — не идеологической склоки, а серьёзной научной дискуссии. Кто из авторов прав — судить читателям.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAA1A2A2A1B2BBF98230C262C6DA965EE568C22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551733   (443303) от 28.09.2012
+
+Rainbow - Long Live Rock ‘n’ Roll (1977) SHM-SACD /2010/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Hard rock, heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Long Live Rock ‘n’ Roll 4:22
+2. Lady Of The Lake 3:39
+3. L.A. Connection 5:04
+4. Gates Of Babylon 6:51
+5. Kill The King 4:31
+6. The Shed (Subtle) 4:49
+7. Sensitive To Light 3:09
+8. Rainbow Eyes 7:12Жанр: Hard rock, heavy metalПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090E3F36192B0A660ED3E918ACA26BAE20DAE837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553316   (443304) от 28.09.2012
+
+Возвращение / Volver (2006) [1080p]  BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный Мадрид. Раймунда — привлекательная молодая испанка живет с безработным мужем и подрастающей красавицей-дочерью. Семье катастрофически не хватает денег и поэтому ей приходится трудиться сразу на нескольких работах. Раймунда — сильный, волевой человек, прирожденный боец, но, как всякая женщина, она невероятно ранима. С самого детства она хранит тайну…...Жанр: Драма, Комедия, ДетективРежиссер: Педро АльмодоварАктеры: Пенелопа Крус, Кармен Маура, Лола Дуэньас, Бланка Портильо, Йохана Кобо, Чус Лампреаве, Антонио Де Ла Торре, Карлос Бланко, Мария Изабель Диаз, Нюс СансПеревод: ДублированныйПродолжительность: 02:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A760736CC91A0A549592B3787C283E836682B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409715   (443334) от 18.09.2020
+
+Aua - I Don't Want It Darker (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friendo (02:23)
+02. I Don't Want It Darker (04:01)
+03. Starstruck (03:24)
+04. Coke Diet (04:35)(   Читать дальше...   )Жанр: Psychedelic Rock, KrautrockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32046BB7A7CCDFCBFC13C05CD29FC15F8765FD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409707   (443335) от 18.09.2020
+
+Days Between Stations - Giants (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spark (16:54)
+02. Witness the End of the World (3:57)
+03. Another Day (9:38)
+04. Goes By Gravity (4:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9531F997D3738C10E8E0428A9163BF44E13C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409699   (443336) от 18.09.2020
+
+Poor Genetic Material - Here Now (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Now (04:44)
+02. Serendipity (03:43)
+03. The Waiting Game (06:59)
+04. Note from My Younger Self (07:00)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922F7F2F3E4EA400F6E8D46F84A27EE81D0F78B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409654   (443337) от 18.09.2020
+
+Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Out (06:43)
+ 02. Maybe Tommrow (06:34)
+ 03. Cutter's Way (07:06)
+ 04. An Older Outland (04:50)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409683   (443338) от 18.09.2020
+
+June Christy - The Ballad Collection (50-e - 60-e) 2000, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interlude [4:44]
+02. My One and Only Love [2:47]
+03. Lonely House [4:07]
+04. Softly as in a Morning Sunrise [2:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0F8FF252EB3011CFD0DC8747A36D5087EF045A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409696   (443339) от 18.09.2020
+
+Just Delayed - Just Delayed (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strained 03:50
+02. Locked Up 04:11
+03. A House On The Moon 04:42
+04. A Father's Regrets 05:00(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D5C96BF534BC9A9DBF21EB7773F0CF7059F6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409764   (443340) от 18.09.2020
+
+Permute 3 v3.5.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 18.09.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF46DE8CA57AEBFF95BDF874BE9AF93A2F824E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409685   (443341) от 18.09.2020
+
+Kenny Burrell - Giants of Jazz (2004) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [10:05]
+02. St. Thomas [3:48]
+03. You and the Night and the Music [4:40]
+04. Listen to the Dawn [5:40](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC8659F11A14579FB68A545DC6B08F4F1C0ABCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409682   (443342) от 18.09.2020
+
+Mel Torme - The Essentials (1946 - 1962) 2002, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Road [3:02]
+02. It Happened in Monterey [2:51]
+03. There's No Business Like Show Business [2:56]
+04. (It's) Easy to Remember [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C0899BCC2DFBCCF8F4789ED538C8273D3F42E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409689   (443343) от 18.09.2020
+
+Gil Coggins - Better Late Than Never (2001, 2002) 2007, Smalls Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Old Fashioned [10:04]
+02. Smooch [6:46]
+03. Repetition [8:24]
+04. Vierd Blues [8:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3690093EEB9FFF53F341900B265F56128483B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409687   (443344) от 18.09.2020
+
+Turk Mauro - Hittin' The Jug (1995) Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canadian Sunset [9:56]
+02. Red Top [4:59]
+03. We'll Be Together Again [4:55]
+04. Ca' Purange (Jungle Soul) [6:14](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CAD74827BA0A9FCBFB5DFC0FCF240AC0DA7708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553529   (443345) от 28.09.2012
+
+Прометей / Prometheus (2012) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443345.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках сакрального знания группа ученых отправляется в самые темные и неизведанные чертоги вселенной. Именно там, в отдаленных мирах, находясь на пределе своих умственных и физических возможностей, им предстоит вступить в безжалостную схватку за будущее всего человечества…Производство: США, ВеликобританияЖанр: Фантастика, триллер, приключенияРежиссер: Ридли СкоттАктеры: Нуми Рапас, Майкл Фассбендер, Шарлиз Терон, Идрис Эльба, Гай ПирсПеревод: Дублированный |Лицензия|Субтитры: Русские, АнглийскиеПродолжительность: 02:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719EEEFD43AAFC51ABFD3083BDDAD0BDDA36E81E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552989   (443351) от 28.09.2012
+
+Мрачные тени / Dark Shadows (2012) DVDRip [UKR]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владелец поместья Коллинвуд, Барнабас Коллинз, богат, властен и слывет неисправимым Казановой, пока не совершает роковую ошибку, разбив сердце Анжелики Бошар. Будучи ведьмой в буквальном смысле этого слова, она обрекает его на судьбу, худшую, чем сама смерть — обращает его в вампира и хоронит заживо. Два века спустя Барнабаса случайно освобождают из склепа, и тот оказывается в очень изменившемся мире 1972 года. Он возвращается в Коллинвуд и находит в руинах это некогда величественное здание. Жалкие потомки его семьи сохранились лишь немногим лучше родового гнезда, и у каждого из них есть свои «скелеты в шкафу».Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Тим БёртонАктеры: Джонни Депп, Мишель Пфайффер, Хелена Бонем Картер, Ева Грин, Джеки Эрл Хейли, Джонни Ли Миллер, Белла Хиткот, Хлоя Грейс Морец, Гулливер МакГрат, Кристофер ЛиПеревод: ДублированныйПродолжительность: 01:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149E0D91543EA859FCE869A877A1CB87FFDA004C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

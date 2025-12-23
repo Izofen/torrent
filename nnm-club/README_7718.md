@@ -1,26 +1,674 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1634836   (233051) от 22.05.2023
+
+RegCool 1.339 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDF38292BE034FC1A8D85419BD5B61A7DB0D175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645084   (233052) от 07.07.2023
+
+Залог / Pawn / Dambo (2020) WEB-DL [H.264/1080p] [KOR / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инчхон, 1993 год. Грозный снаружи, но добрый внутри коллектор Ту-сок пытается взыскать долг с нелегальной иммигрантки и забирает в качестве залога её семилетнюю дочь Сын-и. Но женщина попадает в поле зрения миграционной службы и перед депортацией даёт Ту-соку телефон дяди, который выплатит её долг и заберёт девочку. Но пока Сын-и вынужденно живёт в квартире Ту-сока (   Читать дальше...   )Производство: Южная Корея, CJ EntertainmentЖанр: драма, комедия, семейныйРежиссер: Кан Дэ-гю / Dae-gyu KangАктеры: Сон Дон-иль, Пак Со-и, Ким Хи-вон, Ха Джи-вон, Ким Юн-джин, Ким Джэ-хва, Тео Ю, Чон, Ин-ги, Хон Сын-хи, Ким Мин-джуПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: русские, английскиеПродолжительность: 01:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8712C4283AB2541B36BB20B2E0A362FE42261430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645566   (233053) от 10.07.2023
+
+Арсен Ревазов | Одиночество-12 (2020) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это произведение с каждым днем становится более современным!
+
+Жизнь Иосифа едва ли можно назвать головокружительным приключением, скорее, спокойным московским существованием. Он встречается с замужней девушкой, в которую мучительно влюблен, владеет небольшим пиар-агентством, еле сводящим концы с концами, и периодически зависает в баре с друзьями – сдержанным и аристократичным (   Читать дальше...   )Жанр: Современные детективы, ТриллерыИздательство: Аудиокнига (АСТ)Продолжительность: 20:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756439EB29E22952B700B67DD210FC5183CDBFEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580089   (233054) от 30.09.2022
+
+Hammerstar - Hammerstar (2022) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Stone  05:15
+02. Power of Metal  04:14
+03. Midnight Ride  04:31
+04. Burned Alive  03:34(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9565D89D8816943AB114C33040EA88520FD228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635053   (233055) от 23.05.2023
+
+HWiNFO 7.47 Build 5115 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233055.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3931EA5C6A128B33D8710819917B1F66AF81333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539733   (233056) от 27.03.2022
+
+I Barbari - Supernove Che Fanno Bang! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Solo (00:03:24)
+02 - Supernove Che Fanno Bang! (00:03:47)
+03 - Ciò che non è stato (00:06:03)
+04 - Seppelliti dalle orme (00:04:38)(   Читать дальше...   )Жанр: Hard Rock, Stoner, Fuzz RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686D44D5620B78336CEC1484EF578F87D860493D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635859   (233057) от 27.05.2023
+
+Floodlights - Painting of My Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment Of Distraction (5:17)
+02. Lessons Learnt (2:38)
+03. Human (2:41)
+04. On The Television (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DC6DF391B7471CA3DDA2CBC31ADFDD739970DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642897   (233058) от 29.06.2023
+
+Dave Erickson Project - JAMB (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Brew (3:18)
+02. Welcome Back (3:13)
+03. Eventide (3:59)
+04. Jamb (3:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E71048831F4CEF2BABBE3CCB44C66D4FE65C504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553421   (233059) от 25.05.2022
+
+Человек-паук: Нет пути домой / Spider-Man: No Way Home (2021) DVD9 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь и репутация Питера Паркера оказываются под угрозой, поскольку Мистерио раскрыл всему миру тайну личности Человека-паука. Пытаясь исправить ситуацию, Питер обращается за помощью к Стивену Стрэнджу, но вскоре всё становится намного опаснее.Производство: США / Columbia Pictures Corporation, Marvel Studios Inc., Pascal Pictures, Sony Pictures Entertainment (SPE)Жанр: Фантастика, боевик, приключения, фэнтезиРежиссер: Джон УоттсАктеры: Том Холланд, Зендея, Бенедикт Камбербэтч, Мариса Томей, Уиллем Дефо, Альфред Молина, Джейми Фокс, Томас Хейден Чёрч, Рис Иванс, Джейкоб БаталонПеревод: Дублированный, многоголосыйСубтитры: Русские (Forced, Full), английскиеПродолжительность: 02:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46C16824EDD081286EB3107E567518F8BADEA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579066   (233060) от 25.09.2022
+
+Главная роль / Competencia oficial / Official Competition (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тщеславный миллиардер задался целью вписать свое имя в историю, взявшись за создание идеального фильма. Сценарий — книга Нобелевского лауреата, режиссер — модная и эксцентричная, в главных ролях — разбитной секс-символ кумир миллионов и высоколобый драматический актер. Ждать шедевра или ждать беды?Производство: Испания, Аргентина / The MediaPro StudioЖанр: Драма, комедияРежиссер: Мариано Кон, Гастон ДюпраАктеры: Пенелопа Крус, Антонио Бандерас, Оскар Мартинес, Хосе Луис Гомес, Маноло Соло, Нагоре Арамбуру, Ирена Эсколар, Пилар Кастро, Кольдо Олабарри, Хуан ГрандинеттиПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (Forced, Full Focs 18+), Английские (Full)Продолжительность: 01:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A336B29767B921A2FD542FB2FF5AAEB0CC931E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580174   (233061) от 30.09.2022
+
+Hammerstar - Hammerstar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Stone
+02. Power Of Metal
+03. Midnight Ride
+04. Burned Alive(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF29442C888F68ACEB52AB4907F34C16FE8927C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645027   (233062) от 07.07.2023
+
+Аустерлиц / Austerlitz (1960) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233062.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 декабря 1805 года на территории Южной Моравии (в то время часть Австрии) французские войска во главе с Наполеоном готовятся к решающей битве с российско-австрийской армией, объединившейся под началом Императора России Александра I и австрийского императора Франца I. Французская армия почти вдвое меньше, чем войска коалиции, тем не менее Наполеон начинает подготовку (   Читать дальше...   )Производство: Франция, Италия, Югославия, Лихтенштейн, Compagnie Internationale de Productions Cinématographiques (CIPRA), Lyre Films, Galatea FilmЖанр: драма, военный, историяРежиссер: Абель ГансАктеры: Пьер Монди, Мартина Кароль, Клаудия Кардинале, Лесли Карон, Витторио Де Сика, Эльвира Попеско, Жан Марэ, Мишель Симон, Орсон Уэллс, Жорж Маршаль, Джек Пэланс, Жан-Луи Трентиньян, Россано Брацци, Анна-Мария Ферреро, Этторе МанниПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: нетКачество: BDRipПродолжительность: 02:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B0B5FA198FBD8385193A540E53248E537C1D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635856   (233063) от 27.05.2023
+
+D.A.Y.N.E. - Meteor (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Stitches (5:15)
+02. Break so Easy (3:38)
+03. Impossible Thing (3:49)
+04. Gonna Be a Dogfight (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A109BC0067EF1F659EE0A8FF131201663538A6F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635050   (233064) от 23.05.2023
+
+VA - Running - Retro Rock Mix - You Can Do This! (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Numb (3:07)
+02. Green Day - Hitchin' a Ride (2:51)
+03. Billy Talent - Devil on My Shoulder (3:51)
+04. Royal Blood - Little Monster (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 02:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8FBF2C16FE264269C45B758BF94FC213827327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634775   (233065) от 22.05.2023
+
+Count Basie & Joe Williams - The Greatest!! Count Basie Plays... Joe Williams Sings Standards (1957) 1999, Verve [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thou Swell [2:22]
+02. There Will Never Be Another You [2:54]
+03. Our Love Is Here To Stay [3:41]
+04. 'S Wonderful [2:38](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB864FA58E6D628796F5B60F6A169B4A91249B4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553409   (233066) от 25.05.2022
+
+Воспоминания / Reminiscence (2021) DVD9 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / Warner BrothersЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Марина Де Тавира, Дэниэл Ву, Моджиан Ариа, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный, многоголосыйСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246A1DB877BC40E56C3C889AA08C6399DD93BDE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539765   (233067) от 27.03.2022
+
+VA - Lounge Atmosphere, Vol. 3 (2022) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Take It Easy (Original Mix) (4:08)
+02. The Strike Boys - Cocaine Is a Sin (Original Mix) (4:34)
+03. Bossasonic - Sunday Afternoon Party (Original Mix) (3:32)
+04. Martin Liege - Time to Chill (Original Mix) (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3F222CE9191B369BBBD08EACACEE7DF1AC1018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578907   (233068) от 25.09.2022
+
+Наемный убийца / Bounty Killer (2013) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя двадцать лет после начала Корпоративной Мировой войны, некогда цветущая и плодородная планета превратилась в выжженную пустыню, усеянную полуразрушенными останками людских поселений. Среди непрекращающейся тьмы и разрухи на свет появился Совет Девяти Роз, призванный уничтожить всё, что хоть отдалённо напоминает о корпорациях. Так началась эпоха наёмных убийц, (   Читать дальше...   )Производство: США / Just Chorizo Productions, Kickstart ProductionsЖанр: фантастика,боевик,триллер,комедияРежиссер: Генри СэйнАктеры: Мэттью Мэрсден, Кристанна Локен, Кристиан Питре, Барак Хардли, Абрахам Бенруби, Гэри Бьюзи, Беверли Д`Анджело, Ив, Кевин МакНэлли, Алекса ПенаВегаПеревод: Авторский (Евгений Солодухин (Solod))Субтитры: отсутствуютПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0111AD11AAC811B9D09F3CD5562FD23D235FA2B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645616   (233069) от 10.07.2023
+
+Журнал | Practical Wireless №6 (2023) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналы "Practical Wireless" - это бестселлеры для радиолюбителей. Усовершенствуйте старые технологии и будьте в курсе текущих технологических новшеств с информированными статьями журнала «Practical Wireless», новостями и обзорами по всем аспектам любительского радио. Сконструируйте радиооборудование и получите техническую информацию в разделах журнала, (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьЯзык: АнглийскийИздательство: PW Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D810A7DAEE8F0FFC32225319DDCBA1C6C6CF3ED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642870   (233070) от 29.06.2023
+
+Reternity - Cosmic Dreams (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Building Better Worlds
+02. Untamed Hearts
+03. Depths Of Nothingness
+04. Cosmic Dreams(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55915AD8AEA1F8E054027CE31DA407035736C76C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539617   (233071) от 27.03.2022
+
+Crystal Viper - The Last Axeman (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Last Axeman (00:03:49)
+02 - In The Haunted Chapel (00:04:21)
+03 - Ulitsa Roz (00:05:49)
+04 - It's Electric (00:03:36)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43419B010FE9B9AD33CE5863FA543BA91B23701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634805   (233072) от 22.05.2023
+
+Livin'Evil - Prayers and Torments (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Tree Of Evil (01:05)
+02 - Another Preacher Of Satan (07:18)
+03 - Behind The Light (04:49)
+04 - Through The Night (08:31)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA7B41ACA1CA1D8A9E442A40D829E450EF0BA6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580262   (233073) от 30.09.2022
+
+Def Leppard - Rock Of Ages: The Definitive Collection (2005) (2 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pour Some Sugar On Me (Historia Video Edit)	4:52
+02. Photograph	4:08
+03. Love Bites	5:47
+04. Let's Get Rocked	4:56(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A790A21E2D6ABA32AA91917A234D828256A9DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644943   (233074) от 07.07.2023
+
+VA - Trance Emotions Vol. 11 (Best Of EDM Playlist Compilation 2023) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ Cold - The Search (Burning Man Remix) [6:13]
+02. Nale feat. Angel Falls - Mysterious Times (Substance N Trance Progressive Edit) [5:43]
+03. Specific Slice & Sandro Mireno - Leviathan And The Lone Galleon (Extended Mix) [6:27]
+04. Tranceflight - Drive Back (Extended Mix) [6:50](   Читать дальше...   )Жанр: TranceПродолжительность: 05:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A88BBD535614734BE9558D48D48CBF242BB615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635857   (233075) от 27.05.2023
+
+Dolloster - New Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Tomorrow (4:52)
+02. Riot (4:40)
+03. Old as Rock (4:14)
+04. The Real Fighter (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C2CC4BCE39FB26CCCF8E59CC510D5A37511546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578965   (233076) от 25.09.2022
+
+Арт-студия Антипина Виталия Виталий Антипин | Распродажа курсов по масляной живописи (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женский образ 2
+Искусство быстрой живописи
+Искусство быстрой живописи 2
+Пейзаж масломПроизводство: Арт-студия Антипина ВиталияЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 70:52:48Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4BFB213FE4A4E7BD5532135F566CE1AD6CBA4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

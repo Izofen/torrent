@@ -1,26 +1,675 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1547319   (603461) от 27.04.2022
+
+Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Найти [00:00:47]
+02 - Один [00:03:19]
+03 - Баланс души [00:03:57]
+04 - Другой [00:04:04](   Читать дальше...   )Жанр: Progressive Metalcore, Djent, Alternative MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9818F4B66AB39F7D33F810717438D8C9E0A221A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547201   (603462) от 27.04.2022
+
+Эйфори.Я - Кофе (2022) [MP3|320 Kbps] <Alt. Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - ХБПВР [00:03:37]
+02 - Стая (feat. Round Hills) [00:03:18]
+03 - Свинец [00:04:13]
+04 - Трудно дышать [00:03:42](   Читать дальше...   )Жанр: Alt. Rock, Post GrungeПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9710E6EBC26963938A2D06C5E37268F975A311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547277   (603463) от 27.04.2022
+
+Хоккей. НХЛ 2021-2022. Аризона Койотс - Миннесота Уайлд (26.04.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603463.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 апреля 2022, среда. 03:00 МСК
+Стадион: Эксел Энерджи-центр (Сент-Пол, США), 18 383 зрителя (95% при вместимости 19 326)
+Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада)Телекомпания: BSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9486AB34CEC2D5A39B5F63A704467B3FDB2CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547215   (603464) от 27.04.2022
+
+Откровения Дождя (Revelations Of Rain) - 5 Albums (2007-2016) [FLAC|Lossless|image + .cue] <Doom Metal, Slow Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алтарь блудниц (8:54)
+02. Сквозь ночь Фобетора (6:46)
+03. Эшафот (8:29)
+04. В грусти и радости (9:08)(   Читать дальше...   )Жанр: Doom Metal, Slow Death MetalПродолжительность: 5 CD, 05:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547359   (603465) от 27.04.2022
+
+Елена Коростенская | Хранитель, почти ангел (2022) [MP3, Сергей Хусаинов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть в увлекательной форме знакомит юного читателя с некоторыми страницами нашей недавней истории при помощи главных героев: мальчика–подростка и его ангела-хранителя. Показывает, что может произойти, если быть неосторожным и напрасно рисковать своей жизнью.Жанр: ФантастикаПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C950D14EA0E5E3E289DF4A2DBF94CBDCC3F937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547325   (603466) от 27.04.2022
+
+Экспедиция Восход - Трансатлантика. Часть 1 (2022) [MP3|320 Kbps] <Alternative Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жди на той стороне [00:03:12]
+02. Гольфстрим [00:02:41]
+03. Не мой дом [00:03:12]
+04. На слишком правильном пути [00:02:47](   Читать дальше...   )Жанр: Alternative Rock, Pop-PunkПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D801C6E774D1F6D78211B213AFE54A9EE59A23E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547108   (603467) от 27.04.2022
+
+Greenbeard - Variant (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creatures of the Night
+02. Burns Like Basketweave
+03. Get in the Car. No Time to Explain
+04. Diamond in the Devil's Grinder(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B987BA13B72E5A108EB7F96480F80B8E9602F491
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547232   (603468) от 27.04.2022
+
+SQLPro for SQLite 2022.32 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603468.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 27.04.2022Разработчик: © 2022 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E77471259A94CD6AF827B725686BAB495680F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547214   (603469) от 27.04.2022
+
+FSNotes 5.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603469.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.04.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B227D6E212EF05D1704F4BDDB71E30BB317855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547220   (603470) от 27.04.2022
+
+inPixel 2.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакетная обработка изображений, папок и множественных представлений. Преобразование, изменение размера, переименование, добавление водяных знаков, настройка, улучшение, применение фильтров, эффектов, создание значков и наборов значков, изменение цветового пространства.
+Создайте пресет, и все готово. inPixel всегда будет рядом с вами, в фоновом режиме или в строке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: © 2022 Quentin AppsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB0FDC31EEFED882B09B3BEF8B8A0B27DCFF9E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547216   (603471) от 27.04.2022
+
+GoodTask 7.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603471.jpg" />
+</div>
+
+
+###  Подробнее
+
+У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
+GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2022Разработчик: © 2022 haha interactiveПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8369B005B9917B869AB1F8417EE3CC5828F34BC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547097   (603472) от 27.04.2022
+
+Dozethrone - 13 Albums (2019-2022) [MP3|320 Kbps] <Sludge Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tomb of Despots [00:15:15]
+02. Where the Bodies Are Embalmed [00:16:02]
+03. The Mask of Red Death [00:13:02]Жанр: Sludge Doom MetalПродолжительность: 13 CD, 08:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B3BF85CBE91085B9EF3CCDE61E571E171A61D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547307   (603473) от 27.04.2022
+
+Speckmann Project - Fiends of Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Oldschool>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Absolute Power [00:02:28]
+02 - Indifferent [00:02:37]
+03 - A Sick Carnival [00:02:09]
+04 - Destroy the Weak [00:02:34](   Читать дальше...   )Жанр: Death Metal, OldschoolПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073DB337C6982981D8A7070122B4DC0E53C9D5BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547191   (603475) от 27.04.2022
+
+Dead Days - Tyrants (2022) [MP3|320 Kbps] <Post Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyrants [00:00:39]
+02. In the Company of Wolves [00:03:23]
+03. Suffering [00:03:13]
+04. Immortal [00:03:54](   Читать дальше...   )Жанр: Post Hardcore, MetalcoreПродолжительность: 00:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA36D57E71A10CC61397B9EFEE72E50179534093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547194   (603476) от 27.04.2022
+
+Inlights - Cliffhanger (2022) [MP3|320 Kbps] <Post-Hardcore, Easycore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Turn the Light [00:03:02]
+02 - Take Me Home [00:03:39]
+03 - I Hurt You [00:02:56]
+04 - Brand New World [00:03:08](   Читать дальше...   )Жанр: Post-Hardcore, EasycoreПродолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D45426DD8692E89592E9D718607562B03ECC13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547248   (603477) от 27.04.2022
+
+Submerge 3 v3.8.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
+Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.04.2022Разработчик: © 2022 Bitfield ABПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA3A61920234CDC0A4CF5DB5688A9D949AC40BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547198   (603478) от 27.04.2022
+
+Speckmann Project - Fiends of Emptiness (2022) [MP3|320 Kbps] <Death Metal, Oldschool>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Absolute Power [00:02:28]
+02 - Indifferent [00:02:37]
+03 - A Sick Carnival [00:02:09]
+04 - Destroy the Weak [00:02:34](   Читать дальше...   )Жанр: Death Metal, OldschoolПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6C80FFC203A90046A3CFE7E6E3B62B3F60CA2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148094   (603482) от 07.07.2017
+
+На холостом ходу / Running on Empty (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603482.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летний Денни, старший сын в семье Энни и Артура Поуп. Вот уже 15 лет семейство Поупов живет под вымышленными именами. Когда-то, в бурные 60-е, родители Денни под воздействием больших перемен в обществе и политике стали активистами антивоенного движения и попали в «черные списки». С тех пор у них началась нелегальная жизнь. Но сыновья подросли, и кочевать с места (   Читать дальше...   )Производство: США / Double Play, Lorimar Film EntertainmentЖанр: ДрамаРежиссер: Сидни ЛюметАктеры: Кристин Лати, Ривер Феникс, Джадд Хирш, Йонас Эйбри, Марта Плимптон, Эд Краули, Л. М. Кит Карсон, Стивен Хилл, Аугуста Дэбни, Дэвид МаргулисПеревод: Двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9B1851191841C351D65F28AB5E152447672D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148309   (603483) от 07.07.2017
+
+Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thousand Star (8:16)
+02.Flow Of Time's Arrow (7:22)
+03.Belle E'Poque 3012 (8:16)
+04.The Visionary (9:05)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148598   (603485) от 07.07.2017
+
+VidCoder 2.56 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный видеоконвертер с многопоточной и пакетной обработкой файлов. В состав программы входит несколько фильтров, возможен предварительный просмотр видео. VidCoder позволяет настраивать качество итоговых файлов по ряду параметров: битрейту, размеру и т.п. Также есть несколько готовых наборов настроек для оптимизации видео под возможности мобильных устройств.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A661DD9E769067197773FF5EF449125361075D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148625   (603487) от 07.07.2017
+
+Anna Wise - The Feminine: Act II (2017) [FLAC|Lossless|tracks + .cue] <Alternative, Electronic, Pop, R&B>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Coconuts 04:18
+02.Some Mistakes 02:59
+03.Boss Bitch 01:04
+04.Stacking That Paper 03:50(   Читать дальше...   )Жанр: Alternative, Electronic, Pop, R&B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82A71CF2A645B7AD7911C4FFBE944AFE5382EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148426   (603488) от 07.07.2017
+
+Neutralization of Shit - Metal Covers Vol.1 (2017) Авторская раздача [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Future (Beneath The Massacre cover) (0:54)
+02. Artifacts Of The Black Rain (In Flames cover) (3:20)
+03. Gilded Cunt (Cradle Of Filth cover) (3:52)
+04. For The Masses (Gorefest cover) (4:50)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E2488244708D915382F39AC5717E818DD64F22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148587   (603489) от 07.07.2017
+
+Soft4Boost Document Converter 4.9.5.585 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F854AA3499185C97E87876DD9C316A45CE29B61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148545   (603491) от 07.07.2017
+
+П. Н. Груздев (сост.) | Статьи и отрывки из произведений В. И. Ленина по вопросам народного просвещения и школы (1938) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изданием настоящей хрестоматии преследуется цель собрать, по возможности полнее, высказывания Ленина по вопросам просвещения и школы, чтобы помочь в первую очередь преподавателям и студенчеству педагогических учебных заведений в деле изучения марксистско-ленинской педагогики.
+
+Собранные в хрестоматии высказывания Ленина по вопросам просвещения должны стать достоянием (   Читать дальше...   )Жанр: История, политология, искусство, педагогикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A3F5F0BED17B626E270424FB56D0D47503736B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148653   (603492) от 07.07.2017
+
+VA - Trance Dreams Vol.2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bogdan Vix & Lucid Blue – I Am Now (Mhammed el Alami Remix) (03:23)
+02. Attila Syah & LTN – B29 (Extended Mix) (07:02)
+03. Eric Senn – Leaving Earth (Original Mix) (03:50)
+04. Michael Milov – Stay (Original Mix) (03:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0F699A268839E9337A206CC8A9ABE0615E6DE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148730   (603493) от 07.07.2017
+
+Pat Boyack & The Prowlers - On The Prowl (1996) [MP3|320 Kbps] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar (04:13)
+02. Mr. Lucky (05:34)
+03. I Know It's Over (04:47)
+04. Mean Jealous Woman (04:39)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F87DD60FC857FC670146B3DD02F852039F5E3B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

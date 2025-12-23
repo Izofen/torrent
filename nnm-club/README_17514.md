@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1129995   (718828) от 30.04.2017
+
+Орел и решка. Перезагрузка (2017.04.30) WEB-DL [H.264/720p-LQ] (сезон 14: Канкун)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91DD4CD761979DBCB4926E79DBDE6A553B5E80F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129730   (718829) от 30.04.2017
+
+Wille And The Bandits - Steal (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Away (03:44)
+02. Hot Rocks (04:29)
+03. Scared Of The Sun (05:15)
+04. Atoned (04:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C803DDD2D3A1C202617E5F218544E35573ECCEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129743   (718830) от 30.04.2017
+
+Alina Baraz & Galimatias - Urban Flora (2015) [MP3|320 Kbps] <Electronic, R&B, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me
+02. Drift
+03. Can I
+04. Fantasy(   Читать дальше...   )Жанр: Electronic, R&B, Soul, DowntempoПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6034F11DB33C9A7694F09E69269BE8D6AA5BCFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129929   (718831) от 30.04.2017
+
+VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kindervater - Eight (Extended Mix)
+002. Dj Matrix - Cr9
+003. O-Zone - Dragostea Din Tei (Dj Zed Remix)
+004. Laidback Luke Feat. Majestic - Pogo (Deorro Remix)(   Читать дальше...   )Жанр: Club, Dance, House, Mush UpПродолжительность: 07:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129885   (718832) от 30.04.2017
+
+USDownloader 1.3.5.9 Portable (29.04.2017) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588F66E965785455B38D06AF5B22B7B3E714F735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130136   (718833) от 30.04.2017
+
+Limelight - Limelight (1980) Reissue, 2012, Flawed Gems [MP3|320 Kbps] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home
+02. Knife In Your Back
+03. Mamma (I Don't Wanna Lose Ya)
+04. Man Of Colours(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2E1F7DEDC36D358C9EFBDA727503B40AC8E171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129961   (718834) от 30.04.2017
+
+Hideous Divinity - Adveniens (2017) [MP3|320 Kbps] <Technical/Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ages Die 06:47
+02. Sub Specie Aeternitatis 04:21
+03. Passages 07:29
+04. Angel Of Revolution 05:52(   Читать дальше...   )Жанр: Technical/Brutal Death MetalПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B375EF840BF7752E323E15BF61AD3B385C736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129914   (718835) от 30.04.2017
+
+VA - Chilli Vanilli Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mykel Mars - Good Time (Chillout Deluxe Mix)  5:39
+02.  More Flowers - Capetown Sunset (Urban Chillout Mix)  5:24
+03.  Bobby Escobar - Playa (White Sand Mix)  4:44
+04.  Agent Juno - Sunstorm (Ambient Chillout Mix)  5:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52A62A45EDD283CF5D7D641E0D593189C41762A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129949   (718836) от 30.04.2017
+
+VA - Electro House Party (2017) [MP3|320 Kbps] <Electro House , Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axwell О  Ingrosso & Kid Ink - I Love You 3:11
+002. Lost Frequencies fet.Axel - All Or Nothing 2:38
+003. Eff That - Got The Bass Bumpin (Original Mix) 3:38
+004. Boehm feat. Brandyn Burnette - Let's Give It A Shot feat. Brandyn Burnette (Original Mix) 3:07(   Читать дальше...   )Жанр: Electro House , Club HouseПродолжительность: 07:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE27EC9841D3F4C50914011D84888C4EDDB86087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129817   (718837) от 30.04.2017
+
+П. Ф. Юдин | Кто такие «национал-социалисты?» (1942) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718837.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре дается суть и краткая история национал-социализма, приход Гитлера к власти и его преступная политика.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE89F3F5D89DB10C3E241961832D3E9E8CDEC42A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129480   (718839) от 30.04.2017
+
+Keosz - Ava (2017) [MP3|320 Kbps] <Ambient, Dark Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquitted from Illness (5:29)
+02. All I Had To Do (4:46)
+03. AVA (3:55)
+04. Downfall (5:54)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, DroneПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50FDA4996676D1CE2F9A89ABBBC0F1AE944F882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129881   (718840) от 30.04.2017
+
+Emerald - Reckoning Day (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only the Reaper Wins 05:52
+02. Black Pyramid 04:20
+03. Evolution in Reverse 04:20
+04. Horns Up 05:17(   Читать дальше...   )Жанр: Heavy Metal, Melodic Power MetalПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FC5E172155457F8F0A185FC1AC52605D774C2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129988   (718841) от 30.04.2017
+
+Until Rain - Inure (2017) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Progressus In Idem 05:56
+02. New World Fiction 05:16
+03. Because Something Might Happen 09:16
+04. This Fear 05:40(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E5957FAA6CB24DFEB659AF484FBD2E7CD02124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400493   (718847) от 05.08.2020
+
+Филип Рив | Экспресс «Черный призрак» (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Хроники Великой Сети».
+
+Зен и Нова путешествовали в другие миры и раньше, но теперь все изменилось: они прошли через ворота, которых вообще не должно быть, совершили ужасные вещи, которые нельзя исправить, и больше не смогут вернуться назад.
+Новая Императрица Великой Сети только что вызволила из тюремного морозильника Чандни Ханса, а в жизни наследника (   Читать дальше...   )Жанр: Зарубежная фантастика, Космическая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B6F414851EC3696E35DD41160CB7222C4E8F73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400405   (718849) от 05.08.2020
+
+VA - Italo Disco 80 Legends, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video - Somebody (Hey Girl) (Radio Version) (3:50)
+02. Jock Hattle - Crazy Family (Single Mix) (3:59)
+03. Visions - Everybody (Radio Version) (3:22)
+04. Anthony's games - Sunshine Love (Dance Edit) (4:25)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765C40CE6C780E3ABB22F7ED9C37AA7FA4E013DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999898   (718851) от 05.08.2020
+
+Валентин Постников | Карандаш и Самоделкин в стране шоколадных деревьев (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия "АРДИС" предлагает вашему вниманию аудиокнигу «Карандаш и Самоделкин в стране шоколадных деревьев». Это сказка детского писателя Валентина Постникова, который сочиняет весёлые и познавательные истории о приключениях маленьких человечков. Карандаш – художник, у которого вместо носа волшебный карандаш. Всё, что он нарисует, превращается в настоящее. (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A5517BB5671DB7744197967C8639EF6AB9546A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531948   (718852) от 17.02.2022
+
+VA - Lounge Jazz In Rome (2022) [AAC|~326 Kbps] <Jazz, Nu Jazz, Lounge, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTJ XPerience, Ammuin Orchestra - Never End (Radio Version) (3:36)
+02. Papik, Frankie Lovecchio, Claudia Arvati - Acqua e Sale (4:29)
+03. Soulstance, Ana Flora - Mas Que Nada (4:16)
+04. Papik, Walter Ricci - Viento 'e Terra (4:18)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Lounge, Easy ListeningПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAA4E00F5F1F383BAD75C6F4D71BB5172850223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400537   (718857) от 05.08.2020
+
+VA - Best New Synthpop (2020) [MP3|320 Kbps] <Synthpop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718857.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Keyklova - In My Hand
+002. Sarah Menescal - Used To Love Her
+003. Yuhniversia - Night In The City
+004. Nigen - Fueled By Anger(   Читать дальше...   )Жанр: Synthpop, DanceПродолжительность: 07:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA30D9413DF959D3A4C22E051C1EA9AFD81B9AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400527   (718858) от 05.08.2020
+
+Opera 70.0.3728.95 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB60A66A4A2901929335FADBA361D65CA33C9CC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400440   (718860) от 05.08.2020
+
+Маленькие пташки / Little Birds (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718860.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух совершенно не похожих друг на друга женщин, оказавшихся в международной зоне Танжер в 1955 году – накануне ее ликвидации, после которой Танжер стал частью Королевства Марокко. Молодая американка Люси Сэвидж путешествует в уникальное место у Гибралтарского пролива в надежде разобраться как в собственной сексуальной и личной жизни, так и в грядущих общественно-политических (   Читать дальше...   )Производство: Великобритания / Warp FilmsЖанр: мелодрама, драмаРежиссер: Стэйси ПассонАктеры: Джуно Темпл, Рафаэль Аклок, Жан-Марк Барр, Дэвид Костабайл, Фейди Эльсайед, Камель Лабруди, Эми Ландекер, Мэтт Лауриа, Росси де Пальма и др.Перевод: Двуголосый любительский (LakeFilms)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD90F81266102C0583EA9346974CA7CB1F9D0CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400539   (718861) от 05.08.2020
+
+Неудачники / Micmacs a Tire-Larigot (2009) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базилю не везет по жизни. То он чуть не погибает от шальной пули, то становится бездомным, то однажды с такими же «счастливчиками» как и он сам не начинает бороться за справедливость. И с кем бороться — с крупнейшими в стране производителями оружия. Но, кто знает, может на этот раз удача улыбнется ему?Производство: Франция / Epithète Films, Tapioca Films, Warner BrosЖанр: Боевик, комедия, криминалРежиссер: Жан-Пьер ЖёнеАктеры: Дани Бун, Андре Дюссолье, Николас Мари, Жан-Пьер Марьель, Йоланда Моро, Жюли Ферье, Омар Сю, Доминик Пинон, Урбен Канселье, Патрик Пару, Жан-Пьер Бекер, Эрик Наггар, Арсен Моска, Доминик Беттенфельд, Жак ЭрленПеревод: ДублированныйСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F228E2BF2FC730AB70CB3708C366FD382ADCB9A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400568   (718863) от 05.08.2020
+
+Path Finder 9 v9.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: CocoatechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8844ADC890C9D2F38CDF191AE89B497D16621367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400132   (718864) от 05.08.2020
+
+Groove Da Praia - The Groove Girls (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Electro>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cars and Girls (4:47)
+02. Groove Da Praia, Shelly Sony - Latch (4:20)
+03. Anybody Seen My Baby? (3:51)
+04. Sua Cara (Reggae Version) (3:28)(   Читать дальше...   )Жанр: Reggae, ElectroПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE81CE273124045DC1DB103B2D60E37FE2AC7435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531945   (718866) от 17.02.2022
+
+VA - Талисман (Песни композитора Дмитрия Прянова) (2022) [AAC|~328 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Serov - Талисман (3:40)
+02. Рада Рай, Афина - Танцуй, красивая (3:25)
+03. Ярослав Сумишевский - Страна моей юности (3:39)
+04. Марина Девятова - У меня до тебя (3:16)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C21FAD72BD8446F501652EB081E9F248356A06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400469   (718869) от 05.08.2020
+
+Topaz DeNoise AI 2.2.5 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снимайте в любом месте при любом освещении без оговорок. Устраните шум и восстановите четкие детали на ваших изображениях с помощью первого инструмента для подавления шума - DeNoise AI. Вы можете быть удивлены полученными результатами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9658A43697F9CE33B698ED0EB497DFCF2C2461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400548   (718872) от 05.08.2020
+
+PhotoLine 22.03 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718872.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoLine - простая в обращении программа, представляющая собой редактор растровой и векторной графики.
+Данный редактор позволяет редактировать как готовые фотоизображения, так и рисовать различные картинки при помощи специальных эффектов, инструментов и фильтров. В программе присутствует полная поддержка цветовой модели CMYK, работа с файлами форматов PLD, PDF, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA25C85990F4541DE285CD1E4FBE688202401AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

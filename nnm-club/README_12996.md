@@ -1,26 +1,682 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1055540   (488268) от 22.09.2016
+
+Insomnium - Winter's Gate (2016) [MP3|320 кб/с] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter's Gate, Pt. 1
+02. Winter's Gate, Pt. 2
+03. Winter's Gate, Pt. 3
+04. Winter's Gate, Pt. 4(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A076E21F34BA60F706C687F7F062469902E96A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055316   (488269) от 22.09.2016
+
+Дженнифер Чиаверини | Одинокая звезда (2016) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в Пенсильванию, Сара оказалась в одиночестве и растерянности – ни работы, ни близких друзей. И вдруг – неожиданное предложение: стать помощницей семидесятилетней Сильвии Компсон. Поначалу Саре совсем не понравилась старушка, и она уже готова была отказаться от работы, но совершенно случайно увидела удивительное лоскутное одеяло ручной работы, которое сделала (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5686B639506556553B20DCDA2C0B5F34DA1D1DE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055364   (488272) от 22.09.2016
+
+Джек Дуглас Хорн | Пустота (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Ведьмы Саванны»
+
+Приятная жизнь в милом южном городке Саванна течет своим чередом. Хотя приятна она не для всех, в частности, не для Мерси Тейлор – наследницы могущественного колдовского клана, – над чьей головой вновь сгущаются тучи.
+В Саванне объявляется психопат-убийца, охотящийся на Мерси, и семейство Тейлор подозревает, что дело явно не обошлось (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C25595FAB801958462A125F0851B20F0DBC7884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055477   (488273) от 22.09.2016
+
+Журнал | Вязание ваше хобби №10 (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488273.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: Вязание, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDA786F3E4C654D39B374544BD37C9E85AE5D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055304   (488275) от 22.09.2016
+
+Лев Успенский, Всеволод Успенский | Двенадцать подвигов Геракла (1993) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны легенды глубокой древности.
+Сложены они древними греками ещё в те далёкие времена, когда люди только начинали изучать окружающий их мир, только приступали к его исследованию и объяснению.
+Соединяя правду и вымысел, придумывали они и рассказывали удивительные истории. Так сложилось множество преданий о богах, героях и фантастических существах- (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222F50617DCE28FA49216897E58DC95D31507CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053983   (488276) от 22.09.2016
+
+Аристотель | О возникновении животных (1940) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги Аристотеля «O возникновении животных» представляют собой высшее достижение античной эмбриологии, остававшееся единственным и непревзойденным руководством в этой области до XVII века, когда трудами Гарвея, Граафа, Реди, Сваммердамма, Мальпиги и Левенгука были заложены основы современной эмбриологии. Они принадлежат также к числу лучших и наиболее разработанных (   Читать дальше...   )Жанр: История, науковедение, естествознание, философия, эмбриология, биологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEFA9B2FB35CA9262687DCC68D140615B474452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243712   (488277) от 29.08.2018
+
+А. П. Семенников | Политика Романовых накануне революции [От Антанты - к Германии] (1926) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда царская власть, поддерживаемая широкими слоями буржуазии, начинала войну, то ей рисовался «победоносный мир», который казался обеспеченным, и особенно благодаря «дружбе» и «единению» с союзниками. Но прошли месяцы, истек год войны — победы не было: были лишь тяжелые поражения, все более и более расшатывавшие позиции самодержавия. Постепенно перспектива победоносного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6B51086B0A61DD5DF2115DEFDAE55D8EC01334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243791   (488278) от 29.08.2018
+
+VA - Forms Of Hands 18 (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Rhythmic Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty K - Forever Fading (End) (03:56)
+ 02. Phasenmensch+ICD-10 - Infected Times (04:16)
+ 03. Cervello Elettronico - Something Rash (05:35)
+ 04. Blac Kolor - Nucleus (05:14)(   Читать дальше...   )Жанр: Industrial, IDM, Rhythmic NoiseПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E059D8E531F1B4D1AF676E0FDE29BB0CAE0EB98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243880   (488279) от 29.08.2018
+
+VA - Cassiopeia A (2018) Nebulae Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient, Acid>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holon - A Forgotten Dream (05:55)
+ 02. Cignol - Polywhore (04:15)
+ 03. CCO - Solar Nebula (06:29)
+ 04. Darren Nye - Simulated Skyline (04:26)(   Читать дальше...   )Жанр: Electro, IDM, Ambient, AcidПродолжительность: 00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF8AC8B2498D806A15DB6EF0E015F39F0F96696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243387   (488280) от 29.08.2018
+
+Марта Гумилевская | Как открывали мир (1977) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488280.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о путешествиях древних мореплавателей и о некоторых великих географических открытиях, благодаря которым на карте мира появились новые, неизвестные раньше материки и океаны и была найдена наконец неуловимая, таинственная, Неизвестная Южная Земля - Антарктида, - открытая русскими моряками сто пятьдесят лет назад!
+
+Также смотрите Марта Гумилевская (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3012259ECB00721C15976BF7952D771057980
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243920   (488281) от 29.08.2018
+
+D'Arcangelo - Somewhere In Time (2018) Suction Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Theme (05:46)
+ 02. Somewhere In Time (06:36)
+ 03. Ro-Hn (05:08)
+ 04. Scrakt (03:19)(   Читать дальше...   )Жанр: IDM, Electro, Techno, ExperimentalПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059662CF97259A9C6226461FFBC7A90993D0806B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243769   (488282) от 29.08.2018
+
+Lizzy Borden - My Midnight Things (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Midnight Things
+02. Obsessed with You
+03. Long May They Haunt Us
+04. The Scar Across My Heart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1155C27BFD1E6119766E7D8BE0E95E7178A1274F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243757   (488283) от 29.08.2018
+
+Andrea Bellucci (Red Sector A, Subterranean Source, Son-Dha) - Collection 4 Releases (2001-2014) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Techno, Dark Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Molecular Dance (Molecular Mix) (07:01)
+ 02. Dreaming (Flyer Mix) (05:30)
+ 03. In Mean Time (New World Experience Mix) (07:33)
+ 04. Shuar (Floating Mix) (07:15)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dub/AmbientПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C2A95ABFC35AF732FD8EAEEBE05D289CD153B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243860   (488286) от 29.08.2018
+
+VA - A Light, A Glimmer (2018) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James A McDermid – Sere (05:07)
+02. Benoît Pioulard – As voice are static take (04:37)
+03. Celer – Of a Celestial Body (09:21)
+04. Anthéne – Whatever fire is Burning (04:40)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 02:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDFF559DDF28AF3951B059886CBE37914EDEEC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243751   (488287) от 29.08.2018
+
+Preludio Ancestral - Oblivion (2018) Japan [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presagio
+02. King of Silence
+03. Storm
+04. Fear of Falling(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE62E047E43AAE539CBAF81118545490CD9010A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243767   (488289) от 29.08.2018
+
+Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sossie (Trad.) - 6:42
+02. Fiela (Trad.) - 5:27
+03. Bambezela (Trad.) - 4:22
+04. Rosie My Girl (Masekela) - 4:50(   Читать дальше...   )Жанр: Afro-Cuban JazzПродолжительность: 00: 59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827452BF3B4A65FA55066B6B1E666038DBB0FB83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243870   (488290) от 29.08.2018
+
+Футбол. Примера (Ла Лига). Чемпионат Испании 2018-2019. Обзор 1-го тура (2018) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примера (Ла Лига). Чемпионат Испании по футболу 2018-2019.
+Обзор матчей 1-го тура:
+17.08.2018 — Жирона – Вальядолид
+17.08.2018 — Бетис – Леванте(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8D1FE83BBBEE05375D6C9810C1B118C887302D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243827   (488291) от 29.08.2018
+
+Mary Lou Williams - My Mama Pinned A Rose On Me (1977) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blues [5:34]
+02. N.G. Blues [2:30]
+03. Dirge Blues [5:52]
+04. Baby Bear Boogie [2:23](   Читать дальше...   )Жанр: Bop, Stride, Piano JazzПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453AA2BDF043B3A45A4ECC2AC4C0E41B43B063D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243829   (488292) от 29.08.2018
+
+Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Search for the New Land [9:10]
+02. Speak No Evil [8:39]
+03. The Melting Pot [7:29]
+04. Succotash [7:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A737C32361D2E67EBDBA28D29E1214E3264C7FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937574   (488313) от 15.09.2015
+
+Журнал | Школа кулинара №19 (сентябрь 2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488313.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Школа кулинара" – сборник рецептов, присланных читателями и проверенных профессионалами. Салаты и закуски, супы, горячие блюда, рыбные блюда, выпечка и десерты, напитки. И всё это вкусно, а главное просто, ведь к каждому рецепту прилагается пошаговая инструкция и фото с конечным результатом.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D1779ADD4EFCE9BD5D61A1404465140B900A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937575   (488314) от 15.09.2015
+
+Научный детектив. Умри, но продай! (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое расследование программы «Научный детектив» о повсеместном «надувательстве» покупателей. Какова реальная стоимость вещей и продуктов? Почему в России одежда известных марок стоит дороже, чем за границей? А также - как нас заставляют покупать ненужное и некачественное? Авторы «Научного детектива» расскажут много интересного. Например, для чего при торговых сетях (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ДокументальныйПродолжительность: 00:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A070057FE1A92A3BDA1AD780B3A95E6B865E645
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937082   (488315) от 15.09.2015
+
+Actraiser - Lonely Traveller LP (2015) [MP3|320 кб/с]<Drum & Bass, Jungle, Liquid funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road That Lies Ahead
+02. Emerald City (feat. Oscar Michael)
+03. Been A Long Time
+04. Slipstream(   Читать дальше...   )Жанр: Drum & Bass, Jungle, Liquid funkПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375BDF0B2BF787436CD460057F9F4B2217FC8CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936566   (488316) от 15.09.2015
+
+VA - Uplifting Trance Essentials Vol 5 (2015) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Viljoen - Divinity - Diving Analogue Remix [08:29]
+02. Gui Botrugno - Sulis - Original Mix [07:43]
+03. LekSin - Seven Sky - Original Mix [07:58]
+04. Raminio - Mind of The Wonderful - Original Mix [07:58](   Читать дальше...   )Жанр: TranceПродолжительность: 03:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23CF1E3E06501D9C57FC58620CF39A84CC62D8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937442   (488317) от 15.09.2015
+
+VA - Vocal Trance Collection Vol. 137 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dogus Kilic feat Rebecca Louise Burch - Set Us Free (Original Mix)
+02 Allen & Envy amp James Williams - Ark (Original Mix)
+03 Beat Service & Cathy Burton - Love Is Your Home (Original Mix)
+04 Ost & Meyer, Ronski Speed And Cate Kanell. Fortress (Dan Stone Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84D030C22FF1D7E9DD2A6F1D32059F76E56B884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937594   (488318) от 15.09.2015
+
+Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|image+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Only Have [04:25]
+02. Stay [04:44]
+03. Romantic Flight [04:18]
+04. I Love You [03:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BB8C1C15CB630C50747D96E97CA7BF3975E8BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937582   (488319) от 15.09.2015
+
+Laurindo Almeida & Bud Shank Quartet - Brazilliance Vol. 1 & 2 (1953) 2CD /1991, World Pacific/[FLAC|tracks+.cue]<Bossa Nova, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488319.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Atabaque [02:49]
+02. Amor Flamengo [02:57]
+03. Stairway to the Stars [03:01](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE1501C5CCA8E772C762395EF2F58AE079EEB42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

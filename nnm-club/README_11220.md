@@ -1,26 +1,677 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1253323   (385539) от 08.10.2018
+
+Touche - Touche (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm Storm Of Love (5:32)
+02. Dancing In The Dark (4:59)
+03. Warm Storm Of Love (4:52)
+04. Take A Look, But Don't Touch (5:09)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6994BD3B98F0E617677197F947587B031F0FD76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253305   (385540) от 08.10.2018
+
+Туве Янссон | Мемуары Муми-папы (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды летом, в самую жару, Муми-папа умудрился простудиться. Никогда не знаешь, чем закончится простуда — особенно если подхватил её впервые в жизни, — так что лучше заранее позаботиться о том, чтобы остаться в памяти грядущих поколений. А ведь до того как сделаться почтенным отцом семейства, Муми-папа был искателем приключений, бороздил речные и морские просторы (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Мария ЛюдковскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881D18958F950277B6766516F1EBE2B80D5C992E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253209   (385541) от 08.10.2018
+
+Волейбол. Чемпионат мира 2018. 1-й Групповой этап. Мужчины. Группа C. 3-й тур. Россия — Тунис (14.09.2018) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385541.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2018 года, пятница. 21:30 МСК
+19-й Чемпионат мира 2018 года по волейболу среди мужчин. 1-й Групповой этап
+Группа C. 3-й тур.
+Россия — Тунис(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24B7D7C3FEF900A9F7CEBE8E7DDDC1F82B82DDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253319   (385542) от 08.10.2018
+
+VA - German Top 100 Single Charts 08.10.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385542.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro Gigi D'Agostino - In My Mind
+002. Bonez MC RAF Camora - Kokain (feat. Gzuz)
+003. Veysel - UFF (feat. Gzuz)
+004. Loredana Mozzik - BONNIE CLYDE(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CF726BD1820DF1321A1318A880C499BE875FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253204   (385543) от 08.10.2018
+
+Волейбол. Чемпионат мира 2018. 1-й Групповой этап. Мужчины. Группа A. 2-й тур. Япония — Словения (14.09.2018) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385543.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2018 года, пятница. 18:00 МСК
+19-й Чемпионат мира 2018 года по волейболу среди мужчин. 1-й Групповой этап
+Группа A. 2-й тур.
+Япония — Словения(   Читать дальше...   )Телекомпания: Sportdeutschland TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24C36D6A663027A21DCE0B8FB2EA7B1E9D5C95C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253170   (385544) от 08.10.2018
+
+Журнал | Elle Decor [Italia] №10 (октябрь 2018) [PDF] [It]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decor" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов и знакомство (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4991920FF5F92F2B0B12146672EA37DE627958CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253261   (385545) от 08.10.2018
+
+Acorn 6.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
+
+Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: October 6th, 2018Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.11Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC324819727B6983C645711975E21E7FC884B0B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253187   (385546) от 08.10.2018
+
+Springer & Cagle - Everyday Blues (2018) [MP3|320 Kbps] <Blues Vocals, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday Blues
+02. Lucille
+03. Nasty Little Words
+04. Finally(   Читать дальше...   )Жанр: Blues Vocals, Female VocalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A8C84A7419649FA6A89F3F252D22BB3A691729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253203   (385547) от 08.10.2018
+
+Волейбол. Чемпионат мира 2018. 1-й Групповой этап. Мужчины. Группа D. 2-й тур. Финляндия — Куба (14.09.2018) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385547.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2018 года, пятница. 17:00 МСК
+19-й Чемпионат мира 2018 года по волейболу среди мужчин. 1-й Групповой этап
+Группа D. 2-й тур.
+Финляндия — Куба(   Читать дальше...   )Телекомпания: Sportdeutschland TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8990C7A9E9B65D69E82097D25F54D896FBF849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253092   (385548) от 08.10.2018
+
+Rebekka Bakken - Things You Leave Behind (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer 3:54
+02. Black Shades 3:28
+03. Things You Leave Behind 4:06
+04. Time After Time 3:34(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A3FC9D40675ECCCFE996ABEF0B9CB78F0B1015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253304   (385549) от 08.10.2018
+
+Туве Янссон | Опасное лето (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето выдалось тревожным — наводнение пришло в долину и затопило дом муми-троллей. Семья отправилась искать новое жильё. На их удачу, волнами к берегу прибило вполне подходящий дом, который, правда, вёл себя немного странно. У него была крыша, похожая на створку раковины, и вращающийся пол, а если дёрнуть за шнурок — с потолка упадёт картина. Или польёт дождь. Или (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Евгения Канищева, Мария ЛюдковскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984280A4641A1B6FC944ACC571347FC5C9644101
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253105   (385550) от 08.10.2018
+
+Spacekraft - The Legend Of The Samurai (2017) [MP3|~210 Kbps - 320 Kbps] <Synth Pop, Indie Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385550.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Spacekraft - The Legend Of The Samurai (Continuous Mix)
+01. Cretu - Samurai
+02. The Midnight - Vampires
+03. ZHU - Palm Of My Hand(   Читать дальше...   )Жанр: Synth Pop, Indie Dance, VaporWaveПродолжительность: 03:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F306658A75951F28410C8AB0881294EA815D42A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253206   (385551) от 08.10.2018
+
+VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forestdene - Sweet Lullaby (03:57)
+02. Ron Asprey - I Will Always Love You (04:00)
+03. Louis Clark - Pachelbelt`s Canon (03:31)
+04. Alessandra Ruffini - The Flower Duet from Lakme (01:36)(   Читать дальше...   )Жанр: New Age,Instrumental,JazzПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253211   (385552) от 08.10.2018
+
+VA - Amsterdam Dance Essentials Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utku Erbay - Gonna Be Free (Original Mix)
+02. Eric Senn - Days To Come (Original Mix)
+03. Angelica S - Monologue Of The Soul (Science Deal Remix)
+04. James Dust - Bagged (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8950F8879A3E1C7AFACE13485FC11B85226A3A4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253215   (385553) от 08.10.2018
+
+Александра Бостром (ред.) | Подружка (1910) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей младшего школьного возраста.Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66029C6C1BFD2D463C8C7EE815FC9C29D7E16405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174436   (385554) от 15.10.2017
+
+Журнал | Сваты на даче №9 (33) (сентябрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A76EDF79C905C7989F0E8E1380169BA5945259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253273   (385555) от 08.10.2018
+
+Louie Bellson - Don't Stop Now! (1984) 1994, Capri Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop Now! [4:57]
+02. Lover Man [6:19]
+03. Indian Summer [4:58]
+04. Cipriana [5:13](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F339E7510914A80521E943738E69B81ED797E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174501   (385556) от 15.10.2017
+
+Журнал | Сваты. Заготовки №10 (30) (октябрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах. Чтобы домашние заготовки на зиму удавались и получались легко, используйте собранные в этой рубрике надежные и проверенные тысячами хозяек рецепты. С этими (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944B16BD40D717A414A617C6004AC9B220D8C620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174511   (385566) от 15.10.2017
+
+Вера Колочкова | Дом с мезонином в наследство (2008) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нежданные гости ворвались в жизнь Валентины Званцевой, принеся с собой холодный ветер прошлого. Дети бывшего мужа приехали сообщить о его смерти. Это значит, что теперь предстоит борьба за наследство - большой "чеховский" дом с мезонином. Визит родственников пробуждает воспоминания о любви и страшной обиде: любимого мужа увела родная сестра-завистница. (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC0916E835868B188D2AFFF3BFA6D2F8536AFAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174504   (385567) от 15.10.2017
+
+Cary Morin - 2 Albums (2015 - 2017) [MP3|320 Kbps] <Acoustic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cradle to the Grave
+02. Laid Back
+03. Dawn's Early Light
+04. Lay Baby Lay(   Читать дальше...   )Жанр: Acoustic BluesПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3781E418CC7F4814F92038F08A3C5D0025E1DCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174528   (385568) от 15.10.2017
+
+Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kicks
+02. Tick Tock
+03. On The Prowl
+04. Low And Slow(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8232475715C505AF11506D03070E6271E5984B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174540   (385570) от 15.10.2017
+
+John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baubles, Bangles And Beads
+02. Aqua De Beber
+03. Meditation Quiet Nights Of Quiet Stars
+04. Dindi(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BF7940FB2ED7A5F061E27A03034B01CB0AFBC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174643   (385572) от 15.10.2017
+
+QuartzCode 1.62.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385572.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuartzCode — это быстрый, легкий и мощный инструмент, который превращает векторную графику и анимации в код Objective C и Swift. Создание анимаций для вашего iOS или OS X проекта теперь проще некуда. Просто изменяйте любые параметры и смотрите на изменения в реальном времени. Используя QuartzCode вы можете создать любую анимацию за считанные секунды и тут же посмотреть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: WAN LUTFI WAN MD HATTAПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBE6BB325EAD9C8B785515799C4D706708DDAE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174326   (385573) от 15.10.2017
+
+Mykorrhiza - Shattered Dreams (2002) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Manipulate
+02.Dreadful Destiny
+03.Last Resort
+04.Shattered Dreams(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39ABE2AB5F686D5B5D45D7A9C0B41CA851EEFB95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174578   (385574) от 15.10.2017
+
+Eddie Heywood - 1946-1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptation [02:53]
+02. Heywood's Blues [02:35]
+03. I Don't Know Why [03:15]
+04. It's Only A Paper Moon [02:41](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EAE868824CD139CA460B84FD669B28FFB2F58F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174467   (385575) от 15.10.2017
+
+James Carter - J.C. on the Set (1994) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JC on the Set [06:28]
+02. Baby Girl Blues [07:50]
+03. Worried and Blue [08:08]
+04. Blues for a Nomadic Princess [13:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2D6E892EE1D8E9F304AC9EF5A61A64892D392E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

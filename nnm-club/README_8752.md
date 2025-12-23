@@ -1,26 +1,671 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1191499   (264512) от 13.12.2017
+
+Журнал | Все загадки мира №26 (декабрь 2017) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.
+Ранее журнал издавался под названием "Загадки ХХ века", с №17 (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9996310D83470C355E16B8F723206D987ED2B1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191401   (264513) от 13.12.2017
+
+My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock, Space Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We’ve Lost Our Way (05:00)
+02. It’s So Damn Easy (04:14)
+03. If Only… (God Only Knows) (03:43)
+04. (All These) Days (02:57)(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Art Rock, Indie Rock, ShoegazeПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191218   (264514) от 13.12.2017
+
+VA - Grotesque 300 (Mixed by RAM, Marco V & Darren Porter) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ram & Darren Porter  -  The Calling (Grotesque 300 Anthem) (Original Mix)  7:50
+02.  Vimana  -  We Came (Andres Sanchez Uplifting Remix)  5:22
+03.  Daniel Skyver  -  Temper Temper (Original Mix)  2:46
+04.  Etasonic & Dany G  -  Flying In A Dream (Ram & Cari Radio Edit)  4:18(   Читать дальше...   )Жанр: Trance, Uplifting Trance, VocalПродолжительность: 08:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A47FDCBA8500399A567257A78A6BE4E2297A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191197   (264515) от 13.12.2017
+
+Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise 03:42
+02. Pinball King 03:19
+03. Ruthless 03:25
+04. You Get High 03:26(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741B38B4B68828C4C40E1A007090332864BC1F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191340   (264516) от 13.12.2017
+
+Tina Schlieske - Evil Gal Blues (2008) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_264516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't That Lovin' You Baby (03:11)
+02. Evil Gal Blues (02:42)
+03. Black Rat (02:30)
+04. Gimmie A Penny (06:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41128CDA5F693296A72FD56AEA863F6CF72B3A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191332   (264517) от 13.12.2017
+
+Neel & Filippo Scorcucchi present LF58 - Late Night Innominate, Volume Two (2017) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (16:17)
+02. Untitled (09:23)
+03. Untitled (05:53)Жанр: Ambient, DroneПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5513A8EF2368852F1B80CE16123DFA8F1A7F68A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191240   (264518) от 13.12.2017
+
+VA - Ice Dreams: December Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  RIB  -  Reflection About the Sea (Original Mix)  4:33
+02.  Cj RcM  -  Neptune (Original Mix)  4:51
+03.  Grapes Grey  -  Three (Original Mix)  4:59
+04.  Seven24 & Soty  -  Don't You Cry (Original Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FD3EA8F75DF308C61CDA9B642A8FE1E2B1608E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191245   (264519) от 13.12.2017
+
+Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anywhere We Dare (5:16)
+02. Sober Truth (6:54)
+03. Sweet Morphine (5:18)
+04. No More Ace To Play (7:54)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4F06499D23ED7C6A32B1F3E00633CC06D06FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191364   (264520) от 13.12.2017
+
+Milt Jackson - Goodbye (1974) 2017, CTI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detour ahead [08:01]
+02. Goodbye [09:23]
+03. Old devil moon [05:51]
+04. SKJ [06:48](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22157C6629520769C614A5EE4B5C0CC1098F01D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191184   (264521) от 13.12.2017
+
+VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Glynn Alan  -  Escaped (Original Mix)  7:34
+02.  Saladin  -  Until We Meet Again (Original Mix)  4:21
+03.  Victor Special  -  Life Is Just Beginning (Original Mix)  7:43
+04.  Alex Immersion  -  Spike (Original Mix)  6:57(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EF57B393AD81E64F2371F32177023B045B4E9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191359   (264522) от 13.12.2017
+
+Pat Martino - Formidable (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Nino [07:08]
+02. Hipsippy Blues [06:59]
+03. Homage [09:13]
+04. Duke Ellington's Sound of Love [07:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FE94969D7E7D0B3F6CE06397EB234307F4B625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191381   (264523) от 13.12.2017
+
+Toshiko Akiyoshi - Interlude (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interlude [04:42]
+02. I Know Who Loves You [04:58]
+03. Blue and Sentimental [04:54]
+04. I Ain't Gonna Ask No More [05:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E481E5FE1920D91269630CDAE1CF5159F11831C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191367   (264524) от 13.12.2017
+
+Tim Warfield - Jazz Is ... (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence - The Angels Are Crying [11:56]
+02. Origins [08:15]
+03. My Shining Hour [10:25]
+04. The Magic Bag [09:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BF4488B1C4D65FF1188674610951FDACD1FCAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191372   (264525) от 13.12.2017
+
+Jim Hall - ...Where Would I Be? (1971) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Samba [04:21]
+02. Where Would I Be? [05:15]
+03. Careful [04:59]
+04. Baubles, Bangles and Beads [03:31](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC35208FE399D94DD199C5C25F26F090A7C792C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191378   (264526) от 13.12.2017
+
+Denny Zeitlin - Homecoming (1986) Living Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Light [03:36]
+02. Homecoming [03:42]
+03. Waltz for Josephine [05:11]
+04. Morning Touch [03:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609D104F816B775DEA57AB9081A0B369157ED382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191373   (264527) от 13.12.2017
+
+Hal Galper - The Guerilla Band (1970) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call [06:21]
+02. Figure Eight [07:52]
+03. Black Night [03:29]
+04. Welcome to My Dream [03:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF77A87730CA87E72941C83946688150DDB4388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339823   (264528) от 21.11.2019
+
+VideoHive - Background Lights - 25005084 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для вашего творчества, состоящий из 128-ми фоновых сцен в 8-ми категориях. Может использоваться для продвижения и рекламы ваших мероприятий, демонстрации спортивных событий, презентаций, монтажа различных промо-роликов, фото/видео слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE5ABCB893B9190587B488600DB77AE0E83E208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339768   (264529) от 21.11.2019
+
+Макс Глебов | Запрет на вмешательство (2019) [MP3]
+
+>>След.
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эскадрилья космических истребителей лейтенанта Ирса охраняет научную базу высокоразвитой космической цивилизации, размещенную на Луне. Группа ученых на базе занимается исследованием развивающейся цивилизации на планете Земля. Однако в республике, которой принадлежит лунная база, вспыхивает мятеж, быстро перерастающий в полномасштабную гражданскую войну. На базу нападает (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 07:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992766F7DAF1B0228CD3A698A27C7C5C176B4340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339190   (264530) от 21.11.2019
+
+⚡ Эксперты рассказали, чем опасны бюджетные смартфоны
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дешевые смартфоны оказались уязвимы к хакерским атакам
+Для уменьшения затрат производители снижают требования к стандартам качества программного обеспечения.Предустановленные приложения на бюджетных Android-смартфонах несут в себе серьёзные риски распространения ваших личных данных из-за большого количества уязвимостей в них. К такому выводу пришли специалисты компании (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279310   (264531) от 21.11.2019
+
+Подшивка журналов | Моя любимая дача (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному дизайну, рекомендации экспертов и садоводов. В каждом номере - садоводческий лунный календарь. На вопросы читателей отвечают эксперты и редакция.Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF158B6309D36D9356E3B00760356C54006481E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339762   (264532) от 21.11.2019
+
+В прямом эфире / Late Night (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэтрин Ньюбери является пионером и легендарным ведущим ночных ток-шоу. Когда ее обвиняют в том, что она «женщина, которая ненавидит женщин», она нанимает Молли. В мужском отделе сценаристов Молли становится первой женщиной. Но таких «косметических» изменений слишком мало для начальства. Грозная Кэтрин также сталкивается с реальностью низких рейтингов и её хотят заменить. (   Читать дальше...   )Производство: США / 3 Arts Entertainment, 30West, FilmNation EntertainmentЖанр: Драма, комедияРежиссер: Ниша ГанатраАктеры: Эмма Томпсон, Минди Кейлинг, Джон Литгоу, Хью Дэнси, Рейд Скотт, Дэнис О'Хэр, Макс Каселла, Пол Уолтер Хаузер, Джон Ерли, Jia PatelПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (forced, full), украинские, английскиеПродолжительность: 01:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03886E0FDFDBBA31FE6256437C4AEB2518E2FAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298388   (264533) от 21.11.2019
+
+Сверхъестественное / Supernatural (2006-2007) BDRip (сезон 2, серии 1-22 из 22) Рен-Тв
+
+>>Зарубежные сериалы
+>>Сверхъестественное / Supernatural
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки.Производство: США / Kripke Enterprises, Supernatural Films, Warner Bros. Television, Wonderland Sound and VisionЖанр: фэнтези, ужасы, триллер, драма, детектив,Режиссер: Эрик КрипкеАктеры: Джаред Падалеки, Дженсен Эклс, Джеффри Дин Морган, Джим Бивер, Линда Блэр, Саманта Феррис, Чед Линдберг, Алона Таль, Фредрик Лене, Стерлинг К. Браун, Линдси Маккеон и др.Перевод: Дублированный (Рен-Тв)Продолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C5A28137B4D1471413C659DE05F6465BFD21D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450088   (264534) от 21.11.2019
+
+Смерть с дымком (2011) SATRip (серии 1-2 из 2)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264534.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России от болезней, вызванных курением, ежегодно погибают около 400 тысяч человек. Впервые государство решило принять цивилизованные антитабачные законы. Однако табачное лобби всеми силами противостоит этому. Кто спасет курящих россиян? И почему наши курильщики так легко соглашаются на медленную смерть?
+Уже давно доказано, что курение является причиной преждевременной (   Читать дальше...   )Производство: Россия, ООО "Новое решение МЕДИА"Жанр: Документальный, ТелепередачаРежиссер: Светлана БаблевскаяПродолжительность: 2 х ~00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D29C933C3869B08028CBE44B52340D59823B47F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339753   (264535) от 21.11.2019
+
+В прямом эфире / Late Night (2019) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэтрин Ньюбери является пионером и легендарным ведущим ночных ток-шоу. Когда ее обвиняют в том, что она «женщина, которая ненавидит женщин», она нанимает Молли. В мужском отделе сценаристов Молли становится первой женщиной. Но таких «косметических» изменений слишком мало для начальства. Грозная Кэтрин также сталкивается с реальностью низких рейтингов и её хотят заменить. (   Читать дальше...   )Производство: США / 3 Arts Entertainment, 30West, FilmNation EntertainmentЖанр: Драма, комедияРежиссер: Ниша ГанатраАктеры: Эмма Томпсон, Минди Кейлинг, Джон Литгоу, Хью Дэнси, Рейд Скотт, Дэнис О'Хэр, Макс Каселла, Пол Уолтер Хаузер, Джон Ерли, Jia PatelПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Русские (форс. вшитые), украинские (полные), английские (полные)Продолжительность: 01:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82CF0FE51B3A22C637793AC5BCAD84353972E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339783   (264536) от 21.11.2019
+
+CDBurnerXP 4.5.8.7128 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264536.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDBurnerXP - программа для записи CD и DVD, включая Blu-Ray и HD-DVD. Пишет данные с жесткого диска и из ISO имиджей, записывает CD с данными и аудио-CD. Кроме этого, позволяет создавать загрузочные диски, переписывать аудиоCD на жесткий диск "на лету" в файлы MP3, OGG, WMA, WAV, а также сохранять образы CD в виде ISO-файлов. CDBurnerXP может работать как (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DA3B30976676C6D1071BF2E98CA3A0D258FB37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339888   (264537) от 21.11.2019
+
+VSO ConvertXtoDVD 7.0.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264537.jpg" />
+</div>
+
+
+###  Подробнее
+
+VSO ConvertXtoDVD - программа, предназначенная для преобразования видео в формат, совместимый с DVD Video, и последующей записи содержимого на DVD. Программа поддерживает видео файлы AVI, Mpeg, Mpeg4, DivX, Xvid, MOV, WMV, WMV HD, DV, MKV, DVD, а также потоковое видео. Для работы программы не нужны внешние AVI-кодеки, поскольку она использует собственные. ConvertXtoDVD (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01465D2A7FC9EF30041B5F184E4FF2F7D79403C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

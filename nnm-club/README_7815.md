@@ -1,26 +1,667 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1458737   (235575) от 30.03.2021
+
+Animal House - Living in Black and White (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need to be me
+02. The Ghost of a Lonely Man (feat. Michele Guaitoli)
+03. The Only Way to Live
+04. The Man from Nowhere(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BF0FDB7D08CE25BB301E90AD230896370E0ACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550976   (235576) от 13.05.2022
+
+Adobe Audition 2022 22.4.0.49 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F79952D0A2E1C722ABE5AE02B4583A54C1EDA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641158   (235577) от 21.06.2023
+
+Mike LeDonne & The Groover Quartet - AwwlRIGHT! (2015) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AwwlRIGHT! [5:58]
+02. Love Don't Love Nobody [7:51]
+03. Never Can Say Goodbye [6:10]
+04. The Boss [6:32](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D963B73152A39C22DCACF2A6B05CE10071AC0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512542   (235578) от 25.11.2021
+
+Terence Blanchard - Absence (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absence (6:55)
+02. The Elders (6:03)
+03. Fall (5:38)
+04. I Dare You (Intro) (1:36)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0E72F103191E9D4627C2B1EFC966EEA7A074F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632280   (235579) от 09.05.2023
+
+Glarysoft Malware Hunter PRO 1.166.0.784 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCB9D6AAE28919621F72E74C2CF7D105034D39A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576015   (235580) от 12.09.2022
+
+JUG Ru Group | TechTrain 2022 Spring. Фестиваль для разработчиков и им сочувствующих (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235580.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechTrain — однодневный бесплатный онлайн-фестиваль, объединяющий всех, кто связан с индустрией разработки программного обеспечения. Мы собрали для вас доклады про различные технологические стеки и проблемы, с которыми сталкиваются в работе IT-специалисты. Надеемся, что вам понравится.Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 11:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63617AF3D9CC34CDFF150F0B8431957484E1F805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617618   (235581) от 08.03.2023
+
+Zulu - A New Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Africa [00:01:02]
+02. For Sista Humphrey [00:01:20]
+03. Our Day Is Now [00:01:37]
+04. Music To Driveby [00:01:27](   Читать дальше...   )Жанр: Experimental, HardcoreПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE0923D7272701C692231E1CA1DE1E94068B9AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636061   (235582) от 29.05.2023
+
+Molly & The Heymakers - Live Wires (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bit About Love (2:38)
+02. Wound Tight (3:59)
+03. Billy Goes Through the World (4:11)
+04. Your Company (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E5EC4163D1CAF5D2D3DA0BEDE74890CFBDD55E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458770   (235583) от 30.03.2021
+
+Disk Space Analyzer Pro 3 v3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Space Analyzer (Disk Expert) - приложение позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
+Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2021Разработчик: NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8593308F1AD524D268472D02931B90385D2C388C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641294   (235584) от 21.06.2023
+
+Default Folder X 6.0 a7 Pre-Release [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2023Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6BF3452A7D1C0F13917F756577003FAEFA27B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512577   (235585) от 25.11.2021
+
+Stigma - When Midnight Strikes (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walpurghis Night (Intro) [00:52]
+02. I Am Dracula [03:55]
+03. Silver Bullets And Burning Crosses [04:04]
+04. To Be Really Dead... That Must Be Glorious! [04:39](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DE4DECE7D2532E274AAC99DB7EEAC08140F508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550936   (235586) от 13.05.2022
+
+Udemy, Mateusz Wendowski | AAA Game 3D Character Art course Module 01 - Body (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс создан для художников персонажей среднего уровня, где я показываю свой полный пайплайн создания тела и головы для персонажей, используя отсканированные текстуры из 3dscanstore Джеймса Басби. В этом курсе вы узнаете: основы скульптинга персонажей, пару методов детализации кожи, запекание в Marmoset Toolbag 3, методы AAA текстурирования, концепт и реалистичное (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 02:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026366492265D8EDF6A006156CDDAD9533999AB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632195   (235587) от 09.05.2023
+
+Малая земля. Герои без ретуши (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год 3 февраля жители Новороссийска зажигают и выставляют в окнах своих домов свечи памяти. Так в городе начинается акция "Бескозырка". Она посвящена героям – черноморцам, которые в 1943 году захватили на Южной окраине города плацдарм, получивший название "Малая земля". 80 лет назад промозглой февральской ночью на этом берегу погибли первые (   Читать дальше...   )Производство: РоссияЖанр: документальный, историяРежиссер: Алексей ДенисовСубтитры: отсутствуютПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063EAB79A4F2CE35B26DC32AE3E994EAEF7B0535
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617885   (235588) от 08.03.2023
+
+Fracturus - Versus the Void (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension [00:00:42]
+02. Storm [00:03:40]
+03. Versus the Void [00:03:58]
+04. Forget the End [00:03:27](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B47933809222853A7D45B8A4D06506C16C3180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636262   (235589) от 29.05.2023
+
+John Fedchock NY Sextet - Into The Shadows (2020) Summit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RSVP [6:37]
+02. Alpha Dog [7:24]
+03. Manaus [7:16]
+04. I Should Care [7:01](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0387FFEB88EA3CAA4C73BB76A4480F89994A1428
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458808   (235590) от 30.03.2021
+
+Allavsoft Video Downloader Converter 3.23.4.7759 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B237BE9903E4647D5AD40D74158DB66099714A63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512575   (235591) от 25.11.2021
+
+Spearhead - Decrowning The Irenarch (2007) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prolegomenon
+02. Decrowning the Irenarch
+03. When the Pillars Fall
+04. Road to Austerlitz(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F207F00C4640B765D9B7838EAAEC8B37B109C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641297   (235592) от 21.06.2023
+
+Mimestream 1.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mimestream сочетает в себе мощь macOS с расширенными функциями Gmail для нового типа почтового клиента, который позволяет вам легко перемещаться по электронной почте.
+Как собственное приложение, написанное на Swift, Mimestream использует всю силу macOS, чтобы обеспечить быстрый и мгновенно знакомый опыт. Вместо использования протокола IMAP Mimestream использует API (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.06.2023Разработчик: © 2023 Mimestream, LLC.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA823D154B3288943D385438CFAFBD372F004BB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458275   (235593) от 28.03.2021
+
+Andromida - Hellscape (2021) [MP3|320 Kbps] <Progressive Metal, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Havoc [00:05:08]
+02. Isolated [00:03:41]
+03. The Zenith [00:05:38]
+04. Paradise Lost [00:04:46](   Читать дальше...   )Жанр: Progressive Metal, DjentПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267BF1F48BA6448D0A12C24D2CB11BF9643224B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550955   (235594) от 13.05.2022
+
+Adobe Media Encoder 2022 22.4.0.53 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Media Encoder 2022 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D02298537A1177EC66721052A6AEDF6A4AF7D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617857   (235595) от 08.03.2023
+
+Мак Суэйн. Руки вверх! / Hands Up! (1926) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена гражданской войны в северной Америке. Для пополнения опустевшей гос.казны северяне посылают военную экспедицию к своему союзнику золотопромышленнику, у кторого богатый рудник. Туда же южане-конфедераты посылают своего шпиона, естественно с целью помешать северянам. Но это не серьезный боевик. Тут полно иронии и обыгрывания кинематографических и прочих штампов. (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: боевик, комедия, военный, немое киноРежиссер: Кларенс Дж. БаджерАктеры: Рэймонд Гриффит, Мэриэн Никсон, Вирджиния Ли Корбин, Мак Суэйн, Монтегю Лав, Джордж А. Биллингс, Чарльз К. Френч, Ноубл ДжонсонПеревод: Немой с интертитрамиСубтитры: Английские (интертитры), русские отдельным файломПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A101EC3CC087334B317887785A5A4FCC1BFD57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632392   (235596) от 09.05.2023
+
+Joplin 2.10.18 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joplin - это бесплатное приложение для создания заметок и дел с открытым исходным кодом, которое может обрабатывать большое количество заметок, организованных в блокноты. Заметки доступны для поиска, их можно копировать, помечать и изменять либо непосредственно из приложений, либо из вашего собственного текстового редактора. Заметки в формате Markdown.
+Заметки, экспортированные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43E627AE09FE8FC40C7B53F518A999E5A58F362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636286   (235597) от 29.05.2023
+
+dEMOTIONAL - Scandinavian Aftermath (2021) Deluxe Edition, 2023, Relapse Records [MP3|320 Kbps] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scandinavian Aftermath [00:03:05]
+02 - Bärsärk [00:03:11]
+03 - My Own Enemy [00:03:36]
+04 - My Heart (feat. Matt Guillory & Jenny Fagerstrand) [00:05:22](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145CFF568EE67FAA202668EE017398CC8A6ABA5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458874   (235598) от 30.03.2021
+
+ISGHERURD MORTH - Hellrduk (2021) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Black Metal, Blackgaze, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inferhn (7:58)
+02. Kultth Tormentr (6:39)
+03. Nokturahl (5:06)
+04. Lucir Stormalah (6:33)(   Читать дальше...   )Производство: Repose Records - REPOSE003Жанр: Avantgarde Black Metal, Blackgaze, Death MetalПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1334F6B96E455CA170B03A1E0AE88D5EF05EF9BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512422   (235599) от 25.11.2021
+
+VA - Post Modern Lounge 2 (2021) [AAC|~321 Kbps] <Lounge, Nu Jazz, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew De la Foix - Misfit (Radio Edit) (3:21)
+02. Sugarpie And The Candymen - Lithium (3:16)
+03. Papik, Sarah Jane Morris - Missing (4:18)
+04. Filippo Perbellini, Brine - Billie Jean (Brine Late Night Drive Remix) (5:58)(   Читать дальше...   )Жанр: Lounge, Nu Jazz, Easy ListeningПродолжительность: 01:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05D300F51843636DF5EAD60F677E9890DC49364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458271   (235600) от 28.03.2021
+
+Своя игра (28.03.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91961CAEC9544FE82F078C1004190D831C512528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

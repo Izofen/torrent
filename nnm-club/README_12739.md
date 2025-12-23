@@ -1,26 +1,682 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1567365   (474430) от 02.08.2022
+
+Вячеслав Клименков - Дыхание любви (1996) [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыхание любви
+02. Расставание в ночи
+03. Подари мне любовь
+04. Маленький китаец(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80878D1E66C9B685436AE11D37CC179B02811B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567303   (474431) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 13 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fandoctor - Want 2 Dance
+02. WastReal - Flava Pas
+03. Newsouth Housewaves - Greece 2022
+04. My Secret Garden - If I Say(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:36:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD0F72CB31E658ABEC111084E7E47E48EAF77A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567338   (474432) от 02.08.2022
+
+ApolloOne - Photo Video Viewer 3.1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474432.jpg" />
+</div>
+
+
+###  Подробнее
+
+ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC015892A851467349D9B9F43FE1A85344C55BB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567367   (474433) от 02.08.2022
+
+The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life's a Bitch (but I like it so much) (2:51)
+02. Hung Up (3:25)
+03. Reeling (3:09)
+04. Old Friends Die Hard (2:18)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567321   (474434) от 02.08.2022
+
+Easy Markdown 1.9.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474434.jpg" />
+</div>
+
+
+###  Подробнее
+
+HTML (от англ. HyperText Markup Language — «язык гипертекстовой разметки») — стандартный язык разметки документов во Всемирной паутине. Язык HTML интерпретируется браузерами и отображается в виде документа в удобной для человека форме.
+Easy Markdown позволяет создавать веб-страницы так же, как запись обычного текста. Easy Markdown поможет улучшить вашу скорость в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2012-2022 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B108C48195C14DAC32914693FC686304DA6652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567299   (474435) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 12 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukkino Feat. Hecate - Aliens (Vox & Sax Zuli Radio Version)
+02. Fabrizio La Marca - Alone With You
+03. Loving Touch - Take Me
+04. Dino Del Moro - Just Believe(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:28:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6921CADD13366C02C1067010357B07B894BE7DD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547592   (474436) от 15.09.2012
+
+[Wallpapers] Абстракции (Часть 2)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстракции обои для рабочего стола часть 2.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FEC29818477D660E514D4CD1D418F9CF58DA5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547533   (474438) от 15.09.2012
+
+VA - Billboard Hot 100 (08.09.2012) [MP3|219-298 кб/с]<House, Club, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - We Are Never Ever Getting Back Together [03:11]
+ 02. Flo Rida - Whistle [03:45]
+ 03. Ellie Goulding - Lights [03:31]
+ 04. Maroon 5 - One More Night [03:39]
+ 05. Fun - Some Nights [04:37]
+ 06. Carly Rae Jepsen - Call Me Maybe [03:13]
+ 07. Katy Perry - Wide Awake [03:41]
+ 08. Maroon 5 ft. Wiz Khalifa - Payphone [03:51]
+ 09. Owl City ft. Carly Rae Jepsen - Good Time [03:26]
+ 10. Justin Bieber ft. Big Sean - As Long As You Love Me [03:49](   Читать дальше...   )Жанр: House, Club, Funky, Dance, VocalПродолжительность: 06:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07B83537A3722B765D5D3B57186740CBC9C30FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547004   (474440) от 15.09.2012
+
+VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Morales with Lea Lorien - How Would U Feel (Rouhofer Radio Edit) [03:57]
+02. Stonebridge Vs. Ultra Nate - Freek On (Ferry Corsten Radio Edit) [03:26]
+03. Global Deejays - What A Feeling (Clubhouse Radio Version) [03:28]
+04. Sonique - Why (Radio Edit) [03:10]
+05. Dave Mcallen - Bitch (Radio Edit) [03:09]
+06. Tom Novy Feat. Lima - Take It (Video Edit) [03:31]
+07. DJ Sender - What You Need (Original Mix) [04:13]
+08. Bastian Bates - So Much Love (Short Club Mix) [03:27]
+09. Heiko & Meik(O) - Glucklich (French Cut) [03:05]
+10. Uniting Nations - You&Me (Radio Edit) [02:59](   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547445   (474442) от 15.09.2012
+
+Журнал | Лиза. Гороскоп №10 (октябрь 2012)
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза Гороскоп» — глянцевый журнал для женщин, которые сверяют свою жизнь со звездами и любят получать положительные эмоции. Как стать хозяйкой своей судьбы? Звезды Вам советуют. Ежемесячные прогнозы для всех знаков Зодиака. Любовь: ее психология и выбор партнера.
+
+
+Скриншоты:Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB83A13C3E9C5F8E36B1B66D2DF206056E6FD640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547702   (474443) от 15.09.2012
+
+VA - Lounge de Ibiza Bonita Vol.1 (Glamorous & Luxury Lifestyle) (2012) [MP3|320 кб/с]<Lounge, Chill>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Sunrise
+02. Lemongrass - Reflection
+03. Michiko - No Place Like Home
+04. Smooth Deluxe - El Turco
+05. Five Seasons - Time to Go Back
+06. Claude Chagall - Balearic Waves (Aqua Del Mar Edit)
+07. Beatkonexion - Heart
+08. Aimee Sol - Let Me Know (Cafe Crema Edit)
+09. Marga Sol - Free Your Mind
+10. Stargazer - La Vie Est Belle (Pre Mix)(   Читать дальше...   )Жанр: Lounge, ChillПродолжительность: 02:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F553494285D77E37D20CF4074BD2BB891578393
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547581   (474444) от 15.09.2012
+
+Подборка журналов | Tattoo Romanian News №№3 - 5,8,12 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Румынское интернет-издание о мире татуажа. В некоторых номерах представлены репортажи о древних племенах и их традициях татуировок. Представлено большое количество авторских работ.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B87D1FF5DDEE399DE13F095286CE7AD330AE047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547611   (474445) от 15.09.2012
+
+Журнал | Tattoo Life №77 (UK) [июль - август 2012] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о современном мире татуировок как искусстве. Содержит информацию о международных выставках, фестивалях тату, а также иллюстрации самих татуировок.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5741F8C126EE5B4158201B4BCB159EF208447327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546310   (474446) от 15.09.2012
+
+VA - Осенний Non-Stop (2012) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Sen - Давай Поженимся (Club Remix)
+02. R.J. feat. Pitbull - Live 4 Die 4 (David May Extended Mix)
+03. Jay-Z feat. Kanye West & Big Sean - Clique
+04. Lil Wayne feat. Nikci Minaj - Mercy
+05. Farruko feat. Daddy Yankee - Guillao
+06. Thya - Fight For Love (Radio Edit)
+07. Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version)
+08. Will.I.Am - Reach For The Stars (Mars Edition)
+09. Тимати и Григорий Лепс - Лондон
+10. Will.I.Am feat. Nicole Scherzinger - Hoola Hoop(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62422DC55154B2CE15CB8483BAAED29939E2691D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547590   (474450) от 15.09.2012
+
+Журнал | Tattoo is Pain №№4,5 (Spain) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-издание о мире тату: новости, технологии, инструменты. В каждом номере - галерея тату на различную тематику.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E01C9442448DA70034ED2B234006A33D2A2FFC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547444   (474454) от 15.09.2012
+
+Журнал | Диетика №9-10 (сентябрь-октябрь 2012)
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474454.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии. «Диетика» - ключик к твоей стройности.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C5E845CB3789F96F613FDFC1A484AA18FDE806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875459   (474456) от 28.09.2016
+
+NoName Club 0.74 [Ru] (Авторская раздача)
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неофициальный клиент к торрент-трекеру NoName Club. На данный момент не все баги устранены, не все выловлены.  Пишите свои замечания, предложения, найденные ошибки.Тип издания: FreeРелиз состоялся: 24.05.2015Разработчик: Автор этой темыПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F178203B35CACD3973AD526115B88237049A07A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998840   (474457) от 28.09.2016
+
+UpdatePack 7 для интеграции обновлений в образ Windows 7 SP1 (x86\64) v. 1.9.6 Stable (28.09.16) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет включает в себя :
+1. Проверка и интеграция обновлений.
+2. Содержит обновления актуальные на дату выхода пакета.
+3. Обновления сжаты с аддонами в esd(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE0565CAE37B733B5E6E64210B85AA74C557A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057345   (474459) от 28.09.2016
+
+Уильям Шоттс | Командная строка Linux. Полное руководство (2017) [PDF, EPUB]
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474459.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Уильям Шоттс знакомит вас с истинной философией Linux. Вы уже знакомы с Linux и настала пора нырнуть поглубже и познакомиться с возможностями командной строки. Командная строка - всегда с вами, от первого знакомства до написания полноценных программ в Bash - самой популярной оболочке Linux . Познакомьтесь с основами навигации по файловой системе, настройки (   Читать дальше...   )Жанр: Операционные системыФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C732E294CA449BD62AA5BA52226879AB64082FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701555   (474460) от 19.09.2013
+
+Векторный клипарт - 2014 год Лошади 4 / 2014 Year of the Horse 4 [EPS]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474460.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 год ЛошадиФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4767641DDFE2E9141F282B02589A1C58BF07E49B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057356   (474463) от 28.09.2016
+
+Adobe Illustrator CC 2015.3.1 20.1.0 RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator CC 2015 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695B6547562E6B8163DA7769D25E460EC1320DE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057523   (474467) от 28.09.2016
+
+VA - Самые Лучшие Хиты 80-90-х В Современной Обработке (2016) [MP3|320 Kbps] <Disco, Eurodance, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version)
+02. Modern Talking - Arabian Gold ( Alexduxer Dance mix)
+03. Ane Brun - Big In Japan (DJ Brooklyn Edit)
+04. Modern Talking - Brother Louie (Andrey Po remix)(   Читать дальше...   )Жанр: Disco, Eurodance, Dance, PopПродолжительность: 09:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC2609302D04372867E0B0AB4A0B74198D3E486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004460   (474469) от 28.09.2016
+
+Enter the Gungeon (2016) [Ru/Multi] (1.0.10/dlc) License GOG [Collector`s Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enter the Gungeon - это подземное приключение со стрельбой. Банде неудачников с нечистой совестью предстоит палить во все стороны, уворачиваться от пуль и собирать добычу - только так они отыщут легендарное сокровище подземелья Gungeon - оружие, способное уничтожить прошлое. Выберите персонажа и пробейтесь через толпы врагов на самое дно подземелья.Тип издания: LicenseРазработчик: Dodge RollЖанр: Arcade (Shoot'em up), Top-downЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF1D8B99211DBD4126A7A1C6131AB783EAFCCA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056871   (474471) от 28.09.2016
+
+Fallout Tactics: Brotherhood of Steel (2001) [Ru/Multi] (1.27) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда отгремела Третья мировая война, выяснилось, что пережить ее смогли совсем немногие - да и те, растеряв большинство накопленных знаний, постепенно скатываются в каменный век. Сильное радиационное излучение убило либо видоизменило практически все формы жизни, породив чудовищных мутантов. Единственная надежда человечества на выживание - посвятившая себя восстановлению (   Читать дальше...   )Тип издания: LicenseРазработчик: Micro Forté, 14 Degrees EastЖанр: Strategy (Turn-based, Tactical), IsometricЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD18215376F220AE47673092E81CBFF40740584A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023964   (474473) от 28.09.2016
+
+Hearts of Iron IV (2016) [Ru/Multi] (1.2/dlc) License CODEX [Field Marshal Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hearts of Iron IV позволяет игрокам встать во главе Второй мировой войны, управляя любой из участвующих в конфликте страной. Можно выбрать супердержаву и постараться повести ее к тотальному завоеванию мира, или сыграть за небольшое государство, пытающееся выжить в смутные времена. Глубина стратегии Hearts of Iron IV в том, что для достижения победы нужно не только (   Читать дальше...   )Тип издания: LicenseРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F225E1CB014EC29E07AD290E612E515DFC0E412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701546   (474477) от 19.09.2013
+
+Журнал | Maxim [Россия] №7 (июль 2013) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C786ECB52CC9703E752A04F77FF1DA970212134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

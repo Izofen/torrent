@@ -1,26 +1,676 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1293413   (635657) от 04.04.2019
+
+Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpology (4:19)
+02. Tierra Del Fuego (4:33)
+03. No Escape (6:09)
+04. Realism (4:13)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA016DDF79E2F5BE1435EE94B03842B367D224B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293410   (635658) от 04.04.2019
+
+Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Limits of Our Frontier (5:40)
+02. Destination Mars (6:40)
+03. Spirit (6:11)
+04. Opportunity (6:00)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9455D72E6190B2DA63AEF230C68298C77B1EA51F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293409   (635659) от 04.04.2019
+
+Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lair of the Dragon (6:43)
+02. Spirit Warriors (6:33)
+03. Shadow Dancer (5:58)
+04. Lunar Festival (4:52)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C16936E653D3684FBFB8D13465EEB11DE2BC1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293719   (635660) от 04.04.2019
+
+Журнал | DOM & podium №20 (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635660.jpg" />
+</div>
+
+
+###  Подробнее
+
+DOM & podium – яркий, уникальный глянцевый журнал об архитектуре, дизайне интерьеров и стильных решениях для комфортного образа жизни.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE196F43015AD67E238EF0914FB7FCA59E87441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293669   (635661) от 04.04.2019
+
+Журнал | Автомир [Россия] №15 (апрель 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635661.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A214D3806AF3B36B0B7FC1874F80FF396F54348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293681   (635662) от 04.04.2019
+
+VA - Dance - Pop Vol. 2 (2019) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies feat. James Blunt - Melody (Ofenbach Remix) (2:48)
+02. Embody - I Miss You (2:56)
+03. LUxCA - Little Girls (3:11)
+04. Stereoact & Jaques Raupe feat. Peter Schilling - Terra Titanic (Anstandslos & Durchgeknallt Remix) (2:59)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBA6A681EBC1CFCCDEFAFB3157ED44934D6944C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293412   (635663) от 04.04.2019
+
+Chris van Buren - New Horizons (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life on Earth (4:57)
+02. New Horizons (4:18)
+03. Constellation (4:56)
+04. Destroyer (4:22)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3998DEFC10A503BB01BDEA09ABA7DC06CD434A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293404   (635664) от 04.04.2019
+
+Wolf and Raven - Ace of Space (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Odyssey Overture (1:53)
+02. Ace of Space (5:40)
+03. Galaxy Joyride (5:17)
+04. Light Years (4:29)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF53CC5909D990DEB2B98057BAED48BCA68FDC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293720   (635665) от 04.04.2019
+
+Журнал | The World of Interiors №5 (май 2019) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682B810B37EF881AC5511B99D7D1D13B73258112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293517   (635666) от 04.04.2019
+
+Журнал | Жилая среда №4 (156) (апрель 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDD62F3CE9E7E11F25E3C5B2548DDE7D69A9D93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293490   (635667) от 04.04.2019
+
+Tori Kelly - Hiding Place (2018) [FLAC|Lossless|tracks + .cue] <Pop, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterpiece (feat. Lecrae) (04:45)
+02. Help Us To Love (feat. The Hamiltones) (03:46)
+03. Sunday (03:36)
+04. Just As Sure (feat. Jonathan McReynolds) (05:30)(   Читать дальше...   )Жанр: Pop, GospelПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A5702013685D42AB8F548CC618AC93D4A2D9D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293658   (635668) от 04.04.2019
+
+Журнал | Цветок №19 (2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: садоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423673F6DED259A49DF24E65A8C4EAD78FF367BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293201   (635669) от 04.04.2019
+
+Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Закрой глаза  (3:27)
+02 - Люби меня  (3:33)
+03 - Больше не надо  (3:51)
+04 - Запомни меня  (3:18)(   Читать дальше...   )Жанр: Dance, EDMПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07500899CBA817E9C961BE90A1DA0EF68DAA8725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293345   (635670) от 04.04.2019
+
+VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slavko Blanco - Sugar Ball (Original Mix)
+02. Angelique Leroy - Rainbow In Me (Original Mix)
+03. Markus B - Alien Technology (Original Mix)
+04. Edelrost - Pizza (Extended Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293665   (635671) от 04.04.2019
+
+Demons & Wizards - Demons & Wizards (1999) 2000, NEMS Enterprises [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rites Of Passage (0:56)
+ 02 - Heaven Denies (5:17)
+ 03 - Poor Man's Crusade (4:02)
+ 04 - Fiddler On The Green (5:56)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C14723C184E38D5D8092F3CC2FDFDFDC146A09F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293531   (635672) от 04.04.2019
+
+VA - Soap Buble: Clubbing Electro House (2019) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635672.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leonardo Pancaldi - Nothing You Can Save
+002. David Rull - Be Water My Friend
+003. Ant. Shumak - Objective Dream (Original Mix)
+004. Stil & Bense - Serenade(   Читать дальше...   )Жанр: HouseПродолжительность: 10:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9C3D0594B0980B4BE9CAE5C162144B84F5EDBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293577   (635673) от 04.04.2019
+
+Avey Tare - Cows on Hourglass Pond (2019) [FLAC|Lossless|tracks + .cue] <Experimental, Indie, Psychedelic Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What’s the Goodside? (06:31)
+02. Eyes on Eyes (04:31)
+03. Nostalgia in Lemonade (03:41)
+04. Saturdays (Again) (04:49)(   Читать дальше...   )Жанр: Experimental, Indie, Psychedelic FolkПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CAA291113C3C49CCDD7A310FB081931B8227E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293525   (635674) от 04.04.2019
+
+Ty Segall - Deforming Lobes (2019) Live [FLAC|Lossless|tracks + .cue] <Garage Rock / Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm Hands (9:34)
+02. Squealer (2:23)
+03. Breakfast Eggs (2:40)
+04. The Crawler (2:32)(   Читать дальше...   )Жанр: Garage Rock / Indie RockПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE96B6E7D9D4E639B04B95CC1EF74228D3450D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293655   (635675) от 04.04.2019
+
+Журнал | Цветок №23 (350) (декабрь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: садоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2C36B238BCA81EC0677AF64694DE53BA56693D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293502   (635676) от 04.04.2019
+
+Seamus Blake - Guardians Of The Heart Machine (2019) [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardians of the Heart Machine [8:17]
+02. Vaporbabe [7:10]
+03. Sneaky D [6:55]
+04. I'm Okay [7:41](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE1B27787DE964B8B3DBED61EAF4A6C1B5B6589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143645   (635677) от 18.06.2017
+
+Волейбол. Чемпионат мира 2018. Отборочный турнир. Женщины. Европейский Квалификация. Группа D. 4 тур. Бельгия - Босния и Герцеговина (03.06.2017) WEB-DL [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635677.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 июня 2017 года
+Чемпионат мира 2018. Отборочный турнир. Женщины. Европейский Квалификация
+Группа D. 4 тур
+Бельгия - Босния и Герцеговина(   Читать дальше...   )Телекомпания: CEV TVЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 01:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA431845752A079F25530D6A6CEEEB490AC179B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228594   (635678) от 01.06.2018
+
+Бьянка - Чем мне любить (2018) EP [MP3|320 Kbps] <R&B, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635678.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В чувствах
+2. Вылечусь
+3. Чем мне любить
+4. На дух не переношу(   Читать дальше...   )Жанр: R&B, PopПродолжительность: 00:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB356EA928BDB1024F319DBF1F710173802C8A25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228148   (635679) от 01.06.2018
+
+C.C. Catch - The Album - Remastered (2017) Limited Edition [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 2010 (6:47)
+02. You Are My World (Radio Version) (4:24)
+03. Supernature (3:24)
+04. Unborn Love (Remastered) (3:38)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6359EFD449C00952F6C971D5EDF5C20F3432D87D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228587   (635681) от 01.06.2018
+
+Подмена (Кара небесная) / Switch (1991) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Брукс, сердцеед и соблазнитель женщин, отправляясь на очередную вечеринку, не знал, что погибнет от рук своих любимиц и на следующий день превратится в эффектную блондинку. Теперь, чтобы не попасть в ад, он должен понравиться хотя бы одному человеку…Производство: США / Beco Films, Cinema Plus, Home Box Office (HBO)Жанр: Фэнтези, КомедияРежиссер: Блейк ЭдвардсАктеры: Эллен Баркин, Джимми Смитс, ДжоБет Уильямс, Лоррейн Бракко, Тони Робертс, Перри Кинг, Брюс Пэйн, Лизетт Энтони, Виктория Махони, Бэзил Хоффман, Теа Леони, Кэтрин КинерПеревод: Дублированный, Профессиональный (двухголосый, закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские, Английские Французские, Испанские, Португальские, Итальянские, Финские (вшитые, отключаемые)Продолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68057F77A68F8B9ECAAF8BBDA78C9DF5FDDCC34F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228256   (635682) от 01.06.2018
+
+Ю.А. Бычков и др. | Основы теоретической электротехники (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал излагается со строгих математических позиций, с обязательной физической трактовкой. Курс начинается с изучения функциональных свойств цепей как преобразователей сигналов сначала во временной, а затем в частотной областях. Изложены классические и современные приложения теории цепей — дискретные цепи, теория фильтров, активные цепи, синтез двухполюсников, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FD90073E3BDCFE5CD7D7526AD7B4F648029A70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228498   (635683) от 01.06.2018
+
+Павел Корнев | Царство мертвых (2018) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра остаётся игрой, только пока из неё можно выйти. Главный герой в полной мере прочувствовал это на собственной шкуре. Как гласит расхожая фраза, «он слишком много знал». Неудобного свидетеля посредством хакерской атаки попытались навсегда оставить в виртуальном мире, заточив в тело ходячего мертвеца. Однако тот оказался не столь прост и сумел превратить беспомощного (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 08:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05802B2B97205F9463561A3B2787D9E4DF6FCF69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

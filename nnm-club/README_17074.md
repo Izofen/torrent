@@ -1,26 +1,678 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 332898   (696059) от 06.05.2011
+
+S:cage - 2 Albums (2004-2006) [MP3|320 kbps]<Rhythmic Noise, Industrial, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness (13:37)
+02. Vapour (6:04)
+ 03. Collapsing Breath (6:09)
+ 04. Gone (Undone) (5:36)(   Читать дальше...   )Жанр: Rhythmic Noise, Industrial, Ambient |Продолжительность: 02:10:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534393   (696069) от 01.03.2022
+
+Duplicate Finder and Remover 1.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удалите «повторяющиеся» файлы и освободите место на вашем Mac с помощью Duplicate Finder и Remover. Приложение предназначено для легкого поиска дубликатов файлов, включая фотографии, видео, песни и другие документы. Просто перетащите папки в приложение, чтобы начать процесс.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427BB207A1C71481CF33CDC286788410CD363C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534406   (696070) от 01.03.2022
+
+VA - Sub-Division Recordings - Partitions, Vol. 2 (2022) [AAC|~330 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beskar - Star Destroyer (4:08)
+02. Oli Lewis - Stock Photo (5:13)
+03. Ruckus - System Error (4:54)
+04. Beskar - Thunder Wasp (4:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185DD59D0BB7C944804ECE4BFBC42FF6228A57D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534055   (696071) от 01.03.2022
+
+The Soul Crusaders - The Best Of… The City (2018) [AAC|~336 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satelites (5:53)
+02. Stargazer (4:56)
+03. My Kind of Love (5:03)
+04. Standing in Your Shadow (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB824E97430C2589BEF722C9ACDB093A2B63F80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534297   (696072) от 01.03.2022
+
+Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magma (6:34)
+02. O Fogo (4:47)
+03. The Light (6:24)
+04. Half Liquid (3:48)(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BA0CA68A6F0CE72936AC1C540F3C1E759E33F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534418   (696073) от 01.03.2022
+
+Хьелль Ола Даль | Инспектор Франк Фрёлик (Книга 3). Человек в витрине (2020) [MP3, Лора Луганская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убит пожилой владелец антикварного магазина Рейдар Фольке-Есперсен. Обнаженный труп выставлен на всеобщее обозрение в витрине магазина. На лбу и груди убитого нарисованы буквы, цифры и непонятные знаки.
+Подозреваемых немало: молодая вдова; сын, который терпеть не может свою мачеху; братья, которым не терпится продать магазин, и неизвестная красавица, фотографию которой (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыПродолжительность: 12:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876DE3A6840E3AF40BC76099267C21465804E0B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534380   (696074) от 01.03.2022
+
+Darkroom: Photo & Video Editor 5.8.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 27.02.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DFB6BBD45528FB2F36B1B790E86C8853753A5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533993   (696075) от 01.03.2022
+
+The Maldive Lovers - Sweet & Lovely (Sunday Chill Out Vibes) (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Luck (2:39)
+02. Soothing Target (2:07)
+03. Airy Sleep (2:05)
+04. True Moments (1:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E61C96C3F6F21F84A6BACD18DF627BE8A4E743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534004   (696078) от 01.03.2022
+
+VA - Chillout Essentials 2022 (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Duty - Little Moments of Love (6:22)
+02. Proxy Brides - Echoes of Childhood (5:30)
+03. Silbermaus - Feverish Vibe (5:33)
+04. Ackeret - Unofficial Meeting (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF82DAA83B8FF9F6CF92AD06B192EA0B60DEC159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534372   (696079) от 01.03.2022
+
+VA - Infinite Chillout (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schlichting - Rethinking (6:00)
+02. Kusuma Orchestra - One for the Books (5:57)
+03. Rheingold Ensemble - Passing Clouds (5:58)
+04. Koenig Eltz - Alluded (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57DEF48C8A8459D8054D943C45553443E884F49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534060   (696080) от 01.03.2022
+
+VA - Deep & Joy, Vol. 3 (2022) [AAC|~315 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kosmoss - You (3:04)
+02. Darles Flow - Northern Lights (5:40)
+03. Melvin Reese - Give Me Void (5:46)
+04. Mo'jardo - I Am Fashion (4:43)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8002E4F5D0F342C7896AE27D543F85E89FA343E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534211   (696081) от 01.03.2022
+
+The Soul Crusaders - The Future (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future (Original Mix) (5:31)
+02. Don't Look Back (Original Mix) (4:51)
+03. What It Feels Like (Original Mix) (4:06)
+04. Open Sea (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081AA264EF7810C9110160AEDABF6DCFDB9B1DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534334   (696083) от 01.03.2022
+
+VA - Evening Chillin': Urban Chillhouse Music (2022) [AAC|~322 Kbps] <Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magmatunes - Sunset Lovers (Original MIx) (5:23)
+02. Martin Hiska - Sundays (3:49)
+03. Chillson, Marc Hartman - Different World (4:46)
+04. Legacy202 - 100 Galaxies (Original Mix) (6:47)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835FF99D3DCF70FFC05CABF67B5A7422890CF3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534336   (696085) от 01.03.2022
+
+VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
+02. Dave de Tommaso, Davide Aru, Dacosta - Timeless (3:33)
+03. Digby Jones, Airglo - Cielo (Night Stars at Cafe Del Mar Mix) (3:49)
+04. Gary B, Ken Fan - Volar (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC859C562BEA8D1796744E8D4FCD9D372189E29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533999   (696086) от 01.03.2022
+
+VA - Full Moon Chill, Vol. 2 (2018) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Hayman - So Beautiful (Skyscraper Cut) (5:45)
+02. Dreamscape - Nautica (Ambient Mix) (4:09)
+03. Island Sun - Calm Sea (Full Moon Mix) (5:05)
+04. Richard van Arp - Artico purcente (Aqua Wellness Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FFDC826DCA5DA33CBAE3845B30873614967693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534057   (696087) от 01.03.2022
+
+VA - Deep & Joy, Vol. 1 (2022) [AAC|~325 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jones, BRock, Nicole Cross - Losing My Religion (Jay Frog Remix) (3:15)
+02. Kosmoss - Bright Lights (3:22)
+03. Luis Hermandez - Trust In Me (3:21)
+04. Flauschig - Forgive Me (Point85 & Maex Remix) (2:40)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D700CB40419FA1250A43072F5D08B7D67A2637A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533998   (696088) от 01.03.2022
+
+VA - Maretimo Records - Masterpieces, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo - Cafe Internacional (Jumairah Skyscrapers Mix) (6:56)
+02. Cinematic - Typhoon (Phunky Waves Mix) (6:24)
+03. Stereo Gringos - Arte Moderna (Lounge Doctor Mix) (4:53)
+04. In Credo - Siesta del Sol (Laid Back Summer Cut) (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 06:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88297A65ED7029F8091D1531073E9AC5D9B947A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004985   (696089) от 19.06.2016
+
+Елена Звёздная | Урок шестой: Как обыграть принца Хаоса (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестой роман цикла «Академия проклятий».
+
+Никогда не соглашайтесь работать в Службе Безопасности Империи! Никогда! А если вашему темному лорду все же удастся соблазнить вас этой идеей, будьте готовы к тому, что придется ниточка за ниточкой распутывать шестой по счету заговор против императора, разыгрывать незабываемое представление в стенах Императорского банка с (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B5F18AE56DE03008B173E84D03A80F8DA0B779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027640   (696090) от 19.06.2016
+
+Бернар Вербер | Шестой сон (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что вы можете вернуться на двадцать лет назад и во сне встретиться с самим собой молодым.
+
+Представьте, что у вас есть возможность поговорить с этим человеком.
+(   Читать дальше...   )Жанр: Научная фантастика, Зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B3C70F055EA191631BBD8A80F5CCE10DBA5290
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025971   (696091) от 19.06.2016
+
+Сверхъестественное / Supernatural (2008-2015) BDRemux [H.264/1080p] (сезоны 4-10, дополнительные материалы) студия Кравец
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки.Производство: США / Kripke Enterprises, Warner Bros. Television, Wonderland Sound and VisionЖанр: ужасы, фэнтези, драмаРежиссер: Роберт Сингер, Филип Сгриккиа, Ким МэннерсАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Марк Пеллегрино, Женевьев Падалеки, Кэти Кэссиди, Джеймс Патрик Стюарт, Саманта Феррис и др.Перевод: Многоголосый закадровый, профессиональный - студия КравецЯзык субтитров: русский, английскийПродолжительность: 8x ~00:10:00, 30x ~00:02:00, 12x ~00:05:00, 3x 00:28:00, 2x 00:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DF5115B2FBF23206230A6998D80BC975EEBCCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772081   (696092) от 19.06.2016
+
+Федор Углов  | Будни хирурга (2014) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Будни хирурга", выходившая также под названием "Человек среди людей" - это не просто описание реальной жизни врача, медицинских случаев и неожиданных диагнозов, это поистине книга жизни... Отличительная особенность книг Федора Григорьевича в том, что описание сложнейших операций читается как детектив.Жанр: ПрозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8C6E3960EB3E09DD77F28E683FC5DED3939FDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027414   (696093) от 19.06.2016
+
+Lemonade / Beyonce: Lemonade (2016) HDTV [H.264/1080i] [EN/RU Sub]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intuition
+02 Pray You Catch Me
+03 Denial
+04 Hold Up(   Читать дальше...   )Производство: США, Good Company, Parkwood EntertainmentЖанр: Музыка, R&BРежиссер: Бейонсе Ноулз, Дикайл Риммаш, Йонас ОкерлундАктеры: Хлоя Бэйли, Холли Бэйли, Стэйси С. Барнс, Дайшон Чарли, Микаэла Депринче, Наоми Диас, Сибрина Фултон, Александр Хаммер, Винни Харлоу, Джей ЗиПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC4A8E196E0BDD52516FBEF5AF4A315F76BA742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027614   (696094) от 19.06.2016
+
+Владимир Асмолов -The Best  (2002) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бей, сынок, в колокола
+02. Всё может быть
+03. Девушка в наушниках
+04. Дефицит общения(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CF8386EE0DF97345EBAB6C7BF503059BBEA67C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027546   (696095) от 19.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/1080i-LQ] (Сезон 16, эпизод 11) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696095.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1694879C77378FBD71765D7A041E18171FA521A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027492   (696096) от 19.06.2016
+
+NVIDIA GeForce Experience 2.11.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696096.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Experience - это новое приложение от NVIDIA, которое оптимизирует ваш ПК двумя основными способами. Во-первых, GeForce Experience автоматически уведомляет вас о новых выпусках драйверов от NVIDIA и скачивает их для вас. NVIDIA постоянно работает над улучшением драйверов. Новые драйверы улучшают производительность игр, добавляют новые возможности и (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2905AFF71B42C3B769901C6EA3C5A9F8B61D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027730   (696097) от 19.06.2016
+
+Пернатая банда / El Americano: The Movie (2016) WEB-DLRip [H.264/720p-LQ] [Line]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и все подростки, попугай Куко обожает находить занятия поинтереснее, чем помогать старшим в скучных домашних делах. Например, фанатеть от своего любимого телегероя, крутого супер-пернатого Эль Американо! Все меняется, когда банда птиц-раздолбаев грозится забрать у отца Куко цирковую арену, поколениями принадлежащей их семье. Куко решает, что без помощи Эль Американо (   Читать дальше...   )Производство: Мексика, США, Animex, Olmos Productions, Phil Roman EntertainmentЖанр: Мультфильм, боевик, комедия, приключения, семейный, полнометражныйРежиссер: Рикардо Арнаиз, Майк Кункель, Рауль ГарсиаАктеры: Эдвард Джеймс Олмос, Рико Родригес, Чич Марин, Кейт дель Кастильо, Алекс Синтек, Эрик Эстрада, Пьер Анджело, Дон Чето, Рикардо СанчесПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979B57B856740D266B236374FA351C2A14BC0686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

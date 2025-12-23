@@ -1,26 +1,730 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 461635   (95345) от 03.03.2012
+
+Андрей Валентинов | Спартак (Дилогия) [2002-2006] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты не хочешь погибнуть на окровавленном песке арены, потешая зрителей, если Свобода для тебя — не просто слово, если ты уже и так мертвый, если… Имя Спартака известно каждому, но за именем прячется тайна. Спартаком греки звали одну знаменитую собаку, разорвавшую хозяина. Люди и боги, надменные римляне и бесстрашные гладиаторы, демоны, выпушенные из преисподней, проклятие, чуть не погубившее Рим, — все это сплелось кровавым клубком войны. А если бы Спартак победил?2002-2006Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD4B1DF1ECA584E8FA3A9D4AF53CB4267C96AA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461902   (95347) от 03.03.2012
+
+Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dixie Dregs, Deep Purple & The London Symphony Orchestra: Take It Off The Top (live) - 4:26
+02. Ian Gillan: You Make Me Feel So Good - 4:42
+03. Roger Glover & The Guilty Party: The Bargain Basement - 3:22
+04. Sam Brown, Deep Purple & The London Symphony Orchestra: Wait A While (live) - 6:34
+05. Gillan & Glover: Clouds And Rain - 4:02
+06. Ian Gillan Band: Money Lender - 5:40
+07. Glenn Hughes & Eddie Hardin: Light Of My Life - 3:44
+08. Deep Purple & The London Symphony Orchestra: Concerto For Group & Orchestra - Movement 1 (live) - 16:35Жанр: Hard RockПродолжительность: 01:34:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461134   (95356) от 03.03.2012
+
+Пастушья кукла / Зеннентунчи / Проклятие Альп / Sennentuntschi (2010) BDRemux [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагедия похоти, безумия и убийств... Зеннентунчи – соломенная кукла для утешения одиноких пастухов, которые живут высоко в горах. Делается она, по старинному преданию, из метлы и рогожи, набивается соломой, одевается в платье... Уж не она ли та прекрасная и дикая девушка, которая появляется ниоткуда в швейцарской деревушке? Только полицейский Рольф заботится о странной (   Читать дальше...   )Жанр: Триллер, мистика, детективРежиссер: Майкл СтейнерАктеры: Роксана Мескида, Джоэль Басман, Томас Ландл, Карлос Леаль, Ганспетер Мюллер, Николас ОвчарекПеревод: Двухголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:55:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461669   (95357) от 03.03.2012
+
+Bonfire - Don't touch the light (1986) 1-st Press / 1986, Sonopress / [FLAC|Lossless]<Heavy Metal/Hard-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Starin' Eyes
+03. Hot To Rock
+04. You Make Me Feel
+05. Longing For You
+06. Don't Touch The Light
+07. SDI
+08. No More
+09. L.A.Жанр: Heavy Metal/Hard-rockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461631   (95362) от 03.03.2012
+
+VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Field Music - Suzanne (4:02)
+02.Emily Barker & The Red Clay Halo - Master Song (8:33)
+03.Palace Songs - Winter Lady (2:43)
+04.The Miserable Rich - The Stranger Song (5:57)
+05.Liz Green - Sisters Of Mercy (3:52)
+06.Bill Callahan - So Long Marianne (5:20)
+07.Michael Kiwanuka - Hey, That's No Way To Say Goodbye (2:49)
+08.The Low Anthem - Stories Of The Street (4:37)
+09.Cass McCombs - Teachers (4:37)
+10.Father John Misty - One Of Us Cannot Be Wrong (7:25)(   Читать дальше...   )2012Жанр: Folk-RockПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461656   (95363) от 03.03.2012
+
+Игорь Чужин | Странник. Возвращение [2012] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир магической сказки растаял, словно сон, а князь Ингар снова стал Игорем Столяровым, которого никто нигде не ждёт, и никому до него нет дела. Княжеский дворец на вершине магического Дерева Жизни превратился в обшарпанную палату психушки с зарешечённым окном, а почётный караул эльфийских гвардейцев сменили угрюмые санитары с пропитыми лицами у дверей процедурной. Кажется, уже нет смысла бороться и проще всего забыться в медикаментозном тумане, но есть долг перед семьёй и детьми. Ещё не все враги заплатили по счетам, а потому нужно, кусая до крови губы и обламывая ногти, выкарабкиваться из зловонной ямы, куда тебя сбросила жестокая судьба, и снова стать князем Ингаром. Опять впереди тяжёлая дорога, полная опасностей и приключений, и ты не имеешь права на страх и отчаяние!2012Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8D7A1D3F30A240A12C2696DAF849D83A0E4CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461197   (95367) от 03.03.2012
+
+Резня / Carnage (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиПродюсер: Саид Бен Саид, Оливер Бербен, Мартин МосковицАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Джозеф Резвин, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462045   (95368) от 03.03.2012
+
+Журнал | Playboy [Croatia] №3 (2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7F971839C2C35A7DAE9C6DE0D96F4054DD328A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461592   (95370) от 03.03.2012
+
+NG: Суперсооружения древности / Ancient Megastructures (2007-2009) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно знакомясь с самыми интересными Суперсооружениями древности, узнайте об исторических событиях, на фоне которых создавались эти шедевры архитектуры - о жестокой борьбе за власть, человеческих трагедиях и о препятствиях, которые приходилось преодолевать древним зодчим.Жанр: ДокументальныйРежиссер: Мелиса Акдоган / Melisa AkdoganПеревод: Russian: AC3, ~448.00 kb/s avg |Oдноголосый закадровый|Формат: TSПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C287AC32BCF1F4D44CEC2DD5FF42029FEFE463B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459536   (95409) от 04.03.2012
+
+DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95409.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Throttler - Dark steel
+ 2. DJ Hidden - You're not real
+ 3. DJ Hidden - Dying star
+ 4. Seid - The Machine
+ 5. Switch Technique - The edge of chaos
+ 6. Eye-D & DJ Hidden - Rain
+ 7. Zeal & Litta - Screams of Another (Current Value remix)
+ 8. Nanotek - Venus
+ 9. Current Value - Warship
+ 10. Limewax - Aria(   Читать дальше...   )2011Жанр: Drum&BassПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8595AAA523113BD4B3B79F05DD81FECB12CCC070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459346   (95410) от 04.03.2012
+
+Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How do you like my earrings (03:14)
+02. Changing trains (04:11)
+03. Dear Jack & Stacey (03:24)
+04. Tiger in your heart (04:59)
+05. Coco (03:41)
+06. Too many knives (03:14)
+07. Something new (05:42)
+08. Someone with a slow heartbeat (05:07)
+09. Stuck in the mud (04:12)
+10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462344   (95416) от 04.03.2012
+
+Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaman 17:10
+ 02. The Aborigine 11:05
+ 03. Transcendance 07:54
+ 04. Harmonic Tales 10:49
+ 05. Crossover 08:59
+ 06. Collaborator 11:03
+ 07. Future Stomp 08:592012Жанр: Goa TranceПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461984   (95430) от 04.03.2012
+
+[EN] Скет / Sket (2011) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на молодую женщину безжалостно нападает печально известная бригада во главе с жестоким Треем, ее маленькая 16-летняя сестра Кайла хочет мести и не остановится ни перед чем, даже если придется присоединяться к конкурирующей женской бригаде...Жанр: КриминалРежиссер: Нирпал ХогалАктеры: Эшли Уолтерс, Лили Лавлесс, Айми Келли, Эмма Хартли МиллерПеревод: ОтсутствуетПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02003CD8B160191511D2F30F22FD062F6162B290
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462374   (95435) от 04.03.2012
+
+Журнал | ХлебСоль №3 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал с Юлией Высоцкой.
+Мы знаем, что наши читательницы не стоят сутками у плиты. Поэтому не пропагандируем дорогие гастрономические редкости. Большинство рецептов журнала создано из тех ингредиентов, которые всегда под рукой и их запас легко пополнить в любом супермаркете. Мы думаем о таких же, как мы сами, молодых женщинах, которые активно работают, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383AE7B7E4C0823F66513E6125A6A3C331647806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462421   (95443) от 04.03.2012
+
+John McLaughlin with The One Truth Band - Electric Dreams (1979) [FLAC|Lossless]<Jazz fusion, jazz, world fusion>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95443.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guardian Angels (0:52)
+2. Miles Davis (4:54)
+3. Electric Dreams, Electric Sighs (6:27)
+4. Desire and the Comforter (7:35)
+5. Love and Understanding (6:39)
+6. Singing Earth (0:38)
+7. Dark Prince (5:17)
+8. Unknown Dissident (6:18)1979Жанр: Jazz fusion, jazz, world fusionПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462305   (95448) от 04.03.2012
+
+Maysa - Motions of Love (2011) [APE|Lossless]<Smooth Jazz, Soul, R&B>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Wit Me (4:36)
+02. Come Dance with Me (3:34)
+03. Day N Night (5:00)
+04. Flower Girl (feat. Dwele) (4:01)
+05. Have Sweet Dreams (4:27)
+06. Motions of Love (4:02)
+07. You Won't Find Your Way (4:09)
+08. When It's Over (4:47)
+09. Love Sweet Love (LSL) (3:59)
+10. Hold On (5:27)(   Читать дальше...   )2011Жанр: Smooth Jazz, Soul, R&BПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458785   (95459) от 04.03.2012
+
+KISS - Dressed To Kill (1975) [MP3|320 кб/с]<Hard Rock, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room Service (03:00)
+02. Two Timer (02:49)
+03. Ladies In Waiting (02:33)
+04. Getaway (02:43)
+05. Rock Bottom (03:55)
+06. C'mon And Love Me (02:58)
+07. Anything For My Baby (02:35)
+08. She (04:09)
+09. Love Her All I Can (02:41)
+10. Rock And Roll All Nite (02:49)1975Жанр: Hard Rock, RockПродолжительность: 00:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C788A85D4C5B4D5DAF3EAA38C3B579BD90A514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462140   (95460) от 04.03.2012
+
+Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95460.jpg" />
+</div>
+
+
+###  Подробнее
+
+______________________________
+
+01. The Dark Goddess
+02. Lose Yourself At The Nymphaeum
+03. Ferryman
+04. Night Angel
+05. One Of The Dead
+06. Bacchanalia
+07. Lunacy
+08. Hammer Of The Witches(   Читать дальше...   )2010Жанр: Gothic RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500F9C8D703C9160C5AD74E44CDB87446076C6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462350   (95462) от 04.03.2012
+
+VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+002. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+003. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+004. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
+005. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix)
+006. Billy Gillies - Digital Sundown (Paul Todd Remix)
+007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
+008. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
+009. Headstrong feat. Shelley Harland - Helpless 2011 (Aurosonic Euphoric Remix)
+010. Marcos - Hypnotic (Activa Remix)03.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462471   (95474) от 04.03.2012
+
+Е.М. Красноусов | Шанхайский Русский Полк [1927-1945] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идея создания книги-памятки «Шанхайский Русский Полк» принадлежит последнему Адъютанту Полка капитану Е.М.Красноусову, который в течении всей его большей части 20-тилетней службы в Полку, кроме своих прямых обязанностей, заведовал всеми видами спорта, а равно был организатором и участником всех состязаний и выступлений спортсменов Полка. Молниеносные события в Китае (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C76A962A6C5F0E8D9CEE2A62185E30042C88395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459880   (95479) от 04.03.2012
+
+Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal, Beer Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nunc Est Bibendum (02:47)
+02. Wenn Der Zapfhahn Kraeht (03:45)
+03. Auf Immer Und Ewig (04:48)
+04. In Junkers Kneipe (02:58)
+05. Format C (04:15)
+06. Bier (03:51)
+07. Wie Das Glas In Meiner Hand (02:31)
+08. Lemmy Macht Mir Mut (02:38)
+09. Bon Scott Hab Ich Noch Live Gesehen (04:06)
+10. Schade, Dass Man Bier Nicht Ficken Kann (02:59)(   Читать дальше...   )2011Жанр: Thrash Metal, Beer Metal, MetalПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53DDA1BB85D3C81EC6177EC7AB6D4C1E691D369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462625   (95480) от 04.03.2012
+
+М. Голубых | Уральские партизаны [1924] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 1918 рабочие отряды Южного Урала, действовавшие в районе Оренбург—Уфа—Челябинск, оказались в результате мятежа Чехословацкого корпуса и оренбургских казаков отрезанными от районов снабжения и регулярных частей Красной Армии и перешли к партизанским действиям. К середине июля партизанские отряды (Уральский В. К. Блюхера, Верхнеуральский Н. Д. Каширина, Троицкий (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37366167C6E2DC7BDF747EBAD8C35BD5F45D47BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462001   (95482) от 04.03.2012
+
+[Wallpapers] Hi-Res Wallpapers 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обоины для рабочего стола в высоком разрешении на различные темы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B83518E06323409E618D3E69EF1C398B6E0D94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462151   (95487) от 04.03.2012
+
+LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подготовка и формирование сведений в электронном виде по формам 2-НДФЛ, АДВ-6-4, СЗВ-6-3, АДВ-6-2, СЗВ-6-1, СЗВ-6-2 и РСВ-1.
+ Осуществляется ввод справок о доходах физических лиц, сведений персонифицированного учета и расчетов по начисленным и уплаченным страховым взносам, а так же формирование файлов для передачи налоговыми агентами и плательщиками страховых взносов сведений в ИФНС и ПФР. В наличии печать отчетов.Название программы: LS · 2-НДФЛ_АДВ-6-2_РСВ-1Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462018   (95519) от 04.03.2012
+
+[EN] Скет / Sket (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на молодую женщину безжалостно нападает печально известная бригада во главе с жестоким Треем, ее маленькая 16-летняя сестра Кайла хочет мести и не остановится ни перед чем, даже если придется присоединяться к конкурирующей женской бригаде...Жанр: КриминалРежиссер: Нирпал ХогалАктеры: Эшли Уолтерс, Лили Лавлесс, Айми Келли, Эмма Хартли МиллерПеревод: ОтсутствуетПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A797013F7DA6226926869EA7B93CC28BAF8A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462395   (95522) от 04.03.2012
+
+Сурганова и Оркестр (21.04.2006) в клубе Порт<Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 21.04.2006 был приурочен ко Дню Рождения группы, три годика уже. В этот же день начались продажи нового DVD группы, получившего название “Кругосветка” – двойной праздник. Не будет лишним упомянуть, что перед выступлением где-то час как раз и крутили этот DVD.
+ Праздничное выступление началось с песни “В небе полном звезд” – с той самой, которая первая на первом, (   Читать дальше...   )01. Интро
+02. В небе полном звезд
+03. Обещанный снег
+04. Не покинет(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DDDBD7B248B8F4AEBF1D27684A83C87B31CB39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

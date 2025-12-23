@@ -1,26 +1,673 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1477072   (239009) от 13.06.2021
+
+Надежда Махмутова | Мамочка, не кричи! Воспитание без крика и маминых истерик (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из каждого утюга мамы слышат: «Крик травмирует психику ребенка!», «Нормально, что ребенок не слушается», «Уставшая мама – беда для всех». Вроде дельные слова, правильные. Но что с ними делать, как перестать кричать на ребенка, адекватно воспринимать его непослушание и найти время на себя? Что делать, когда накрывает так, что теряешь контроль?
+Книга Надежды Махмутовой, (   Читать дальше...   )Жанр: Воспитание детей/Детская психология/Психологические тренингиПродолжительность: 04:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E42CC7615D1246FA399320597763B07872A5F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438157   (239010) от 07.01.2021
+
+Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choices on a Piece of Paper (05:01)
+ 02. Differing Paths (04:50)
+ 03. A Future with No Colour (05:54)
+ 04. Hanako's Shoujo Manga Spinoff! (05:02)(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42915AAB3208FE44E872A85A6D816653DA87CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638673   (239011) от 09.06.2023
+
+Twilight Road - Trapped (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trapped
+02. Dirty Rock 'N' Roll
+03. Dark Angel
+04. Perfect Strangers (Deep Purple cover)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365C6CEFE70D2248A5C6A4E7B2B1496ECD96DA7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636613   (239012) от 31.05.2023
+
+Cal Tjader - Mambo Sangria (1968, 1969) 2007, Fabulous [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alonzo [4:14]
+02. Lady Madonna [4:03]
+03. Nica's Dream [5:07]
+04. Spooky [4:19](   Читать дальше...   )Жанр: Latin Jazz, CoolПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CB215BC16E2CBC713D60D9B49BE846538F2303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547306   (239013) от 27.04.2022
+
+Хоккей. НХЛ 2021-2022. Сент-Луис Блюз - Колорадо Эвеланш (26.04.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239013.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 апреля 2022, вторник. 04:00 МСК
+Стадион: Болл-Арена (Денвер, США), 18 020 зрителей (99% при вместимости 18 147)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8E762A83819F4C88115D91ABA93F1D66CA8F56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622860   (239014) от 30.03.2023
+
+VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House, Soulful>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ki Creighton, Nico Balducci - Loose (Original Mix)
+02. Dmitri Saidi, Sinner & James - El Nacimiento (Extended Mix)
+03. Volaris - Purple Skies (Extended Mix)
+04. Bluey - Pressure (Original Mix)(   Читать дальше...   )Жанр: House, Funky House, Tech House, SoulfulПродолжительность: 03:04:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F680618A49D6D4B9036C0124AC6CB1D61B83D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477092   (239015) от 13.06.2021
+
+Леонс Перре. Красная хризантема / Le chrysantheme rouge (1912) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239015.jpg" />
+</div>
+
+
+###  Подробнее
+
+У девушки два поклонника. Она обещает отдать своё сердце тому, кто угадает и принесёт её любимые цветы. Красивая девушка и море цветов — что ещё надо? Но драматическая нотка вплелась и здесь...Производство: ФранцияЖанр: Драма, короткометражный, немое киноРежиссер: Леонс ПерреАктеры: Сюзанн Гранде, Леонс Перре, Эмиль КеппенсПеревод: Немой с интертитрамиСубтитры: Французские и русские интертитрыПродолжительность: 00:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E16283A5A12FD89FCE3B9BB345913D6FBAC509B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627903   (239016) от 21.04.2023
+
+Сельский детектив (2022) WEBRip [H.264/720p] (сезон 16, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неподалеку от армейского полигона найден труп подполковника. В руке пистолет, в офицерском планшете записка: «Из жизни ухожу добровольно…» Однако Олеся замечает ряд странностей, наводящих на мысль о постановке. Чтобы доказать убийство, сыщикам придется распутать узел сложных отношений, завязанный из любви, мести и предательства. А другой сложный узел завязался в (   Читать дальше...   )Производство: Россия | ТПО «Сила»Жанр: Детектив, мелодрамаРежиссер: Сахат ДурсуновАктеры: Олеся Фаттахова, Алексей Демидов, Данила Якушев, Елена Цыплакова, Павел Белозёров, Александр Пашутин, Надежда Бахтина, Сергей Холмогоров, Виталий Ходин, Мария ДолканПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586AE9AB004E67C1A57342D91495CAA0D518D090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638625   (239017) от 09.06.2023
+
+VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lufthaus - Soul Seekers
+02. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
+03. Eelke Kleijn - Transmission (Joris Voorn Remix)
+04. Perry O'Neil - Kubik(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707D0012EEAF28CF4C03A9664BE251385EF04208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547177   (239018) от 27.04.2022
+
+The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown With Patrick Przybyla (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освоение анимации добивание стало проще благодаря профессиональному рабочему процессу, проверенному годами работы в продакшене. Старший аниматор Патрик Пшибила работал над множеством экшенов AAA и теперь делится своими проверенными методами в ходе более чем трехчасового подробного обучения.
+Этот семинар лучше всего подходит для художников среднего уровня. Он начинается (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Анимация персонажейЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B408C0195635D877B15B35CFBA624B0CD07F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572379   (239020) от 26.08.2022
+
+Фотография - ArtStation - Lia Koltyrina - 700+ Emotional cyberman. Male portraits with different facial expressions [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет всем, этот пакет фото-референсов включает в себя 746 мужских портретов в высоком разрешением.
+Это фотосессия человека с нейроинтерфейсом, изображение в стиле киберпанка, научной фантастики и футуризма.
+
+Световые схемы, которые были использованы:(   Читать дальше...   )Формат: JPGРазрешение файлов: 3888x3888 - 5832x3888
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC1FF04B65CA8D66AAE56806774F8A115E3A777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622961   (239021) от 30.03.2023
+
+Capture All 2.30 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нужен скриншот? Быстрый сбор доказательств？Не сомневайтесь, простая глобальная горячая клавиша или один клик мыши позволяют захватить все окна по отдельности и одновременно. Конечно и ваш рабочий стол тоже будет «захвачен». Никогда не нужно отходить от закрытых вещей и выбирать то на чем вы сосредоточились. Capture All мгновенно захватит каждое открытое окно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2023Разработчик: © 2013 - 2023 dragonBTVПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B961BF3BF4DB2C00060A447ED33B53A54E5A07E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636478   (239022) от 30.05.2023
+
+Daniel Blumberg - GUT (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BONE (5:00)
+02. CHEERUP (6:40)
+03. HOLDBACK (5:52)
+04. BODY (4:38)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DE6B8B024E19B67C4CD6470B5AD92D5BFFD332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471831   (239023) от 13.06.2021
+
+Sabaton - Defence Of Moscow (2021) WEBRip [VP9/1080p-LQ] <Power Metal>
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sabaton - Defence Of Moscow (2021) WebRip 1080pЖанр: Power MetalПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC538DFDA44BCC17F04AF96A2211E981D2EC4B56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577034   (239024) от 17.09.2022
+
+DJ BoBo - Fantasy (2010) [OGG Vorbis|484 Kbps] <Electronic, Eurodance, Dance-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is My Time	3:49
+02. The Voice Of Freedom	2:59
+03. Superstar	3:32
+04. Roll Up	2:43(   Читать дальше...   )Жанр: Electronic, Eurodance, Dance-popПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402EF31593ACB37EB97FF0BE42865957E50A7CE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547022   (239025) от 27.04.2022
+
+VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. БЫБА - Когда наступит рассвет (4:49)
+02. Честер Небро & НЕ.KURILI - Никому не нужные (4:46)
+03. Брутто, SLIMUS - Печенье (4:40)
+04. GUF feat. Slimus - Глаза к небу (4:27)(   Читать дальше...   )Жанр: RapПродолжительность: 02:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A8AAB1502A0C3AE625358D37ABD79CE43CDFB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638725   (239026) от 09.06.2023
+
+IObit Uninstaller Free 12.5.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239026.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное удаление" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD9C6378F63F21480A1312BF4B2D6B78ABAF225
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628018   (239027) от 21.04.2023
+
+VA - Total EDM Invasion 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filtercut - Feel Me Now (Driver Mix) [03:41]
+02. RFR - Alone (Audio Shiner Remix) [03:42]
+03. DIONYMUSIC - Your Eyes [02:39]
+04. John David - Break of Dawn [03:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58118AF1D8E0AC40F500A6CB7BE9B22BEB98495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572417   (239028) от 26.08.2022
+
+Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239028.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кенгуренок Као» — это невероятно красивый 3D-платформер, полный веселья, приключений и загадок! Отправляйтесь на поиски отца вместе с энергичным кенгуренком Као, попутно разгадывая множество загадок и тайн. Сражайтесь, решайте головоломки и преодолевайте препятствия в невероятно красочных локациях. Исследуйте загадочный мир и раскройте все его тайны.Тип издания: LicenseРазработчик: Tate Multimedia S.A.Жанр: AdventureЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3353D6E5F6B2D711BBCA397ADEBAC8693622024D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476943   (239029) от 13.06.2021
+
+Lalo Schifrin - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239029.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Frenesi [3:18]
+02. The Breeze and I [2:47]
+03. Capricho Espanol [3:20](   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Big BandПродолжительность: 04:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC8838F9FC85124AAF664E6F45ECE2937B810A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438081   (239030) от 07.01.2021
+
+Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. God Inside My Head (03:52)
+2. Waydown (03:14)
+3. Little Muscle (03:04)
+4. Heal (06:13)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8067072FA8CBDDE295F98FA7B3ADF1A72BA05AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638276   (239031) от 09.06.2023
+
+Авто S.O.S. / Car S.O.S. (2022) HDTVRip [H.264/1080p-LQ] (сезон 9, серии 7, 9 из 10) (обновляемая)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите одну любимую, но изрядно потрепанную машину, прибавьте хозяина, нуждающегося в помощи, тайком увезите этот автомобиль в прекрасно оборудованную мастерскую, в течение трех недель сдабривайте его смазкой, краской и ноу-хау по авто ремонту, а затем верните его ничего не подозревающему владельцу, приправив щедрой порцией сюрприза. Когда автомеханики Тим и Фазз, (   Читать дальше...   )Телекомпания: National Geographic ChannelsЖанр: Телепередача, автомобилиПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB4F9CAB6E6C8E09B1B67A20BC0D3654B058A06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622987   (239032) от 30.03.2023
+
+Paletro for Mac 1.8.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239032.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Paletro, нажав ⇧⌘P, вы получаете доступ ко всем функциям текущего приложения, включая сочетания клавиш для наиболее распространенных операций.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2023Разработчик: © 2023 appmakesПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F890AF4C8F18D665E6D8A166A63F4F4DFB607720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636376   (239033) от 30.05.2023
+
+Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Our Constellation (07:01)
+02 - So Ordinary (05:57)
+03 - Two Moons (07:51)
+04 - Leaves on the Road (05:40)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DDA18976CC9253C839CD0644C80261A7DACC25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576728   (239034) от 17.09.2022
+
+Old Man's Bones - Firebird (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firebird (06:09)
+02. Call The Doctor (03:27)
+03. Man In The Crowd (04:40)
+04. Bad Dog (03:46)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9CBD718F5F5882287DFA4F79F993DD5B2E7334A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437900   (239035) от 07.01.2021
+
+Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro -Soviet- (03:27)
+ 02. In The Night (04:21)
+ 03. Leviathan (08:58)
+ 04. Ideologue (02:48)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D626D39C7EDDF7BF2C98350D987E15DFB31606AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

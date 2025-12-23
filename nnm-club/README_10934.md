@@ -1,26 +1,686 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1575876   (370941) от 12.09.2022
+
+Mordor - Darkness... (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness Falls (07:58)
+02. L.U.C.I.F.E.R. (07:53)
+03. Melancholy (08:17)
+04. Eleven (07:42)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA93E39C66EAC5E8BB1FCBC53259735321DEBEF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575995   (370942) от 12.09.2022
+
+Howlin' Mojo Bones - One Foot in the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wonder Who (4:03)
+02. Company (5:16)
+03. One Foot in the Blues (3:20)
+04. What She Got (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E97FFC3B7AC57F803781985A47AD6962854849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575997   (370943) от 12.09.2022
+
+Liam St. John - stripped back (deluxe) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where The Pines Meet The Palms (Stripped Back) (3:00)
+02. Decanter (Stripped Back) (2:34)
+03. forefathers (Stripped Back) (2:44)
+04. Dipped In Bleach (Stripped Back) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D09B447121AC2A53C8E0EE5C4C3D9C097E9728
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254790   (370944) от 15.10.2018
+
+Михаил Чистяков | Рамайана (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индийский эпос.
+Для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EEE0FAF30E7DBAA8D2965A08CDF17AF3CD6B33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576011   (370945) от 12.09.2022
+
+Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hangin' In and Jivin' [7:43]
+02. Big George [7:03]
+03. Levin's Lope [6:48]
+04. No Lonely Nights [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A3B6B7BF55D59FF4BDA005E960EC6FEAABA568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575991   (370946) от 12.09.2022
+
+Drew Foust - Good Thing (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Rain (2:50)
+02. What's Real (4:08)
+03. These Days (3:36)
+04. Good Thing (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF8C81454623583EBE214277EBE724C3763DC26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576078   (370947) от 12.09.2022
+
+Arctic Octopus - Rise of the Octopus (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call of the Clarion
+02. Rusty Princess
+03. Burn Fairy Burn
+04. Within Thick Walls(   Читать дальше...   )Жанр: Heavy Rock, Doom MetalПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F61876DF8DEB185C823DADD90B1D36F45B6E0CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576072   (370948) от 12.09.2022
+
+Magical Colors - A Procesion das Bestas (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Procesion das Bestas (07:10)
+02. Sempre Mais (06:07)
+03. Red Bullet (04:19)
+04. Take it as it Comes (04:52)(   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501BDCFAAFC97570E6855DC2FCD51833CA267055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576006   (370949) от 12.09.2022
+
+Phrenesy - The Power Comes From The Beer (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Game (05:13)
+02. Destroyed (03:32)
+03. Exploding In Rage (04:39)
+04. F.U.C.K (Furningating Under Consent Of King) (04:27)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4512F1AD4C3D2525B9D5613D47091B47D03F3CD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254671   (370950) от 15.10.2018
+
+М. Митин | Боевые вопросы материалистической диалектики (1936) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370950.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом читателю сборнике собраны мои основные работы, относящиеся как к периоду начала и разворота борьбы с меньшевиствующим идеализмом, так и к периоду, последовавшему за этим и посвященному разработке ряда боевых и актуальных вопросов материалистической диалектики.
+
+В печатаемых в этом сборнике работах — «За действительную разработку ленинского философского (   Читать дальше...   )Жанр: История, политология, науковедение, логика, философия, правоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B425D4CAAA61B9D20E7740130A4DC5F3BFBC731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575871   (370951) от 12.09.2022
+
+Mordor - Prayer To... (1993) Reissue, 1996, Arctic Serenades [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Prayer (06:19)
+02. Why Me? (05:58)
+03. There's Nothing Left (04:50)
+04. Ice Bound (05:58)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316FA7F22891390959A7593897341F76FC5CCB3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254894   (370952) от 15.10.2018
+
+iPulse 3 v3.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря настраиваемым датчикам iPulse пользователь сможет следить за нагрузкой на ЦП, использованием оперативной памяти, свободным местом на жестких дисках, сетевой активностью и другими показателями системы. Однако, в отличие от других аналогичных приложений iPulse занимает совсем немного мест.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: The IconfactoryПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688B1C7D233A5A7A3B27BD039B1574302C2D2B28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575927   (370953) от 12.09.2022
+
+Phrenesy - Fears Apocalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fears Apocalypse (04:44)
+02 - Bring It On (03:27)
+03 - Fuck The Pain (04:11)
+04 - Lost Generation (03:30)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365CAD7FDD5D1783CFF1FE4656EF4A8AEA46002C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254719   (370954) от 15.10.2018
+
+Mirror for Panasonic TV 3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется!
+Приложение работает на любой модели Смарт-ТВ Panasonic с 2012 и позже.
+
+При использовании приложения, будет возникать задержка в секунд (обычно между 1 и 3 секундами). Так что зеркальное отображение не подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802F028F87A63A27872964F1F4C79C6D8A771656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575909   (370955) от 12.09.2022
+
+Necroplanet - Negative Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead Planet (01:37)
+02 - Birth of Isolation (06:52)
+03 - Negative Space (06:03)
+04 - Echoes of Sentience (06:45)(   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1758D03AE5AE860040DD83AA4B6141ADDB3E8C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254745   (370956) от 15.10.2018
+
+MediaHuman YouTube Downloader 3.9.9.7 (1310) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370956.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+Закачка нескольких файлов одновременно
+Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7F2ADCB72DCA7D4AD1840A47127DC8370B3AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576045   (370957) от 12.09.2022
+
+Tortured Saint - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through the Halls of Purgatory
+02. Atrocity
+03. Into the Dark I Stray
+04. Pathogen(   Читать дальше...   )Жанр: Metalcore, Melodic Death MetalПродолжительность: 2CD, 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C7A674F9A4A634B151D4612FE434A4A4659A7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254661   (370958) от 15.10.2018
+
+В. Н. Гинев (сост.) | Революционеры 1870-х годов (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник входят воспоминания видных революционеров-семидесятников О. В. Аптекмана, В. И. Засулич, С. Ф. Ковалика, П. А. Кропоткина, А. О. Лукашевича, Г. В. Плеханова и др. В них рассказывается о "хождении в народ", завершившемся судебным "процессом 193-х", о революционной народнической организации "Земля и воля", о деятельности рабочих (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2C1BF235F2A2F6DE99D716CE0081B06D2D702B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254890   (370960) от 15.10.2018
+
+iTubeDownloader 6 v6.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370960.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTubeDownloader 6 теперь имеет очередь загрузки. Очередь загрузки позволит вам добавить несколько видео. Программа заботиться о выполнении их в определенном порядке. Кроме того, вы можете выполнить загрузку одновременно.
+
+С iTubeDownloader 6 мы добавили новые функции, чтобы сделать просмотр YouTube проще. iTubeDownloader 6 делает загрузку видео с YouTube еще более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EA4B90B9232125DA1216DD56C9E38FC2BD5E50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254862   (370961) от 15.10.2018
+
+VA - Redux Amsterdam Selection (Mixed by The Enlightment) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik - In The Mood (Original Mix)
+02. Finality - Dreamers (Original Mix)
+03. TrancEye - Beyond The Energy (Original Mix)
+04. Adwell - Frozen Skies (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC862B967AE7EFD6A94053BA31CF46B55B0C9217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575922   (370962) от 12.09.2022
+
+Nurez - Nachtlied (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Im Schatten (05:35)
+02 - Im Wind (04:48)
+03 - Im Trab (06:54)
+04 - Die Geister (04:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE10B3CE609F20EBB4360FB5690B432FA878276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254793   (370963) от 15.10.2018
+
+Лидия Чарская | Веселая дюжинка (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки в стихах.Жанр: Детская проза. Сказка.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1034408C541CE58DCC2A0D2DBC0AAA4C929AF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575920   (370964) от 12.09.2022
+
+Noussommes - Noussommes (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - No Absolution (04:28)
+02 - Blinded (03:39)
+03 - BackBone (07:24)
+04 - Death of Me (03:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F2BD359350E0219E4034BC92E494750E14550A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254788   (370965) от 15.10.2018
+
+Генрих Лотцкий | Душа твоего ребенка (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспитание в семье. Педагогика семейного воспитания.Жанр: Образование, обучение и развитие детейПеревод: Е. МаксимовичФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF59A0D3A334BFBDBC8271C429DD754DB271D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576057   (370966) от 12.09.2022
+
+Pneuma Hagion - Demiurge (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyranny (02:42)
+02. Hypostasis of the Archons (02:44)
+03. Yaldabaoth (02:34)
+04. Deathcrowned (03:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A911E65B89E8320949119E3E17103F7013F659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254716   (370967) от 15.10.2018
+
+Mirror for Philips TV 2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Philips
+Приложения для зеркального отображения экрана вашего Мака на любом Smart TV. Philips. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Smart TV. Philips с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46360B2E1DDC048A5F572D5188BEA7AC09F212E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

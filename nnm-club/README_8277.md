@@ -1,26 +1,687 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1833978   (247822) от 02.11.2025
+
+Худеем дома за 30 дней v3.13 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько минут в день заменяют час в тренажерном зале. Весьма мощный инструмент с доступом к планам упражнений для похудения в домашних условиях. Содержит обширное количество тренировок с иллюстрациями. В наличии возможность создания своих комплексов упражнений. Позволяет вести статистику занятий.Тип издания: PremiumРелиз состоялся: 25.07.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1261C8C6F04177D020516C0974B5969592486B77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833612   (247823) от 02.11.2025
+
+Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High And Above (4:00)
+02. Room To Breathe (3:56)
+03. Louder Than Words (4:05)
+04. Chasing The Sun (4:31)(   Читать дальше...   )Жанр: Modern Rock, Hard RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711C198C5FF09D0FBAB6B8588054CB38FCA87EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833995   (247824) от 02.11.2025
+
+Проекты - VideoHive - Award Ceremony - 31332882 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для презентации церемоний и вручения наград разного рода.
+
+Музыка очищена и предоставлена.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6965348BBC16D2E7C857306CA07102904878DF84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833994   (247825) от 02.11.2025
+
+3D print - Wicked - The Arbiter Portrait Bust [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш ТЕРМИН видеоигры - это жемчужина мира Wicked, постоянный побочный квест, над которым мы работаем за кулисами, и как только он будет готов, мы выпустим его в качестве эксклюзивного подарка для всех наших активных сторонников этого месяца!!! Это наш способ сказать muchas gracias, мои парни, за вашу бесконечную поддержку, любовь и веру в наши безумные мечты!!!
+ (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6880236AAB1BBF55D8149FD7892E88D6F2C16C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833522   (247826) от 02.11.2025
+
+Как не потерять доступ к своему Telegram из-за блокировки SMS с кодами
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_247826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллеги с портала «Код Дурова» подготовили инструкцию для пользователей Telegram, которая разъясняет, как сохранить доступ к мессенджеру при блокировке SMS с кодами подтверждения. Самый надёжный способ — поддерживать открытые сессии приложения одновременно на нескольких устройствах, чтобы код можно было получить на одном из них. Имеется возможность получить код на (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833953   (247827) от 02.11.2025
+
+Долгая прогулка / The Long Walk (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа мальчиков-подростков соревнуется в ежегодном соревновании, известном как «Долгая прогулка», где они должны поддерживать определенную скорость ходьбы, иначе их застрелят.Производство: США / Lionsgate UK, Media Capital Technologies, Vertigo EntertainmentЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Тат Ньюот, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Джошуа Оджик, Марк Хэмилл, Роман Гриффин ДэвисПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D2646D7300AA87F9DEF009C812BDD3E9FCCF31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833966   (247828) от 02.11.2025
+
+ЯПлакалъ v2.129 Mod Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yaplakal.com — популярное информационно-развлекательное сообщество. Мы любим обсуждать интересные события и весело проводить время. Все материалы добавляют и оценивают пользователи. Работаем с 2004 года. Трижды лауреат Премии Рунета в категории "Сообщество Рунета". Официальное приложение для Android. У нас вы найдете: громкие мировые события, обсуждение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 02.11.2025Разработчик: Yaplakal.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029F9F284286BF656A4C315C4F253143CB252CA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833972   (247829) от 02.11.2025
+
+Cleaner for WhatsApp / Очиститель для WhatsApp v3.0.0 Mod by TryRoom [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cleaner for WhatsApp — это мощный инструмент для очистки полученных и отправленных медиафайлов через WhatsApp. Самая важная функция приложения Cleaner for WhatsApp; заключается в том, что вы можете автоматически очищать медиафайлы WhatsApp со своего телефона или планшета Android через регулярные промежутки времени или в соответствии с ограничением хранилища. Cleaner (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: LookAndFeel LabПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302844EFDD64F6B72A12ADCD735E46B3230035BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833883   (247830) от 02.11.2025
+
+Межзвёздное путешествие / Interstellar Wanderer / Xing ji yi you (2022) WEB-DL[H.264/1080p]  (сезон 1, серии 1-12 из 12) AniStar / официальный
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет назад Земля перестала быть пригодной для жизни. Люди мигрировали с Земли на другие планеты. Но на самом деле это был заговор. Таким образом, Тан Юэлян, как наследница Демонов-победителей, вместе со своими товарищами отправляется на запад, на Землю, чтобы найти артефакт, Мифический Кристалл, спасти вселенную и сражаться, чтобы вернуться на Землю!Производство: Китай / Yudubai AnimationЖанр: мультфильм, фантастика, комедия, приключения, фэнтезиПеревод: Многоголосый любительский (AniStar / официальный)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:09:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C6C1BFE85C758FEC0E7DBB3E75FD9D983876A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492202   (247831) от 05.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (04.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1B8FFA0279799023262F28DC8465D45BE84532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492292   (247832) от 05.05.2012
+
+Журнал | АиФ. Спецвыпуск. Здоровье № 5 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весну, как известно, ждут все, кроме аллергиков, у которых в это время года обычно происходит обострение недуга. А людей, страдающих аллергией, с каждым годом становится всё больше. Сегодня, по статистике, четверть жителей индустриально развитых городов - аллергики. Многие из них просто не ходят по врачам, потому что убеждены: этот недуг неизлечим! Это не так! Даже в самых запущенных случаях можно добиться стойкого длительного улучшения, что для любого пациента равносильно выздоровлению. Как? Ответ на этот вопрос вы найдёте в сегодняшнем спецвыпуске. По традиции на вопросы читателей отвечают самые авторитетные врачи-аллергологи.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0648C3AC449D38E14EDF1783E9B814242C9097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833981   (247833) от 02.11.2025
+
+Бобби Джо и изгой / Bobbie Jo and the Outlaw (1976) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби Джо Бейкер, бесцельно скитающаяся по стране, бросает работу в такси и присоединяется к Лайл Уилеру, подражающему преступникам Дикого Запада, чтобы отправиться в путешествие, полное краж, хаоса и убийств...Производство: США / American International Pictures (AIP), Caldwell ProductionsЖанр: драма, мелодрама, криминал, триллерРежиссер: Марк Л. ЛестерАктеры: Марджо Гортнер, Линда Картер, Джесси Винт, Мерри Линн Росс, Белинда Баласки, Джин Дрю, Пег Стюарт. Геррит Грэм, Джон Дурин, Вёрджил ФрайПеревод: авторский (Сергей Завалишин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB87B52D8E36C7D039F26B785B6FB0EBEFAAC51F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492110   (247834) от 05.05.2012
+
+VA - Seashore Desire #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
+2. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix) (7:55)
+3. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) (6:50)
+4. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix) (8:12)
+5. Roman Loud - Beach At Sunrise (Original Mix) (8:24)
+6. W&W - Beta (Original Mix) (5:20)
+7. Vast Vision - Black Shores (Original Mix) (8:34)
+8. Ralphie B - Bullfrog (Original Mix) (8:55)
+9. Steve Brian & Cressida - Cambodia (Original Mix) (8:06)
+10. Fadios & Raneem - Chromium (Max Graham Remix) (6:47)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 06:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80ADA3CDED5989FE3D25043CBDE550B31D476C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833980   (247835) от 02.11.2025
+
+NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247835.jpg" />
+</div>
+
+
+###  Подробнее
+
+NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
+Запись концерта, прошедшего в рамках американского тура "Seize the Fate" 12.03.2023 в "HOUSE of BLUES" San Diego.1. Seize the Fate
+2. 雷霆 -RAITEI-
+3 .炎天 -ENTEN-
+4. Change the world(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E218E3628B47727B4236519D289BD42271DE237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492018   (247836) от 05.05.2012
+
+VA - Top Club Hits Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mads Arp Feat. Julie Harrington – Alive
+02. DJ Favorite & Вероника Данилова - Бессонница (Radio Edit)
+03. Remady feat. Manu-L - Higher Ground
+04. Aaizu Yazoo - Megaton (AMO + NAVAS Rework)
+05. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
+06. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+07. Pat Farrell feat. Max'C - Stronger (Club Mix)
+08. Jan Blomqvist - I Don't Think About You (Original Mix)
+09. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
+10. Muzikjunki - Crazy 4 You (Club Mix)2012Жанр: Dance, ClubПродолжительность: 05:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFAE2BC3D4A5C598C54EDF8BED6D44E1854971B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833977   (247837) от 02.11.2025
+
+Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма недурственное (по утверждению разработчика) приложение для SIP-телефонии. Обширные настройки качества и безопасности подтверждают данное мнение. Ничего лишнего.
+Sipnetic – это бесплатный программный IP-телефон, разработанный на базе протокола SIP. Приложение позволяет подключаться к вашему провайдеру VoIP, облачной АТС или корпоративному серверу телефонии.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: IPTONПоддерживаемая ОС: Android 4.0.1+ (реком. 7.0+)Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492252   (247839) от 05.05.2012
+
+VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
+02. Orbion - Aurora (Sensetive5 Remix)
+03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
+04. Eitan Carmi - New West (Cristian Poow Remix)
+05. S.K.A.M. - Outside The Box (Original Mix)
+06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
+07. Sidney Samson - Get Low (Original Mix)
+08. Freza - La Luna (Original Mix)
+09. Mode B - Phantom (Original Mix)
+10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491971   (247840) от 05.05.2012
+
+De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autistic Savant (06:38)
+02. 44 (06:41)
+03. Maximum Sentence (05:39)
+04. Seppuku (04:20)Жанр: Technical DeathПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492142   (247841) от 05.05.2012
+
+VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
+002. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+003. Vast Vision - Black Shores (Original Mix)
+004. Trilucid feat. Sophie Tusnelda - Bring You The Sun (Original Mix)
+005. Vada - Fire In The Sky (Original Mix)
+006. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix)
+007. Solid Stone feat. Hanna Finsen - Helpless (Original Mix)
+008. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
+009. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix)
+010. Simon Patterson feat. Lucy Pullin - Keep Quiet (Original Mix)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833975   (247842) от 02.11.2025
+
+Своя игра (02.11.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ирина Петрова, Сергей Коновалов, Кристина КораблинаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2F4BC2112F136F46F62CC4DFE46B64AB7E5C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491923   (247843) от 05.05.2012
+
+VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel & Dresden feat. Molly - Tracking Treasure Down (original mix)
+02. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
+03. Veerus, Maxie Devine - Funky Beats (Original Mix)
+04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
+05. Dave Nadz & Leblanc - Haamiah (Original Mix)
+06. Sheef Lentzki - Lucifer (Teho Remix)
+07. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
+08. Dj Soundlife - Cloudburst (Extended Mix)
+09. HouseEssence - That Before (Original Mix)
+10. South Ground - Let's Rock (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833973   (247844) от 02.11.2025
+
+PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED396A64221429BB660598AAF839B07F72B95ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492486   (247845) от 05.05.2012
+
+[Wallpapers] Desktop wallpapers (05.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B71588179011E09E640805A431C6E43C073631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833955   (247846) от 02.11.2025
+
+Андрей Шляхов | Сказочная анатомия (2025) [FB2, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Витаминкин из Университета тридевятого царства приглашает юных читателей в удивительное путешествие по человеческому организму!
+
+«Сказочная анатомия» Андрея Шляхова – это волшебный учебник, в котором наука встречается со сказкой!
+(   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураИздательство: АСТФормат: FB2, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FCF61B910CE1A9F3979DAC9723BEDC2FE39B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833770   (247848) от 02.11.2025
+
+Джессами Хибберд | Синдром самозванца. Как вырваться из ловушки токсичного мышления (2021) [PDF, MP3, Дмитрий Шабров]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синдром самозванца – это явление, при котором люди считают себя недостойными успеха. Они убеждены, что получили все благодаря удаче или другим не зависящим от них причинам, и боятся, что их некомпетентность и несостоятельность в конечном итоге будут раскрыты. Поэтому у таких людей нет возможности радоваться своим достижениям, а значит, и вообще жизни.Жанр: ПсихологияИздательство: БиблосФормат: PDFПродолжительность: 07:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3592A4B5389392C13594FAC5F37A542A4E1D14CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492484   (247849) от 05.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (05.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E19A7FF1B6830F82F164D0D101635ECE8930FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

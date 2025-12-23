@@ -1,26 +1,671 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1544039   (242053) от 13.04.2022
+
+Роберт Т. Сатор | Танец с кубитами. Как на самом деле работают квантовые вычисления (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квантовые вычисления заставляют нас изменить отношение к компьютерам. Кубиты способны решать задачи, которые еще совсем недавно казались неразрешимыми. Вы узнаете о принципиальных различиях между квантовыми и классическими вычислениями, вспомните матанализ, чтобы разобраться с такими понятиями, как суперпозиция, запутанность и интерференция, от алгоритмов и схем (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617195   (242054) от 06.03.2023
+
+Siena Root - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Psychodelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coincidence & Fate [00:04:40]
+02. Professional Procrastinator [00:03:09]
+03. No Peace [00:02:48]
+04. Fighting Gravity [00:03:32](   Читать дальше...   )Жанр: Prog Rock, Psychodelic RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775232CAE39CCCD6143EACB95F75E9ECC8CC3795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542464   (242055) от 15.04.2022
+
+VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bar & Bar - Night in Rio (Radio Edit) (3:56)
+02. Madeja Blanca - Cinco de la Tarde (Latin Mix) (4:22)
+03. Jeanclaudemaurice - Ultimo Tango A Santiago (4:51)
+04. Bessie Boni, Massimo Mantovani - Skylark (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617C52031504BCB3845B1169CAFC733854179573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106545   (242056) от 19.02.2017
+
+Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  The Good Times (Never Last)  (04:52) 
+02|  Low Expectations  (03:43) 
+03|  If I'd a Let You  (04:04) 
+04|  Tappin on an Empty Head  (04:13) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153238ACBD2155BFEAB519A9DD9174749C844E04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635238   (242057) от 24.05.2023
+
+Helestios - Road to Ecstasy (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctuary (4:55)
+02. In Cage (3:15)
+03. Cycles (4:10)
+04. Fight (3:32)(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7B11D555903E3C99B9190ECC8B76F50A4A7ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628559   (242058) от 23.04.2023
+
+Слава Вольный - Песни ГУЛАГА (2002) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не печалься, любимая
+02. Тайга
+03. Товарищ Сталин
+04. Ты не плач мой друг(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B864B0C18F050487EC446FD8CB6959E9062F3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624626   (242059) от 06.04.2023
+
+Radiant Photo 1.1.1.263 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo /ex. Perfectly Clear Complete - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0D8C9D29622CD3AD780C4ECDBEFB77469D6966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624983   (242060) от 08.04.2023
+
+Счастливый человек (1970) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло пять лет с тех пор, как Димка покинул родной город и уехал на Крайний Север. Вернувшись на родину, он понял, что потерял друзей и любимую, которая собралась выйти замуж за его друга. Дима решил восстановить справедливость и это ему удалось...Производство: СССР / БеларусьфильмЖанр: драмаРежиссер: Игорь ДобролюбовАктеры: Вячеслав Захаров, Виталий Коняев, Эльвира Осипова, Павел Кормунин, Валентина Владимирова, Борис Гитин, И. Горбунов, Николай Еременко ст., Людмила Зайцева, Г. ЗагорскийСубтитры: отсутствуютПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3567CB99255A847D2B78584A18EC0FCF125139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215934   (242061) от 13.04.2022
+
+Юрий Гагарин. Последний миг (2018) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катастрофа самолета в результате которой 50 лет назад погибли космонавт Юрий Гагарин и летчик-инструктор Владимир Серегин, долгое время была окутана завесой тайны. Авторы фильма исследовали рассекреченные архивные материалы, разобрали интервью коллег и близких погибших и очевидца аварии, а также смоделировали тот злополучный полет, чтобы понять, что произошло в небе (   Читать дальше...   )Телекомпания: Россия, Студия «Русский космос» ФГУП «ЦЭНКИ»Жанр: Документальный, биография, космосРежиссер: Алексей КитайцевПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A34616845EDFAD42FA708725A797132513D385D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544464   (242062) от 15.04.2022
+
+Omni Recover 3 v3.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
+Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD08CFE22DDD827882034EE95084DC89BCBE798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106077   (242063) от 19.02.2017
+
+Imperial State Electric - Pop War (2012) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uh Huh 1:44
+02. The Narrow Line 2:33
+03. Can't Seem To Shake It Off My Mind 2:28
+04. Back On Main 3:11(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B57ACEA24FEDA8B9E9E6D2440FE1C1ACFABECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372032   (242064) от 03.04.2020
+
+ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вставляет нормально [04:55]
+02. Лови [06:07]
+03. Убойный камень [03:22]
+04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617210   (242065) от 06.03.2023
+
+Majesties - Vast Reaches Unclaimed (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Yearning, Alive [00:04:24]
+02. The World Unseen [00:03:43]
+03. Our Gracious Captors [00:03:51]
+04. Verdant Paths To Radiance [00:03:30](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D2AC2C332A8A6108A8C205DA1F71133897647F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635031   (242066) от 24.05.2023
+
+Circus Of Rock - Lost Behind The Mask (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти два года назад появился сольный проект финского барабанщика и автора песен Mirk'и Rantanen группа Circus Of Rock с альбомом Come One, Come All. Сосредоточившись на сильной композиции песен, Rantanen соединил мелодичный хард-рок и метал с набором талантливых вокалистов поющих в этом же жанре. Дебютный альбом стал успешным началом для Mirk'а. Так что ничего удивительного (   Читать дальше...   )01. Alive And Kicking ft. Girish Pradhan (3:50)
+02. Keep On Shining ft. Jeff Scott Soto (4:20)
+03. Holdin' The Gun ft. Santiago Ramonda (3:52)
+04. The Beast ft. Sevi (4:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA64742333B2F42ABA16480D48B138F2922EE31E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458815   (242067) от 30.03.2021
+
+Affinity Designer 1.9.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для графического дизайна для Mac.
+Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99C8E5804F7B7906B30BC177929712E359FC5AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628602   (242068) от 23.04.2023
+
+Жизнь пчелы / A Bee's Diary (2020) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир медоносной пчелы Виннифрид! В течение альпийской весны и лета фильм рассказывает о двух пчелах, которые собирают еду, разведывают и сражаются с захватчиками - каждая со своим поведением и индивидуальностью. Эта волнующая картина отражает красоту и сложность мира пчелы, проблемы, с которыми она сталкивается, и решения, которые ей предстоит принять. (   Читать дальше...   )Производство: Германия, aglicht media, handful of filmsЖанр: документальный, природа, флора, фаунаРежиссер: Деннис УэллсПеревод: одноголосый профессиональный (1 ТВЧ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D6C0F814846BBDD2005D986730801588E6ABA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624721   (242069) от 08.04.2023
+
+VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Eteson & Luke Bond ft. Bullysongs - Only Love
+02. KASIA - Universal NationЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B6043DCC4FBFB8F13E34B1A6C155A2AF4EFF4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106486   (242070) от 19.02.2017
+
+VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (20.02.2017) [MP3|320 Kbps] <Uplifting Trance, Emotional Trance, Orchestral Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly Andrew - Timeless (Orchestral Trance Mix) (9:14)
+02. Illitheas - Last Forever (Original Mix) (7:46)
+03. Darren Porter - To Feel Again (Extended Mix) (6:42)
+04. Aly & Fila - Kingdoms (Radio Edit) (3:30)(   Читать дальше...   )Жанр: Uplifting Trance, Emotional Trance, Orchestral TranceПродолжительность: 04:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9124F2ED066C18D72058782B4024A485CB6ACD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544356   (242071) от 15.04.2022
+
+Artstudio Pro 4.0.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594233FDE4DE3BE4FC63E09BFA07E497503BE54F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624615   (242072) от 06.04.2023
+
+MassTube Plus 16.5.4.659 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242072.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube Plus — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD8E1301C22A2A43B3185F8E3D5841B03485D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617142   (242073) от 06.03.2023
+
+Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [MP3|320 Kbps] <Heavy Progressive Rock, Progressive Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Change In Time [00:06:21]
+02 - Juggernaut [00:05:51]
+03 - Blinded [00:05:51]
+04 - Hard Rock Kid [00:05:15](   Читать дальше...   )Жанр: Heavy Progressive Rock, Progressive Art RockПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C8744254B745EF94018749F57815D5C6D11B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372248   (242074) от 03.04.2020
+
+Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Cha
+02. Quédate
+03. Y Quién Eres Tú
+04. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458901   (242075) от 30.03.2021
+
+Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spaghetti Sugar And Tomato (4:35)
+02. Badaduba (3:44)
+03. Nicole (4:25)
+04. Birimbao (2:26)(   Читать дальше...   )Жанр: Electronic, Disco, Pop, InstrumentalПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796F0186FEAB6E3C5397147E28940BA9075EC639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543979   (242076) от 13.04.2022
+
+Gumroad, Danny Mac | Step by Step Base Meshes - Marie Antoinette (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242076.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 базовых мешей для повышения уровня вашего искусства, сосредоточившись на основах формы и пропорций вместо того, чтобы беспокоиться о программном обеспечении!
+Эти базовые меши могут быть использованы в любом приложении для создания скульптур и предназначены для использования в качестве справочного инструмента.
+Каждый меш представляет собой различную ключевую форму (   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 00:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DF5CA1008312C9C964A716843CCAAD94A98971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624981   (242077) от 08.04.2023
+
+VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. RAF Camora & Luciano - All Night (2:33)
+002. Udo Lindenberg & Apache 207 - Komet (2:47)
+003. Apache 207 - Breaking your heart (2:50)
+004. Miley Cyrus - Flowers (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13C006B9EE00CAB6956CBBB2CB440E236044E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569128   (242078) от 11.08.2022
+
+Снайпер: Миссия Изгой / Sniper: Rogue Mission (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда продажный федеральный агент оказывается замешанным в торговле людьми, снайпер и новичок ЦРУ Брэндон Бекетт уходит в подполье, объединившись со своими бывшими союзниками, чтобы разоблачить продажного агента и уничтожить преступную организацию.Производство: США / Destination FilmsЖанр: боевик, триллерРежиссер: Оливер ТомпсонАктеры: Чад Коллинз, Райан Роббинс, Саяка Акимото, Джош Бренер, Брендан Секстон III, Дэннис Хэйсбёрт, Джослин Хадон, Дэвид МакИннис, Пол Эссимбр, Эрик АтхавалеПеревод: Многоголосый профессиональный (Лицензия)Субтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F65E09FC961BEF27D2B5331387BE4F22AEAB84D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

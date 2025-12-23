@@ -1,26 +1,702 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1238061   (548779) от 27.07.2018
+
+VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soundtrack, Musicals>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LaChanze & Original Broadway Cast of Summer - The Queen Is Back (2:29)
+02. LaChanze & Original Broadway Cast of Summer - I Feel Love (2:51)
+03. Ariana DeBose & Original Broadway Cast of Summer - Love To Love You Baby (2:40)
+04. Storm Lever, Kimberly Dodson, Wonu Ogunfowora & Original Broadway Cast of Summer - I Remember Yesterday (2:39)(   Читать дальше...   )Жанр: Pop, Soundtrack, MusicalsПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605467   (549197) от 21.06.2019
+
+Виктор Цой - Минусовки (2010) [MP3|96-256 kbps] <Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Невесёлая песня 04:20
+2. Следи за собой  04:35
+3. Спокойная ночь  06:17
+4. В наших глазах  03:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F4960AB074D82FA2AF69189866A601771F797F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237888   (549729) от 26.07.2018
+
+Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Dreaming (5:08)
+02. Joyful Peace (5:12)
+03. Soft Breathing (5:12)
+04. Enlightened and Melodious (5:49)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BD1A0B7824976D4704EF857E8F6AB4E4C3DC92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047219   (550013) от 29.08.2016
+
+Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic (5:43)
+02. Back to the Past (6:44)
+03. Awakening (5:49)
+04. Eyes of Truth (6:39)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047215   (550029) от 29.08.2016
+
+Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rookie Dreaming (3:28)
+02 - Not the End (2:27)
+03 - Irene (3:47)
+04 - How Quickly Your Heart Mends (3:46)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047221   (550094) от 29.08.2016
+
+Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550094.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Swing (4:09)
+2 - Weightless (3:20)
+3 - Say Anything You Want (3:05)
+4 - Rescue My Heart (3:11)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C981C55F1D31716CA4DFEE1E64014C042A3A575C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237756   (550380) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:25)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AEFF98B64521A3EEBA49BEC6C952C488284CDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237750   (550552) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:26)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047068   (550938) от 28.08.2016
+
+Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala (3:04)
+02. Yeka Yeka (3:21)
+03. Samana (5:44)
+04. Santana (3:29)(   Читать дальше...   )Жанр: World, Tribal, DanceПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046486   (550941) от 28.08.2016
+
+Dolly Parton - Pure & Simple (2016) UK Edition [MP3|320 Kbps] <Country, New Wave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550941.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Pure & Simple
+
+01. Pure and Simple [02:43]
+02. Say Forever You'll Be Mine [02:48](   Читать дальше...   )Жанр: Country, New WaveПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BAADA5F1D5286D1F809BDAA8DD3F18F031974D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237519   (551478) от 24.07.2018
+
+Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Piano Sur La Mer
+02. Chanson Du matin
+03. Photo Jaunie
+04. Souvenir Lointain(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901EEE9DD7FEADCCDC26B9C69E7FB52171E84855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237572   (551481) от 24.07.2018
+
+Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Deep Water (3:52)
+02 - Follow (3:26)
+03 - Giving It Away (3:37)
+04 - Those Eyes (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DBAD90D421B489B683CB3D775304A1B5D1E8E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046390   (551663) от 27.08.2016
+
+Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 1 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things (01:08)
+02. Kids (02:39)
+03. Nancy and Barb (01:06)
+04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F930AA31953797CE0AA5DB6D20B282BA17FCDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046163   (551799) от 27.08.2016
+
+VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Cruise - Paradise City (3:43)
+02. Julianne Hough, Diego Boneta, Russell Brand & Alec Baldwin - Sister Christian/Just Like Paradise/Nothin' But A Good Time (5:42)
+03. Diego Boneta, Alec Baldwin, Russell Brand & Julianne Hough - Juke Box Hero/I Love Rock 'N' Roll (2:23)
+04. Catherine Zeta-Jones - Hit Me With Your Best Shot (2:29)(   Читать дальше...   )Жанр: Rock, Stage & ScreenПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AFC552A96D280503DA512518BC180CD5E7B781
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046461   (551850) от 27.08.2016
+
+Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Smooth
+2. Dig Your Roots
+3. Life Is a Honeymoon (Feat. Ziggy Marley)
+4. H.O.L.Y.(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046289   (551851) от 27.08.2016
+
+Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Murray, Juliet Lyons & Roger Shah – Miracle of Life
+02. Nick Murray, Roger Shah & Tori Letzler – Future Fighter
+03. Nick Murray & Roger Shah – Enter the Heroes
+04. Nick Murray & Roger Shah – Singularity(   Читать дальше...   )Жанр: Soundtrack, ClassicПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046470   (551930) от 27.08.2016
+
+Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbin' Trains 03:25
+02. Put Me In A Box 02:44
+03. Kinda Don't Care 04:21
+04. Hell On A Highway 04:21(   Читать дальше...   )Жанр: CountryПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237401   (552355) от 23.07.2018
+
+Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Sacred Love
+02. Dream the Dream
+03. Lullaby
+04. Heart of Grace(   Читать дальше...   )Жанр: New Age, Relax, VocalПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DD2D372A25B6793E32ABA51ADE09C02D081DBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045776   (552701) от 26.08.2016
+
+VA - Stranger Things / Очень странные дела (Original Series Soundtrack + Unofficial Soundtrack) (Season 1) (2016) [MP3|128-320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things (01:08)
+02. Kids (02:39)
+03. Nancy and Barb (01:06)
+04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 04:59:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15594791D8FA16B9699BC6C285DEB2A2D0826280
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045886   (552750) от 26.08.2016
+
+Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesse Harlin - New Bordeaux (02:46)
+02. Jim Bonney - 11th Hour Blues (03:49)
+03. Jesse Harlin - From the Darkness, A Voice (04:28)
+04. Jim Bonney - Going Down Slow (04:23)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9FC7EFE2F757FBA42365B42085A8B7D3FD5D4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046013   (552905) от 26.08.2016
+
+Gloria Estefan - Mi Tierra (1993) [FLAC|Lossless|image + .cue] <Latin, Folk, World>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Con los anos que me quedan (4:37)
+02. Mi tierra (4:39)
+03. Ayer (5:18)
+04. Mi buen amor (3:50)(   Читать дальше...   )Жанр: Latin, Folk, WorldПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B45CE4FCC945C807424619D1E91B50684C058A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045968   (552964) от 26.08.2016
+
+Valley - Original Soundtrack (2016) [FLAC|Lossless|tracks] <Score,  Orchestral>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Recollections (04:10)
+02. Ancient Voices (03:12)
+03. Warm Waves of Happiness (02:23)
+04. Life Yet in These Metal Bones (01:58)(   Читать дальше...   )Жанр: Score,  OrchestralПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92488F0061A35C6DDF0CFCFB2B06B59A12F21334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308200   (553528) от 16.06.2019
+
+Jeff Scroggins & Colorado - Over the Line (2019) [FLAC|Lossless|tracks + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Train (03:10)
+02. Piney River Girl (03:36)
+03. Curse the Ohio (02:46)
+04. Darcy Farrow (03:58)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54839A98CA384B9D8F01E9253A9B5A7195425559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308321   (553723) от 15.06.2019
+
+Calexico & Iron & Wine - Years to Burn (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Heaven's Left (04:52)
+02. Midnight Sun (04:14)
+03. Father Mountain (02:54)
+04. Outside El Paso (01:51)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE06D5E6076553A4F4B579A141F7CEC4F4B3FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236543   (554027) от 19.07.2018
+
+Piano Peace - Sleep Piano Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sleep Lullaby 02:52
+02. Sleep Dream Love Song 02:57
+03. Music for a Good Night's Sleep 03:03
+04. Mystery of Love 03:03(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DBFEDF6D600F57840F968DFBA6540BB514AD2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308112   (554176) от 13.06.2019
+
+Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Alternative>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Ghost I (02:14)
+02. For the Sun (03:29)
+03. Watch the Time (02:17)
+04. Space Ghost II (03:09)(   Читать дальше...   )Жанр: Indie Folk, AlternativeПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF4B27FFB8A818FA7B481A732D2B9B3E618BE97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

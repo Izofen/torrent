@@ -1,26 +1,657 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1051693   (530684) от 12.09.2016
+
+Однажды в России (2016.09.11) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 3)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3925675E3512CD28CE0113B99149368895C8D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312670   (530706) от 05.07.2019
+
+Pale Moon 28.6.0.1 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B619A9DD1BF99DCD2C77302A6589F1CCD98015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312579   (530722) от 05.07.2019
+
+Dave - PSYCHODRAMA (2019) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psycho (04:08)
+02. Streatham (03:25)
+03. Black (03:48)
+04. Purple Heart (02:44)(   Читать дальше...   )Жанр: Hip HopПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0055ACD3F74D09CD026679F4B39A2AF32109B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533467   (530756) от 11.08.2012
+
+1313: Ночь вдовы / 1313: Night of the Widow (2012) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа, состоящая из 20-летних молодых людей, собирается в доме погибшего друга, чтобы выразить свои соболезнования по поводу его кончины и заслушать его последнюю волю. Но неожиданно их начинает преследовать таинственный убийца, вооруженный ножом...Жанр: УжасыРежиссер: Дэвид ДеКотоАктеры: Луис Ферриньо мл., Джастин Шван, Джейк Локетт, Андриана Стайн, Шоун РоуПеревод: ОтсутствуетПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B982C04C5474A527CEB6DE564161EDA43207A2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533231   (530761) от 11.08.2012
+
+Работы художника Тодда Локвуда [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника Тодда Локвуда
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B8662FF29D1CC47B9340507BCBC9EBE4C99041
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533817   (530771) от 11.08.2012
+
+Звезды YouTube / Зірки YouTube. Выпуск №13 (2012) SATRip [RUS/UKR]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9517827F6AD3BA0761BE8E99E2B584DEC14826F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312718   (530823) от 05.07.2019
+
+SKURM & ╰_╯ - DA_bada_DU (Ultra Mood Remix​)​ (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SKURM & ╰_╯ - DA_bada_DU (Ultra Mood Remix)Жанр: HardstyleПродолжительность: 00:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EEF88F5595194CC84FEE17FAF6C422B715D700
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533877   (530834) от 11.08.2012
+
+VA - A State of Trance Radio Top 20 August 2012 [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Wallbridge - Bang The Drum (Feat Audrey Gallagher-Omnia Remix) (7:31)
+02. Headstrong - Love Until it Hurts (Feat Stine Grove-Solis and Sean Truby Mix) (7:14)
+03. Dark Matters - Loneliness Won't Leave Me Alone (Feat Neev Kennedy-Sebastian Brandt Remix) (7:29)
+04. Luigi Lusini and Starchaser - All I Want (Feat Molly Bancroft-Matteo Marini Radio Cut Mmix) (3:24)
+05. W and W - Moscow (Radio Edit) (2:35)
+06. Lemon and Einar K Presents Capa - Bit by (6:34)
+07. Max Graham - Still There's You (Feat Jeza-Tomas Heredia Remix) (7:24)
+08. Sean Tyas - The World (Feat Lo-Fi Sugar) (7:19)
+09. Alex M.O.R.P.H. - Antara (The Circle) (Feat Sylvia Tosun-Dub Mix) (7:29)
+10. Markus Schulz - Caught (Feat Adina Butar-Tritonal Club Mix) (6:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A057FCEE9825B29266D5D9B53D2B31E1C98EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533288   (530836) от 11.08.2012
+
+Megurine Luka Wallpapers (10.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D994D6F53899F92750D6040C002DEBE261B5F756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533789   (530838) от 11.08.2012
+
+Джек и Тень - Таверны Средиземья (2012) [MP3|320 кб/с]<Folk-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatherland (05:01)
+02. Totus Floreo (03:17)
+03. Лориэн (04:08)
+04. Таверны Средиземья (04:04)
+05. All Like That (02:02)
+06. Ev Sistr (02:47)
+07. The Voice Of Freedom (04:56)Жанр: Folk-MetalПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3A2A8C0C8BED11725A1DE9EBA8BAF8E0FE7E3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533647   (530839) от 11.08.2012
+
+Liberty n' Justice - Light It Up (2009) [MP3|192 кб/с] <Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light It Up (ft. Phil Lewis & JK Northrup)
+02. The Other Thief (ft. Dale & Troy Thompson)
+03. Blink (ft. Lynn Louise Lowrey & Eddie Ojeda)
+04. Do What You Believe (ft. CJ Snare & Bill Leverty)
+05. Man vs. Mother Nature (ft. Ted Poley & Vic Rivera)
+06. Treading on Serpents (ft. Les Carlsen & Oz Fox)
+07. Uncle Sam (ft. Sheldon Tarsha & Jeff Pilson)
+08. Every Reason to Believe (ft. Kelly Keeling & Kerri Kelli)
+09. Wrestling with God (ft. Pete Loran, Steve Brown & Ron 'bumblefoot' Thal)
+10. Best Time (ft. Chris Jericho & Phil Collen)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CFE4E4867D63596804CFC3234CC5E9AA92485B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533603   (530841) от 11.08.2012
+
+Ensiferum - In My Sword I Trust (2012) [H.264/720р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Viking | Folk MetalПродолжительность: 00:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EF6E74FEC7032C12D718BEAFF4B0DE8F139FC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533815   (530842) от 11.08.2012
+
+Дом без адреса (2010) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди приходят в этот мир для счастья, но почему-то чаще выбирают страдание. После аварии Анна вместе с истекающим кровью Андреем оказываются в одиноком доме — им нужна помощь. Андрей — единственный на свете близкий ей человек, и Анна боится его потерять. Но вместо помощи в этом странном месте Анна встречает свою мать, которая умерла год назад в доме для престарелых, и своего нерожденного сына. Анна не верит, что вновь сможет стать счастливой, ведь она предстает перед самым строгим судьей — своей совестью. Все можно изменить, надо только пожелать.Жанр: ДрамаРежиссер: Андрей ХоленкоАктеры: Лидия Омутных, Светлана Немоляева, Иван Савченко, Платон ШмаковПеревод: Оригинал (Русский)Продолжительность: 01:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D35D8306C78B8C5BABDC8D6A8C119D87F8E6B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533573   (530843) от 11.08.2012
+
+Nature HD Wallpapers (11.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF64C984518C4F32AA491C8A3670AE66437832F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533596   (530844) от 11.08.2012
+
+ANIME-PATCHWORK (11.08.12) [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530844.jpg" />
+</div>
+
+
+###  Подробнее
+
+ANIME-PATCHWORK (11.08.12)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3774F68391A5793C26DB871EB6EA2B9880EC3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533574   (530845) от 11.08.2012
+
+Beautiful Nature Wallpapers (11.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D77D3E25D475493F5A6D69875250B8F8A2FC4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533571   (530846) от 11.08.2012
+
+Best HD Wallpapers Pack (11.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87880F56E8AC75E320DF979125F93AD4B1C8403F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533675   (530847) от 11.08.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №115 (2012.08.10) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая ведущая! Роскошные бунгало и Башня одиночки! Новые герои, новый приз и новые правила! Катрин выиграла главный приз, и герои «Каникул» уже собирались домой… Как вдруг судьба дала им еще один шанс! Они получили возможность остаться в Мексике и продолжить игру. И некоторые остались! Еще несколько выбывших участников вернулись на проект, чтобы снова попытать счастья, а кто-то приехал в Мексику впервые...Героев ждут лучшие каникулы в жизни: шоколадный загар, жаркие ночные клубы, бесконечный кредит в баре и классная тусовка… А еще страсть, интриги, умопомрачительные свидания, крепкая дружба, взрослые ссоры и настоящая любовь!Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BA18771F5E91F6129236C96BB1DC779127C318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533286   (530848) от 11.08.2012
+
+Best HD Wallpapers Pack (10.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8602C07280A2E43C54F3E86A2B1B7B48B0666D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533570   (530849) от 11.08.2012
+
+Computer Desktop Wallpapers Collection (11.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D387A94352024271840DBA3D39CDB067B82350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533270   (530851) от 11.08.2012
+
+Nature Wallpapers (09.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72944113930799899E4FD78A4D5D2ABA6AC4DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533287   (530852) от 11.08.2012
+
+Nature Wallpapers (10.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E7A17A1383302A7E4E20918941C9E8F03F830B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533271   (530853) от 11.08.2012
+
+Nature HD Wallpapers (09.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6551D810B924446727B9855316F4A11F4AE66743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051663   (530876) от 12.09.2016
+
+USDownloader 1.3.5.9 Portable (11.09.2016) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F28B9B62CDD36B8A00761C4624CE088B004CF84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051669   (530882) от 12.09.2016
+
+Any Given Day - Everlasting (2016) [FLAC|Lossless|tracks + .cue] <Metalcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Doom
+02. Endurance
+03. Levels
+04. Coward King(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11392B074F3F27752411C5425DF82DCBC3E3DB67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051732   (530890) от 12.09.2016
+
+VA - Grotesque Essentials Summer 2016 Edition (Mixed by RAM & James Dymond) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoneface & Terminal - Keep Going (5:03)
+02. Dimension & Ryoji Takahashi - Hidamari (5:25)
+03. Ferry Corsten pres. Gouryella - Neba (8:16)
+04. Orla Feeney & Kriess Guyte - Vortex (7:42)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A3CFB1B3BED292FE45A3D363B71C8990403E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,26 +1,675 @@
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
-D:Git	orrentNational Geographic
+###  Публикация: 1333451   (302990) от 25.10.2019
+
+Кумир / Usang (2019) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав, что его сын сбил человека, а супруга пытается скрыть преступление, политик Ку Мён-хве в разгар предвыборной кампании решает, что наилучший ход в данной ситуации — сдаться властям. Они возвращают тело на место аварии, и через два дня сын Ку приходит с повинной в полицию. Но отец погибшего считает, что тут что-то не так, ведь его сын был с женой на медовом месяце. (   Читать дальше...   )Производство: Корея Южная / CGV Arthouse, Pollux Barunson, Vill Lee FilmЖанр: Драма, триллер, криминал, детективРежиссер: Ли Су-джинАктеры: Хан Сок-кю, Соль Гён-гу, Чхон У-хи, Ю Сын-мок, Хён Бон-щик, Кан Маль-гым, Ким Сон-нё, Со Джу-хи, Ким Мён-гон, Чо Бён-гюПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 02:22:55Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F079041A13258EC91F18125C26BCEC91D02E523C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333481   (302991) от 25.10.2019
+
+Adobe Prelude CC 2020 9.0.0.415 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Prelude CC - программа для профессиональной оцифровки видеоматериалов, позволяющая преобразовывать любые форматы файлов и расставлять теги. Приложение предлагает эффективное управление процессом подготовки файлов, моментально создавая журналы по маркерам и другим временным метаданным, обеспечивающим возможность поиска в ходе окончательной обработки. С Adobe (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6776060904F3E11865540936B0C6966B962323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333529   (302992) от 25.10.2019
+
+Проекты - VideoHive - Winter Memories - 14421393 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Memories - Проект Зимние Воспоминания идеальное решения для создания рождественских и новогодних слайд-шоу, воспоминаний о зимних путешествиях, зимних спортивных игр т. д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309C052CA615C73C2C06ABD62866BCC9F2B94532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333500   (302993) от 25.10.2019
+
+Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (2019) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люк Хоббс — американский элитный спецагент, он любит удобную спортивную одежду, большие пикапы и здоровое питание. Декард Шоу — британский пижон, бывший сотрудник разведки, предпочитает дорогие костюмы, спортивные авто и длинноногих красоток.
+Эти двое ненавидят друг друга. Но если кто-то угрожает их семьям, они готовы пойти на все. Даже на работу в команде.Производство: Великобритания, США / Universal PicturesЖанр: Боевик, приключенияРежиссер: Дэвид ЛитчАктеры: Дуэйн Джонсон, Джейсон Стэйтем, Идрис Эльба, Ванесса Кирби, Хелен Миррен, Эйса Гонсалес, Эдди Марсан, Элиана Суа, Клифф Кёртис, Лори Пеленис ТуисаноПеревод: Дублированный (iTunes)Субтитры: Русские (Форс.), английскиеПродолжительность: 02:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9839E376B4CCEAF2EA0DAFF45A055052C79ECB92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333421   (302994) от 25.10.2019
+
+Internet Download Manager 6.35 Build 8 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E25A46CBAED1C3795D68BEF6D3DE2147C34A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078273   (302995) от 30.11.2016
+
+Mezzoforte - No Limits (1986) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icebreaker (4:10)
+02. No Limit (5:23)
+03. Joyride (4:35)
+04. Evolution (7:40)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B76A8701C01AD2CA14560AABE0BA38A545E0115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078053   (302996) от 30.11.2016
+
+Bone - Wonder (2016) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velour (04:35)
+ 02. Glaucoma (06:17)
+ 03. Wonder (05:15)Жанр: Drum & BassПродолжительность: 00:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A11079AD19DF82C6310E5D9433AF975DEDFADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078149   (302997) от 30.11.2016
+
+Вечерний Ургант (2016.11.29) SATRip (cезон 10, выпуск 58)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3544D51BF94908058E7394A214662937E1C76F20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078004   (302998) от 30.11.2016
+
+The Last Ten Seconds Of Life - The Violent Sound (2016) [FLAC|Lossless|tracks] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Little Black Line  (02:58) 
+02|  The Drip  (03:17) 
+03|  Bloodlust  (02:41) 
+04|  Six Feet  (03:58) (   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84F56291A1D54432475205091C803A4FE1E4A99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078208   (302999) от 30.11.2016
+
+Paste 2.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paste — менеджер истории буфера обмена для Mac
+Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
+ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 ноября 2016Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E247A131DF3FF256A449A048D06D3D0C8D6821
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078377   (303000) от 30.11.2016
+
+TunesKit 3.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303000.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit - простой в использовании и мощный iTunes DRM медиа конвертер
+Tuneskit конвертирует MP4 видео файлы ,поможет любителям iTunes легко обойти Fairplay DRM защиту от iTunes приобретенных и арендованных фильмов / телевизионных шоу в том числе 1080P HD фильмов и телевизионных шоу, конвертируя быстро и без потерь iTunes зашифрованные M4V в формат MP4 с сохранением (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 ноября 2016Разработчик: TunesKitПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213E3DC10192D7DA1823A8E2DEA01037766E6177
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078207   (303001) от 30.11.2016
+
+Spillo 1.9.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spillo  - контроль над вашим закладкам на Pinboard
+Spillo - это мощный, красивый и удивительно быстрый Pinboard клиент. Spillo позволяет просматривать и упорядочивать закладки в потрясающем современным интерфейсом. Spillo также делает создание закладки из любого места на вашем Mac, максимально удобным.
+
+Spillo имеет красивый современный интерфейс, который чувствует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Damien DeVilleПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC72151E80F495FE7BD4CB71163BFB0A16DD55E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078376   (303002) от 30.11.2016
+
+VA - Winter House Ibiza (50 Real House Tunes) (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Beach Crew - Happy Island  02:23
+02. Victor Paulsen - Love Resort  04:14
+03. Jockey Studio - Funk Sun  03:09
+04. Hock Coach - Introspective  04:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6F732C69A6219EA229AE963ED10D62E428CE07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078146   (303003) от 30.11.2016
+
+iFinance 4.1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303003.jpg" />
+</div>
+
+
+###  Подробнее
+
+iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B21A7F0A0B381B2EE30023EA16ADB554DCDEC09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078381   (303004) от 30.11.2016
+
+VA - Rephlexions! An Album Of Braindance! (2003) Rephlex [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yee-King - Goodnight Toby (05:09)
+ 02. D'Arcangelo - Shipwreck (03:04)
+ 03. Cylob - Smack 'Em Up Sharp (05:42)
+ 04. Bochum Welt - Radiopropulsive (03:47)(   Читать дальше...   )Жанр: IDM, Leftfield, ExperimentalПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7CCA152431B58D97ADAF6D253E0ED7D869721B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078291   (303005) от 30.11.2016
+
+Mezzoforte - Playing For Time (1989) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing for Time 05:19
+02. Expressway 04:29
+03. Magic 04:58
+04. Take a Breath 05:22(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95664BC06954ADFA9C0CEE6E9230D54A68EC0039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078166   (303006) от 30.11.2016
+
+VA - Beauty of Music Vol.1: Beautiful Relax Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gordon Geco - Euroasia (04:44)
+02. Fous De La Mer - Good Bye Lawrence (04:34)
+03. Mirage Of Deep - Manhattan 3-25 AM (05:13)
+04. Zofka - Mais Ca Ne Fait Rien (03:07)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082B20E8AC12880770EF8CE943B75B74C2620106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078260   (303007) от 30.11.2016
+
+Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surprise (01:27)
+02. Garden Party (06:10)
+03. Gazing At The Clouds (06:41)
+04. Early Autumn (06:29)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC8930A5DFAE3CC1DB68C7127C6DEEBA6F5749E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078284   (303008) от 30.11.2016
+
+Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Check It In (02:00)
+02. Take Off (05:42)
+03. Happy Hour (05:31)
+04. Waves (05:35)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39990047B577426CC30FE7397F6F34B4265CB44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078250   (303010) от 30.11.2016
+
+VA - Miami Beach Skateboarding Music (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susan Sustain - Hypnotize2 07:28
+02. Tarcim Sakman - Okay Dear 05:22
+03. Chantal Karuso - Moody Times 05:43
+04. Frieda Fruchtig - Spritzig 05:33(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C34D2BCA644FAA42F8CA3E4CA6A877066753D49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078234   (303011) от 30.11.2016
+
+VA - Chillout New York Bar Set (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Recurring Events 6:17
+02. Miraflores - Riverbend's Song 6:11
+03. Aquarius - Amiga e Amante 6:11
+04. Enrico Donner - Time Stands Still 4:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B2CA4A84D344CAE7A9782D1447ADFEFD5D8242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078177   (303012) от 30.11.2016
+
+VA - Noble Chillout Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Ocean of Secrets 6:01
+02. D & G - Cercando Di Te 5:16
+03. Sunset Session Group - Underworld 5:48
+04. Juicy Lotta - Close Your Eyes 6:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0A05C9C6B3B8CB35CEED367FE6D1AF148AC17F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077515   (303013) от 30.11.2016
+
+Dave Ellis - In The Long Run (1998) Monarch Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ced & Dunn [06:16]
+ 02.You'd Be So Nice to Come Home To [05:34]
+ 03.Evil Deals [05:56]
+ 04.Pillars [06:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5DDCE692081592477498CD8B1AC95FD565760D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078408   (303014) от 30.11.2016
+
+VA - Chill The Stress Away Vol. 1 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Gatsi - Fine of Nine - Instrumental Version (04:04)
+02. Heso - Time for a Break (05:17)
+03. Strike Donnovan - Sequel Cords (02:37)
+04. Stiller - Rain in May (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCDB3762FFD0A62238169EEDED9F92D93F0FF59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730880   (303017) от 05.12.2013
+
+БГ и Сева Гаккель - Концерт на Таганке (1984) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303017.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. Пока не начался джаз (2:41)
+C2. Рождественская песня (5:13)
+C3. 25 к 10 (2:12)
+C4. Электрический пес (3:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730720   (303020) от 05.12.2013
+
+Фрэнк Перетти | Бегство с острова Аквариус (2001) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джей и Лайла Куперы отравились со своим отцом-археологом к экзотическому острову Южного моря, они столкнулись со странными могущественными силами. Мог ли невежественный лидер - тиран островной колонии быть пропавшим миссионером, которого им было поручено разыскать? Если это так, почему он несколько странно себя ведет? По мере того как Куперы старались разгадать тайну, они столкнулись со смертельными опасностями: Великим Змеем, пожирающим людей, ядовитыми насекомыми, страшными землетрясениями. Основа острова стала разрушаться. Джей, Лайла и их отец должны были отыскать способ побороть зло, которое заставляло колонистов повиноваться лже-мессии. Но смогут ли они сделать это до того, как весь остров разрушится на части?Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AE697D95F60D1A1533750EED4E24DDD778BC80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
