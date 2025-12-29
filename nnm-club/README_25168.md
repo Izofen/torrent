@@ -1,690 +1,678 @@
-###  Публикация: 1602295   (1046135) от 05.01.2023
+###  Публикация: 1615716   (1037287) от 27.02.2023
 
-Lightnin' Malcolm - Eye of the Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Жак Фреско | Проектирование будущего (2010) [MP3, Vlad gur]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жак Фреско - архитектор и промышленный дизайнер, производственный инженер и изобретатель, социолог и футуролог – все в одном лице. И во всем самоучка. Жак Фреско смотрит в наше общее будущее и видит там только хорошее. В абсолютно идиллическом будущем Фреско нет бедных и нет богатых, все равны, живут в одном мире без границ и ничто не омрачает их существования. В (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 02:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE22B9E136425D1957807993B73CAF4A2C5D7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615614   (1037288) от 27.02.2023
+
+VA - Chilly Intimate Love Smooth Playlist for You & Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening, Lounge>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046135.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lord Above (3:29)
-02. Crawlin Baby (3:55)
-03. Eye of the Storm (5:43)
-04. Modern Reminder (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:00
+01. Chillaxing Jazz Kollektion - Riding on a Cloud (5:15)
+02. Kool&Klean - Sunrise (5:12)
+03. Konstantin Klashtorni - Humble and Kind (4:06)
+04. Chillaxonic - Iridescent (5:09)(   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, LoungeПродолжительность: 02:16:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:386560CE383B1D1771C1A94B1435C561A139FF76
+magnet:?xt=urn:btih:525914E0AE1068E7749EA1518BBC51A7C5025487
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602424   (1046136) от 05.01.2023
+###  Публикация: 1615547   (1037289) от 27.02.2023
 
-In Reach - Waterline (1992) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterline
-02. Faded Love
-03. My Heart
-04. The Other Fall Of Cambrai(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E68F03C2EAB8E0755D821386E6ED2382BA1973D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602302   (1046137) от 05.01.2023
-
-Mark Pocket Goldberg - Off-Balance Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Matter of Time (4:03)
-02. What You Gotta Have (3:46)
-03. Babblin' Blues (4:10)
-04. Face in Disguise (3:46)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B274803356B7AC69C3F0184AC08C48E7C91374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602450   (1046138) от 05.01.2023
-
-Чарли Чейз. Его деревянная свадьба / His Wooden Wedding (1925) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли собирается жениться, и его шаферу (подлый интриган!) нужны две вещи: невеста Чарли и семейный бриллиант, который Чарли подарил ей в качестве подарка на помолвку. Поэтому он пишет Чарли анонимную записку, что у его невесты деревянная нога. Звучит глупо? Да, но это работает и следует несколько озорных,  веселых эпизодов.
-
-Прелесть великолепных комедий Чарли Чейза (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Гэйл Генри, Фред Десильва, John Cossar, Лэсси Лу Ахерн, Хелен Гилмор, Энн Ширли, Дороти Ширли, Лайл ТайоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BF075668D92B54FD3EF824B63AB04BC037BA64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602271   (1046139) от 05.01.2023
-
-24x96 - Toxic Indie (2023) [MP3|320 Kbps] <Experimental Rock>
+Beckson Beck - Счастья нет (2023) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046139.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Древесные слухачи [00:02:28]
-02 - Ксв [00:02:33]
-03 - Руморэ латино [00:03:36]
-04 - Редько-хреновый джем [00:01:14](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:32:05
+01 - Интро [00:01:50]
+02 - Алкоголь [00:03:19]
+03 - Иллюзия [00:05:19]
+04 - Это не беда [00:03:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC29C4CA5DCA1DA3973BDAC7558155F29A03281E
+magnet:?xt=urn:btih:43ED94FFB7C9B3485721C0CBD18267EA6EFB4445
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602505   (1046140) от 05.01.2023
+###  Публикация: 1615789   (1037290) от 27.02.2023
 
-Frostbitt - Machine Destroy (2023) [MP3|320 Kbps] <Nu-Metal, Math Metal, Progressive Metal, Djent>
+Revo Uninstaller Pro 5.1.0 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7FB5A532A9178AD1883A44A3CB316DE434D99D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615691   (1037291) от 27.02.2023
+
+Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
+2016 - Absence
+2017 - Fields of Isolation (EP)
+2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615770   (1037292) от 27.02.2023
+
+Sophie Milman - Her Very Best... So Far (2013) Linus Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua de Beber (Water to Drink) [3:58]
+02. I Concentrate on You [4:19]
+03. Speak Low [4:28]
+04. Be Cool [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016263B00C0D2C76C6A1F1FB84AC50149E26425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615699   (1037293) от 27.02.2023
+
+Святитель Феофан Затворник | Господь послал к тебе нуждающегося. Отношение христианина к достатку (2011) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Феофан (в миру Георгий Васильевич Говоров), Затворник Вышенский (1815–1894) – епископ Русской Православной Церкви, богослов, проповедник. До настоящего времени его труды по истолкованию Священного Писания, духовные письма и проповеди просвещают и наставляют читателей в благочестии.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32786D4A08FCE8028CD2497A2E3FE3928F84A065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615730   (1037294) от 27.02.2023
+
+Khan - Creatures (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow [00:06:17]
+02 - How Old [00:06:31]
+03 - Follow [00:10:08]
+04 - Eyes, Lungs, Arms & Mind [00:07:47](   Читать дальше...   )Жанр: Heavy Rock, Stoner RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DD85483C7F5A9E344DF6744776D18D2AFAC47F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615754   (1037295) от 27.02.2023
+
+Naut - Hunt (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Gothic-rock, post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissent (4:16)
+02. All the Days (4:07)
+03. Gold & Death (4:13)
+04. Damocles (5:28)(   Читать дальше...   )Жанр: Gothic-rock, post-punkПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11CB0FBDD4314E5862D0BF411B5CDD44F5B704C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615555   (1037296) от 27.02.2023
+
+Dis Tortion - Metal Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:24]
+02. Distortion [00:05:11]
+03. Animal Farm (Album version) [00:03:43]
+04. Mr. Dickens [00:04:32](   Читать дальше...   )Жанр: Groove, Thrash MetalПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E87FA78B5ED059FED8E9C595D7E9FE7B764106C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615824   (1037297) от 27.02.2023
+
+Druid Stone - 3 Albums (2022-2023) [MP3|320 Kbps] <Blackened Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046140.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. MACHINE DESTROY [00:03:40]
-02. Masked Ghost Host [00:03:25]
-03. Full Body Plutonium [00:04:11]
-04. Skeleton Dance [00:03:59](   Читать дальше...   )Жанр: Nu-Metal, Math Metal, Progressive Metal, DjentПродолжительность: 00:40:09
+Список альбомов:
+2022 - Druid Stone (Re-issue)
+2023 - The Corpse Vanishes (Remixxx)
+2023 - The Grateful UndeadЖанр: Blackened Doom MetalПродолжительность: 3 CD, 02:14:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:811C767AC04CBB8C271DDA7B44BD0696E5F927B1
+magnet:?xt=urn:btih:7F8CA660C2A81D2FA83292D3DB66AEA6E949E811
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602286   (1046141) от 05.01.2023
+###  Публикация: 1615811   (1037298) от 27.02.2023
 
-Viky Abyss - В голове (2022) [MP3|320 Kbps] <Industrial Metal>
+Pierre Vervloesem - Underwater Adventures (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Avant Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046141.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - В путь! [00:00:54]
-02 - Болен мечтой [00:03:45]
-03 - Весна [00:04:14]
-04 - Взрыв [00:03:30](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:27:08
+01. Underwater Adventures [00:13:03]
+02. Love Shark [00:03:01]
+03. Deep Blue [00:03:15]
+04. King Swing Fish [00:03:07](   Читать дальше...   )Жанр: Progressive Rock, Avant ProgПродолжительность: 00:44:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ABEFA12C670E078EF755698B4C565E663050718
+magnet:?xt=urn:btih:C0B9F4B854F5ED0202FE6E1164A7CBC33E46AD59
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602278   (1046142) от 05.01.2023
+###  Публикация: 1615684   (1037299) от 27.02.2023
 
-Aerovokzal - Пропасть (2022) [MP3|320 Kbps] <Alternativo, New Wave>
+Gathering Of Obscurity - The Pain Of Humiliation (1999) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046142.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Мечта [00:04:22]
-02 - Я знаю [00:02:44]
-03 - Двери [00:03:20]
-04 - Письмо [00:03:15](   Читать дальше...   )Жанр: Alternativo, New WaveПродолжительность: 00:30:07
+01. Across Pain And Loss... (08:36)
+02. Colours Of Black (05:58)
+03. A Dying Soul In Suffering (07:29)
+04. In Suspense Of Delight (07:17)(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:13:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD08FC8631C50DF4FE6EBBE90BE1CCD89D119D35
+magnet:?xt=urn:btih:8B8A731307BED5D7DF829D97BEF3B4B91F351D66
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602306   (1046143) от 05.01.2023
+###  Публикация: 1615772   (1037300) от 27.02.2023
 
-Paul Constable - Warmer Places (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warmer Places (2:55)
-02. Pay to Play (3:09)
-03. Hold On (4:08)
-04. Wasting Time (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931068AEE2EEE4148AA6045303C958BC22CE772A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602336   (1046144) от 05.01.2023
-
-Karin Krog & Bengt Hallberg - Cabin In The Sky (2011) Gazell [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+Buddy Rich - Time Out (1977, 1978) 2007, Lightyear [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046144.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just You, Just Me [3:03]
-02. Young at Heart [3:56]
-03. Time After Time [3:59]
-04. Prelude to a Kiss [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:47:52
+01. Goodbye Yesterday [5:50]
+02. Machine [3:30]
+03. Bouncin' with Bud [7:37]
+04. Readymix [3:11](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C10287B92EB7948908235A949256456080606EA1
+magnet:?xt=urn:btih:F8A0296441648DDA7EE0BD52437CE6BB7FB3A83F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602350   (1046145) от 05.01.2023
+###  Публикация: 1615637   (1037301) от 27.02.2023
 
-Ignition - Ignition (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down on My Luck
-02. Tell Me Your Mine
-03. Father (Save Me)
-04. Fire With Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3B21825F858DC8A8FFF0D35D6D8CCE73290794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602297   (1046146) от 05.01.2023
-
-Lil' Red & the Rooster - Keep on! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Trap Boogie (2:54)
-02. Whiskey Sip of Time (4:20)
-03. Keep on Lovin You (feat. Billy Branch) (5:16)
-04. Love the Hell Right out of Ya (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA7F81C8A9E564A84E4A8A8776965F7F48DB180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602308   (1046147) от 05.01.2023
-
-Riverboat - Big Talk and Muddy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby That's Alright (3:02)
-02. Hard Times (2:44)
-03. Big Talk & Muddy (3:18)
-04. Riverboat (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60564B7E745E8EA0E2F45183451BDDF50B75F1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602298   (1046148) от 05.01.2023
-
-LJ Mounteney - Mama Danced (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Rat (3:49)
-02. I Like it Hot (3:20)
-03. Wasn't That a Time? (2:52)
-04. Mama Danced... (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50B45AFFF19E162499740177262DE16789BEFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602430   (1046149) от 05.01.2023
-
-Legend - Legend (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friendly Fire
-02. Don't Believe It
-03. Angela
-04. After The Fall(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941CA50BEEEA820FF7DB412F32910C415E91DD4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602273   (1046150) от 05.01.2023
-
-Mournument - Smouldering into Dust (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+Broken Fate - Fighters & Dreamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046150.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. On Rain and Thunder
-02. Chasm of Abandoned Souls
-03. Sea of Desperation
-04. A Funeral Poem(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:46:32
+01. Fighters & Dreamers [00:04:33]
+02. Devil on Earth [00:03:59]
+03. White Line [00:04:05]
+04. When Does It Come [00:04:28](   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:04:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B4D4C99D71A903BFEDA2A205110DE41276EDDB3
+magnet:?xt=urn:btih:863A94A348326B4BE69E91242F4EF67AA6AA5691
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602293   (1046151) от 05.01.2023
+###  Публикация: 1615725   (1037302) от 27.02.2023
 
-Justin Lavash Trio - E Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+The Inner Road - The Last Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046151.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brick by Brick (2:52)
-02. Easy Train (3:52)
-03. Fox & Hounds (4:24)
-04. Avalanche (5:17)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:55
+01. Broken Mirror 10:19
+02. The Calling 07:22
+03. Hidden Portal 07:37
+04. Dark Door 06:56(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:14:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E837AC9CA59BEE7C6BB48D2E90FDB421DFEA8D47
+magnet:?xt=urn:btih:5308118696BB2D9AA8001F7D4539B82241E78C45
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602370   (1046152) от 05.01.2023
+###  Публикация: 1615601   (1037303) от 27.02.2023
 
-Syndrone - Neogenesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Shred>
+Inverna - Inverna, Pt. 1 (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Il Giardino Degli Incensi [00:06:32]
+02 - Il Nemico Allo Specchio [00:04:18]
+03 - Dove [00:01:17]
+04 - Domanda Alla Vita [00:04:39](   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14AB7617C38DEF6E255377491DB83AC3C6C04FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615644   (1037304) от 27.02.2023
+
+Tierra Santa - Gillman Fest 2018 (2018) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046152.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neogenesis (05:42)
-02. Doomsday Apocalypse (feat. Tramaine) (08:33)
-03. Outworld (06:39)
-04. Artificial Gemini (06:18)(   Читать дальше...   )Жанр: Progressive Metal, ShredПродолжительность: 01:08:16
+01 Quinto Elemento
+02 Caín
+03 Nerón
+04 Juana De Arco(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:120AA7F7EB141B1F4CF2158B73668D892EBDB6CD
+magnet:?xt=urn:btih:A0387CCB576147EA3E398F787C3A784CB77AB925
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602331   (1046153) от 05.01.2023
+###  Публикация: 1615628   (1037305) от 27.02.2023
 
-Lee Wiley - Music Of Manhattan (1951) 1998, Uptown Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street of Dreams [3:36]
-02. Oh, Look at Me Now [3:11]
-03. Hallelujah [1:49]
-04. Manhattan [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBC383FA146432BBAE15200D7F5D34A20121345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602335   (1046154) от 05.01.2023
-
-Shorty Rogers & Andre Previn Orchestra - Collaboration (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Delovely [2:28]
-02. Porterhouse [2:47]
-03. Heat Wave [2:38]
-04. 40 Degrees Below [2:43](   Читать дальше...   )Жанр: West Coast JazzПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A550390B0D5F0DC1C3868CA0FF28DA6857DAEAFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602414   (1046155) от 05.01.2023
-
-Regular People - Fragments Of Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
+Doomas - R'lyeh (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046155.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Uvod (01:38)
-02 - Drown (04:54)
-03 - Fragments Of Memories (04:48)
-04 - Burning Visions (04:01)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:47:11
+01. Cult Yog-Sothoth [00:07:55]
+02. Ia Kingu! [00:05:50]
+03. Abyss [00:07:32]
+04. Portal [00:05:33](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:53:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86328EB78428CD197C741B948C0CF42DFD7A8EFC
+magnet:?xt=urn:btih:D58E5C36DE94B53E81E44D8F7953E8D0357A68D8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602408   (1046156) от 05.01.2023
+###  Публикация: 1615810   (1037306) от 27.02.2023
 
-Order of Nosferat - Vampiric Wrath Unleashed (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Praetor - Praetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046156.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shadows over Wisborg (05:19)
-02 - A Howl from the Forbidden Tower (03:24)
-03 - Vampiric Wrath Unleashed (05:01)
-04 - Fog Hide the Secrets of the Forlorn Kingdom (02:44)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:46
+01. No Return [00:02:41]
+02. Move On [00:04:09]
+03. Pitch Black [00:03:10]
+04. Mass Extinction [00:04:00](   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C743A3D5209FEBC741A0D7FAEE1103BA4C219A98
+magnet:?xt=urn:btih:075CBCF3B18F7947758266B253233675C19DAF7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602241   (1046157) от 05.01.2023
+###  Публикация: 1615623   (1037307) от 27.02.2023
 
-Morbus Wilson - Сorematic (1994) [FLAC|Lossless|image + .cue] <Thrash Metal, Groove Metal>
+Voland - Voland III: Tsarepoklonstvo - Il Culto degli zar (2021) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046157.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Head First To Power Pain
-02. Corematic
-03. Killed By Lies
-04. For Evermore(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:39:10
+01. Casa Ipatiev
+02. Terza Roma
+03. Promontorio
+04. Suite Russe(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E108F18A72F4B75DB63995ACF0C92A8B48455EDF
+magnet:?xt=urn:btih:909040571F03F693B5F49AD070C52B8372E85ED1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602188   (1046158) от 04.01.2023
+###  Публикация: 1425944   (1037308) от 22.01.2021
 
-Пришелец из будущего / Le visiteur du futur / The Visitor from the Future (2022) BDRip
+PROMT 21 Expert (+ Dictionaries Collection 21) Portable by Spirit Summer [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037308.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT 21 Expert - корпоративное решение, предназначенное для организации процесса перевода и локализации в переводческих компаниях и отделах перевода.
+В новой версии PROMT 21, для достижения высочайшего качества при переводе технической и корпоративной документации, мы использовали самые современные технологии искусственного интеллекта.
+PROMT Expert 21 — полезная (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF391810F92CECB6BD49CB73FBB2DD76191E361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441255   (1037309) от 22.01.2021
+
+HITMAN 3 (2021) [Multi] (3.10) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть ждёт. Агент 47 возвращается в HITMAN 3 — эффектном завершении трилогии «Мир наемных убийц». Заключительная часть трилогии. Вам снова необходимо примерить на себе роль Агента 47 и приступить к выполнению заказов, ликвидируя необходимые цели. Как и в предыдущих частях игры вы можете выбирать абсолютно любую маскировку, подстраивать «несчастные случаи», взаимодействовать (   Читать дальше...   )Тип издания: LicenseРазработчик: IO Interactive A/SЖанр: Action, Stealth, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4804DFEDC79C17C1B8DF230603118827C1CBAA48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990520   (1037310) от 22.01.2021
+
+Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложение для просмотра прогноза погоды (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037310.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeatherBomb - Универсальное приложение, которое покажет вам прогноз погоды, в реальном времени. Не все так просто как кажется, здесь присутствует интерактивная карта, которая показывает вам прогноз погоды в реальном времени. Есть одно меню, благодаря которому пользователь может выбрать нужную ему информацию. Имеется такой уникальный пункт как высота волн, эти данные (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 16.01.2021Разработчик: Enzure DigitalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A41BF6F3F6BE0DABEEE54773BE041512892914
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441624   (1037311) от 22.01.2021
+
+Космические Рейнджеры / Battle in Space: The Armada Attacks (2021) WEB-DLRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046158.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2555 год. Экологическая катастрофа уничтожила нашу цивилизацию. Остатки землян доживают свои дни среди полчищ зомби и потоков кислотных дождей. Один из последних - «Гость» - решается на отчаянный шаг. С помощью своего непутевого робота он возвращается в 21 век, чтобы предотвратить апокалипсис и спасти мир.Производство: Франция, Бельгия, Pyramide Productions, France 2 Cinéma, Allons VoirЖанр: Фантастика, комедияРежиссер: Франсуа ДекракАктеры: Флоран Дорен, Арно Дюкре, Эния Бару, Рафаэль Декрак, Слиман-Батист Берон, Одри Пиро, Матье Поджи, Венсен Тирель, Асса Силла, Лени ШериноПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: Отсутствуют.Продолжительность: 01:41:18
+События фильма разворачиваются в 2420 году. Инопланетяне давно захватили Землю и поработили людей. Небольшая группа повстанцев захватывает космические корабли, чтобы отвоевать свою свободу обратно.Производство: США / Hewes PicturesЖанр: Фантастика, боевикРежиссер: Andrew Jaksch, Лукас Кендалл, Toby Rawal, ...Актеры: Деклан Картер, Tom Farrah, Джесс Габор, Трип Хоуп, Миа Ларднер, Оливер Ларднер, Гари Льюис, Кэтлин Мэйсон, Kyle Mason, Мелина МэтьюзПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:615A45DE3AF0C61B3F8A2DB1DBFC38BBEBB92BB3
+magnet:?xt=urn:btih:F0BF204CAB187FC455BDFEC050D61EA5C7ACD8D8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601548   (1046159) от 04.01.2023
+###  Публикация: 1441065   (1037312) от 22.01.2021
 
-Оливье и роботы (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+Бывшая с того света / Blithe Spirit (2020) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
 
->>След.
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046159.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шесть историй о жизни в России в недалеком будущем и о проблемах взаимодействия человека и развитых технологий.Производство: Россия  / Zebra Hero FilmsЖанр: комедия, фантастикаРежиссер: Сергей Наумов, Сергей Филатов, Анатолий КолиевАктеры: Ирина Горбачева, Гоша Куценко, Леонид Каневский, Аскар Ильясов, Евгений Сидихин, Егор Корешков, Юлия Топольницкая, Анастасия Акатова, Никита Кукушкин, Александр БашироСубтитры: русскиеПродолжительность: ~00:30:00 серия
+В поисках вдохновения романист Чарльз Кондомайн, переживающий глубокий творческий кризис, хочет провести спиритический сеанс, для чего приглашает в свой дом знаменитого медиума, мадам Аркати. Он не подозревал, что та вызволит из загробного мира неугомонный дух его покойной, но очень ревнивой жены, которая начинает травить его новую супругу и во что бы то ни стало (   Читать дальше...   )Производство: Великобритания / Fred Films, Powderkeg Pictures, AlignЖанр: Комедия, фэнтези, мелодрамаРежиссер: Эдвард ХоллАктеры: Дэн Стивенс, Айла Фишер, Эйми-Ффион Эдвардс, Мишель Дотрис, Дэйв Джонс, Эмилия Фокс, Zach Wyatt, Romina Zapata, Джулиан Райнд-Татт, Адиль РэйПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:34:29Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8F43B8628E068EFFF4C33AAD79E6F91F5ADA95F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986495   (1046160) от 04.01.2023
-
-Falcon 4.0 + BMS (1998-2016) [En] (4.37/dlc) License GOG/Mod
-
->>След.
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falcon 4.0 - симулятор боевых ЛА, берущий свое начало аж в 1998 году. Симулятор сделан с упором на управление ЛА типа F-16. Falcon BMS это целая революция в данной ветве. Полностью кликабельная кабина самолетов, полная работоспособность всех систем самолета, полное 3D, поддержка trackir и прочие прелести современных решений. В BMS был адаптирован и подтянут движок (   Читать дальше...   )Тип издания: License/ModРазработчик: MicroProseЖанр: Simulation (Plane)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F4E182A107E0DE0324F923EF8918EEC10A7FEE
+нет
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1446498   (1032728) от 09.02.2021
+
+Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Have Some Fun (5:03)
+02. Love House (4:36)
+03. Your House or My House (3:56)
+04. Next to Me (5:26)(   Читать дальше...   )Жанр: Synth-pop, Pop, DanceПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446095   (1033024) от 08.02.2021
+
+VA - Acoustic Versions of Rock Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django Wallace - My Hero (03:46)
+02. Shannon & Keast - Wake Me up When September Ends (04:10)
+03. Karizma Duo - Everybody’s Changing (02:35)
+04. Nora & Will - Creep (04:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B27F89AA9AB9E8CD1B924210B26DEDC2B9D3B85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445885   (1033045) от 08.02.2021
 
 VA - Dream Pop 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
@@ -640,60 +694,6 @@ Selena Gomez - Rare (Box Set, Limited Edition, Special Edition ) - [Japan] (2020
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DDA8956DECB543A510D5181F6703749F89D85C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441506   (1037791) от 21.01.2021
-
-Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:30)
-02. Come In Closer (03:36)
-03. Beautiful (04:21)
-04. Safeword (02:54)(   Читать дальше...   )Жанр: Indie-Pop, RnB, DowntempoПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1896B0E3A93CB12F8706641456A82A806F1EC30E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441453   (1037803) от 21.01.2021
-
-Eva Kaufmann - Was ich fuehl (2016) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Was ich fühl
-2. Ohne Dich
-3. War das Alles
-4. Wo stehn wir(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8333A122288C149B09CA457BEA3B55C31F645CE
 ```
 
 

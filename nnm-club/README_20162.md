@@ -1,685 +1,673 @@
-###  Публикация: 1498636   (828236) от 14.10.2021
+###  Публикация: 1504516   (811983) от 23.10.2021
 
-VA - Nu Swing Club, Vol.2 (2021) [AAC|~322 Kbps] <Nu Jazz, Broken Beat, Swing>
+Lana Del Rey - Blue Banisters (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828236.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Venuta, Renato Cantini - The Gate (4:38)
-02. Melania, Christian Lisi - Caravan Petrol (3:24)
-03. Ely Bruna, Reseau - Tomorrow Is Another Day (2:58)
-04. Sugarpie And The Candymen - It Don't Mean A Thing (If It Ain't Got That Swing) (2:57)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, SwingПродолжительность: 01:12:34
+01. Text Book
+02. Blue Banisters
+03. Arcadia
+04. Interlude - The Trio(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6589A55D44D86B23AF43F29698F17D107A0CD407
+magnet:?xt=urn:btih:27763ACD4D60F6DFF7BD326D0D2FB399FA3F690B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498641   (828237) от 14.10.2021
+###  Публикация: 1504540   (811984) от 23.10.2021
 
-Club Des Belugas - How to Avoid Difficult Situations (2021) [AAC|~345 Kbps] <Jazz, Nu Jazz, Broken Beat>
+Поле битвы / Battleground (1949) BDRip [H.264] [MVO]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828237.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Club Des Belugas, anna.luca - Set Fire to It All (3:58)
-02. Queen Mab - Hazy (Club des Belugas Remix) (5:34)
-03. Club Des Belugas, Iain Mackenzie - Scat (4:43)
-04. Club Des Belugas, Maya Fadeeva - That's My Style (Extended Mix) (4:33)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Broken BeatПродолжительность: 01:14:00
+Декабрь 1944 года. Бойцы американской 101-й воздушно-десантной дивизии находятся в предвкушении отдыха и строят планы о поездке в Париж в ближайшие дни. Неожиданно поступает приказ выдвигаться на боевую позицию; солдаты недовольны, но вынуждены подчиниться. Марш-бросок на грузовиках приводит их в городок Бастонь, в окрестностях которого они окапываются. Никто точно (   Читать дальше...   )Производство: США /  Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, драма, военный, историяРежиссер: Уильям А. УэллменАктеры: Ван Джонсон, Джон Ходиак, Рикардо Монтальбан, Джордж Мерфи, Маршалл Томпсон, Джером Куртлэнд, Дон Тейлор, Брюс Коулинг, Джеймс Уитмор, Дуглас ФоулиПеревод: многоголосый профессиональный (Светла)Субтитры: английскиеПродолжительность: 01:58:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0080AA3FF1023EC181217345C7D7935E46281486
+magnet:?xt=urn:btih:1842A462445124654E8DFFBECF51A27952888F9A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498236   (828238) от 14.10.2021
+###  Публикация: 1504185   (811985) от 23.10.2021
 
-VA - The Perfect Soulful Vol.1 (Chillout Your Mind) (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Satisfied (Original Mix) (5:34)
-02. D'Joe - Passing By (Original Mix) (7:23)
-03. Lounge Groove Avenue - It Ain`t Right (4:30)
-04. Schwarz & Funk - Salinas (Eivizzards Mix) (7:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F0CFBFC2C626F61031854E480976CE77F31466
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502377   (828239) от 14.10.2021
-
-Дальнобойщики 10 / Torakku yaro: Furusato tokkyubin / Truck Guys 10: Run Truck Rascal Run (1979) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний фильм из серии "Дальнобойщики" не так хорошо прошел в прокате, как предыдущие 9 фильмов, но это, безусловно, не было связано с качеством. На мой взгляд 10 фильм серии - одна из лучших частей серии. История и персонажи здесь исключительно сильны. Норифуми Судзуки вероятно, является одним из лучших примеров режиссерского мастерства Судзуки в драматургии (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: Боевик, комедия, приключенияРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Кинъя Аикава, Масуми Харукава, Аико Морисита, Саюри Исикава, Даидзиро Харада, Хироми Намино, Тэруо СимидзуПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457DCE093E22064A74A9B5B4BA5BDA6C55DAA84A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502459   (828240) от 14.10.2021
-
-Adobe Substance 3D Designer 11.2.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя силу процедурного творчества. С помощью Substance 3D Designer создавайте бесшовные материалы и узоры, фильтры изображений, источники света или даже 3D-модели. Каждый актив может выводить бесконечное количество вариантов.Тип издания: macOS SoftwareРелиз состоялся: 17.09.2021Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78C6E3DE16AADBDAC7C63229076BDFCB7258AB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498634   (828241) от 14.10.2021
-
-VA - Nu Swing Club (2013) [AAC|~321 Kbps] <Nu Jazz, Broken Beat, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarpie And The Candymen - Tell Me Boy (2:45)
-02. Emsy Prank - Backside (Original Mix) (3:12)
-03. Fred Buccini, Ely Bruna - Love (2:24)
-04. Italian Secret Service - Not the Same (4:30)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, SwingПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90BD6A687328A2FFA2E1A779F92D2BC182FF7E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502140   (828242) от 14.10.2021
-
-VA - Chill & Sun, Summer of Your Life, by Smooth Deluxe, Vol. 2 (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Esteban - First Snow (4:56)
-02. Lazy Hammock - In Flight (Sax Mix) (10:45)
-03. Placid Larry, Franky Flowerz - Weary Drifter (3:30)
-04. Lounge Deluxe - See Yourself (6:17)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Smooth JazzПродолжительность: 01:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72563CAA814EA05ED65DB484623316701F1404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498243   (828243) от 14.10.2021
-
-VA - Summer Ease: Chillout Your Mind (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - A Wonderful Day (3:06)
-02. Marie Therese - Take This Treasure (Original Mix) (4:14)
-03. Lounge Groove Avenue - Late in the Night (4:07)
-04. Schwarz & Funk - Endless Blue (Original Mix) (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90FAE36E8216813F2BB833ADC6652702B6E5595
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502347   (828244) от 14.10.2021
-
-Manfred Mann's Earth Band - Mannthology: 50 Years of Manfred Mann's Earth Band 1971-2021 (2021) [MP3|320 Kbps] <Progressive Rock>
+Nestor - Kids In A Ghost Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blinded by the Light (Single Edit) (03:49)
- 02. For You (Single Edit) (03:53)
- 03. Ashes to the Wind (Unissued single Version) (04:12)
- 04. Third World Service (German single) (03:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:25:51
+01. A Fanfare For The Reliable Rebel (Intro)
+02. On The Run
+03. Kids In A Ghost Town
+04. Stone Cold Eyes(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:42:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:837C341DCCF28AF97E7620F01CB9DD081E14AC8E
+magnet:?xt=urn:btih:677551FF9A4889EACEEC3FDFAED5EEC64260E9F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502316   (828245) от 14.10.2021
+###  Публикация: 1504629   (811986) от 23.10.2021
 
-Trivium - In the Court of the Dragon (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
+Internet Download Manager 6.39 Build 7 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECABF16740F499E26D14F64EEB9EE4583352C524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504496   (811987) от 23.10.2021
+
+Internet Download Manager 6.39 Build 7 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE45DC4862FCC9F32997E44185E3A142AD581D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504440   (811988) от 23.10.2021
+
+4K Video Downloader 4.18.2.4520 RePack (& Portable) elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811988.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478DC9F90F48007EB55D56ACEAEA0CCF387EF6A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504571   (811989) от 23.10.2021
+
+Кругосветное путешествие Элькано и Магеллана / Elcano y Magallanes. La primera vuelta al mundo (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Севилья, 1519 год. Прославленный адмирал Фернандо Магеллан снаряжает пять кораблей, чтобы отплыть к экзотическим островам. Путешествие обещает быть опасным и больше похожим на авантюру. Позже к команде присоединяется молодой искатель приключений Хуан Себастьян Элькано, горе-капитан, потерявший свое единственное судно и едва не угодивший за решетку. Вместе им предстоит (   Читать дальше...   )Производство: Испания, 	Dibulitoon Studio, Elkano Dibulitoon AIEЖанр: мультфильм, мелодрама, приключенияРежиссер: Анхель АлонсоАктеры: Кико Хауреги, Иньяки Бераэче, Айнцане Круэйрас, Хосе Вера, Андер Вильдосола Гала, Кандидо Уранга, Ксавьер Алькиза, Джон Саманьего, Мартин Забала, Манью ЭлисондоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7CBC3832EEE0F4D9A0960F1A269A2034084AC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 315415   (811999) от 01.04.2011
+
+Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-hop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Legend Begins
+2. So Tell Me
+3. That's Why
+4. BODY ROCK
+5. Should Have What!? (feat. DOUBLE)
+6. Thru With You
+7. CANDY POP (feat. SOUL'd OUT)
+8. I See You
+9. LOVE & JOY
+10. fantasy(   Читать дальше...)Жанр: J pop, Jurban, hip-hopПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197920   (812010) от 09.01.2018
+
+Джейкоб Грей | Говорящий-с-воронами (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Бестии Блэкстоуна».
+---
+Кар вырос на улице и привык скрываться и прятаться. Он почти не умеет общаться с людьми, зато понимает язык воронов. Его прошлое – тайна, а будущее полно опасностей. Ведь только он может открыть дверь в Земли Мертвых, и его враги знают об этом. Старое зло, однажды чуть не разрушившее Блэкстоун, плетет паутину. Оно готово (   Читать дальше...   )Жанр: Фэнтези, Городское фэнтези, Детская фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1373C2C3AA3020F2BC9370E98F0782DEC2EB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197505   (812011) от 09.01.2018
+
+Ц. Фридлянд (ред.) | Парижская коммуна в борьбе с религией и церковью (1933) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из исторических заслуг Парижской коммуны - борьба с религией и господствующим положением церкви. В нашем сборнике мы даем небольшой, но разнообразный материал для уяснения антирелигиозной политики первого пролетарского государства.Жанр: История, политология, философия, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADF6FD7AA41B567C8CF2A124E9AD026C943A5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197517   (812012) от 09.01.2018
+
+Ц. Фридлянд, А. Слуцкий | История революционного движения Западной Европы [1789-1914] (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812012.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последнее время появился ряд учебных пособий по всеобщей истории. Наша книга и раньше не ставила себе задачи быть учебником, тем более теперь: она по-прежнему остается сборником документов для учебных целей. Идя по пути дальнейшего улучшения и методической обработки книги в направлении, указанном нами в предисловии к предыдущему изданию, мы считали бы необходимым (   Читать дальше...   )Жанр: История, политология, экономика, хрестоматия, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E3BECD62618F63E60CB5A115A617F8376CBC1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197628   (812013) от 09.01.2018
+
+Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ukon Kivi
+02. Lemmini March
+03. Sigurrine
+04. Mellow Praxis(   Читать дальше...   )Жанр: Cinematic Themes, Instrumental, ElectronicПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197760   (812014) от 09.01.2018
+
+Д. Р. Киркпатрик | Война - ради чего? (1912) [PDF] [En]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга написана для того, чтобы помочь научить и пробудить рабочий класс. И если эта беспритязательная книга хотя бы в самой ничтожной степени принесет с собою луч света уму моих младших братьев на борту громадных стальных боевых кораблей и в голых пасмурных казармах, зажжет свет в умах моих обездоленных и обманутых братьев и сестер на заводах, на копях и на фермах (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C015654F1A4C981CA831610E2A041890A7DD5CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197937   (812015) от 09.01.2018
+
+Николай Дежнев | Пояс Койпера (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Денников, герой нового романа Нико­лая Дежнева, обладает несомненным талантом: он изобретает различные способы манипулирования людьми, чем за щедрую плату пользуются в сво­их интересах нечистоплотные политики, владельцы масс-медиа, рекламодатели и прочая влиятельная публика, воздействующая на умы и поведение доверчивых россиян. В результате драматического (   Читать дальше...   )Жанр: ПрозаПродолжительность: 11:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6F52501E6D7D9EF5A09C86BB75930382835BD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197493   (812016) от 09.01.2018
+
+С. И. Канатчиков | История одного уклона (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько необычная тема, предлагаемая нами вниманию товарищей читателей, пожалуй, немного удивит некоторых „миролюбивых“ товарищей и даже больше того: я рискую навлечь на себя с их стороны негодование и упреки во „фракционности“, „в травле“, „в подрыве авторитетов“ и т. п. И однако, несмотря на все это, я считаю не только полезным, но и крайне необходимым, в интересах (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B6A0540D1C093C5FEDF00B64FFB84BD4F63F9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198076   (812017) от 09.01.2018
+
+Jay Ray - Self​-​Resonance (2017) Deluxe Edition [MP3|320 Kbps] <Modern Metal, Alternative Metal, Electronic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. X
-02. In The Court Of The Dragon
-03. Like A Sword Over Damocles
-04. Feast Of Fire(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:52:17
+01. Delivered Into Arrival (02:12)
+02. 137 (03:35)
+03. Left Of You (02:22)
+04. Crucial Fracture (03:52)(   Читать дальше...   )Жанр: Modern Metal, Alternative Metal, Electronic MetalПродолжительность: 00:45:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABC85C4559C60FBF92DF55004EEC5A0F6F656E9E
+magnet:?xt=urn:btih:A972BEFAA2802699D437F47E98C9AFB7C226B4C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498700   (828246) от 14.10.2021
+###  Публикация: 1197958   (812018) от 09.01.2018
 
-VA - Vanlife Chill, Vol. 2 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+Snapped Ankles - Come Play the Trees (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Faro - Calypso (Original Mix) (6:11)
-02. Jens Buchert - Rosetta (Original Mix) (4:17)
-03. VAN - Morning (Original Mix) (7:45)
-04. Five Seasons - La Gomera (Lemongrass Gran Rey Remix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:25
+01.Come Play The Trees 04:30
+02.Hanging With The Moon 03:40
+03.I Want My Minutes Back 04:07
+04.Jonny Guitar Calling Gosta Berlin 08:16(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5D8F06259BBE47D7C98EF41FF429AB96722CCD1
+magnet:?xt=urn:btih:982FC64B474490E7E3B273D8DBB722338DF4F3AA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115341   (828247) от 17.03.2017
+###  Публикация: 1197856   (812019) от 09.01.2018
 
-CloudTV 3.7.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828247.jpg" />
-</div>
-
-
-###  Подробнее
-
-CloudTV  - Международное TV на рабочем столе
-Поток тысячи программ из каналов BBC (доступ ограничивается UK IP-адресом) или выбор французских телевизионных каналов бесплатно! Вы даже можете создать свои идеальные каналы благодаря смарт-плейлистам с вашими собственными критериями.
-
-Транслируйте на ваш Apple TV, с помощью AirPlay (требуется MacOS X 10.11).(   Читать дальше...   )Тип издания: mac OSSoftwareРелиз состоялся: 16 марта 2017Разработчик: cloudtvappПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED42AB77FA31CA5EFF7EC01830DE7B4CCEB3B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115247   (828248) от 17.03.2017
-
-QR Factory 2.9.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828248.jpg" />
-</div>
-
-
-###  Подробнее
-
-QR Factory: создание QR-кода
-QR-код является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией. Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др. Сканеры QR-кодов существуют практически на всех мобильных платформах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 марта 2017Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F115BA31D2D237FACAC5B745E933EA66C22C133B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115294   (828249) от 17.03.2017
-
-VA - Black Hole Trance Music 03-17 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cosmic Gate & Ferry Corsten - Dynamic (Extended Mix)  6:06
-02.  Somna & Adara - Signals (Original Mix)  3:40
-03.  Andy Duguid - Don't Belong (feat Leah & Sied van Riel Remix)  6:02
-04.  Novaspace - Since You've Been Gone (feat Joseph Vincent - Markus Schulz Remix)  7:26(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE78C75725EC19565728677CCA4DDF3E0D4F9CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115187   (828250) от 17.03.2017
-
-VA - Melodic Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828250.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sunset Present Symsonic & Lucid Blue - Desert Rain (Radio Edit)  4:18
-02.  Roman Messer - True (Temple One Remix)  6:41
-03.  Luke Terry & Paul Gibson - Achelous (Radio Edit)  3:09
-04.  NoMosk - Journey (Original Mix)  6:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:50
+01.  Dan Smooth & Elena T  -  Follow You (Original Mix)  7:12
+02.  M.PRAVDA & HollyMy  -  Internal Voice (Original Mix)  7:12
+03.  Independent Art  -  Sonus (Original Mix)  5:34
+04.  Nytigen  -  Renessance (Original Mix)  8:52(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ADBC2AC7524A0B37A957D9385FE468D42CC965D
+magnet:?xt=urn:btih:32D77DDC99FD6CB1A025D48CE37598E10A50EECF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115174   (828251) от 17.03.2017
+###  Публикация: 1197668   (812020) от 09.01.2018
 
-Вечерний Ургант (2017.03.16) SATRip
+Prefab Sprout - Jordan: The Comeback (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828251.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:41
+01. Looking For Atlantis 04:03
+02. Wild Horses 03:44
+03. Machine Gun Ibiza 03:43
+04. We Let The Stars Go 03:39(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AFB826FC092C5A9411AD9E65CBEF68E0EA75339
+magnet:?xt=urn:btih:83718061825BADE8F3CE26F6AA1EAA59BCD982CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115349   (828252) от 17.03.2017
+###  Публикация: 1197339   (812021) от 09.01.2018
 
-PrivacyScan 1.9.2 [En]
+VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828252.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivacyScan - конфиденциальность в интернете
-Большииство пользователей делает покупки через интернет, а именно, используя свою банковскую карту. Каждый день мы вводим свои личные данные в компьютер, скачиваем программы, о которых ничего не знаем. А ведь недоброжелатели могут сделать с этой информацией все, что угодно, но итог окажется плачевным для вас.
-Такая же (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 марта 2017Разработчик: SecureMac.com, Inc.Поддерживаемая ОС: OS X 10.7.0 +Язык интерфейса: Английский
+01.  Talamanca  -  Escape (Original Mix)  7:37
+02.  Japeboy  -  Azure (Keith Harris Remix)  8:46
+03.  Deidian  -  Zanzibar (Original Mix)  6:49
+04.  AirTraffic  -  Playground (Original Mix)  7:52(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:59:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B83562E9542EF3596DBB1CECBABD702B0123FA0
+magnet:?xt=urn:btih:1626A8BE21678BCEEF83810F2A9C7314502FC771
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115350   (828253) от 17.03.2017
+###  Публикация: 1197379   (812022) от 09.01.2018
 
-Йозеф Маха, SJ | Объединение церквей. Теоретические основания и разбор частных случаев из истории латино-византийских отношений (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828253.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем исследовании, вдохновлённом работами Амитая Этциони (р. 1929, известный американский социолог) о политическом объединении, используются понятийные инструменты, разработанные этим ученым. Автор не только заимствует у Этциони основные понятия анализа, но также пользуется его теоретическими рассуждениями о процессе объединения, применяя их к исследованию (   Читать дальше...   )Жанр: Экуменизм, история церквиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37409774EA7D82DF9EDB22166D4E8FE97599EC30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115339   (828254) от 17.03.2017
-
-VA - Zen Tunes - Ibiza Sessions Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Lounge Cocktails Vol.3 (Delicious Grooves For Cafe Bar And Hotel Suites) (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828254.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wilton De Grey - Premadhara - The Stream Of Love (Orchestral version) [00:03:44]
-02. Quincy Ortiz - Spanish Vibes [00:06:05]
-03. Guna Nada Das - Jaya Ganesha [00:07:36]
-04. Sunyata Project - Mystic Adventures (Oriental Chill mix) [00:03:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:58
+01.  Smooth Deluxe  -  Wonderful Micronesia (Original Mix)  5:37
+02.  351 Lake Shore Drive  -  Velvet Beach (feat. Alex Love) (Original Mix)  5:58
+03.  Mirage Of Deep  -  Urban Forest (Original Mix)  7:11
+04.  Albert St.Barth  -  Cafe Au Lait (feat. Lady Janet) (Original Mix)  5:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3720D5E7549EE60F328194DAF32B0D773E48AD1
+magnet:?xt=urn:btih:CCFE4502F3C4C1095A8E988F0C8FEFA366315A31
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115363   (828255) от 17.03.2017
+###  Публикация: 1197799   (812023) от 09.01.2018
 
-ChronoSync 4.7.5 & ChronoAgent 1.6.1 [Multi]
+VA - Inner Balance: Chillout Your Soul 5 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ChronoSync  - синхронизируем файлы и папки
-ChronoSync представляет собой приложение для Mac, который может использоваться для синхронизации или резервного копирования файлов и папок. Позволяет сделать резервное копирование всей системы  также, создав загрузочную резервную копию.
-
-С ChronoSync можно синхронизировать или делать резервные копировании для большинства  устройств (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2017Разработчик: Econ Technologies, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
+01.  Gabriel Florea & Dirk M. Schumacher  -  Mindful Listening  13:58
+02.  Nova Casa  -  You Get Me (Instrumental) (feat. Nathalia)  3:57
+03.  Relaxea  -  Lotus Eater  8:09
+04.  Harmonium  -  Dew (Short Edit)  4:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE8042E748A3407342CDA86D3C99AA4D4077F6E6
+magnet:?xt=urn:btih:B33001A87822BBB50FED17EEF3C2504BFA3450E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115357   (828256) от 17.03.2017
+###  Публикация: 1197499   (812024) от 09.01.2018
 
-VA - Dream Trance Essentials Vol.4 (2017) [MP3|320 Kbps] <Trance>
+В. Вегер | К изучению ленинизма. Ленин. Большевики. Диктатура пролетариата (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812024.jpg" />
+</div>
+
+
+###  Подробнее
+
+XIX Иваново-Вознесенская губпартконференция одобрила предложение т. Вегер об организации курсов для пропагандистов на летнее время. Эта мысль получила подкрепление в последующем решении XIII партсъезда аналогичного свойства. Составленные из двух групп, всего 52 товарища, курсы, наряду с занятиями по методологии Маркса - Ленина и методике агитпропотдела, работали (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C50A1130D2244E9D8B57C965B8A356E9644149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197846   (812025) от 09.01.2018
+
+Briana Marela - Call It Love (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828256.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Moosick - The Chase  7:46
-02.  Sam Laxton - Once Upon A Time  6:19
-03.  Roland S. Adam - Blutmond  6:32
-04.  Hivanova - Right Or Wrong  7:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:27
+01. Be In Love (04:27)
+02. Give Me Your Love (04:09)
+03. I’m Sorry (04:46)
+04. He Knows (04:21)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 00:41:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ECC99AA55F45A4017BF56A4DE963F0944E41539
+magnet:?xt=urn:btih:0B95FD091151175A5FE89A400C8EB0AD58689054
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115317   (828257) от 17.03.2017
+###  Публикация: 1197722   (812026) от 09.01.2018
 
-VA - Black Hole House Music 03-17 (2017) [MP3|320 Kbps] <House, Progressive House>
+VA - Above All Records - The Best Of 2017 (2018) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Damien S  -  Soaking Up The Sky (feat. Molly Bancroft) (Radio Edit)  3:32
+02.  Steven Liquid  -  Spin Around  6:10
+03.  Miguel Angel Castellini  -  Sailing Towards The Sun (Vince Forwards Remix)  8:02
+04.  David Thulin  -  Sun Is Rising (feat. Charmaine) (Jay Hubbard Remix)  6:47(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA42E94E850438014B098F750A3287DCA72133D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197497   (812027) от 09.01.2018
+
+Aurora B.Polaris - Nostalgia (2017) [MP3|320 Kbps] <Chillstep, Downtempo>
 
 >>Electronic
->>House
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828257.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Andy Moor & Michele C - We Can Be Free (VENIICE Extended Mix)  4:10
-02.  The Overview Effect - Sweetness + Light (feat Luke Chable)  3:38
-03.  Eskai & SNR - Find Yourself (Declan James Remix)  4:57
-04.  Mardven - Level Up!  4:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:46
+1. Oceans Apart (5:53)
+2. Above the Sky (4:30)
+3. Hazy Eyes & Lost Souls (3:10)
+4. Silent Screams of Solitude (5:06)(   Читать дальше...   )Жанр: Chillstep, DowntempoПродолжительность: 00:20:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A02F9FAA4FC481EAED4F3DCC83186CD786AC6EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115195   (828258) от 17.03.2017
-
-VA - Beatport Trance Pack (17.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Dymond & Chris Schweizer - Spectrum (Extended Mix)  7:34
-02.  Kayan Code - Arena (Original Mix)  6:30
-03.  Rene Ablaze & UDM - Lost In Trance (Extended Mix)  6:37
-04.  First Sight - Courage (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76FB558B019A69277F590CC24457C97EEDFDC99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114891   (828259) от 17.03.2017
-
-Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. Обзор ответных матчей. День 3-й (14.03.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828259.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 марта 2017, вторник
-Обзор ответных матчей 1/8 финала Лиги Чемпионов УЕФА 2016-2017.
-День 3-й:
-Ювентус (Италия) – Порту (Португалия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A43421EC1FD2536F630003E2C81F83853E5189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115194   (828260) от 17.03.2017
-
-Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. 2-й матч. Монако (Монако) – Манчестер Сити (Англия) (15.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828260.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 марта 2017, среда. 22:45 МСК
-Лига Чемпионов УЕФА 2016-2017. Плей-офф. 1/8 финала. 2-й матч
-Стадион: Луи II (Фонвьей, Монако), 15700 зрителей (85 % при вместимости 18523)
-Главный судья: Джанлука Рокки (Италия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06376C8398597E7EB951983D5DA929A7CEDA6A1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115180   (828261) от 17.03.2017
-
-Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. 2-й матч. Атлетико Мадрид (Испания) – Байер (Германия) (15.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828261.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 марта 2017, среда. 22:45 МСК
-Лига Чемпионов УЕФА 2016-2017. Плей-офф. 1/8 финала. 2-й матч
-Стадион: Висенте Кальдерон (Мадрид, Испания), 49133 зрителя (89 % при вместимости 54960)
-Главный судья: Сергей Карасёв (Россия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DE3A9809739929A4492B627524DAABBE14BCD8
+magnet:?xt=urn:btih:D706A0E910C07CD5BBB0AEE7FEE7FA8A762ED9E5
 ```
 
 

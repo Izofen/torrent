@@ -1,3 +1,408 @@
+###  Публикация: 1616173   (1036718) от 01.03.2023
+
+John Lennon - Imagine (1971) Reissue, Remastered, 2014, Universal Music [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine
+02. Crippled Inside
+03. Jealous Guy
+04. It's So Hard(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB60875CD8A02367B27F3120EA8451DBBEDC16EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442237   (1036907) от 24.01.2021
+
+VA - Radio Mania, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chito - Cold as Ice (4:02)
+02. Nikita Fomin - Stranger (3:53)
+03. The Daylite - Do I Love You (80's Disco Mix) (3:17)
+04. Chito - The Long Tomorrow (4:09)(   Читать дальше...   )Жанр: EuroDance, Euro-DiscoПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95718A457C567D8A50C6E8A616967A87A35C1429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442240   (1036908) от 24.01.2021
+
+VA - Radio Mania, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikita Fomin - My Paradise, Your Hell (Viper Eurodance Radio Mix) (4:20)
+02. Chito - This Is Our Night (3:46)
+03. Amelie Divine - Be My Hero (Alternative Mix) (4:17)
+04. The Crosslines - Tomorrow Is Another Day (Radio Mix) (3:41)(   Читать дальше...   )Жанр: EuroDance, Euro-DiscoПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A365F5004B2E3071B4DB9C80C158F692086986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442177   (1036934) от 24.01.2021
+
+VA - Happy Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Here Comes the Sun (02:58)
+02. Karizma Duo - (Your Love Keeps Lifting Me) Higher and Higher (03:17)
+03. Logan York - Light My Fire (02:39)
+04. The Shaken Bakers - Don’t Stop Movin’ (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C047732C9E8462DC5B0C2C8F6185F0577FFE7D7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442119   (1036943) от 24.01.2021
+
+Lyda Zamora - Monserate (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moliendo Cafe (4:05)
+02. Medley (When The Sun Goes Down - La Bamba) (16:29)
+03. Besame Mucho (4:41)
+04. Eso Beso (3:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1863498795F3864C274ACDA6FBA4C08ECD8A0677
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441775   (1037189) от 23.01.2021
+
+The Marmalade - Greatest Hits (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ob La Di - Ob La Da
+2.	Wait For Me Marianne
+3.	Reflections Of My Life
+4.	Radancer(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5C9A33DE3159D6CC25646914730BF6D7D53BDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441818   (1037199) от 23.01.2021
+
+Metropolis Featuring The Sweethearts - The Greatest Show On Earth (1978) Reissue, Salsoul Records, 2006 [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Greatest Show On Earth (7:00)
+02. Was That All (4:19)
+03. Go Get It (3:58)
+04. I Love NY (4:19)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DBCA2E813D2A2B2E0ABBB689BFAAA18ECA6E0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441751   (1037204) от 23.01.2021
+
+The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons In The Sun (3:47)
+02. You've Got Your Troubles (3:28)
+03. Here It Comes Again (3:14)
+04. Caroline (2:28)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615866   (1037219) от 27.02.2023
+
+VA - Romantic Collection '2000 Vol. 8 (2000) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Williams - Love Story
+02. Patricia Kaas - Mon Mec A Moi
+03. Terence Trent D'Arby - Sign Your Name
+04. Sam Brown - Stop(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB19A4BEF0C68A1D9587D19A3BC41616263A4351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442026   (1037242) от 23.01.2021
+
+Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wann
+2. Millionen Küsse
+3. Ich steh dir zur Seite
+4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615898   (1037277) от 27.02.2023
+
+Disco Made In Israel - Disco Made In Israel (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side 1 (Medley) (14:50):
+-Bashana Haba'a
+-Baruch's Boots
+-Ma'yim Ledavid Ha'melech(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404B17C1D06A7B37BA864220A05498C49CF2ABD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441752   (1037465) от 22.01.2021
+
+Inner Life - I'm Caught Up (In A One Night Love Affair) (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Caught Up (In A One Night Love Affair) (7:38)
+02. I Hope It's The Right Time (8:26)
+03. I Want To Give You Me (7:49)
+04. You Got Me Dancing (6:31)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263B388721125B154153BFD3DBF8430E70FD6118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615594   (1037506) от 26.02.2023
+
+Italoconnection - Nordisko (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flash In The Night
+02. On The Radio (feat. Jaia Sowden)
+03. Talk To The Hand
+04. Donna Rouge(   Читать дальше...   )Жанр: Italo-Disco, Nu-Disco, Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9534287383D47083AB61C4C5840A182DC6AC0A37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615527   (1037534) от 26.02.2023
+
+VA - Romantic Collection. Sweden (1999) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Happy New Year
+02. 1st Class - Girl You Know It's True
+03. Ardis - Ain't Nobody's Business
+04. The Cardigans - Lovefool(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9EFB74AF31AA36485ABB3A3EA4BADE60F7D583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615612   (1037574) от 26.02.2023
+
+VA - Play It!: Funky & Disco Vibes Vol. 55 (2023) CD, Compilation [MP3|320 Kbps] <Indie Dance, Funky, Nu Disco, Soulful>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K & K - Locked (Extended Mix)
+02. Stev Dive - Around (Extended Mix)
+03. Mikey Jubbly - You Are
+04. J.B. Boogie - Getting Back (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Funky, Nu Disco, SoulfulПродолжительность: 01:42:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B93E96C878A5075033A247175A1285410FFCE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615597   (1037576) от 26.02.2023
 
 VA - Disco House Vol. 3 (2023) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Afrobeat>
@@ -290,408 +695,6 @@ Kilo - Kilo (1979) LP [MP3|320 Kbps] <Electronic, Rock, Disco, Funk Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82EC1DC1674689BD93920A5C7E185AA499DE2CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441072   (1038063) от 20.01.2021
-
-Caviar - Come To L.A. (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come To L.A. (6:10)
-02. Matilda (6:50)
-03. Chocolata (5:31)
-04. Girls For Love (8:37)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B364AAD100BC07E72801CA7EA9A5BDC44C9009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614989   (1038077) от 24.02.2023
-
-Tommy Seebach - Instrumental (2010) CD, Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Don't Run (2:43)
-02. El Bimbo (2:45)
-03. Wipe Out (2:25)
-04. I Will Return (3:20)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Disco, SchlagerПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E97BD1E4EBC2B839CC7A9FDF59DD1B77A0B4E07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614769   (1038332) от 23.02.2023
-
-VA - Mega Hit Mix 2022 (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038332.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ed Sheeran - Shivers (3:27)
-2. Gayle - Abcdefu (2:48)
-3. The Walters - I Love You So (2:40)
-4. Jaymes Young - Infinity (3:57)(   Читать дальше...   )Жанр: PopПродолжительность: 03:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618BC19B9F07530A52EFDA84D5CC06AA0DD74221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614796   (1038372) от 23.02.2023
-
-Hortenzia - 4 Releases (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Hortenzia - 2019 - Скерцо
-Hortenzia - 2023 - В темных аллеях (Single)
-Hortenzia - 2023 - Когда вешаем наш флаг (Single)(   Читать дальше...   )Жанр: PopПродолжительность: 4 CD, 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4672D305C4A4843F2D43950E3E77A9BFBE701C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268045   (1038474) от 22.02.2023
-
-Алексей Глызин - Дискография (1986-2008) [MP3|320 kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Эстрада, Поп музыкаПродолжительность: 20:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC604F682FE371B4D98B55F8B05FEE4A97E741C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 90292   (1038681) от 17.01.2021
-
-Marlene Dietrich - Lili Marlene (1950) [MP3|320 kbps]<Cabaret,Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038681.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lili Marlene (0:03:09)
-2. Mean to Me (0:03:11)
-3. Annie Doesn't Live Here Anymore (0:02:58)
-4. Surrey With the Fringe on Top (0:03:35)(   Читать дальше...   )Жанр: Cabaret,ChansonПродолжительность: 0:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12E63E8386BD8524596772CB766CBA1C20E4BEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440449   (1038798) от 17.01.2021
-
-VA - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - I'd Rather Go Blind (Live) (02:36)
-02. Birdy - Skinny Love (03:21)
-03. Anson Seabra - Can You Feel the Love Tonight (03:54)
-04. Luke Sital-Singh - New Slang (03:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9199AF24DA46220946BD33735552FD2A921C38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440366   (1038799) от 17.01.2021
-
-VA - Pop Acoustic 00's (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Derulo - The Other Side - Acoustic (3:46)
-02. Jason Mraz - Have It All - Acoustic (3:45)
-03. Ironik - Stay with Me - Acoustic Version (3:08)
-04. Seal - Get It Together - Acoustic Version (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1C822DD78AF65B8B65CD9D91599139B486F814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614342   (1038831) от 21.02.2023
-
-VA - Trending Top Hits Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Uzi Vert - Just Wanna Rock (2:03)
-02. Lizzo - Special (feat. SZA) (2:54)
-03. Ed Sheeran - Celestial (3:29)
-04. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440260   (1039151) от 16.01.2021
-
-Sha-na-na - Rama Lama Ding Dong (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Prayer (2:47)
-02. Get A Job (2:48)
-03. Little Arrows (2:42)
-04. Alley Oop (2:43)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297235F10042A39EA5A4B8B76FFB2F4A43212260
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440253   (1039160) от 16.01.2021
-
-The Archies - Sugar Sugar (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Sugar (2:49)
-02. Jingle Jangle (2:45)
-03. Bang-Shang-a-Lang (2:35)
-04. Sugar and Spice (2:06)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E50846AD8497AB7FC2A902961CF860AA7588B29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439776   (1039271) от 15.01.2021
-
-Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Systems in Blue - Lola, Better To Fall In Love (3:41)
-02. Systems in Blue - Don't walk into the light (3:30)
-03. D. O. Passion - How I'm gonna catch you? (3:54)
-04. MS Project & Michael Scholz - My Mystery (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A7867977AA0860C3390463E37AB882A8E189FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440033   (1039283) от 15.01.2021
-
-Systems In Blue - Blue Universe (The 4th Album) (2020) [MP3|320 Kbps] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Systems in Blue - Lola, Better To Fall In Love (3:41)
-02. Systems in Blue - Don't walk into the light (3:30)
-03. D. O. Passion - How I'm gonna catch you? (3:54)
-04. MS Project & Michael Scholz - My Mystery (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABED886509E69C409057629F60BD6E4DFB1C1B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613709   (1039288) от 19.02.2023
-
-VA - Vintage Café – The Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Os Digitalistas - Grizzly Bear (Javier Penna Remix) (3:12)
-02. Nenei - Just the Two of Us (Luxury Remix) (4:01)
-03. Bellestar - Can't Get You out of My Head (Nu Disco Mix) (2:36)
-04. Natty Bong - No Rain (Ronan Remix) (2:45)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75D0EC3EDE00A3E3194364E0A3C7E0D92CADE03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613211   (1039312) от 19.02.2023
-
-VA - Romantic Collection. Golden 60s (2000) [OGG Vorbis|480 Kbps] <Jazz, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ben E. King–	Stand By Me
-02.	Everly Brothers–	Dreams
-03.	Brian Hyland–	Sealed With A Kiss
-04.	Otis Redding–	(Sittin' On) The Dock Of The Bay(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4BC90FE7B755EE90CFE3962D2C43BEE3110B6
 ```
 
 

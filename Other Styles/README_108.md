@@ -1,3 +1,197 @@
+###  Публикация: 1133256   (666593) от 27.05.2017
+
+VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpenter Brut - Time to Wake Up (1:09)
+02. Danger - 6.24 (4:22)
+03. Carpenter Brut - Enraged (4:58)
+04. Waveshaper - A Picture in Motion (3:23)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3402937E59E1C4FCA72F8759BC596502A4E8184B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137708   (666721) от 27.05.2017
+
+Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song To Kama (6:34)
+02. Sounds From India (Part Two) (0:53)
+03. Song To Artha (4:18)
+04. Samprayoguika (6:41)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70493478237333FFE48FCCA5B42B287B2D90957B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137485   (666770) от 27.05.2017
+
+Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gimme The Beat (3:05)
+02 - Dirt Rich (2:43)
+03 - Fight (3:27)
+04 - Unbroken (3:25)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137737   (666771) от 27.05.2017
+
+VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Artenovum - Blue Sun (ambient Lounge mix) 05:33
+2. Pascheba - Nirvana 03:28
+3. Buddhatronic - World Of Grace (Mystic Voice mix) 04:54
+4. Artenovum - Francesca (Mystic Dream mix) 04:54(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427D6B2BDEA4C54E98C9A4F1B36BBA38E9365E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511347   (667225) от 16.06.2012
+
+Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Closet (13:07)
+02. Pai Nai (01:44)
+03. Early Reptilian Memories (03:20)
+04. Monobrow (08:32)
+05. Half Life (06:55)
+06. Beluga (02:39)
+07. Harpie (06:24)
+08. Vegas Radiation (04:46)
+09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339494   (667318) от 20.05.2011
+
+Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps] <Instrumental, Latin, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velho Realejo 		(03:02)
+02. Deusa da minha rua 		(02:59)
+03. Branca 			(02:48)
+04. Abismo de Rosas 		(03:33)(   Читать дальше...   )Жанр: Instrumental, Latin, Easy ListeningПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CABE22813CF7A4ABC88DB1A5A9C6C2D2326FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137518   (667810) от 26.05.2017
+
+Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richter & Woodapple) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take a Deep Breath - Luke Woodapple
+02. Le Onde - Luke Woodapple
+03. Metamorphosis II - Luke Woodapple
+04. Departure (Lullaby) - Luke Woodapple(   Читать дальше...   )Жанр: Classical, Piano, New AgeПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031221   (668428) от 03.07.2016
 
 Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
@@ -74,6 +268,38 @@ James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FF4AC862A208E9AE2A516B31FFD8F8A613042C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510748   (668470) от 15.06.2012
+
+Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_668470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1. Telegraphs in Negative: (00:43:56)
+01. Deja, Comme Des Trous De Vent, Comme Reproduit (06:43)
+02. Small Steps Against Inertia / Echo Of A Dead End (03:01)
+03. Measure De Mesure (04:45)
+04. Holy Throat Hiss Tracts To The Sedative-Hypnotic (03:38)
+05. When Sorrow Shoots Her Darts (03:11)
+06. Kill Fatigue Frequencies (01:28)
+07. In Prelight Isolate (15:11)
+08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -322,6 +548,39 @@ magnet:?xt=urn:btih:CAB4FFF063209C3D2610F6DFC8D1C7EA518376EC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510072   (670316) от 14.06.2012
+
+Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Grass - Yesterday's gone (4:42)
+2. Free The Robots - Yoga Fire (2:56)
+3. Clark - Vengeance Drools (3:41)
+4. Dj Shadow - This Time (3:07)
+5. Kno (of Cunninlynguists) - My First Song (3:10)
+6. Amon Tobin - Get Your Snack On (4:22)
+7. CunninLynguists - Hellfire (2:29)
+8. Ministry - Jesus Built My Hotrod (4:52)
+9. Damian Marley - Something For You(One Loaf of Bread) (3:17)
+10. DJ Krush - Song for John Walker (feat. Anticon) (Sticky mix) (5:33)2008Жанр: SoundtrackПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030793   (670331) от 02.07.2016
 
 Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
@@ -400,6 +659,39 @@ magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510253   (670651) от 14.06.2012
+
+Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacques Arcadelt - La pastorella mia [03:03]
+02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
+03. Francesco da Milano - Fantasia 16 [01:10]
+04. Marchetto Cara - Mal un muta per effecto [02:24]
+05. Anonimo - Perla mya cara [02:32]
+06. Francesco da Milano - Fantasia 31 [01:17]
+07. Joan Ambrosio Dalza - Piva [02:04]
+08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
+09. Vincenzo Capirola - Balletto [01:59]
+10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291120   (670695) от 24.03.2019
 
 Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -422,285 +714,6 @@ Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028799   (671839) от 01.07.2016
-
-VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509646   (672078) от 13.06.2012
-
-John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  The Watchers  (9:25) 
-2.  Deep Space  (8:09) 
-3.  Aurora  (9:58) 
-4.  Sea Of Tranquility  (7:42) 
-5.  Far Centaurus  (10:49) 
-6.  The Edge  (8:47) 
-
-Послушать:Жанр: New Age, AmbientПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509995   (672202) от 13.06.2012
-
-Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain Leuh (05:08)
-02. Jeroen Van Aken (09:11)
-03. Three (05:26)
-04. Adolescent (05:30)
-05. Abutting, Dismantling (06:26)
-06. Young and Old (06:33)
-07. Du Meine Leise / ALTMIX (03:52)
-08. XXX / GS + Tiempo (04:40)
-09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290947   (672218) от 23.03.2019
-
-Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Deep Is Your Love (4:12)
-02. He Ain't Heavy, He's My Brother (4:30)
-03. Nobody Does It Better (3:30)
-04. Arthur's Theme (The Best You Can Do) (3:28)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 03:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B0B9DF50C278247C1B9BA22800114653E36827
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030472   (672278) от 01.07.2016
-
-Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672278.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:11] 01. Burn Down The Gate
-[06:23] 02. Bait The Wolf
-[04:33] 03. The Green
-[03:16] 04. A Sybaritic Experience To Be Savoured(   Читать дальше...   )Жанр: Post-Metal, Post-Rock, InstrumentalПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9E19C73B308D6BA71CE0C4C55FDA1CF42D21FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030736   (672289) от 01.07.2016
-
-Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Scenes [00:05:16]
-02. I'll Be Loving You [00:04:34]
-03. Ebb and Flow [00:03:20]
-04. Life Is but a Dream [00:04:23](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FBACD3FD13539F3D09043A502FDBB62D884205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030757   (672291) от 01.07.2016
-
-Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Myriads of Light
-02.	Eternal Gratitude
-03.	Vision of the Soul
-04.	Beauty Elvish(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290857   (672350) от 23.03.2019
-
-The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline (03:33)
-02. Get It While the Gettin's Good (03:03)
-03. New America (03:56)
-04. Shame Shame (04:29)(   Читать дальше...   )Жанр: Contemporary Folk, CountryПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136756   (672537) от 23.05.2017
-
-VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Hypnotize (03:50)
-02. Sean Paul - No Lie (feat. Dua Lipa) (03:41)
-03. A$AP Rocky - Everyday (feat. Rod Stewart, Mark Ronson & Miguel) (04:21)
-04. Vince Staples - BagBak (02:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136724   (672877) от 23.05.2017
-
-VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellness Sounds Relaxation Paradise - Thai Massage Lounge 100
-02. Tranquility Spa Universe - Asian Zen Spa Relaxation 5
-03. Sauna & Massage Academy - Wellness Center 111
-04. Soul Therapy Group - Ayurveda Treatment 50(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D6ADC03F8E0C6B1048629195DC09FD598ED09F
 ```
 
 

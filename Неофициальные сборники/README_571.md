@@ -1,3 +1,165 @@
+###  Публикация: 1376131   (859739) от 17.04.2020
+
+VA - Зайцев.нет Лучшие новинки Апреля (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859739.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Apashe - Distance (feat. Geoffroy) (3:39)
+2.Armin van Buuren, MaRLo feat. Mila Josef - This I Vow (3:40)
+3.Bahh Tee feat. JONY - Неужели ты моя (3:22)
+4.Becky G - They Ain't Ready (3:30)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BAA8C3906D3AF658AB0A6B9909ADC7AD06EF85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497892   (859783) от 25.09.2021
+
+VA - Drum And Bass Tropical Cocktails (2021) [MP3|320 Kbps] <D&B, Jungle, Electro Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Cosmic Gift - Space Queen
+002. DJ Kristal - Limits-Moto-Jump
+003. Innvoice - Shape The Future
+004. Jazzinspired - Sophisticated(   Читать дальше...   )Жанр: D&B, Jungle, Electro Bass, DubstepПродолжительность: 11:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D74A93F41F904CCDE2374767E19BC5A344EB142
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376240   (860141) от 17.04.2020
+
+VA - Back to the Seventies - The Best of the 70s (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slade - Look At Last Nite
+02. ZZ Top - Back Door Love Affair
+03. Creedence Clearwater Revival - Down On The Corner
+04. Peter Frampton - Show Me The Way (Live)(   Читать дальше...   )Жанр: Rock, Glam Rock, PopПродолжительность: 11:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA61D5FC222CA63CC4349E3515A0D5D5E84DBCA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376391   (860156) от 17.04.2020
+
+Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great American Success Story
+02. Caught in a Dream
+03. Under My Wheels
+04. School's Out(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46706EA4F3AC18FEE84A4A809B7274A849E13CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376438   (860371) от 17.04.2020
+
+VA - Beatport Electro House: Sound Pack #63 (2020) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ics - Recall (Original Mix)
+002. Kalaedo - Tyrian
+003. Nudisco - Pepperjuice
+004. Around Paradise - Deep River (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 11:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CED01F06F528745CDA710098A2707A48D2E1A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376439   (860483) от 17.04.2020
+
+VA - Beatport Vocal House: Sound Pack #66 (2020) [MP3|320 Kbps] <Vocal House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell And Suyano - Go To War
+002. Gregory Esayan - Part Of Me (Original Mix)
+003. Edu & Susie Ledge - In My Memory (Original Mix)
+004. Feel & Alexandra Badoi - We Are One(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 10:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1370EAB3BBE1ABDBABE3BCB2B654857A469EE6DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768743   (860550) от 20.03.2014
 
 VA - Lounge At The Seashore 7 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
@@ -533,168 +695,6 @@ VA - Chill Out Blues (2014) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34812A4578DE5523EFB419168636C241251A54B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999929   (862779) от 23.03.2016
-
-VA - Очень Горячая Штучка 50/50 (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Canitrot — Chain Reaction (Radio Edit) (03:16)
-02. Натали — Считалочка (03:29)
-03. Flavel & Neto — La Vie Est Belle (03:12)
-04. Lee Mashup Feat. Sugar Kawar — Ailleurs (Radio Edit) (03:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6745A30ECABD4AD3794AAA1D2B93DCE1CA59D006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999394   (862841) от 23.03.2016
-
-VA - I Love Ballads - Part II (2016) [MP3|256 кб/с] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - Pui Di Un Sogno
-02. 112 - It's Over Now
-03. Kylie Minogue - Red Blooded Woman
-04. Mariah Carey - Through The Rain(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF485FCE4753216CF38E12D368DC66AA3C217D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999741   (862849) от 23.03.2016
-
-VA - I Love Ballads - Part IV (2016) [MP3|256 кб/с] <Pop, Rock, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dalida - Itsi, Biysi, Petit Bikini
-02. Craig David - I'm Walking Away
-03. Chris Rea - The Road To Hell
-04. Celine Dion - Pour Que Tu M'Aimes Encore(   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 01:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2F62A09A056B9FAF100B26C52BC7454DCB6FC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107676   (862902) от 25.02.2017
-
-VA - Megatron Bass: Original Drum And Bass Collection (2017) [MP3|256-416 Kbps] <Drum And Bass, Dubstep, Trap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3D Stas - Industrial Mind Loss (Original Mix) 4:07
-002. A.M.C - Convention 4:39
-003. Aperio - Heaven 4:52
-004. Agressor Bunx - Experience 5:20(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, TrapПродолжительность: 12:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F849D5F3DDC3C3D89487667E47EB3942F28C6AC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999634   (862949) от 23.03.2016
-
-VA - 100 Hot Exotic: Electro Club House (2016) [MP3|320 кб/с] <Club, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862949.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Audrey Gallagher, Flynn & Denton - Say My Name
-002. Estiva - Let It Go
-003. Cannavo & Nesse - Apollo
-004. Genix - Durban(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 09:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACBE46C83D982DD5A3A754CBBACD45DE371E1E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108431   (863012) от 25.02.2017
-
-VA - Только хиты. Русский попсовый сборник от Хит fm. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anyfrieva Daria - Космос 3:00
-002. Яна Батаева - Мы Уйдем Вдвоем 3:06
-003. Atesh - Самая Сильная 3:07
-004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF72582715131EB7D2969EB4284CB0034ADCA5E
 ```
 
 

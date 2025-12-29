@@ -1,3 +1,30 @@
+###  Публикация: 1438260   (1041059) от 08.01.2021
+
+VA - Radio Discomania (2021) [MP3|320 Kbps] <Pop, Italo-Disco, Euro-Disco, Synthdance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MarcelDeVan - Day of Dreams, Pt. 2 (3:45)
+02. Italove - The Mirror (Radio Edit) (4:09)
+03. Fresh Fox - Don't Stop The Night (4:08)
+04. Silent Circle - Night Train (Radio Edit Remastered) (3:52)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Euro-Disco, SynthdanceПродолжительность: 03:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7EAD783F78139BED3FFC764C4A7283F4AACFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611114   (1041378) от 11.02.2023
 
 VA - Pop Punk Motivation (2023) [MP3|320 Kbps] <Rock, Punk Rock>
@@ -484,7 +511,7 @@ magnet:?xt=urn:btih:1DFEB98ADF2A3AB2273706B5ACCE955487146815
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843695   (1049546) от 
+###  Публикация: 1843695   (1049546) от 21.12.2025
 
 Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
 
@@ -511,7 +538,7 @@ magnet:?xt=urn:btih:D3B4316D071419B0598D377D3010BAFCDF2B514F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843696   (1049547) от 
+###  Публикация: 1843696   (1049547) от 21.12.2025
 
 Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
 

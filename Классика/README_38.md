@@ -1,3 +1,204 @@
+###  Публикация: 1196695   (820525) от 04.01.2018
+
+David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Classical, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wandering Path
+02. Conversation avec les Etoiles
+03. The River at Night
+04. Midnight Kiss(   Читать дальше...   )Жанр: Piano, Classical, New AgeПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653376   (821213) от 12.05.2013
+
+Ансамбль Мадригал, Андрей Волконский - Cерия Тысяча лет музыки (после 1981) 16 LP [FLAC|Lossless]<Сlassic>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. У. БЁРД (1543—1623): Месса для пяти голосов (24.32)
+- Kyrie eleison
+- Gloria in excelsis
+- Credo
+- Sanctus
+- Benedictus
+- Agnus Dei
+02. У. БЁРД (1543—1623): Callino Casturame, вариации для клавесина (3:55)
+03. Дж. ДОУЛЕНД (1562—1626): What if I never speede, мадригал (2:44)
+04. Дж. ДОУЛЕНД (1562—1626): If my complaints, песня (3:36)(   Читать дальше...   )Жанр: classicПродолжительность: 0:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36201740E449FA53B87A89E1EE7B8B0F764066A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503181   (821233) от 18.10.2021
+
+VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aldo Ciccolini - Suite bergamasque, L. 75 - III. Clair de lune (4:43)
+02. Alexis Weissenberg - Nocturnes, Op. 9 - No. 2 in E-Flat Major (Andante) (4:40)
+03. Henrik Mawe - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 -Moonlight - - I. Adagio sostenuto (5:26)
+04. Kun-Woo Paik - Hungarian Rhapsodies, S. 244 - No. 12 in C-Sharp Minor (10:49)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6DE383589D15CA10FE881F9128D4720DFDB40C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 655174   (821520) от 12.05.2013
+
+Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Biondi (2001) /2002 Virgin Classics [flac|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in G major for 2 mandolines and strings RV532
+1 I. Allegro 3:57
+2 II. Andante 2:46
+3 III. Allegro 3:20
+Concerto in C major for 2 violini in tromba marina, 2 flauti dritti, 2 madolini, 2 salmoe, 2 teorbe e violoncello RV558
+4 I. Allegro molto 4:52
+5 II. Andante molto 1:29
+6 III. Allegro 2:54
+Concerto in G minor per violino, 2 flauti dritti, 2 oboi, fagotto ed archi RV 576, 'dedicato a Sua Altezza Reale di Sassonia'
+7 I. Allegro 4:13(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E0038B2BFE6B790A778ABD530F9ADE50E357E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116569   (822150) от 20.03.2017
+
+2Cellos & London Symphony Orchestra - Score (2017) [FLAC|Lossless|tracks + .cue] <Neoclassical, Stage & Screen, Score>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramin Djawadi - Medley (From Game of Thrones) (5:04)
+02. Enya, Roma Ryan, Nicky Ryan, Howard Shore - May It Be (From The Lord Of The Rings: The Fellowship Of The Ring) (3:56)
+03. James Horner - For The Love Of A Princess (From Braveheart) (5:11)
+04. Francis Lai, Carl Sigman - Love Story (From Love Story) (3:24)(   Читать дальше...   )Производство: Portrait, Sony Masterworks – 88985349122Жанр: Neoclassical, Stage & Screen, ScoreПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68BC5AE6A5F62551B597244530AAEE9DB79BA7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116535   (822236) от 20.03.2017
+
+VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Tipo - Goldberg Variations, BWV 988: Aria
+02. Marielle Labeque, Katia Labeque, Israel Philharmonic Orchestra and Zubin Mehta - Le carnaval des animaux, R. 125: VII. Aquarium
+03. Aldo Ciccolini - Arabesque, L. 66: I. Andantino con moto
+04. Wolfgang Sawallisch, Philharmonia Orchestra and Annie Fischer - Piano Concerto No. 21 in C Major, K. 467: II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD73DE2EAC6D04FE8E7A28517A8BF8926D589B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116201   (822482) от 20.03.2017
+
+L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ireneu Sagarra (1917)
+1. Salve Regina “Germinans” 8:02
+
+Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007210   (823119) от 14.04.2016
 
 Andre Rieu - Romantique (1998) [FLAC|Lossless|tracks] <Classical>
@@ -506,195 +707,6 @@ Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004539   (836417) от 07.04.2016
-
-Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [MP3|320 кб/с] <Classical, Concerto>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 8 in G major, op. 88
-01 (1) Allegro con brio
-02 (2) Adagio
-03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCCDD97291008A8DCC3D758A0151961817954D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004514   (836423) от 07.04.2016
-
-Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind-SLSO) (2007) [MP3|320 кб/с] <Classical, Concerto>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto in A minor, op. 53
-01. (1) Allegro ma non troppo - Adagio ma non troppo
-02. (2) Finale. Allegro giocoso
-(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0B92B02B4628614A278816D18C75FC68581C5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004457   (837839) от 06.04.2016
-
-Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind) (2007) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto in A minor, op. 53
-01. (1) Allegro ma non troppo - Adagio ma non troppo
-02. (2) Finale. Allegro giocoso
-(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CEA3CD51CC2ADF607F7C49599C35D92DDEAD4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004293   (837927) от 06.04.2016
-
-Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le carnaval des animaux: No. 13, Le cygne
-02. Klid, Op. 68 No. 5, B. 182
-03. From Jewish Life: I. Prayer (Arr. for Cello & Orchestra)
-04. Kol Nidrei, Op. 47(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE36F885DFF6164131085627C77D92091F536F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004467   (838049) от 06.04.2016
-
-Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 8 in G major, op. 88
-01 (1) Allegro con brio
-02 (2) Adagio
-03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F7103D323DA04A51C4B898BEF9EEE83AB7ECFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112968   (839779) от 10.03.2017
-
-Boismortier - Motets avec symphonies (1991) 2004,  Accord [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motet a Grand Choeur
-01. Symphonie et duo de basses tailles 2:21
-02. Choeur 2:12
-03. Recit basse taille 2:15(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01616280CC5248967712BAB954494FBC1B1536AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500928   (839823) от 07.10.2021
-
-VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glorious Symphony Orchestra - Symphony in E flat major, No 5, Op 82: I (31:46)
-02. Tatjana Franova - Etude in C sharp minor, Op 2: I (04:13)
-03. Great Baltic Symphony Orchestra - The Symphony's Song, Op. 57: I (17:13)
-04. Kaunas Symphony Orchestra - Da Requiem, Op 20: I (18:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
 ```
 
 

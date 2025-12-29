@@ -1,3 +1,165 @@
+###  Публикация: 742657   (979162) от 06.01.2014
+
+VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Smoker Lab - Coffe Break
+002. Placid Larry - Over The Skyscrapers Into The Desert
+003. Sundance - Morning Glory
+004. The Beater - Miami Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759B39A456D818536A947CAB641C08F94AB96C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356380   (979190) от 30.01.2020
+
+VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chosen Two - Neue Mattheit
+002. Christopher Ivor - 3am Tribute
+003. Angerfist - The Desecrated
+004. Il Gualdo - Satans Laughter(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 14:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3873AA0C64A9AA61071FA0BDDAB08DD3A7BEFCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973658   (979200) от 09.01.2016
+
+VA - Road, Darkness & Music (2016) [MP3|320 кб/с] <House, G-House,  Progressive, Trance, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979200.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexandre Bergheau - Home Is Where My Heart Is (Original Mix)
+002. Joseph Terruel - It's Only Love Doing It's Thing
+003. Therr Maitz - Doctor (Artur Montecci Remix)
+004. Sergio Gress, Alexey Sharapoff - Hands Up (Original Mix)(   Читать дальше...   )Жанр: House, G-House,  Progressive, Trance, TechnoПродолжительность: 04:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72D67ED92511DB2D5FFD1E1540135DD8665D1AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973507   (979208) от 09.01.2016
+
+VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia - Strong (Radio Edit)
+02. Stargazers - Black Diamond (Radio Edit)
+03. Kaimo K - Love Will Never Leave (Radio Edit)
+04. Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6DCCAA2B8E3772ADFB4C38ABF0AA25C0991670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973666   (979215) от 09.01.2016
+
+VA - Club Hits (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Monsuma - Cold [03:47]
+ 2. Zozy - The Energy [04:32]
+ 3. Lin Nicks - Master Of The Beat [04:37]
+ 4. Poxo - Levels [06:18](   Читать дальше...   )Жанр: HouseПродолжительность: 03:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDC2259B26060ACA554E483325232967FF02CD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356023   (979615) от 29.01.2020
+
+VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2 Chainz, Future - Dead Man Walking (2:15)
+2.3-ий Январь - Фиолетовые мотыльки (3:12)
+3.Arash, Ilkay Sencan - Mary Jane (3:18)
+4.Kygo, Avicii, Sandro Cavazza - Forever Yours (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4CAC05BD670BFE4B05A8C3970FACCAFEC775B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612967   (979992) от 06.02.2013
 
 VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2011» (2011) [MP3|128-320 кб/с]<Rock, Punk-Rock, Folk-Rock, Soft-Rock>
@@ -539,168 +701,6 @@ VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0FD5DABCE16FD5CB3F4E92A23C8C16EF105740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973167   (980684) от 07.01.2016
-
-VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Т9 - Ода Нашей Любви
-2. A-Sides Feat. Vanessa Freeman - This Is Your Time
-3. Nicki Minaj Feat. Drake, Lil' Wayne & Chris Brown - Only
-4. Stone & Van Linden - Sky (Horizon Mix) (feat. Nicole Tyler)(   Читать дальше...   )Жанр: Pop, Dance, Electro House, Progressive HouseПродолжительность: 05:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3940C955C2B8EFF0AB273651606858EF6E261F43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972746   (980692) от 07.01.2016
-
-VA - 20 Soundtrack Hits of the ‘90s (2015) [MP3|320 кб/с] <Disco, Jazz, Pop, Rock, Soundtracks>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natalie Cole - Unforgetable (Duet with Nat 'King' Cole) (03:30)
-02. London Beat - I've Been Thinking About You (03:27)
-03. Enigma - Sadness (04:21)
-04. Lenny Kravitz - It Ain't Over 'Til It's Over (04:04)(   Читать дальше...   )Производство: C.E.D. EntertainmentЖанр: Disco, Jazz, Pop, Rock, SoundtracksПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C80FBB06C31B5A2E4EE746C35E0F55FB709DB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972974   (980695) от 07.01.2016
-
-VA - Бомба Года. Шансон (2015) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Куренков - Для Тебя
-002. Иван Кучин - Колесница
-003. Дмитрий Фомин - Достало
-004. Алена Герасимова (Макаровна) - Мать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02F0769B51D02F0312B7DCCE079707819D16008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972815   (980697) от 07.01.2016
-
-VA - Попсовая VIP тусовка (2015) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Даша Суворова - Останусь
-002. Мурад Байкаев - Черно-Белое
-003. Alex Kafer & Lera - Никогда
-004. Bridge - Временно Твоя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642C97315054B5BC9B614BA445B953898B44B44D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355725   (980760) от 28.01.2020
-
-VA - Where the Blues live (2020) 2CD [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dalannah Gail Bowen - Looking back
-02. Aretha Franklin - Honest I Do
-03. Danny Bryant's RedeyeBand - Girl from the North Country
-04. Blues Ball - Her Memory(   Читать дальше...   )Жанр: BluesПродолжительность: 08:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972846   (980784) от 07.01.2016
-
-Мария Распутина - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с] <Поп, Шансон, Интервью>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980784.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я родилась в Сибири
-2. Жёлтые листья
-3. Живи, страна
-4. Ты упал с Луны(   Читать дальше...   )Жанр: Поп, Шансон, ИнтервьюПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976665CB6341ADA660F27D89B450C4A474C42601
 ```
 
 

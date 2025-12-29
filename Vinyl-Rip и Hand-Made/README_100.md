@@ -1,3 +1,57 @@
+###  Публикация: 1623730   (1029090) от 03.04.2023
+
+Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Doctor For My Heart (12" Version) 5:18
+A2. Wings Of Love (12" Version) 5:21
+A3. Colder Than Ice (12" Version) 5:38
+A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622220   (1030295) от 28.03.2023
+
+Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
+1998 - The Electric Sleep
+2000 - Celestial Hi-Fi
+2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621442   (1030764) от 26.03.2023
 
 Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
@@ -642,60 +696,6 @@ A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437921   (1041705) от 06.01.2021
-
-Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041705.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Рэгтайм
-A2 Улыбка Старой Москвы
-A3 Рэг-Дикси
-A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610733   (1041888) от 09.02.2023
-
-Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
-1993 - Genesis
-1994 - Humanimal. Part 1
-1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
 ```
 
 

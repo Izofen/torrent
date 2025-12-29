@@ -1,3 +1,165 @@
+###  Публикация: 1199172   (801699) от 15.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0001  (2018)
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etolie Vipe - Cheats For Glory ( 2014 )
+02. Chris Luis - The Heart Of The City ( 1984 )
+03. T.J. Thornberry - Release Yourself ( Original Mix 2016 )
+04. AmbrA - Dream the Summer Back ( Club Mix Version 2005 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0E5B77F908D1EC633B84FF644A61B3CE300A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199336   (801769) от 15.01.2018
+
+VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801769.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Abba - Dancing Queen (3:50)
+002. Tavares - Heaven Must Be Missing An Angel (6:56)
+003. Nazareth - Love Hurts (3:52)
+004. Bzn - Mon Amour (4:08)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556D6CE5FD9E5A0A9281C2B403DE94BB555C20E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199292   (801775) от 15.01.2018
+
+VA - Chillout - Ocean sounds (2018) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bachot Muna - Do It
+02. Darin Epsilon - Endless Sands Of Time
+03. Projekt Phoenix - Lighthouse
+04. Down Under - Guess(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62A3025F8E72ACEFC2CF7E2D611FA2BB0636109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120542   (802042) от 31.03.2017
+
+VA - The Best - In Music We Trust Vol.14 (2017) [MP3|320 Kbps] <House, Electro, Dutch, Trance, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blasterjaxx & Marnik - Heart Starts To Beat (Extended Mix)  4:09
+02.  Teknova - E (Radio Edit)  3:24
+03.  Paul Gannon - Braveheart (Original Mix)  4:05
+04.  Paul van Dyk - Touched by Heaven (Extended)  7:30(   Читать дальше...   )Жанр: House, Electro, Dutch, Trance, Dance, ClubПродолжительность: 06:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3800BE30AD7DDD0ED1F315760232F55ABCB3BF89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120466   (802088) от 31.03.2017
+
+VA - Pacific Relax Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Gorda - Festa Do Sol
+002. Ignat Shamko - Ice City
+003. Arnold T - Summertime Sadness
+004. Cafe' ibiza - Love Hurts(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B9E7602F6C4FB8EAF123FBC1E4CBF4C591DEE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120378   (802098) от 31.03.2017
+
+VA - 100 House Matrix (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802098.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Janieck - Feel The Love (Sam Feldt Edit)
+002. Tom Novy - Dance The Way I Feel - Club Mix
+003. Agresias - Ink (Original Mix)
+004. Gil Glaze - Can't Let You Go - Radio Edit(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 09:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE45929A0EE9414336DBA2534FBB99AA471FE286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010663   (802112) от 25.04.2016
 
 VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 29 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
@@ -533,168 +695,6 @@ VA - Beatport Drum And Bass: Sound Pack #359 (2021) [MP3|320 Kbps] <D&B, Basslin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC855E4D6116D4BF0DDBB33870E7FC258CA26B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505334   (802866) от 28.10.2021
-
-VA - Synth of Waves 3 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castroe - Chase Arrival (Gertrudda Edit) (8:58)
-02. 2DCAT - On My Own (3:38)
-03. Runaway Droid - Dance (3:29)
-04. A-Reis - Hyperdrive (4:13)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18004B4D53A73D45BE844D65A5756FAFF123726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505350   (802927) от 28.10.2021
-
-VA - Synth of Waves 6 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demesys - Cocktails & Dreams & Tropical Haze (Gertrudda Edit) (7:53)
-02. Backfrom84 - Lost Summer Love (4:33)
-03. The Midnight - Nighthawks (Gertrudda Summer Mix) (8:17)
-04. Stan DuClare - Newtown Mall (3:14)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672A101E572290C756393D72DFC1F224A44A618D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505344   (802938) от 28.10.2021
-
-VA - Synth of Waves 5 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Mortal - Hex Machina (Gertrudda Edit) (5:08)
-02. Alex Boychuk - Escape (5:13)
-03. Michael Cassette - My Name Is Michael Cassette (Extended Mix) (5:28)
-04. FM Attack - Cinematic (4:37)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC8FDC4B660251228ECCDB7A0CE7D034AF2D783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198962   (802943) от 14.01.2018
-
-VA - Hamid Production - The Best Of 2017 [MP3|192-320 Kbps] <Pop, Dance, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802943.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Arash & Mohombi - Se Fue
-002 Anca Pop - Ederlezi
-003 Katy Perry - Roulette
-004 Mozhdah - Boro(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 05:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE5E69BC62E0C3175C35107340CF293796F2B6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505548   (802950) от 28.10.2021
-
-VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Fury - Fair Enough
-002. Al Storm - Flashbacks
-003. Rob Iyf & Al Storm - Bitter, Sweet
-004. Korsakoff - Ready To Go(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120118   (803354) от 30.03.2017
-
-VA - Опасные Связи 20: Сборник Русского Шансона (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803354.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анатолий Полотно - Непогода
-002. Виктор Гурченко - Ча-Ча-Ча Синьор
-003. Виктор Северный - Роза Ветров
-004. Сергей Матвеев - Скатертью Зима(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88101C349647FA2B1B41EEFAE51450FF510F13F5
 ```
 
 

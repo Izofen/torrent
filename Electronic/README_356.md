@@ -1,3 +1,218 @@
+###  Публикация: 1131182   (710814) от 04.05.2017
+
+Moon Frog - Standing On Ceremony (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710814.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Old Memories (05:05)
+2. Summer Folds (04:41)
+3. Woke Me (03:48)
+4. Exister (05:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5E33D0D80E1DD112DF65719884BB28C658730A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532936   (710943) от 21.02.2022
+
+Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitesquare - Folded Reality
+02. James Burton - Breakfast Club (Dennis Ferrer Morning Mix)
+03. Felipe Puertes - Niyama
+04. Øostil & U S H N U - Safe (Hunter/Game Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BB1EADBF23E31BB896AA6A1EE60D675FD2CC4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401198   (710972) от 09.08.2020
+
+VA - Extreme Sports Music, Vol. 7 (2020) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIMES. - Turn It Up [00:03:41]
+02. Divine Claw - First (Radio Edit) [00:03:28]
+03. Lyon - Firegun (Radio Edit) [00:02:31]
+04. Charlyfive & Artiste - Mystic (Radio Edit) [00:03:40](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0890017AA50DDCFEBBF25F7EEFE73C81E8236AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401184   (711014) от 09.08.2020
+
+Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wired [00:04:43]
+02. Runaway [00:03:34]
+03. Powerlines [00:03:29]
+04. Neon Void [00:03:34](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A78D15D3B1D388A87F05CE5588ECCCCECE8A01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400965   (711151) от 09.08.2020
+
+Ost+Front - Dein Helfer In Der Not (2020) 3xCD [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711151.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Tontrager 1
+CD2: Tontrager 2
+CD3: In Der Holle ErfrorenЖанр: Industrial MetalПродолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C75A3AB1B4B39105B730438F2D94994FDC7185
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286708   (711155) от 03.03.2019
+
+Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Maker Theme (8:52)
+02. Sweetly (8:09)
+03. Happily (8:26)
+04. This Song Tears Easily (5:35)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F779AB562262ABC12BF742D06FFAF0553F471C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401189   (711184) от 09.08.2020
+
+Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Safety in Mind [00:03:59]
+02. Strange Behaviour [00:04:02]
+03. A Decade of Thoughts [00:04:09]
+04. State of the Nation [00:04:13](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401188   (711191) от 09.08.2020
+
+Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Future Days [00:03:41]
+02. I Want to Live Tomorrow [00:03:50]
+03. Easy Come, Easy Go [00:05:42]
+04. Normal [00:04:37](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286604   (711290) от 03.03.2019
 
 VA - Toolroom Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Tech House, Techno>
@@ -479,222 +694,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2DDD85DB37B005EEE8319D24894185341E2C5D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286299   (712860) от 02.03.2019
-
-VA - Erotic Lounge Obsession Best of Sensual Chillout Love Making Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mathieu & Florzinho - Primavera
-02. Lemonjazz - Close Your Eyes (Erotic Sunset to Sunrise Mix)
-03. Euphonic Traveller - Le Ciel De Paris
-04. Soleil Fisher - Go Away(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B544952238F37108ECCB942F352EAC28E9B27EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400990   (712883) от 08.08.2020
-
-Entheogenic - Animism (2020) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animism (06:34)
-02. Contagious (06:05)
-03. Akasavani (An Ode To Psy Mix) (07:47)
-04. Celestial Mechanics (08:23)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7713B0DCCFFF1F7C9924BEECC9255FED261306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111571   (712926) от 02.03.2019
-
-Jens Vydt (Herbstlaub, Die Nachtstunde) - Discography 15 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, IDM, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemeinsam. (08:40)
- 02. Im Fernblau. (07:35)
- 03. Herbsttau. (02:48)
- 04. Und es nachtet. (07:42)(   Читать дальше...   )Тип издания: WEB •Жанр: Ambient, Experimental, Minimal, IDM, Techno •Продолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A62D366628D28695CD49A3B131213C3B1E7F582
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532714   (712927) от 20.02.2022
-
-Spacehawk - Space Opera (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Spacedance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Opera - Intro (1:49)
-02. Gates Of Heaven (4:44)
-03. Timeless World (5:07)
-04. Distant Voices (4:34)(   Читать дальше...   )Жанр: Spacesynth, Spacedisco, SpacedanceПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948275B2DA567DBAF232055D9F8241020F00CB30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880169   (713038) от 02.03.2019
-
-Jaćek (Jacek) - Discography 2 Releases (2015) [FLAC|Lossless|WEB-DL]<Tribal, Experimental, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xochimiqui (04:40)
- 02. Varna Sankara (03:40)
- 03. Antaxkarana (04:09)
- 04. Viracoca (04:32)(   Читать дальше...   )Тип издания: WEBЖанр: Tribal/Experimental/AmbientПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0446EDB9B2A2263A0DB9AC7E32AA366D4511B9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286389   (713108) от 02.03.2019
-
-VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artra & Holland - Don't Say Goodbye (DJ Anvil Radio Edit) 3:58
-02. Stimulator & Richard Blacklund - Here With Me (Radio Mix) 3:15
-03. Opt-In - Zura (Radio Cut) 4:00
-04. Kajis & Blaumar - Empty Minds (Radio Cut) 3:25(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AEE8346869EC0653BADA9A9735B68AC3B99530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286396   (713126) от 02.03.2019
-
-VA - Buddha Luxury Vol.3 (Esoteric World Music) (2019) [MP3|320 Kbps] <Downtempo, Ambient, Exotica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. R. Haim - Yasmin (Original Mix) 3:31
-02. Mandarin Plaza - Carpet Ride (Original Mix) 5:09
-03. FAT V - Silence Of Sadness (Original Mix) 5:45
-04. Clelia Felix - Eastern Sunrise (Original Mix) 4:25(   Читать дальше...   )Жанр: Downtempo, Ambient, Exotica, Lounge, Meditation, NewAge, RelaxПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D623FEFDEF41A936B516B107D54237B1FB3DA9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286393   (713135) от 02.03.2019
-
-VA - Armada Deep: Miami (2019) [MP3|320 Kbps] <House, Progressive House, Melodic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gui Boratto - 618 (Koelsch Mix) 3:44
-02. Lane 8 & Fractures - Hold On (Ben Boehmer Remix) 5:08
-03. Jan Blomqvist - Elephant Shunned (Solee Remix) 3:40
-04. Rodriguez Jr. & Liset Alea - Radian (Cercle Version) 3:24(   Читать дальше...   )Жанр: House, Progressive House, Melodic House, Deep HouseПродолжительность: 02:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8C6581EA3F617171BA3E7DDF2846B1632A10B9
 ```
 
 

@@ -1,3 +1,28 @@
+###  Публикация: 1448796   (1030327) от 19.02.2021
+
+Microsoft Windows 10.0.19042.804 Version 20H2 (Updated February 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.804.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374D93C74ACD75D007BA85B73DEE6DD7B1D4D6DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448789   (1030335) от 19.02.2021
 
 Windows Server 2019 LTSC Version 1809 Build 17763.1757 (Updated February 2021) Оригинальные образы от Microsoft MSDN [Ru/En]
@@ -613,33 +638,6 @@ Windows 7 SP1 (8in1) Build 6.1.7601.26366 [UPDATE 21.02.2023] by ivandubskoj (x8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1BF5D7768A3DDFE336886D3EF3E9276C853EB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614392   (1038709) от 21.02.2023
-
-Microsoft Windows 10.0.19045.2604, Version 22H2 (Updated February 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2604.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C17248878FBA880F1244A9C4B5380D1AEE4FFBA
 ```
 
 

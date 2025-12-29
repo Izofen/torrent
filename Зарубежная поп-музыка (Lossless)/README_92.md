@@ -1,3 +1,60 @@
+###  Публикация: 975495   (971936) от 15.01.2016
+
+Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe (4:36)
+2.Sweetheart (4:22)
+3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy (4:04)
+2.My all (3:52)
+3.Open arms (3:32)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975622   (971938) от 15.01.2016
+
+Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Amour A Deux [04:55]
+ 02. Dis Lui Toi Que Je T'Aime [03:58]
+ 03. L'Amour En Soi [05:07]
+ 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 439629   (971977) от 21.01.2012
 
 Michael Jackson & Jackson 5 - Dear Michael. The Motown Collection (12 SHM CD Box Set) (2011) [FLAC|Lossless]<R&B, pop, rock, soul, dance>
@@ -695,68 +752,6 @@ VA - Дискотека 80-х The Best of Авторадио (2011) [WavPack|Los
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616140   (976259) от 09.02.2013
-
-VA - 2013 Grammy Nominees (2013) [FLAC|Lossless]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В ближайшее воскресенье (10.02.2013) состоится 55 по счету (можно сказать юбилейная) церемония награждения премией Гремми (Grammy) - Американской академии звукозаписи, которая учреждена Ассоциацией звукозаписывающих компаний США 14 марта 1958 года.
-Премия является одной из самых престижных наград в современной музыкальной индустрии, которую можно сравнить с премией «Оскар» в кинематографе.
-В этот раз интерес к ней подогрели просьбой номинантам и ведущим не выходить на сцену обнаженными, а уж грудь сестры Джексона (   Читать дальше...   )1. The Black Keys - Lonely Boy (3:13)
-2. Kelly Clarkson - Stronger (What Doesn't Kill You) (3:42)
-3. Taylor Swift - We Are Never Ever Getting Back Together (3:12)
-4. Gotye feat. Kimbra - Somebody That I Used to Know (3:28)
-5. Katy Perry - Wide Awake (3:39)
-6. Fun. feat. Janelle Monae - We Are Young (3:53)
-7. Florence + the Machine - Shake It Out (3:52)
-8. Pink - Try (4:01)
-9. Maroon 5 feat. Wiz Khalifa - Payphone (3:51)
-10. Carly Rae Jepsen - Call Me Maybe (3:13)(   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEEC2E12DACAC69ADD761F4AEB193A2026C6B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974269   (976616) от 11.01.2016
-
-VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Newman - Come And Get It (3:04)
-02. The Weeknd - Can't Feel My Face (3:35)
-03. Avicii - Waiting For Love (3:49)
-04. Lost Frequencies feat. Janieck Devy - Reality (Radio Edit) (2:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1381521   (826134) от 07.05.2020
+
+Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826134.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sound of Music
+A2 That Old Feeling
+A3 Quiet Nights of Quiet Stars (Corcovado)
+A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502547   (826412) от 15.10.2021
+
+Smokie - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. I'll Meet You At Midnight (Midnight Cafe)
+02. What Can I Do (Midnight Cafe)
+03. No More Letters (The Moutreux Album)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502119   (826499) от 15.10.2021
 
 Nazareth - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
@@ -647,60 +701,6 @@ magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499460   (847826) от 02.10.2021
-
-Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847826.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heaven
-A2 Like An Ocean
-A3 Soon Will Be Too Late
-A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002332   (848601) от 31.03.2016
-
-Группа Стаса Намина - Гимн Солнцу (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление и "Гимн Солнцу"
-02. После Дождя
-03. Где Живет Ветер
-04. Ты Только Слушай(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
 ```
 
 

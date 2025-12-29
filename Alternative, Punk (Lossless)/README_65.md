@@ -1,3 +1,309 @@
+###  Публикация: 622458   (890942) от 07.03.2016
+
+Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Veins
+02. Wounds
+03. Dark Clouds
+04. Carry The Weight(   Читать дальше...   )Тип издания: ДискографияЖанр: Post-HardcoreПродолжительность: 02:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D06AFF7EAD686A8506AA1CF47D254E49DA2393
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101552   (891197) от 09.02.2017
+
+Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Machine (3:09)
+02. Hey (3:18)
+03. Ana (2:16)
+04. Magdalena 318 (3:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADD930D9960CE91A7F951FAFFD7B0387058A77A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102165   (891212) от 09.02.2017
+
+R.E.M. - Murmur (1983) [FLAC|Lossless|tracks + .cue] <Indie, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Free Europe (4:05)
+02. Pilgrimage (4:30)
+03. Laughing (3:58)
+04. Talk About The Passion (3:23)(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFA3C83F3D8B80EE82EA35D4E6C400566C727BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869014   (893017) от 14.02.2015
+
+Callejon - Wir Sind Angst (Limited Deluxe Edition) (2015) [FLAC|Lossless]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Trauma
+02. Wir sind Angst
+03. 1000 PS
+04. Dunkelherz
+05. Babel(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic MetalcoreПродолжительность: 00:43:25 (CD1)-00:39:16 (CD2)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A1C307F714097641805DAC101F29CA35BE554C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101828   (893139) от 08.02.2017
+
+Superlitio - Tripping Tropicana (2005) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Latin>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon (3:30)
+02. Que Vo' Hacer (3:28)
+03. Lo Fi (4:41)
+04. Mulata (4:14)(   Читать дальше...   )Жанр: Electronic, Rock, Latin, Funk / SoulПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8203F94C561D2C63CE577A8FD240E9331394239B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183025   (893594) от 17.03.2010
+
+Garbage - Дискография (1995-2009) [FLAC|Lossless]<Alternative Rock/Post-Grunge/Electronic>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Candy Says
+Confidence
+Enough Is Never Enough
+April Tenth
+Happiness Pt. 2
+I'm Really Into Techno
+Sex Never Goes Out Of Fashion
+Use Me
+Wild Horses (Live)
+Badass (October 2003 Ruff Demo)(   Читать дальше...   )Жанр: Alternative Rock/Post-Grunge/ElectronicПродолжительность: 00:12:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370796   (893653) от 29.03.2020
+
+Трупный ЯД - 3 Альбома (1995-2005) 3 CDA [FLAC|Lossless|image + .cue] <Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В городе мёртвых [00:03:54]
+02. Девочка плачет [00:03:14]
+03. Замполит [00:02:54]
+04. Жрите [00:04:36](   Читать дальше...   )Жанр: ThrashПродолжительность: 3 CD, 02:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F319D5524BEDBAD545150AA571140BA97240F693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370755   (893685) от 29.03.2020
+
+Norma Jean - All Hail (2019) [FLAC|Lossless|tracks + .cue] <Chaotic Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orphan Twin [00:01:56]
+02.Жанр: Chaotic Hardcore, MetalcoreПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5BE27320CE544DD2B77310D9E1FA1CC8EE5290
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101493   (894407) от 07.02.2017
+
+Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FLAC|Lossless|image + .cue, track] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed The Machine (5:03)Жанр: Hard Rock, Alternative RockПродолжительность: 00:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA9CAA3021E36FE3DC10C8F5089FA3780C36C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761854   (894427) от 01.03.2014
+
+Oomph! - GlaubeLiebeTod (2006) [FLAC|Lossless]<Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Gott ist ein Popstar
+2. Das letzte Streichholz
+3. Träumst du
+4. Die Schlinge
+5. Du willst es doch auch
+6. Eine Frau spricht im Schlaf
+7. Mein Schatz
+8. Dreh dich nicht um
+9. Land im Sicht
+10. Tanz in den Tod(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:44:35.33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F39B3D36982C18BA053BB48CFF4A333710B0626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869005   (894667) от 13.02.2015
+
+Tear Out The Heart - Dead, Everywhere (2015) [FLAC|Lossless]<Metalcore | Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Dead, Everywhere
+02. Feel Real
+03. I've Got Secrets
+04. Damage Control
+05. The Rejected(   Читать дальше...   )Тип издания: АльбомЖанр: Metalcore | Post-HardcoreПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31EFB75889B1AFB6C971E32FC742DD6DC214513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869001   (894685) от 13.02.2015
 
 The Dreaming - Rise Again (2015) [FLAC|Lossless]<Alt. Rock | Industrial Rock>
@@ -404,312 +710,6 @@ Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458721   (903976) от 29.02.2016
-
-Morrissey - You Are The Quarry (Deluxe Edition) 2 СD (2004) [FLAC|Lossless]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903976.jpg" />
-</div>
-
-
-###  Подробнее
-
-You Are the Quarry — наиболее успешный альбом в карьере Моррисси, как сольной, так и в составе The Smiths.
-Диск разошёлся более чем миллионом копий по всему миру
-В октябре 2004 года Attack перекомпоновала и переиздала You Are the Quarry как двудисковое Deluxe издание.
-Второй диск содержал девять би-сайдов с первых трёх синглов альбома, а также некоторые видеозаписи,(   Читать дальше...   )01. America It is not the World
-02. Irish Blood, English Heart
-03. I Have Forgiven Jesus
-04. Come Back to Camden(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C8C0701C9D01017E5514B64BDC8CF6A5C3DEA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099446   (905023) от 01.02.2017
-
-No Resolve - Unity (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up
-02. Love Me to Death
-03. Prelude
-04. What You Wanted(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1A9D9A3005BD92E32A2185BCF223CF1D990065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759754   (905306) от 23.02.2014
-
-Johnossi - 4 альбома (2006-2013) Discography [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Into The Wild
- 02 - Gone Forever
- 03 - E.M.
- 04 - Everywhere (With You Man)
- 05 - For a Little While
- 06 - Alone Now
- 07 - Seventeen
- 08 - Bull - Bear
- 09 - Tell The World
- 10 - Great EscapeЖанр: AlternativeПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8191862D5906EEE58DFE2B587CC2951B653AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099077   (907192) от 31.01.2017
-
-Sundara Karma - Youth Is Only Ever Fun In Retrospect (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Young Understanding (4:04)
-02. Loveblood (3:48)
-03. Olympia (4:12)
-04. Happy Family (6:02)(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E840DFA28D8AFCB521D44956A366EB5234AB9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368796   (907504) от 21.03.2020
-
-Worriers - You or Someone You Know (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - End of the World
-02 - PWR CPLE
-03 - Big Feelings
-04 - Terrible Boyfriend(   Читать дальше...   )Жанр: Indie Rock, PunkПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE79EAB26E3B65792883EED5FD6F1A9E1829A008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368023   (913921) от 17.03.2020
-
-Noel Gallagher's High Flying Birds - Blue Moon Rising (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Brit Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Moon Rising (03:43)
-02. Wandering Star (03:38)
-03. Come On Outside (04:11)
-04. Blue Moon Rising (The Reflex Revision) (07:39)(   Читать дальше...   )Жанр: Indie Rock, Brit PopПродолжительность: 00:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E087E702156B5718497970215CB568DFD8195F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758081   (914327) от 18.02.2014
-
-Eldest 11 - Under a Black Flag (2014) [FLAC|Lossless|WEB-DL]<Alt. Metal | Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fluid
-02. Charm
-03. Buried
-04. Nightmare (falling in love)(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A83A613154513DF0078F15AD956046A3E62ECE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097445   (914487) от 27.01.2017
-
-Vaux - 2 Albums (2003, 2006) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Identity Theft (4:15)
-02. Are You With Me (3:29)
-03. Cocaine James (3:20)
-04. Need To Get By (3:48)(   Читать дальше...   )Жанр: Alternative Rock, HardcoreПродолжительность: 01:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443A20043F962A1E8F5D037377E7C5CBD52C183C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989569   (915414) от 23.02.2016
-
-Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + .cue] <Alternative Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cornflake girl  05:04
-02.Crucify  04:56
-03.Spark  04:11
-04.Caught a lite sneeze  04:24(   Читать дальше...   )Жанр: Alternative Rock, VocalПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EC98E82D3339D605D4923B3F83B21584FD0858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367724   (915814) от 16.03.2020
-
-Good Moaning - The Roost (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother-Door (02:57)
-02. Suitcase (04:19)
-03. Incubus (03:59)
-04. The Roost (03:27)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277DE8C80ACBF81EAEE807E4409DD4C9067AE105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097080   (915937) от 26.01.2017
-
-Anti-Flag - American Spring (2015) [FLAC|Lossless|tracks + .cue] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabled World
-02. The Great Divide
-03. Brandenburg Gate (feat. Tim Armstrong)
-04. Sky Is Falling(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C179BF16A2AE9C3AA570E5A9862EECDDF947510C
 ```
 
 

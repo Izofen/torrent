@@ -1,3 +1,491 @@
+###  Публикация: 583407   (1014260) от 25.05.2021
+
+Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|image + .cue] <Neo - Classic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find Your Story (2:31)
+02. Orphanage Airlines (4:34)
+03. Undertow (5:18)
+04. Spying In The Doorway (3:04)(   Читать дальше...   )Жанр: Neo - ClassicПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A263F51950024A4BA3CB42083A1F2F562AECB39C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320176   (1014887) от 21.05.2021
+
+Mirage - Classic Guitar Mood (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme from Romeo & Juliet 	(03:23)
+02. Your Song 				(04:07)
+03. Bamboleo 				(03:34)
+04. Rodrigo's Guitar Concerto 		(03:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50338FF96845D3F5A638B2715F559766F08973A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470761   (1015292) от 19.05.2021
+
+Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native American, New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Shamanism
+02. Sacred Ritual
+03. Into the Woods, Rain Sounds
+04. Native Relaxation(   Читать дальше...   )Жанр: Native American, New age, MeditativeПродолжительность: 03:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3E11EB79B32BC1F4972E852F88A4AD1F7578C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470592   (1015479) от 18.05.2021
+
+VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Ambiance - Deep Thinking (3:28)
+02. Serenity Calls - Morning of Clouds (3:15)
+03. Serenity Calls - Arabic Nights (3:17)
+04. AlFa RaYn - Deep Concern (1:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470776   (1015492) от 18.05.2021
+
+VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Mahler - Natural Flow (3:18)
+02. Unique Chill - Little Me (2:30)
+03. Bella Element - Beach Living (2:52)
+04. Robin Mahler - The Great Wave off Kanagawa (2:34)(   Читать дальше...   )Жанр: New Age, LoungeПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49007E63964ABE8475092A19C62A6B19A1A048C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466472   (1015770) от 16.05.2021
+
+Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The All Seeing Eye
+02. Heal Your Soul
+03. Palo Volador
+04. Madre De La Selva(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75F60D43A760609EC7105884195FFB841728132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438579   (1015873) от 15.05.2021
+
+Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Paternum Deo + Pachelbel's Canon 4:05
+02. Madeus + Mozart's Requiem 4:14
+03. Abbey Road Blues + Albinoni's Adagio in G minor 4:37
+04. A Brand Bew Day + Bach's Cello Suite N°1 in G major 4:32(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5DC4BA1418DBFB4CDB413F54B1A2D7EF5A7FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469936   (1016099) от 14.05.2021
+
+Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Hypnosis, Nature Music (4:01)
+02. Above the Clouds (with Rain Sound) (3:13)
+03. Beyond The Mind (4:17)
+04. No Space (Flute) (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469997   (1016129) от 14.05.2021
+
+Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daily Ritual Meditation (4:01)
+02. Happy to See You - Rain Sounds (3:13)
+03. Shimmer (4:17)
+04. Inner Peace (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CED711CDCBD8D646D974A4C8034056627E09D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469518   (1016395) от 12.05.2021
+
+Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kundalini Yoga Music (4:01)
+02. Spa Relaxation - Rain Sounds (3:13)
+03. Spirituality (4:17)
+04. Nocturnal Relaxation (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D753A13A1294DA8F3F750A9B500533B5564FF812
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465873   (1018772) от 28.04.2021
+
+Tierra Negra - Discography (1997-2020) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafaga De Luz (3:29)
+02. Boreal (3:40)
+03. Djobi Djoba (2:47)
+04. Tramontana (3:49)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar, Flamenco Nuevo |Продолжительность: 14:40:19 | Кодек: FLAC | Битрейт: Lossless|WEB-DL | Тип рипа: tracks
+
+Tierra Negra - немецкий гитарный дуэт Leo Henrichs and Raughi Ebert. Оба участника называют свой стиль музыки Mediterranean Guitar Lounge и Flamenco Nuevo. Кроме этого, они продают свою собственную фирменную модель гитары фламенко (для справки - Gipsy Kings играет только на гитарах марки Tierra (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87443B3532F8C2D27EAD5B4404FAA5228AAE7069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465723   (1018931) от 27.04.2021
+
+Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Mother Rising
+02. Shield Maiden
+03. The River Folk
+04. The Fields of Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38A72821D8AAEF1C6BB77A24463C774025539D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027900   (1019280) от 25.04.2021
+
+Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saraswathi Devi Sloka (3:36)
+02. Bolo Krishna (3:57)
+03. Om Namo Bhagavate Vasudevaya (4:52)
+04. Surya Narayana Dandakam (5:03)(   Читать дальше...   )Жанр: New age, Folk, MeditativeПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5818760EF3D62AE6812313E2540D8837871F3BB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465042   (1019285) от 25.04.2021
+
+Johannes Linstead - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Flamenco, Guitar, Latin>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Mist (3:46)
+02. The Temple at Delphi (3:39)
+03. Don Juan (3:55)
+04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New Age |Продолжительность: 08:38:50 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E4EE1DEF1A69E57F6FCD8DB9BFC56F85130BCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464936   (1019297) от 25.04.2021
+
+Tierra Negra - Discography (1997-2020) [MP3|320 Kbps] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafaga De Luz (3:29)
+02. Boreal (3:40)
+03. Djobi Djoba (2:47)
+04. Tramontana (3:49)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar, Flamenco NuevoПродолжительность: 14:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C4345398AAAF6570EBFC85BCC9246CF856FBD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465267   (1019312) от 25.04.2021
+
+Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:32)
+02. Sri Mangala Gita (4:42)
+03. Sri Radhika Stava (6:25)
+04. Bolo Radha Ramana (3:10)(   Читать дальше...   )Жанр: New age, Folk, MeditativeПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5949C9733F9BFE20F63DC649FDD2FE6FE05D85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464851   (1019632) от 23.04.2021
+
+Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, Latin>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Mist (3:46)
+02. The Temple at Delphi (3:39)
+03. Don Juan (3:55)
+04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New AgeПродолжительность: 08:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAD341FABF92DC4E4F3BEAF3AC5580B59F91575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464431   (1019728) от 22.04.2021
+
+OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саундтрек>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (2:39)
+02. Расследование (3:02)
+03. 1947 (1:43)
+04. Маркиз Де Шамм (3:22)(   Читать дальше...   )Жанр: СаундтрекПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C21F80FF669231B70EFC8952031A86C1910647A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464189   (1019973) от 21.04.2021
 
 Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
@@ -209,492 +697,6 @@ Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457216   (1020925) от 15.04.2021
-
-Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Ringtones, Pop, Sexy>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot & Sexy Ringtone #1
-02. Hot & Sexy Ringtone #2
-03. Hot & Sexy Ringtone #3
-04. Hot & Sexy Ringtone #4(   Читать дальше...   )Жанр: Ringtones, Pop, SexyПродолжительность: 00:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461444   (1021609) от 11.04.2021
-
-Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coyote Dance
-02. Mahk Jchi (Heartbeat Drum Song)
-03. Ghost Dance
-04. The Vanishing Breed(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CA63657DC91890BB748F824EACF02B8AEE1123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461086   (1021759) от 10.04.2021
-
-VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Whitmire - Bella's Lullaby - Solo Piano Theme From Twilight (3:50)
-02. Jim Brickman - Valentine (3:33)
-03. David Hamilton - 'S Wonderful (4:04)
-04. Beegie Adair - I Get Along Without You Very Well (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E083FCBA33CF6D901F5960ED7A0AFA2591742F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461023   (1021783) от 10.04.2021
-
-Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Com Que Voz
-02. Barco Negro
-03. Lagrima
-04. Formiga Bossa Nova(   Читать дальше...   )Жанр: Fado, BossanovaПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034118732F10F3C347899346F9CE0DB802FFDD2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461373   (1021789) от 10.04.2021
-
-Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving-Kindness (Metta) (feat. Chloe Pourmorady)
-02. Compassion (Karuna) (feat. Estrella Morente)
-03. Vicarious Joy (Mudita) (feat. Deva Premal)
-04. Equanimity (Upekkha) (feat. Uyanga Bold)Жанр: World, MeditativeПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459157   (1023284) от 01.04.2021
-
-Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia (2:47)
-02. Solamente una vez (3:07)
-03. La Playa (3:58)
-04. Quando, quando, quando (2:33)(   Читать дальше...   )Жанр: Flamenco, Easy ListeningПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459161   (1023305) от 01.04.2021
-
-Анастасия Бардина - GRAN-d SURPRISE (2006) [MP3|320 Kbps] <Guitar, Acoustic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечера в парках Парижа (5:29)
-02. Фанданго (6:26)
-03. Соната для скрипки-соло №1 (6:47)
-04. Вальс 'Мечта' (2:05)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457766   (1023462) от 31.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023462.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:52] 01. Themyscira
-[05:18] 02. Games
-[07:05] 03. 1984
-[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457977   (1023463) от 31.03.2021
-
-Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armando's Fire (3:26)
-02. Walking Through The Pyramid (3:53)
-03. Chile (3:28)
-04. Latino (4:28)(   Читать дальше...   )Жанр: Flamenco, GuitarПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9CBC2FEDE047D6126D6C2C2D2152812F9EB8A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457715   (1023464) от 31.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023464.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:20] 01. Pensacola, Florida (Godzilla Theme)
-[07:26] 02. Skull Island (Kong Theme)
-[02:02] 03. Apex Cybernetics
-[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457771   (1023466) от 31.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023466.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:29] 01. '84
-[04:39] 02. No Hero Is Born from Lies
-[05:09] 03. Apex Predator
-[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8973E0E51144EDCA2099EAD44AA244AD917366AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459059   (1023468) от 31.03.2021
-
-Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Originale Della Fiction TV) (2016-2021) Rai Com [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Soundtrac ...
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ugo In Love (02:07)
- 02. Teatro Romano (02:48)
- 03. Il Grande Ritorno (02:17)
- 04. Amantidi (01:40)(   Читать дальше...   )Тип издания: WebЖанр: Modern Classical, Ambient, Soundtrack •Продолжительность: 02:44:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A554CB22C7870A2D617DE6ABDDF1F64D4A18BC2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458751   (1023475) от 31.03.2021
-
-VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman - Sing (2:56)
-02. Stan Whitmire - Hero (4:21)
-03. Jim Brickman - Love Me Like You Do - From Fifty Shades Of Grey (5:03)
-04. Pat Coil - The Old Songs (3:49)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B46301E934A8B23E864F9385EF0D2A3DAE54C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458651   (1023660) от 30.03.2021
-
-VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat Coil - Mandy (3:41)
-02. Jim Brickman - Right Here Waiting (3:50)
-03. Beegie Adair - And I Love Her (3:49)
-04. Jimmy Fedd - Blessed (4:20)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED8384987710643905A77BDFFC68236B0EED37A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457981   (1023669) от 30.03.2021
-
-VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulakos - So Sad (Gregorian) (3:30)
-02. Massini - Ameno (Remix) (Levi-Protheroe) (3:48)
-03. El Suerte - Esperanza (Levantis) (4:44)
-04. Transeparence - Sadeness-Part 1 (CurlyMC-Gregorian-Fairstein) (4:25)(   Читать дальше...   )Жанр: New Age, Folk, CelticПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13E822307AA49114D4EF11D1E9F250F62C6DBDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458607   (1023679) от 30.03.2021
-
-Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Cardall - A Blue Baby (2:51)
-02. Paul Cardall - Moths & Butterflies (5:03)
-03. Paul Cardall, Thompson Square - The Man with Half a Heart (4:19)
-04. Paul Cardall - Family (2:15)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4E4477A05437B1C689DA6540F103C61FA138A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457773   (1024056) от 28.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024056.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:29] 01. '84
-[04:39] 02. No Hero Is Born from Lies
-[05:09] 03. Apex Predator
-[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB624FD1AC20F8190FA9067AC4EDB429B5ACF6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457772   (1024060) от 28.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024060.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:29] 01. '84
-[04:39] 02. No Hero Is Born from Lies
-[05:09] 03. Apex Predator
-[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7121186411F4CD18E26CE9F1724924513D3E7D4B
 ```
 
 

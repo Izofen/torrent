@@ -1,3 +1,165 @@
+###  Публикация: 1395703   (751448) от 12.07.2020
+
+VA - Шансон Музыкальный хит-парад (2020) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751448.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сергей Клушин - Мои Друзья (5:37)
+2. Владимир Ждамиров - А я несу тебе цветы (3:43)
+3. Андрей Курбатов & Лера Огонёк - Тишину Хочу (4:37)
+4. Михаил Шуфутинский - Поздняя любовь (3:58)(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEBE14705C20979F0742BBEF5CA8F57A8F8523F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281472   (751513) от 08.02.2019
+
+VA - Сегодня на радио хиты FM Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia O'Brien - Love Myself
+02. Satin Jackets feat. Panama - Automatic
+03. Джиос - Инсомния
+04. Emarosa - Cautious(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B5295EA63133C645A3CD4A5CC34D53EECC4B48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281565   (751739) от 08.02.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 08.02.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lil Peep & XXXTentacion  -  Falling Down
+02.  Shawn Mendes & Zedd  -  Lost In Japan (Remix)
+03.  Loud Luxury feat. Brando  -  Body
+04.  David Guetta feat. Bebe Rexha & J Balvin - Say My Name(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A67AE8F7E4EF6EB02681868CB3D34B09FC408C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281526   (751861) от 08.02.2019
+
+VA - Beatport Top 100 Downloads January (2019) [MP3|192-320 Kbps] <House, Electro, Tech>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT – Upperground (Original Mix) (6:45)
+02. Rebuke – Along Came Polly (Original Mix) (6:29)
+03. Martin Ikin – No No (Original Mix) (5:18)
+04. Don Diablo, Keanu Silva – King Of My Castle (Original Mix) (3:37)(   Читать дальше...   )Жанр: House, Electro, Tech, Progressive, Techno, TranceПродолжительность: 10:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BE1FD595E24700C4E91D1121768FBEC92BCE95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281488   (751865) от 08.02.2019
+
+VA - Light Dance Music (2019) [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <house, dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Abraham Mateo - La Noche  03:40
+  02 - Akcent - Rita  02:53
+  03 - Alexiane - A Million On My Soul  04:06
+  04 - Alex Mica Feat. D.E.P  Kalif - Latina Loca  03:36(   Читать дальше...   )Жанр: house, danceПродолжительность: 04:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A0247EE800ACA809E3998DE88DA3C8B1FC8CB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281449   (752078) от 08.02.2019
+
+VA - Chilled Tunes For Relaxed (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Annk - Last Dance
+002. 2Jesus - Arrival2
+003. Fall Therapy - Wrong
+004. Makia Blue - Heal Me(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 10:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7495A32856953BD806E73332CC26196E59E0F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019011   (752093) от 22.05.2016
 
 VA - Летний дождь. Суперсборник от Русского радио (2016) [MP3|256-320 кб/с] <Pop>
@@ -534,168 +696,6 @@ Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29AD2ACCFF6F3CF95B0C5646DF932D30FF93F6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281219   (753372) от 07.02.2019
-
-VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753372.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jão - Vou Morrer Sozinho
-002. Dj Omega - Can't Wait
-003. Nicki Minaj & Murda Beatz - Fefe
-004. Four Of Diamonds - Stupid Things(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739C0CE94B8B0069B54280129282570A75AAA845
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018705   (753810) от 21.05.2016
-
-VA - Дискотечный хит-парад №12 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимати feat. L'One - Я Хочу Тебя
-002. Стас Михайлов - Я Буду С Тобой
-003. Mozgi - Бармен
-004. НеАнгелы - Я Так Скучаю(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D787F0406FE3676D54ED95FFA6E9A2BA0EF215E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018777   (753891) от 21.05.2016
-
-VA - 100 пудовый хит 50х50 №2 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5sta Family - Метко
-002. Pitbull Feat. Gente De Zona - Piensas
-003. Ани Лорак - Медленно
-004. Gold Fields - Hold Me(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272E891BE88FCCBB38E416EA3066FADA6B614A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018747   (753893) от 21.05.2016
-
-VA - Discoteka 2016 Dance Club Vol.152 (2016) [MP3|320 кб/с] <House, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobina & May, Britt Scheffer - Born Again 4:17
-002. DJ Smash - Feel The Summer 3:20
-003. Calvin Harris - This Is What You Came For (feat. Rihanna) 3:42
-004. Markus Schulz feat. Adina Butar - You And I 4:36(   Читать дальше...   )Жанр: House, Trance, Club, DanceПродолжительность: 12:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B6DF3926DDC6FB538796EE53E0E85E7D97E0E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018675   (753943) от 21.05.2016
-
-VA - Sleep Deep Piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Amadeus Mozart - Sonata no8 rondo allegro D major
-02. Johann Sebastian Bach - Goldberg Variations BWV988 Aria
-03. Richard Strauss - The Blue Danube
-04. Wolfgang Amadeus Mozart - Sonata No. 11 A major (Alla Turca) , KV 331(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDB23DB4D314EB651AE623F656216D435FCCB8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018641   (753955) от 21.05.2016
-
-VA - Acoustic Cafe: Relaxing and Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Munros - Homeward Bound - Cafe Mix
-02. The MacDonald Bros - When You Say Nothing at All
-03. Julienne Taylor - Turn out the Light - Cafe Mix
-04. The MacDonald Bros - Fields of Gold(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9C336CD846FCA9202674A81917169E04FD70FA
 ```
 
 

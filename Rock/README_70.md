@@ -1,3 +1,30 @@
+###  Публикация: 1289002   (690070) от 14.03.2019
+
+VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr Feelgood – The Blues Had a Baby and They Named It Rock ‘N’ Roll (No. 2)
+02. Graham Bond – Neighbour Neighbour
+03. Gerry and The Pacemakers – My Babe
+04. The Animals – Around and Around(   Читать дальше...   )Жанр: Rock, Blues, FolkПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C95D1E7A20052BE603EC5FD8087F9A54D733494
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289188   (690384) от 14.03.2019
 
 Headpins - 3 Albums (1982-1985) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:241BF16E0600255FB7E7B89E407674FB62624E17
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A6E15E6AC2115675EBD0993AC6A4EAF0E889B1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026429   (704065) от 15.06.2016
-
-Epolets - Cult (2016) [MP3|320 кб/с] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro  (02:16)
-02.  Залиш мене  (03:27)
-03.  Скажи  (03:38)
-04.  Мелодія  (04:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96358D398F71D008539C835FBACFB51E106E6F27
 ```
 
 

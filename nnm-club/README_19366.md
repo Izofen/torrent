@@ -1,685 +1,660 @@
-###  Публикация: 1274105   (794998) от 05.01.2019
+###  Публикация: 1124294   (785976) от 10.04.2017
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Россия — Канада (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Россия — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86360B274784FF29E34EF3201197AA6B1B290443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273929   (794999) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019 (U-20). 1/4 финала. Россия — Словакия (03.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794999.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 января 2018 г., стадион «Роджерс-арена» (Ванкувер, Канада)
-1/4 финала. Россия — СловакияТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D384877487EFF4C1676FAF644EBBD5C0834E6FAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509376   (795000) от 12.11.2021
-
-Recompress 21.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Re/compress - это мощная утилита сжатия PDF, которая позволяет изменять размеры существующих PDF-файлов для архивирования или распространения в Интернете или по электронной почте.
-Многие производители PDF, например. Например, многофункциональные принтеры или другие простые приложения используют самые современные формы сжатия при создании ваших PDF-документов (или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B63D68ECA6D7A3F4F4A786872CD3774523B8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509381   (795001) от 12.11.2021
-
-OCRKit Pro 21.11 [Multi/Ru]
+Receipts 1.4.5 [En]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795001.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональное распознавание текста для «безбумажного» офиса. Архивирование, поиск, редактирование и перевод, для Mac
-Конвертирование любых файлов формата PDF и графических файлов в файлы формата PDF с возможностью поиска по тексту или в файлы форматов RTF, HTML и TXT.
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов формата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2012Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
+
+Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 апреля 2017Разработчик: Dirk HoltwickПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89EB433125BFF5B6955DB6621EA45C1BFF743B0D
+magnet:?xt=urn:btih:DA63CC96A201AF1D4F020D600E2359019421ED7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509367   (795002) от 12.11.2021
+###  Публикация: 1123927   (785977) от 10.04.2017
 
-Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 Kbps] <Trance, Tech Trance>
+VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, Deep House>
 
 >>Electronic
->>Trance
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Indecent Noise - Brightest Day (Original Mix) (02:13)
-02. Indecent Noise - White Lotus (Original Mix) (04:32)
-03. Indecent Noise & Noire Lee - Sunglasses At Night (Extended Original Vision) (07:17)
-04. Indecent Noise & OnTune - Visions Of The Dreamer (Extended Mix) (08:12)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:57:19
+01.  Marga Sol - Sound Condensing  6:07
+02.  Bequest - Bright Lights  5:29
+03.  Miguel Alcobia - Tram 28  9:22
+04.  Chris.I.Am - Deeper Love (Extended Mix)  5:08(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:35:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C108B7FDB2C1419983F1CA432CFB7E3662CED40C
+magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509383   (795003) от 12.11.2021
+###  Публикация: 1123919   (785978) от 10.04.2017
 
-Keyboard Maestro 10 v10.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
-А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: Stairways Software Pty Ltd.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839CE4FAE0F99AC220ABED7DC69B56FC7D6B5918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509366   (795004) от 12.11.2021
-
-Wonders - The Fragments Of Wonder (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good & Bad
-02. Pretender
-03. Losing The Dream
-04. Beyond Redemption(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC141F58EFB7B85B7C2DB1868E93B059C42FED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509400   (795005) от 12.11.2021
-
-David Reece - Blacklist Utopia (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia
-02. Red Blooded Hell Raiser
-03. Down To The Core
-04. Civil War(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18522BDD643AC1C90961FE8A144E4FF87A0A201B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509520   (795006) от 12.11.2021
-
-Rock's Finest - Planet Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'n'Roll 04:12
-02. A Brand New Start 05:13
-03. Run 04:35
-04. Will You Be There For Me 05:16(   Читать дальше...   )Жанр: Melodic Hard Rock, Male Female VocalПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B9E08D32424E1597E77A17877896EAAEEDE1AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509307   (795007) от 12.11.2021
-
-VA - Deep House Relief, Vol. 1: Best of Chill & Deep Atmospheric House Music (2018) [AAC|~298 Kbps] <Chill House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Hayman - Deep Believe (On da Way Mix) (5:36)
-02. Charlie North - Lost and Found (Original Mix) (5:20)
-03. Cinematic - Memories (Red Carpet Mix) (6:00)
-04. Phil Kinley - Summer Breeze (7 Miles Beach Cut) (7:52)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D1650A7DBB4AB750EFAD6AE061BE8FF74C7E71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509357   (795008) от 12.11.2021
-
-Boxy SVG 3  v3.70.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2021Разработчик: Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BE39BC577BA731F143068DBA6BCECD48E59A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509338   (795010) от 12.11.2021
-
-Stan Getz - Four Classic Albums: Third Set (1949 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795010.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Stella by Starlight [2:42]
-02. Time on My Hands [2:56]
-03. 'Tis Autumn [3:13](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 02:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C39D88CCDA4A44375B31D0B41E67F0EF3284AD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509311   (795011) от 12.11.2021
-
-VA - Deep House Relief, Vol. 4: Best of Chill & Deep Atmospheric House Music (2021) [AAC|~323 Kbps] <Chill House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. iTTLEMIL - 12 Pm (2:19)
-02. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
-03. Lazy Luke - Commodious (Original Mix) (5:29)
-04. DMTunes - Moonlight Walk (Original Mix) (5:42)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D34662583679CE7DBA44CDB312E7563F9B6511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509523   (795012) от 12.11.2021
-
-Insania - V (Praeparatus Supervivet) (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeparatus Supervivet
-02. Solur
-03. Prometheus Rise
-04. Moonlight Shadows(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61770ECC1DDCB371ED8BAC24200913E746740F32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509416   (795013) от 12.11.2021
-
-Knights Of The Realm - Knights Of The Realm (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An August Play
-02. Into The Void
-03. Heavy Metal
-04. Fields Of Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A49C8D45DB788F8A28956A188923ECE8F37E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509333   (795014) от 12.11.2021
-
-VA - Quiet Day: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska, Michael Moses - Sandy (4:48)
-02. Michael e - Wanderlust (Original Mix) (5:28)
-03. Patiotic - Timeless (Original Mix) (4:06)
-04. Lemongrass - Sur La Mer (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA0A2580F867C50B0E93DCE4FABCC81489F818B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509310   (795015) от 12.11.2021
-
-VA - Deep House Relief, Vol. 3: Best of Chill & Deep Atmospheric House Music (2020) [AAC|~327 Kbps] <Chill House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Kardek, Iris Onica - Terra (Alveol Dub Remix) (7:40)
-02. Magmatunes - Sunset Lovers (Original MIx) (5:22)
-03. Nova Casa - Ocean Drive (Original Mix) (6:24)
-04. Moe Turk - Dreamer (Original Mix) (5:54)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0455BCD93A79C2D97812E4306CB96F548DB30B78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509309   (795016) от 12.11.2021
-
-VA - Deep House Relief, Vol. 2: Best of Chill & Deep Atmospheric House Music (2019) [AAC|~296 Kbps] <Chill House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Afterglow (Original Mix) (4:30)
-02. Zinner & Orffee - Passengers (Abendrot Remix) (5:14)
-03. Gary B - No Secrets (Original Mix) (5:36)
-04. Marga Sol - Crystal Light (Original Mix) (5:48)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F5E3F4E74F9466A93A4595774242F4195F2A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509512   (795017) от 12.11.2021
-
-Sandstone - Epsilon Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know Why (03:59)
-02. Cuts to You (04:23)
-03. Worn Soul (05:52)
-04. Fractured Time (05:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F65AE6C2D24A5C4AF6575DE94375ABFAEDFE62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200997   (795018) от 22.01.2018
-
-Brien Hindman - Cognitive Buffer Hypothesis (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795018.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Holocene (07:51)
- 02. Trophic Cascade (04:28)
- 03. Shinrin Yoku (04:07)
- 04. The Veil (07:58)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:56:12
+01. Manu Riga – Disconnected 07:17
+02. Killerpunkers – You Be My Life (Feat. Miah) 06:05
+03. Kush (MU) – Trigger 07:14
+04. Andy Leavy – Welcome the Darkness 09:22(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:56:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8D0CD87B5D3BCD6A0122F73EB35590C7969AB3
+magnet:?xt=urn:btih:B630C1740278CD5736303FB4E078ED54F8824B92
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200766   (795019) от 22.01.2018
+###  Публикация: 1123493   (785979) от 10.04.2017
 
-IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dark Ambient>
+VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795019.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Random Walker (10:50)
- 02. Pulses (09:22)Тип издания: WEBЖанр: Techno/MinimalПродолжительность: 00:20:12
+01.  Low Steppa feat. Geneva White - Can't Lie  3:12
+02.  Paige feat. Pipo Fernandez - Push It Back  2:38
+03.  TAI - Found Out  2:52
+04.  Felon - Coming Up (Main Mix)  3:43(   Читать дальше...   )Жанр: HouseПродолжительность: 00:29:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1595A8CA37D9E28916613C880AED9B8389D5E92E
+magnet:?xt=urn:btih:936D0A383DAB3EF9D423748641812C6B5E35E8D0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200757   (795020) от 22.01.2018
+###  Публикация: 1124154   (785980) от 10.04.2017
 
-Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. 8-й Выпуск (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 21.01.2018
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39299EFBE5C9258185331BF165A6529F6ECE7757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200787   (795021) от 22.01.2018
-
-VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
+VA - The Sin of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Trance
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795021.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emre Yildiz - Escape (Original Mix)
-02. Nanven - Aren (Original Mix)
-03. ER7E - Revelation (Original Mix)
-04. Dave - Flying (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:24
+01. Sweetadelic – Aguas Claras
+02. Rey Salinero – Recuerdos
+03. Jay Jay & The Snakes – Walking In The Sunshine
+04. Diario – Transhumance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EADBE20161591E43AF29400C6899757D5236050
+magnet:?xt=urn:btih:6D42975432044E979A190E01AFCE2F0718090059
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200791   (795022) от 22.01.2018
+###  Публикация: 1123890   (785981) от 10.04.2017
 
-Cody Moffett - Evidence (1993) Telarc Jazz [WavPack|Lossless|image + .cue] <Post-Bop>
+VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795022.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Melodic Drum March I [01:37]
-02. Blues Connotation [04:54]
-03. Evidence [05:21]
-04. Equinox [08:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:47
+01.  Zean Ma - Sunset And You  3:51
+02.  Chill Out Waves - With You  3:57
+03.  Tomas Flari - Ocean Transit (Sunset Lounge Edit)  4:57
+04.  Adam Story - Moments In Love  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B138D9073D7A89F8B228EBABC76F76F2180A110C
+magnet:?xt=urn:btih:A99A57FBABB894C039F53F323E628AAAC182F065
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200752   (795023) от 22.01.2018
+###  Публикация: 1123520   (785982) от 10.04.2017
 
-Биатлон. Кубок Мира 2017-2018. 6-й Этап. Антхольц-Антерсельва (Италия). Женщины. Масс-старт (21.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marcel Martenez & Jommes Tatze - Make Me Feel  4:51
+02.  Amoon - Let The Music Play (Extended Mix)  4:57
+03.  Freaky Tricks - Tonight  3:36
+04.  Martin Nocun - Take It To The Top (Extended Mix)  3:56(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8EE65D6F6870C8E04E87CFD392299670C5C651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124249   (785983) от 10.04.2017
+
+VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maximo Gladius — Renaissance [00:06:32]
+02. Jago Alejandro Pascua — Epica [00:06:12]
+03. Mikhail Ovez — Lost Love [00:05:55]
+04. Mark Gaetani — Eighty [00:06:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDFCFA5646D73E39A8DEC691420974EC4703274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124245   (785984) от 10.04.2017
+
+VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maximo Gladius – Summer Love  05:57
+ 02. Durga Amata – Misunderstanding  05:27
+ 03. David James Bianchi – Aqueduct  05:22
+ 04. Cassius Mc Fawner – Bright Cave  04:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF1ED448FAA9B935C7E4711F03FCA8D32442D94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124314   (785985) от 10.04.2017
+
+VA - Bliss Records - Bliss Music Vol.10 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795023.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 января 2018 года, воскресенье. 14:30 МСК
-6-й этап Кубка Мира по биатлону 2017-2018. Антхольц-Антерсельва (Италия)
-Женщины. Масс-старт 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:36
+01. Alexander Dyomin - Flashback (Original Mix) 07:14
+02. Proluction - Synthetic Moon (Original Mix) 05:10
+03. Ilya Fly - Night Route (Original Mix) 07:24
+04. Muxxo - Flier Planet (Original Mix) 09:10(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEE80B1EE871404BAA65D83EE37ACAB0094B1CDA
+magnet:?xt=urn:btih:3FFEA014152845967061269E50732E54EBBCFF86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200794   (795024) от 22.01.2018
+###  Публикация: 1123732   (785986) от 10.04.2017
 
-Frankie   Newton - 1937 - 1939 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795024.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Showed Me The Way [02:47]
-02. Please Don't Talk About Me When I'm Gone [02:37]
-03. Who's Sorry Now? [02:48]
-04. I Found A New Baby [02:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:48
+01.  Jetty Racher & James Bell - Ready For The Bass (Radio Edit)  2:39
+02.  Mark Edward Hilder - Fall In Love Again (Radio Edit)  3:35
+03.  Copamore - Where's Your Love (Radio Edit)  3:42
+04.  The STW Project - Us (Radio Edit)  3:50(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:16:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED8F56B541B2F15C9954B6909E200B25F305C1E
+magnet:?xt=urn:btih:43F2D094BAD380B6B5FB8C8B9F85C4E777152D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123095   (785987) от 09.04.2017
+
+Защитники (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия, Enjoy MoviesЖанр: Боевик, Приключения, Фантастика, ФэнтезиРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C793B53C770450887FEFFF8D9186039A70C122E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123826   (785988) от 09.04.2017
+
+Конг: Остров черепа / Kong: Skull Island (2017) WEBRip [H.264/1080p-LQ] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_785988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма переносит зрителя в 70-е года прошлого века. Главный герой организует экспедицию к Острову Черепа, вечно покрытого туманом, на котором когда-то был пойман Кинг-Конг, чтобы найти пропавшего брата и некую таинственную субстанцию. Во время нелегких поисков путешественникам предстоит столкнуться с кошмарным миром монстров жуткого острова.Производство: США, Вьетнам, Legendary Pictures, Warner Bros. PicturesЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Джордан Вот-РобертсАктеры: Том Хиддлстон, Бри Ларсон, Сэмюэл Л. Джексон, Кори Хоукинс, Тоби Кеббелл, Ши Уигхэм, Джейсон Митчелл, Джон Гудман, Джон Си Райли, Томас МаннПеревод: Профессиональный, многоголосый закадровый (Синема УС)Субтитры: Корейские (вшитие неотключаемые)Продолжительность: 01:59:05Реклама: Присутствуют голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093542   (785989) от 09.04.2017
+
+Колония / Colony (2017) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) LostFilm
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785989.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем семья пытается спасти жителей оккупированного Лос-Анджелеса. Бывший агент ФБР Уилл Боумэн и его супруга Кейти пробуют вернуть сына. Уилл готов работать на новое правительство, тогда как многие в городе поддерживают повстанцев. Лидер режима Прокси Снайдер предлагает Уиллу сделку, которая изменит их жизнь и заставит семью пойти на большой риск.Производство: США / Legendary TelevisionЖанр: фантастикаРежиссер: Хуан Хосе КампанеллаАктеры: Джош Холлоуэй, Сара Уэйн Кэллис, Питер Джекобсон, Аманда Ригетти, Алекс Нюстадтер, Изабелла Крамп, Гонсало Менендес, Элли Уокер, Либэ Барер, Д.Дж. Бликенстафф и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1087D1DD6D7167DAE260C9BF889DCDE0E03CADAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123637   (785990) от 09.04.2017
+
+Kaspersky Endpoint Security 10.3.0.6294 SP2 RePack by alex zed (04.04.2017) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Endpoint Security 10 для Windows (для рабочих станций) - современная многоуровневая защита компьютеров и ноутбуков под управлением Windows в локальной сети организации. Комплексная защита от всех видов угроз обеспечивается многоуровневой системой, включающей контроль запуска и активности программ, контроль внешних устройств, веб-контроль доступа к ресурсам (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EEB80CB24080312D28BD70AC6F62029D11AF89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124108   (785991) от 09.04.2017
+
+Navitel / Навител Навигатор v9.8.3 Full для карт релиза Q1-2017 [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 09.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68119D983506B962139965A98BE82706F71A5371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115163   (785992) от 09.04.2017
+
+Styx: Shards of Darkness (2017) [Ru/Multi] (1.04/dlc) Repack R.G. Механики
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx: Shards of Darkness предлагает заняться любимым для уникального гоблина делом – воровством, но даже такая забавная мелочь как похищение волшебного скипетра превращается в запутанную историю с глобальным заговором, темными эльфами, жестокими гномами и геноцидом целой расы магических существ.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B471DDF63B22257770C5E1B12DE07DDB5B9AFC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123434   (785993) от 09.04.2017
+
+Последствия / Aftermath (2017) WEB-DLRip [H.264/1080p-LQ] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_785993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ожидающий прилета своей семьи Роман узнает, что случилось непоправимое. Произошла авиакатастрофа и его любимые — жена и беременная дочь — погибли.
+Потеряв тех, ради кого жил, он преследует единственную цель: посмотреть в глаза невольного убийцы и услышать слова сожаления. Более года поиска приводит Романа к авиадиспетчеру Джейку, управлявшему курсом самолета в момент (   Читать дальше...   )Производство: США, Emmett/Furla Films, Hat and Cat ProductionsЖанр: Триллер, ДрамаРежиссер: Эллиотт ЛестерАктеры: Арнольд Шварценеггер, Мэгги Грэйс, Кевин Зегерс, Скут МакНэри, Ханна Уэр, Мариана Клавено, Гленн Моршауэр, Ларри Салливан, Мартин Донован, МоПеревод: Многоголосый закадровый (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:34:28Реклама: Присутствуют голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124145   (785995) от 09.04.2017
+
+FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785995.jpg" />
+</div>
+
+
+###  Подробнее
+
+FlatOut 4: Total Insanity - это очередная часть знаменитой гоночной аркадной серии, в которой игрокам позволено фактически все - в том числе и "стрелять" водителем автомобиля из лобового стекла, чтобы установить рекорд дальности полета. Подзаголовок Total Insanity немного неточен - полного безумия здесь нет. По крайней мере, в режиме карьеры, состоящем (   Читать дальше...   )Тип издания: RepackРазработчик: Kylotonn Entertainment, Tiny Rebel GamesЖанр: Racing, Arcade, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E951F77DFAA535B47D01D2690B5F74396E8CE26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093303   (785996) от 09.04.2017
+
+Колония / Colony (2017) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-13 из 13) OmskBird [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в недалёком будущем в Лос-Анджелесе, оккупированном злобными пришельцами. Пока захватчики не стремятся к полному уничтожению землян, но устанавливают над нами тотальный контроль. В изменившемся мире человеческая раса делится на два лагеря. Одни подчиняются и приспосабливаются жить под гнётом новой власти. Другие уходят в партизаны, чтобы (   Читать дальше...   )Производство: СШАЖанр: фантастикаРежиссер: Хуан Хосе КампанеллаАктеры: Джош Холлоуэй, Сара Уэйн Кэллис, Аэдин Минкс, Чарльз Бэйкер, Тристен Бэнкстон, Том Бейер, Хилти Бауэн, Джонни Канниццаро, Джастин Чу-Кэри, Ной Крафт, Изабелла Крамп, Купер Дж. Фридман и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:43:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE094F0B3FBE00C1753FC98E574517F21239F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123878   (785997) от 09.04.2017
+
+Star Wars: Battlefront 2 / Star Wars: Battlefront II (2005) [Multi] (1.1) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefront II принципиально похож на своего предшественника, хотя и с добавлением новой игровой механики. Общей целью, как и ранее, для большинства миссий является ликвидация вражеской фракции, однако, в режиме кампании добавлены разнообразные боевые задачи, выполнение которых является ключом к победе. Различия между Battlefront II и Battlefront в основном касаются (   Читать дальше...   )Тип издания: LicenseРазработчик: Pandemic StudiosЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9230EF7E13825283ECB9A9C4D68174CB495F1817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093297   (785998) от 09.04.2017
+
+Колония / Colony (2017) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) OmskBird [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в недалёком будущем в Лос-Анджелесе, оккупированном злобными пришельцами. Пока захватчики не стремятся к полному уничтожению землян, но устанавливают над нами тотальный контроль. В изменившемся мире человеческая раса делится на два лагеря. Одни подчиняются и приспосабливаются жить под гнётом новой власти. Другие уходят в партизаны, чтобы (   Читать дальше...   )Производство: СШАЖанр: фантастикаРежиссер: Хуан Хосе КампанеллаАктеры: Джош Холлоуэй, Сара Уэйн Кэллис, Аэдин Минкс, Чарльз Бэйкер, Тристен Бэнкстон, Том Бейер, Хилти Бауэн, Джонни Канниццаро, Джастин Чу-Кэри, Ной Крафт, Изабелла Крамп, Купер Дж. Фридман и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:43:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131B15CB56EFCDCD1BE91274A9A4E2D2361E4D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123997   (785999) от 09.04.2017
+
+Adobe Illustrator CC2017.1 (21.1) [Multi/Ru]
+
+>>След.
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Illustrator CC – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях – цифровой графики, иллюстраций и печати – при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений.
+
+Представляем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 апреля 2017Разработчик: AdobeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3BE8010E80882B1A92CFC59487D72883CCC7FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 427283   (786000) от 09.04.2017
+
+С Новым Годом! сборник мультфильмов (1950-1978) DVDRip (Когда зажигаются елки, Дед мороз и лето, Снегурка, Снеговик почтовик, Снежные дорожки, Дед мороз и серый волк)
+
+>>След.
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательные Отечественные новогодние мультфильмы собраны в сборнике:
+1. Когда зажигаются елки
+2. Дед мороз и лето
+3. Снегурка(   Читать дальше...   )Жанр: Детский, Рисованная анимацияРежиссер: Караваев Валентин, Витольд БордзиловскийПерсонажи: Борис Владимиров, Мария Виноградова, Георгий Вицин, А. Соловьев, Анатолий Папанов, Ольга Громова, Маргарита КорабельниковаПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6CFEDF82FC6D80DF61F42786CABE35B7C0A34D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123944   (786001) от 09.04.2017
+
+Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786001.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoStudio Ultimate X10 создана для обработки видео и позиционируется в качестве простого решения для пользователей. Среди нововведений последней версии можно выделить поддержку Blu-ray Disc Movie Video (BDMV). Пользователи могут импортировать файлы BDMV непосредственно с Blu-ray-видеокамер, работать с HD-видео, добавлять анимированные меню и записывать проекты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A723DEED01B45A5310AFA737F2981546BB0B8FA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123166   (786002) от 09.04.2017
+
+Сплит / Split (2016) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кевин — человек, в котором живет не менее двадцати трех личностей, вынужден похитить трех девушек подросткового возраста. Тем временем, пока они находятся в заточении, самая главная личность Кевина — Чудовище — материализуется.Производство: США, Blinding Edge Pictures, Blumhouse ProductionsЖанр: Ужасы, ТриллерРежиссер: М. Найт ШьямаланАктеры: Джеймс МакЭвой, Себастьян Арселус, Ameerah Briggs, Бетти Бакли, Иззи Коффи, Накия Диллард, Дэнн Финк, Jerome Gallman, Кэш Гойнс, Брэд Уильям ХенкеПеревод: Многоголосый закадровый, профессиональный ( Студия "Paradox" & Omskbird records )Субтитры: АнглийскиеПродолжительность: 01:57:37Реклама: Без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236A1393ABB27A9EDC4EB13FDC4AFCC5A4D6F843
 ```
 
 

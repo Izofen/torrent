@@ -1,3 +1,219 @@
+###  Публикация: 1224781   (663765) от 12.05.2018
+
+Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 Kbps] <Hard Rock, Krautrock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663765.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. She's All Right
+2. Old Man
+3. Rock My Soul
+4. Anna Sheffield(   Читать дальше...   )Жанр: Hard Rock, Krautrock, Prog-RockПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24FA2ABEB9D252F80B0F884BD28623BE7A5EF99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224929   (664001) от 12.05.2018
+
+Estate - Mirrorland (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краснодарские металлисты Estate выпустили свой новый студийный альбом. Вторая полноформатная пластинка получила название "Mirrorland" и появилась 20 апреля 2018 года. В записи диска приняли участие Матс Левен (Therion) и Марк Боалс (Yngwie Malmsteen).1. Mirrorland 04:27
+2. The Ghoul 05:08
+3. Stolen Heart 04:35
+4. Winter Kingdom 04:13(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDC04A211BE2210A9D54FDC1AF00912C4C2F028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224922   (664006) от 12.05.2018
+
+Peace Days - Право на мир (2018) [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брянская панк-рок группа Peace Days выпустила свой новый альбом. Студийная пластинка получила название01. Учитель для бедных (3:09)
+ 02. Человек горы (3:17)
+ 03. Добро творится в тайне (3:30)
+ 04. Рэйчел (3:19)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EACC98AC4C15EF7D317F19DAD0694192F12B493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138538   (664055) от 29.05.2017
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) 50th Anniversary, Super Deluxe Edition, Box Set, 2017 [FLAC|Lossless|tracks + .cue] <Classical Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не знаю как у Вас, а у меня с этого альбома началось в 1969 году знакомство с Beatles. Собственно, я и сейчас его считаю лучшим альбомом группы. И вот к 50-летию издания Capitol Records выпустил поистине уникальный подарок для любителей классики. В 6-дисковом Super Deluxe Edition (в данной раздаче нет DVD- и Blu-ray дисков) заново пересведены и ремастированы с оригинальных (   Читать дальше...   )CD1 - New Stereo Mix
+CD2 - Sgt. Pepper Sessions
+CD3 - Sgt. Pepper Sessions
+CD4 - Mono Album and Bonus TracksРелиз состоялся: 26 мая 2017 годаЖанр: Classical RockПродолжительность: 03:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9754CF07BF90138AF71A5568AE9183282F75AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224844   (664088) от 12.05.2018
+
+Jan & Dean - Greatest hits (1992) 1993 Compilation [FLAC|Lossless|image + .cue] <surf rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Surfin' USA
+2.	Fun, Fun, Fun
+3.	Little Old Lady From Pasadena
+4.	Barbara Ann(   Читать дальше...   )Жанр: surf rockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA70CB252AFA3BD36BBF9B7C636EFE0FCDCB2AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138394   (664112) от 29.05.2017
+
+The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .cue] <Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/14. Roxanne (3:13)
+ 02/14. Can't Stand Losing You (3:01)
+ 03/14. Message In A Bottle (4:51)
+ 04/14. Walking On The Moon (5:02)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A57F30FC1BCC829877AF7B5B5D698D167A6DF61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138180   (664148) от 29.05.2017
+
+Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Silfur-Refur
+2. Isafold
+3. Hula
+4. Naros(   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE075BA98EBD9199A5B40D75EF256FA5F207310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138448   (664193) от 29.05.2017
+
+Barrows - Obsidion (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Post -Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telekin (1:43)
+02. Entrada (7:01)
+03. Obsidion (10:29)
+04. Cocoon (19:46)(   Читать дальше...   )Жанр: Progressive Rock, Post -Rock, InstrumentalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7991C6805D1D6E1A863AD5719C0F896C303431
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137880   (664200) от 29.05.2017
 
 Dream Evil - Six (2017) [MP3|320 Kbps] <Heavy Metal>
@@ -457,244 +673,33 @@ magnet:?xt=urn:btih:FFA2F23B835613D9072FC249F572853B423E1DE6
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137867   (664560) от 29.05.2017
+###  Публикация: 511957   (664530) от 18.06.2012
 
-Resurgency - No Worlds... nor Gods Beyond (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
+Ozric Tentacles - 28 albums (1984-2011) [FLAC/APE/WavPack|Lossless] <Progressive / Rsychedelic / Space Rock, Instrumental>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664560.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_664530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thresholds of Infinite Pain 03:56
-02. Progenitors of Suffering 03:16
-03. No Worlds nor Gods Beyond 04:22
-04. Upset Sun in Shades Deforms 03:14(   Читать дальше...   )Жанр: Ols School Death MetalПродолжительность: 00:34:50
+01. Attack of the Vapours (05:22)
+02. Lemon Kush (06:15)
+03. Flying Machines (06:26)
+04. Knurl (06:08)
+05. Lost in the Sky (07:20)
+06. Paper Monkeys (07:17)
+07. Plowm (07:52)
+08. Will of the Wisps (10:42)
+09. Air City (03:53)1984-2011Жанр: Progressive / Rsychedelic / Space Rock, InstrumentalПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D3A9EF8BDBDCC6D41E0698F106AF31443A9E992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137872   (664565) от 29.05.2017
-
-Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Sacrament 05:23
-02. Carcosa 03:44
-03. The Pact: To the Devil His Due 07:21
-04. Upon This Intimate Madness 04:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D821A1E24EC674C7BEEF600C7C292E73B997FF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224733   (664866) от 11.05.2018
-
-Капитанский Ром - Роза ветров (2018) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Роза ветров
-2. Таверна
-3. Палач
-4. Лишь в своих сновидениях(   Читать дальше...   )Жанр: Horror Punk, Folk PunkПродолжительность: 00:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820F923A931E67CC4738F2ABC5A6217DDEA9412E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537832   (665333) от 18.03.2022
-
-Hell Militia - Hollow Void (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifeless Light (4:21)
-02. Genesis Undone (4:22)
-03. Dust of Time (5:45)
-04. Within the Maze (4:09)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987AC3A4741319F53750B9652A56192A15B4CE78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900925   (665355) от 24.05.2015
-
-Декабрь - Жара Декабря (2015) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это 7-ой студий альбом группы и первый альбом, написанный в обновлённом составе. Основной задачей при сочинении новых песен «декабристы» считали сбить то хмурое и депрессивное состояние в которое погрузилась группа. Не менять стиль, но изменить настроение. И по словам самих музыкантов, им это удалось!01. Мост
-02. В Зените
-03. Всё нормально, ребят
-04. Матершина(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D139DFCB1ACF8317EA8297FFDD201BC3E28FEF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537942   (665392) от 18.03.2022
-
-Читмил - Новые тату (2022) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665392.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ТОМБОЙ
-2. ОВЕРСАЙЗ
-3. РОКСТАР
-4. D.I.Y. (feat. Смех)(   Читать дальше...   )Жанр: RockПродолжительность: 00:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E087FDE5CD77BCF13B5AE9C08096A9FCEBBCCE02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537651   (665393) от 18.03.2022
-
-Skillet - Dominion (2022) [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surviving The Game
-02. Standing In The Storm
-03. Dominion
-04. Valley Of Death(   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, Christian RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA4CCF9B6E0882624B3D69B2A70E8867E59D766
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537939   (665443) от 18.03.2022
-
-Neverlove - Токсичный альбом (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665443.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Уходи
-2. Порноактриса
-3. Плачь
-4. Депрессия(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2064B3CB46F6DA7EC83AE2297384D6411D0F0FC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537444   (665446) от 18.03.2022
-
-Ghost Iris - 6 Albums (2015-2022) [FLAC 2.0|44.1/16|WEB-DL|tracks] <Metalcore, Progressive Metal, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665446.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (3815935) (Instrumental)
-2. desert dread (Instrumental)
-3. paper tiger (Instrumental)
-4. cult (Instrumental)(   Читать дальше...   )Жанр: Metalcore, Progressive Metal, DjentПродолжительность: 6CD, 03:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04518D633F49B765C9FF3BCDEBDF115F0B823AC
+нет
 ```
 
 

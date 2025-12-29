@@ -1,3 +1,57 @@
+###  Публикация: 1198631   (806191) от 12.01.2018
+
+Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Be The Same (03:46)
+02. All These Years (02:44)
+03. She Loves Control (02:57)
+04. Havana (Feat. Young Thug) (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19F0B88897691657E7D67D3939C5DBF9F047FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505167   (806319) от 26.10.2021
+
+Duran Duran - Future Past (2021) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806319.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Когда мы впервые пришли в студию в конце 2018 года, я пытался убедить ребят, что все, что нам нужно сделать, это написать два или три трека для EP", - сказал вокалист Duran Duran Simon Le Bon. "Четыре дня спустя, когда у меня было ядро ​​из более чем 25 сильных песен, которые все заслуживали внимания, я понял, что мы засядем в студии надолго, (   Читать дальше...   )01. Invisible (3:11)
+02. All Of You (4:05)
+03. Give It All Up feat. Tove Lo (5:07)
+04. Anniversary (5:18)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4392C167608D727413C6B19033CFD011352A73C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383781   (808142) от 17.05.2020
 
 Светлана Лобода - Чёрный ангел (2006) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -642,60 +696,6 @@ Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503564   (819487) от 19.10.2021
-
-Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:11)
-02. Miss a Thing (3:57)
-03. Real Groove (3:15)
-04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BAEA3A1F28F4B5F5817E86CA29DC5849B44B89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503572   (819495) от 19.10.2021
-
-VA - Gentle and Calm Instrumental Covers: 14 Beautifully Relaxing Instrumental Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yann Nyman - I Will Survive (Arr. for Piano) (03:06)
-02. Jonah Paris - Both Sides, Now (Arr. for Saxophone and Piano) (04:19)
-03. Max Arnald - Suburbia (Arr. for Piano) (03:55)
-04. Chris Mercer - Rocket Man (Arr. for Guitar) (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EC818846CF1F3B96C8062EDAB1FA5EF8DCE8F5
 ```
 
 

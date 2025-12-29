@@ -1,688 +1,661 @@
-###  Публикация: 1202257   (790506) от 28.01.2018
+###  Публикация: 1207028   (781325) от 16.02.2018
 
-Инкарнация / Incarnate (2016) HDRip [H.264] [MP4|1280x534]
+White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790506.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доктор Эмбер — не экзорцист. У него свои методы изгонять зло, поселившееся в людях. Но, проникнув в сознание 11-летнего мальчика, доктор понял, что это именно тот могущественный демон, с которым он ищет встречи уже многие годы.Производство: СШАЖанр: Триллер, УжасыРежиссер: Брэд ПейтонАктеры: Аарон Экхарт, Кэрис ван Хаутен, Каталина Сандино Морено, Дэвид Мазоуз, Кейр О’Доннелл, Мэтью Нэйбл, Эмили Джексон, Пол Винсент О’Коннор, Наталия Ногулич, Джон Пирруччелло, Петра Шпрехер, Бриэнн ХиллПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:26:10
+1. Hansa (Cygnus)
+2. Patent Leather
+3. Slave
+4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D3A72808491A68BBC5B2BC51AF919D239B0752
+magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202333   (790507) от 28.01.2018
+###  Публикация: 1206936   (781326) от 16.02.2018
 
-Beth Hart / Бет Харт - Live At Paradiso (2005) Universal, 987 146-5, Europe [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delicious Surprise (live at Paradiso) 4:15
-02. Guilty (live at Paradiso) 4:52
-03. Leave The Light On (live at Paradiso) 4:43
-04. Lifts You Up (live at Paradiso) 3:59(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B420FCEDEFCFD6F47BCA819D28E85F2E97462B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202180   (790508) от 28.01.2018
-
-Векторный клипарт - Different Snakes Set [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Различные змеи
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1090855C6B44A07B5077B6CFEA2010FD3EA5BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275488   (790509) от 11.01.2019
-
-Delvon Lamarr Organ Trio - Close But No Cigar (2018) [FLAC|Lossless|tracks + .cue] <Funk Groove, Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concussion
-02. Little Booker T
-03. Ain't It Funky Now
-04. Close but No Cigar(   Читать дальше...   )Жанр: Funk Groove, Jazz, SoulПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09163C9ECE924E9CAAD3E722425CB9930558F0F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275227   (790510) от 11.01.2019
-
-Питер Грю | Письма на чердак (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чердак – это место забытых вещей и пыльных историй.
-
-Когда тебе грустно, напиши письмо на чердак, и призраки обязательно его прочитают. По дороге, усыпанной лунной пылью, они уведут тебя в Тёмный Уголок – мир-убежище, где ты забудешь о печали, где замки появляются из ниоткуда и где каждый может стать волшебником.
-(   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB67F50278934BD4E827F7DE91641EBAAF27EE41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275314   (790511) от 11.01.2019
-
-Dead Combo - Odeon Hotel (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Blues, Folk,>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deus Me Dê Grana (03:41)
-02. Mr. & Mrs. Eleven (For AJ) (03:21)
-03. In A Mellotron (04:27)
-04. I Know, I Alone (05:01)(   Читать дальше...   )Жанр: Jazz, Blues, Folk,Продолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FC7942BF2F166C7D0016FBEC0F7986660D4DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275380   (790512) от 11.01.2019
-
-VA - Contact The Spirit (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790512.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Agent K - General Zod's
-002. Dreamvibes! - Breakdown (Original Mix)
-003. Ace Ventura - The World That You Know
-004. Argon Sphere - Traveller(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:24:12
+001. Estiva & Justin Oh - Reach For The Sky
+002. Marc Van Gale - Mumbai Taxi (Original Mix)
+003. Emanuele Braveri - Destination Summer (Original Mix)
+004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53F4EA464FCC90F489F9F8D2E168C45B4A456E19
+magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275485   (790513) от 11.01.2019
+###  Публикация: 1207062   (781327) от 16.02.2018
 
-Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Женщины. Трамплин HS-109. Финал (12.02.2018) IPTV [H.264/1080p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790513.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kissing You
-02. Xuxu Bird
-03. I Want To Be Romanced
-04. A Wish(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:54
+12 февраля 2018 года, понедельник. 15:50 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина. Женщины.
+Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F3FB13C17A860C4AB896C501918B4C60D0A900B
+magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275358   (790514) от 11.01.2019
+###  Публикация: 1206910   (781328) от 16.02.2018
 
-Renamer 5.2.6 [En]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 2-я Квалификация (12.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781328.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 13:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Мужчины.
+Могул. 2-я Квалификация(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206964   (781329) от 16.02.2018
+
+Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
+02. Neobedouin 3:41
+03. The Wrath Of Fate 3:05
+04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206889   (781330) от 16.02.2018
+
+VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
+2. Kajis feat. Ylona - Way Back Home (Taival Remix)
+3. RAMiNiO - Confession (Extended Mix)
+4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206972   (781331) от 16.02.2018
+
+Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
+02. Scupper Shanty 2:56
+03. The Story That Never Starts 4:08
+04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206955   (781332) от 16.02.2018
+
+KCNcrew Pack 15.02.2018 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790514.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Renamer – инструмент, который позволяет легко переименовывать огромное количество файлов. Операции проводятся согласно определенному шаблону. Режим превью позволяет во время установки параметров сразу видеть результат будущей замены.
+KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
 
-Переименовывать тысячи файлов мгновенно! Переименование фотографий с цифровых камер Добавить / удалить символы из имен файлов. Преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2019Разработчик: Incredible Bee Ltd.Поддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
+База серийных номеров проекта KCNcrew по состоянию на середину февраля 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15D04F63491CE3465E0C7781AB4B7F6E35B755C7
+magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275294   (790515) от 11.01.2019
+###  Публикация: 1206920   (781333) от 16.02.2018
 
-Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
+LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790515.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dream In (04:40)
-02. Abop (04:33)
-03. Sleepwalking (03:45)
-04. Crow (03:46)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 00:42:28
+01. Change (05:57)
+02. Tape Loops (05:28)
+03. Enchantment (03:25)
+04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
+magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275329   (790516) от 11.01.2019
+###  Публикация: 1206562   (781334) от 16.02.2018
 
-Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790516.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yes I Am
-02. I’m Alive
-03. Silver Linings
-04. You Rock(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:34
+01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
+02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
+03.Adeva - Respect (Extended Mix) (7:32)
+04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39667AE96632CF0D53F648DD420028C511F77BE0
+magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275432   (790517) от 11.01.2019
+###  Публикация: 1206915   (781335) от 16.02.2018
 
-Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Song [12:48]
-02. For Heaven's Sake [10:45]
-03. Spring Is Here [10:21]
-04. Body And Soul [10:25](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DF311561938F67CA82CD302C338267F4FED94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275284   (790518) от 11.01.2019
-
-David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poses
-02. From One Family To Another
-03. 7000 Miles
-04. America(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE12ACC6E5A39A378338B109933EEB58EF46CEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275330   (790519) от 11.01.2019
-
-Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Under the Sun
-02. Falling Down
-03. Wasted Trust
-04. Into the Arena(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275222   (790520) от 11.01.2019
-
-VA - EDM RG: End Of The Year Mix (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel and David Gravell - Trance Reborn (FYH100 Anthem) (Mark Sixma Extended Remix) 04:20
-02. Darude, Ashley Wallbridge feat. Foux - Surrender (Extended Mix) 05:29
-03. Kyau & Albert feat. Ronski Speed - Zoom (Original Mix) 05:21
-04. Marcus Santoro - Polaroid (Extended Mix) 05:40(   Читать дальше...   )Жанр: TranceПродолжительность: 07:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F919661226E78BE2C8C8D134D26BFC09DB1E6174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275280   (790521) от 11.01.2019
-
-Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Down
-02. Head Honcho
-03. Yes, And?
-04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275479   (790522) от 11.01.2019
-
-David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From the World
-02. Tokyo
-03. Lost Among Ghosts
-04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275349   (790523) от 11.01.2019
-
-Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Song Of Plague
-02 - Inglorious Fever Of Antonius
-03 - Mahapaatra
-04 - Brethren Of The Weeping Corpses(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAC34B5A233F411B4396EDA5D12C3F08EAA7EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275452   (790524) от 11.01.2019
-
-Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [2:49]
-02. I Lost My Gal From Memphis [2:27]
-03. On Revival Day [2:34]
-04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202221   (790525) от 28.01.2018
-
-Mozilla Thunderbird 52.6.0 Portable by PortableApps [Ru]
+Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790525.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
+01. Kenopsia (04:20)
+02. Shelter (05:09)
+03. The Tipping Point (04:41)
+04. Forgotten (02:51)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3B57E737369C41DAD9B7388C67CC471EC46E441
+magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202304   (790526) от 28.01.2018
+###  Публикация: 1206956   (781336) от 16.02.2018
 
-Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143 Records, 83192-2, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just a Little Hole 5:16
-02. Delicious Surprise 3:48
-03. L.A. Song 3:56
-04. Is That Too Much To Ask 3:33(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D88D622DE28AF934017944298BB8D8B90D98397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202163   (790527) от 28.01.2018
-
-Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. IRM (2:41)
-02/11. Set Yourself On Fire (3:53)
-03/11. Jamais (4:02)
-04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202342   (790528) от 28.01.2018
-
-VA - Private Lounge Vol.4 (2018) [MP3|320 Kbps] <Lounge,Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
-02. Mykel Mars - L.A. Nights (Eddy Chrome Hollywood Remix Edit)
-03. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
-04. Secret Ibiza - Eye Contact (Edit)(   Читать дальше...   )Жанр: Lounge,Deep HouseПродолжительность: 04:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64D9D8635EE8DDF3087381DBE50BA678EC9CECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202181   (790529) от 28.01.2018
-
-Векторный клипарт - Donuts Set 4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Набор пончиков
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFBEC60C7159CA0B47D136B259E1979B2B4BE1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202114   (790530) от 28.01.2018
-
-Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <Goth Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790530.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One More For The Road (3:18)
-02. Master Of The Moon (4:19)
-03. The End Of The World (4:39)
-04. Shivers (4:16)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:50:09
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Wake (2005 Mix) 5:33
+02. New Black Day 4:50
+03. The Change Cage (2005 Mix) 4:00
+04. White Wedding 3:48(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:41:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E199CBD0B88AF63D00AC60D01021801F41BB96C
+magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202423   (790531) от 28.01.2018
+###  Публикация: 1206892   (781337) от 16.02.2018
 
-Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганвольт [2017, ONA, 1 ep.] BDrip 1080p raw
+VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790531.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В ближайшем будущем появились люди со спецспособностями, называемые Семёрки. Япония благополучно живёт под контролем корпорации Сумераги, которая втайне занимается поиском и отловом Семёрок, для проведения над ними различных экспериментов. Злобной корпорации противостоит небольшая группа, называющаяся Перья. К этой группе и примыкает главный герой овашки Ганвольт.Производство: студия LandQ Studios / ランドック・スタジオЖанр: приключенияРежиссер: Одака ЁсинориПеревод: extvolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+01. Sugarboys - Nah Nah Nah (Original Mix)
+02. Adam Walker - Pump It (Original Mix)
+03. Nicole Palmer - Little Divine (Original Mix)
+04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E300F67D7362295A65C24313E8A0B6D184AB841A
+magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214487   (781338) от 19.06.2020
+
+Tom Clancy's Rainbow Six: Siege (2015) [Ru/Multi] (14457777/dlc) UplayRip =nemos= [Ultimate Edition + HD Texture Pack]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tom Clancy's Rainbow Six: Siege - разрабатываемый шутер от первого лица. Игра фокусируется на командную игру и реализм. Тем не менее, существуют значительные различия со старыми версиями игры. Шутер фокусируется на многопользовательской игре и отличается разрушаемым окружением. Tom Clancy’s Rainbow Six® Осада – новая часть всемирно известной серии шутеров от первого (   Читать дальше...   )Тип издания: UplayRipРазработчик: Ubisoft MontralЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391109   (781339) от 19.06.2020
+
+Русалка на суше / Mermaid Down (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781339.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русалок замечали в этих водах на протяжении многих сотен лет. Они выглядывают посмотреть: любопытство побеждает разум. Может, они и правда существуют?» — такие разговоры ведут рыбаки на шхуне в Тихом океане и отправляются на охоту. И охота оказывается удачной… В их сети попадает русалка, и они решают отрубить ей хвост, перевезти и запереть в психушке. Хорошее место (   Читать дальше...   )Производство: США / Grellman Film, Heartpine Pictures, Mermaid DownЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Джеффри ГреллманАктеры: Александра Бокова, Меган Тереза Риппи, Филлип Андре Ботельо, Эрин Ри, Берт Калвер, Кэролайн Бэмфорд, Джессика Хонор Карлтон, Эшли Корделия, Мишель Галлахер, Мелисса ЛугоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (на надписи), английские (Full, SDH)Продолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425945B2E6A377BE7E2EEB4D81EF82F7BB33805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391286   (781340) от 19.06.2020
+
+Detroit: Become Human (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781340.jpg" />
+</div>
+
+
+###  Подробнее
+
+2038, Детройт. Технологии эволюционировали до такой степени, что андроиды стали встречаться не реже людей. Они разговаривают, двигаются и ведут себя, как человеческие существа, но они – всего лишь машины на службе у людей. Играйте тремя уникальными андроидами и воспринимайте мир, балансирующий на грани хаоса, – возможно, наше будущее, – их глазами. Каждое из ваших (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391173   (781341) от 19.06.2020
+
+Найти и уничтожить / Search and Destroy (2020) WEB-DL [H.264/1080p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер разведки Джон Каттер теряет в бою весь свой отряд, пытаясь освободить заложников из плена жестокого украинского торговца оружием Игоря Родина. После этого он решает покончить с войной и уходит из армии. Однако через три года ему предлагают частный контракт по ликвидации того самого оружейного барона, и у рейнджера появляется шанс отомстить…Производство: Болгария / Millennium MediaЖанр: БоевикРежиссер: Дэнни ЛернерАктеры: Дилан Брюс, Джулиан Костов, Сергей Бадюк, Тим Феллингэм, Лесли Грэнтхем, Атанас Сребрев, Башар Рахаль, Оуэн Дэвис, Велислав Павлов, Юлиан ВерговПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:32:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973947   (781342) от 19.06.2020
+
+Grand Theft Auto Liberty City Stories (2005) [PSP] [USA] 3.71 [Repack \ 1.2] [Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Либерти Сити, последний островок настоящей свободы, территория абсолютного беззакония. Город, где можно получить или потерять жизнь за доли секунды. Город с миллионом возможностей, для реализации которых не понадобится ничего, кроме собственной крови. Мы были в нём, увы, проездом. Увлекательный вояж закончился, за окном дома и улицы Лос Сантос, но разве мы не можем (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar LeedsЖанр: Action Adventure, Open-WorldЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922047   (781343) от 19.06.2020
+
+Grand Theft Auto Liberty City Stories (2005) [PSP] [USA] 3.71 [Repack \ 3.2] [Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Либерти Сити, последний островок настоящей свободы, территория абсолютного беззакония. Город, где можно получить или потерять жизнь за доли секунды. Город с миллионом возможностей, для реализации которых не понадобится ничего, кроме собственной крови. Мы были в нём, увы, проездом. Увлекательный вояж закончился, за окном дома и улицы Лос Сантос, но разве мы не можем (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar LeedsЖанр: Action Adventure, Open-WorldЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391247   (781344) от 19.06.2020
+
+Windows 10 Pro 2004 b19041.331 x64 ru by SanLex (edition 2020-06-19) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Windows_10_Pro_2004_Russian_x64. Отключены службы телеметрии, рекламные модули, не нужные службы Windows и всё что влияет на приватность (в пределах возможного и дозволенного). Добавлены накопительные обновления безопасности, улучшения и исправления. В остальном ничего лишнего не добавлялось, как только убавлялось/отключалось/изолировалось.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9389068D0DF0A16201307462EA54AE9BBAF942F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382879   (781345) от 19.06.2020
+
+Вне игры / The Way Back (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Каннингэм в школе был восходящей баскетбольной звездой, но в какой-то момент покончил со спортом. Из-за пристрастия к таблеткам и алкоголю он в одночасье лишился всего — славы, денег и семьи. Вскоре жизнь даёт Джеку второй шанс — он берётся тренировать баскетбольную команду своей родной школы, которую все считают откровенными неудачниками.Производство: США / Warner Bros., BRON Studios, Jennifer Todd PicturesЖанр: Драма, спортРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Аль Адригал, Янина Гаванкар, Микейла Уоткинс, Брэндон Уилсон, Уилл Ропп, Fernando Luis Vega, Charles Lott Jr., Мелвин Грегг, Ben IrvingПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские forced, full х2 iTunes, Focs (ненормативная лексика), английскиеПродолжительность: 01:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31708E3436D89B54E413DC3C139221043ED6809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391311   (781346) от 19.06.2020
+
+В тылу врага (Вражеские линии) / Enemy Lines (2020) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781346.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год, оккупированная Польша. Подразделение спецназа Американо-Британских союзников отправляется во вражеский тыл, чтобы «вытащить» польского ученого-«ракетчика» доктора Фабиана, работающего в немецкой лаборатории.
+В основу фильма положена реальная история, которая происходила в 1943 году в оккупированной Польше.Производство: Великобритания / Happy Hour Films, Principal Film Finance, Gaia MediaЖанр: Военный, историяРежиссер: Андерс БанкеАктеры: Эд Вествик, Джон Ханна, Том Уисдом, Кори Джонсон, Скотт Хейнинг, Павел Делонг, Гари Грант, Владимир Епифанцев, Жан-Марк Биркхольц, Даниэль ДжиллингсПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDC1B91E2FFF6D97BEB4643EB10B4017E2B6EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382848   (781347) от 19.06.2020
+
+Реальные пацаны (2020) WEB-DLRip (сезон 13, серии 1-20 из 20 + Фильм о сериале)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781347.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом сезоне Коляну выпадет шанс стать по-настоящему богатым, но для этого ему придется попотеть в прямом смысле слова. Предыдущий сезон заканчивается тем, что яхта Обориных попадает в шторм, спасатели находят лишь обломки. На самом деле они выплыли на тропический остров и выжили, но на Большой земле были объявлены погибшими. По завещанию оказывается, что Колян (   Читать дальше...   )Производство: Россия / ГудСториМедиа, А+productionЖанр: комедияРежиссер: Жанна КадниковаАктеры: Николай Наумов, Зоя Бербер, Владимир Селиванов, Станислав Тляшев, Мария Скорницкая, Валентина Мазунина, Марина Федункив, Армен Бежанян, Игорь Ознобихин, Алексей Базанов, Анастасия Плоскова и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D595205F4AE6929D7D537B0EC1517EEF01C309B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390707   (781348) от 19.06.2020
+
+Испытания нового ионного двигателя ИД-200 КР прошли успешно
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалистами ГНЦ ФГУП «Центр Келдыша» (входит в Госкорпорацию «Роскосмос») успешно проведены огневые стыковочные испытания нового ионного двигателя ИД-200 КР мощностью до 3 кВт с удельным импульсом тяги до 4 500 секунд, блока управления расходом рабочего тела и разработанной НПЦ «Полюс» системы преобразования и управления СПУ-200 КР.В настоящее время в Центре Келдыша (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391284   (781349) от 19.06.2020
+
+Вне игры / The Way Back (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Каннингэм в школе был восходящей баскетбольной звездой, но в какой-то момент покончил со спортом. Из-за пристрастия к таблеткам и алкоголю он в одночасье лишился всего — славы, денег и семьи. Вскоре жизнь даёт Джеку второй шанс — он берётся тренировать баскетбольную команду своей родной школы, которую все считают откровенными неудачниками.Производство: США / Warner Bros., BRON Studios, Jennifer Todd PicturesЖанр: Драма, спортРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Аль Адригал, Янина Гаванкар, Микейла Уоткинс, Брэндон Уилсон, Уилл Ропп, Fernando Luis Vega, Charles Lott Jr., Мелвин Грегг, Ben IrvingПеревод: Дублированный, Многоголосый профессиональныйСубтитры: Русские (2 x Forced, 2 x Full), Английские (Full, SDH)Продолжительность: 01:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C397B0FC6F9BEC184971733BB2F7599677C1444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365272   (781350) от 19.06.2020
+
+Tubedigger 6.8.8 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781350.jpg" />
+</div>
+
+
+###  Подробнее
+
+TubeDigger - позволяет загружать видео и аудио с любого веб-сайта, в том числе Youtube, Вконтакте, Hulu, MTV, ABC, NBC, CBS, Yahoo, MySpace и т.д. Все что необходимо - ввести URL веб-страницы и включить воспроизведение ролика. Поддерживается возобновление загрузки. Также позволяет извлекать аудио дорожки из видео. Кроме этого есть возможность конвертирования в любой (   Читать дальше...   )Язык интерфейса: русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3E2D5A7084A7E31F4599137640546AD9A5FBFF
 ```
 
 

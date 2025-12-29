@@ -1,3 +1,57 @@
+###  Публикация: 1207400   (780571) от 18.02.2018
+
+Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come neve (3:31)
+02. Chiamami tu (2:25)
+03. Credo (Live) (3:42)
+04. È l'amore che conta (Live) (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099B3B77A4651CD5E7E86584C47954269A9B9756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207264   (780852) от 17.02.2018
+
+DJ Piligrim - Ночером...вечером...кечером (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Мне не жить без тебя
+03. Хайр, дустим, прощай
+04. Кур булсин(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2BFB142FD8B0B01F36C3E1B71FB2ED47325561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391382   (780958) от 20.06.2020
 
 Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|tracks + .cue] <Pop, Smooth Jazz, Soul>
@@ -641,60 +695,6 @@ VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276953   (787252) от 18.01.2019
-
-Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schritt fur Schritt
-02. Repeat
-03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
-04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512442   (787404) от 24.11.2021
-
-Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
-01. When Will I Be Famous (3:59)
-02. I Owe You Nothing (3:36)
-03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
 ```
 
 

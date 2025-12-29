@@ -1,3 +1,165 @@
+###  Публикация: 1386705   (793413) от 30.05.2020
+
+John Fogerty - Fogerty's Factory (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centerfield (Fogerty’s Factory Version) (3:54)
+02. Have You Ever Seen The Rain (Fogerty’s Factory Version) (2:37)
+03. Long As I Can See The Light (Fogerty’s Factory Version) (2:56)
+04. Down On The Corner (Fogerty’s Factory Version) (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010920FA0E0841C04C79DFE3331B1FDFD78F8B8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201043   (794066) от 23.01.2018
+
+Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neuland (Erinnerung Ist Sperrgepack)
+02. Mehr!
+03. Zeit
+04. Justitia(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DC1EABE66F3F1FF9897F79132EA22369560FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200872   (794916) от 22.01.2018
+
+Aqueous - Dark Side of Oz (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MGM Theme/Somewhere Over the Rainbow [00:04:48]
+02. Kitty Chaser (Explosions) [00:14:21]
+03. Eon Don [00:14:23]
+04. Mulligans [00:09:49](   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE7050E40EFBB1EE1382AB9BA4B4D14E8B96814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200765   (794974) от 22.01.2018
+
+Walking Papers - WP2 (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Luck Pushed Back (03:54)
+02. Death On The Lips (04:29)
+03. Red & White (05:47)
+04. Somebody Else (03:42)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F42B24F14256E7EEF14676C8876E7263B01F88C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274069   (794985) от 05.01.2019
+
+Sweet - The Rainbow - Live In The UK 1973 (2018) [MP3|320 Kbps] <Glam Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stripper (Intro)
+02. Hell Raiser
+03. Burning / Someone Else Will
+04. Rock’n Roll Disgrace(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895A628A98B9656383DABA9F0A24B25AD06664B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200352   (796370) от 20.01.2018
+
+The Zombies - Odessey And Oracle (1968) Reissue, 1987, Rhino Records [MP3|320 Kbps] <Rock, Pop Rock, Beat>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Care Of Cell 44
+02. A Rose For Emily
+03. Maybe After He's Gone
+04. Beechwood Park(   Читать дальше...   )Жанр: Rock, Pop Rock, BeatПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEAFD249A38A7DE9F4FC3B9F784899CA27EC3E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199906   (797380) от 18.01.2018
 
 VA - Classic Rock: The Ultimate Collection (2017) [MP3|320 Kbps] <Rock>
@@ -533,168 +695,6 @@ The Motors - британская группа новой волны, образ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B4AB89F2C58FA566B0DB008A7BE4B4E014226A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120714   (801798) от 31.03.2017
-
-The Beatles - Abbey Road And Beyond (2016) 6CD Box Set [MP3|320 Kbps] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beatles - самый знаменитый и влиятельный рок-коллектив, привнесший больше инноваций в поп-музыку, чем любая другая группа в 20 веке. Они синтезировали то лучшее, чем мог похвастаться ранний рок-н-ролл, выработав на его основе свой оригинальный и впечатляющий стиль. Они создали прецедент самодостаточной рок-группы, творческой лаборатории и исполнительской мастерской (   Читать дальше...   )DISC 1 - The Lost Decca Audition Tapes
-DISC 2 - The Lost Abbey Road Tapes 1962-'64
-DISC 3 - The Lost BBC Tapes And Much More...
-DISC 4 - New York, Miami And PhiladelphiaЖанр: Pop, RockПродолжительность: 04:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2F9753C26B9550DE005AC1CEDA223CF5A5F189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199206   (801837) от 15.01.2018
-
-Обійми Дощу - Сон (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остання мить (08:37)
-02. Крила (10:10)
-03. Разом (07:33)
-04. Темна ріка (11:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E59AB7EE22DEA63ACE8A843F063AF8CC33C4B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010785   (802074) от 25.04.2016
-
-Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. In The Flesh (03:41)
-02. The Thin Ice (02:29)
-03. Another Brick In The Wall Part 1 (03:29)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2CCB99E299F4B46B4DA56DB83A2EE100947053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120467   (802117) от 31.03.2017
-
-OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfall (04:45)
-Desire (03:16)
-The First Cut (03:25)
-Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199117   (802933) от 14.01.2018
-
-Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 Kbps] <Psych-Prog, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prologue
-2. Right On, Fight On
-3. Portobello Shuffle
-4. Marilyn(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5239B6CF52F50B4BCD83AD5C2F5E3786CE4F747D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505794   (802934) от 28.10.2021
-
-Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Pie - Medley (5:20)
-02. Babe Babe (2:36)
-03. Guitar Boogie (3:02)
-04. My Darling (2:52)(   Читать дальше...   )Жанр: Rock & Roll, PopПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C79BA4E346A1281EC1C8F6866E14FA7FB5B93E
 ```
 
 

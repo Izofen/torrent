@@ -1,3 +1,81 @@
+###  Публикация: 1221577   (693085) от 25.04.2018
+
+Charisma - Out Of Time (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Fantasy, Fantasy Theme (8:08)
+02. Heaven Is Just One Night Away, Heavenly Night (8:07)
+03. Just Walk In My Shoes, Walkin' (8:05)
+04. Out Of Time, Time Is Running Out (8:12)Жанр: Electronic, DiscoПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB6282488F5448C025F2F9340D55CD0CC9B4250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133761   (693247) от 13.05.2017
+
+White Sea - Tropical Odds (2017) [FLAC|Lossless|tracks] <Indie Pop, Dream Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodline
+02. Arcadia
+03. Yesterday
+04. Stay Young, Get Stoned(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, SynthpopПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68F4419AFBAC93E7A2B103A52D649A12123112D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333712   (693296) от 07.05.2011
+
+Sade - The Ultimate Collection (2CD) (2011) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFA6B6F342C6C8966DAC57A423E7AAA164EAB43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403173   (693907) от 18.08.2020
 
 VA - Дискотека у патефона. Музыка 30-40 годов (Vol.1 - Vol.7) (1995-2010) [APE|Lossless|image + .cue] <Retro>
@@ -610,87 +688,6 @@ Overdrive - Electric Overdrive (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31BD3F7257EA60B4F4CCF104C3B33E040E1162AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133524   (695129) от 12.05.2017
-
-Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dancer (5:48)
-02. Killing Me Softly (6:06)
-03. Comparsita (4:14)
-04. Saturday Night (4:19)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECF70AE339A1F95E7DF6CC25FAA22B5D9D037F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221353   (695143) от 24.04.2018
-
-Dennis Garcia - Jive To Stay Alive (1977) LP [MP3|320 Kbps] <Electronic,  Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Balls (3:08)
-02. Electrons, Neutrons, Protons & Morons (1:59)
-03. You Can Be Anything (4:36)
-04. Morrocan Roll (3:19)(   Читать дальше...   )Жанр: Electronic,  Synth-pop, DiscoПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80846B6566346A74C8B2422AA728D5436D2BEDA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568305   (695355) от 11.03.2019
-
-VA - Metal Ballads Vol. 1-2 (1993) [MP3|320 кб/с]<Rock| Metal Ballads>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695355.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Metallica - Nothing Else Matters (6:31)
-02. Lita Ford & Ozzy Osbourne - Close My Eyes Forever (4:42)
-03. Manowar - The Crown And The Ring (Lament Of The Kings) (4:49)(   Читать дальше...   )Жанр: Rock, Metal BalladsПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428FFEC773EDD2BE5B446BFC5D5721F023666462
 ```
 
 

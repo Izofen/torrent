@@ -1,3 +1,84 @@
+###  Публикация: 1538519   (662389) от 21.03.2022
+
+Scott Ellison - There's Something About The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half A Bottle Down (4:05)
+02. There's Something About The Night (4:46)
+03. Ain't No Love (In The Heart Of The City) (4:33)
+04. Bury Your Bone At Home (5:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAD685017F119F481DA75AD47274921153E8169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538520   (662394) от 21.03.2022
+
+Sean McKee Band - So Long My Queen (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Outside The Lines (2:15)
+02. Under Command Of The Admiral (3:08)
+03. To Keep On Loving You (3:57)
+04. Drove Me Crazy (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60F07E4B1E3C12DCF4210DA5A4C099844964DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538504   (662397) от 21.03.2022
+
+North Mississippi Allstars - Set Sail (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Sail, Part I (4:58)
+02. Bumpin' (2:53)
+03. See the Moon (3:22)
+04. Outside (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBC3F0A711054661119BA45808A4893FE036505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538511   (662398) от 21.03.2022
 
 Pierce Dipner - Goin' Back (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -614,87 +695,6 @@ Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57EE7E5427A04D99A92C3B826A7AD55CB7997A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538274   (663368) от 20.03.2022
-
-Gary Eisenbraun - Sticks and Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luck Of The Draw
-02. Outta My Mind
-03. If You Don't Play By The Rules
-04. Whatcha See(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CEC8C2BEC50E716D462318188A24B4C54241CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224728   (663820) от 12.05.2018
-
-De-Phazz - Black White Mono (2018) [MP3|320 Kbps] <Nu-Jazz, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoiled (Feat. Pat Appleton)
-02. Esperance
-03. Love Vampire
-04. May(   Читать дальше...   )Жанр: Nu-Jazz, Acid Jazz, LoungeПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CF9C96CEF93A09E7B2553776BDDC1D4F88F480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224794   (664017) от 12.05.2018
-
-Harry Allen Quartet - French Lullaby (2018) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Wait For You [06:37]
-02. La Mer [06:36]
-03. C'est Si Bon [05:15]
-04. The Summer Knows [05:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C94EF52E1DD253A4D62AE226E5E59FDE67A772
 ```
 
 

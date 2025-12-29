@@ -1,3 +1,30 @@
+###  Публикация: 1113262   (838418) от 11.03.2017
+
+VA - German Top 100 Single Charts 10.03. (2017) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You 3:54
+002. Kygo & Selena Gomez - It Ain't Me 3:41
+003. Ed Sheeran - Castle on the Hill 4:21
+004. The Chainsmokers & Coldplay - Something Just Like This 4:08(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7763B756FEF4945987EE7C3A9BC041D28AA93974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113254   (838630) от 11.03.2017
 
 VA - German Top 50 Official Dance Charts 10.03.2017 (2017) [MP3|320 Kbps] <Pop , Dance>
@@ -644,33 +671,6 @@ VA - Текила-любовь. Топ новинок (2017) [MP3|256 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B084DD64AB847165E34F6E7DF4946C236C001964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378276   (846457) от 25.04.2020
-
-Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846457.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:29| 01. Andru Donalds - Just For One Day
-|03:45| 02. Andru Donalds - Holdin' On To You
-|04:00| 03. Andru Donalds - Mishale
-|04:21| 04. Andru Donalds - Better Way(   Читать дальше...   )Жанр: PopПродолжительность: 02:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F094CE54973DA3E582E137BDE8F2D041C0EFC5C
 ```
 
 

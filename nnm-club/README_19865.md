@@ -1,679 +1,674 @@
-###  Публикация: 1197695   (813918) от 08.01.2018
+###  Публикация: 1506427   (799390) от 01.11.2021
 
-David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, Modern Classical>
+Рождество кота Боба / A Christmas Gift from Bob (2020) BDRip [H.264/1080p]
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813918.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Voices of Peace
-02. Wonder
-03. Walking on Air
-04. Thoughts of Home(   Читать дальше...   )Жанр: New Age, Ambient, Modern ClassicalПродолжительность: 00:43:15
+До встречи с котом Бобом Джеймс не любил Рождество, но рыжий пушистый хулиган всё изменил. Он в буквальном смысле подарил своему хозяину новую жизнь, сотворив настоящее рождественское чудо. Ведь даже если у тебя пусто в кармане, а во всём городе отключили свет, праздник должен состояться!Производство: Великобритания / Studio Pictures, Parkhouse Pictures, AlignЖанр: СемейныйРежиссер: Чарльз Мартин СмитАктеры: Люк Тредэвэй, Кристина Тонтери-Янг, Анна Уилсон-Джонс, Нина Вадиа, Стивен МакКоул, Тим Плестер, кот Боб, Фалдут Шарма, Селин Джонс, Дэйзи БаджерПеревод: Дублированный (Кинопоиск HD)Субтитры: Русские (Full), английские (SDH)Продолжительность: 01:32:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:527B61F4D9590DDA26252CCE18B18F31A1B8B9FC
+magnet:?xt=urn:btih:A80D1442A6669FF1DB104E4FA905E800E6B7E542
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197601   (813919) от 08.01.2018
+###  Публикация: 1506670   (799391) от 01.11.2021
 
-Crowded House - Temple of Low Men (1988) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Soft Rock>
+Воспоминания / Reminiscence (2021) BDRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813919.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Feel Possessed (N.Finn) - 3:48
-02. Kill Eye (N.Finn) - 3:14
-03. Into Temptation (N.Finn) - 4:34
-04. Mansion in the Slums (N.Finn) - 3:46(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 00:38:10
+Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / FilmNation Entertainment, Kilter Films, Michael De Luca ProductionsЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Дэниэл Ву, Моджиан Ариа, Марина Де Тавира, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:55:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21B3A176177C94550A0BC5293FF00AA0AB83911A
+magnet:?xt=urn:btih:327CF5D64B8A87E492F3FD0B9924FA262A538B16
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197631   (813920) от 08.01.2018
+###  Публикация: 1506743   (799392) от 01.11.2021
 
-Arsenal - Furu (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+Стая / La horde (2009) BDRip [H.264/1080p-LQ] [GER Transfer] [Unrated] [MVO]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813920.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Temul (Lie Low) 05:34
-02. Not Yet Free 04:22
-03. The Rider 04:37
-04. Lovesongs (Propaganda) 04:49(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie Rock, Dance, ElectronicПродолжительность: 00:44:40
+Север Парижа. Собираясь отомстить за убийство сослуживца безжалостной бандой, четыре полицейских пробираются в здание, служащее гангстерам штаб-квартирой. Замеченные и пойманные, офицеры готовятся к казни, как вдруг случается невообразимое: в дом врывается стая кровожадных плотоядных существ, жестоко нападая на всех и каждого. Полицейским и бандитам приходится объединить (   Читать дальше...   )Производство: Франция /  Le Pacte, Coficup, Canal+Жанр: Ужасы, боевикРежиссер: Янник Даан, Бенжамен РошеАктеры: Клод Перрон, Жан-Пьер Мартен, Эрик Эбони, Орельен Рекуан, Дуду Маста, Антуан Оппенхайм, Джо Престиа, Ив Пиньо, Адам Пенгсаванг, Себастьен ПерезПеревод: Многоголосый профессиональный (СВ-Дубль + Вставки Замез)Субтитры: АнглийскиеПродолжительность: 1:41:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEBEDF1819662BD9695AB4FBE14FFB42BFF1432A
+magnet:?xt=urn:btih:0EDC34B8066333045A2D0DD675B3D45849D98C22
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197664   (813921) от 08.01.2018
+###  Публикация: 1273686   (799393) от 03.01.2019
 
-Дженди Нельсон | Я подарю тебе солнце (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выход дебютного романа Дженди Нельсон ознаменовал появление в современной молодежной литературе нового и талантливого дарования.
-Второй роман писательницы «Я подарю тебе солнце» моментально занял первые строчки в списках бестселлеров. Книга стала лидером продаж в 32 странах, была удостоена всех возможных наград и принесла Дженди Нельсон мировую известность, а права (   Читать дальше...   )Жанр: ПрозаПродолжительность: 14:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2667B7952FF46A377DB2A40D7F36AF69D74A6E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197759   (813922) от 08.01.2018
-
-Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Hard Rock, Punk Rock, Blus Rock, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flash
-2. Mama Don't You Get Me Wrong
-3. Won't You Make Up Your Mind
-4. Something New(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Psych-Rock, Blues Rock, Rock 'n' RollПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDA7762D14125EE22F6215D1F4DBEFCE292B9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197661   (813923) от 08.01.2018
-
-Д.С. Чунтонов (сост.) | Святитель Игнатий Брянчанинов [Алфавит духовный] (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Игнатий (в миру Дмитрий Брянчанинов) родился 5 февраля 1807 года в селе Покровском Вологодской губернии, в имении своего отца. С ранних лет он был склонен к монашеской жизни, и с возрастом это всё более проявлялось в стремлении к молитве и чтению духовных книг.
-
-...В 1827 году в двадцатилетнем возрасте он оставил аристократическую жизнь и, вызвав глубочайшее (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3438311225DB5E69F1B7A198FA329854418953E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197635   (813924) от 08.01.2018
-
-Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angry Heart
-02. Sleeping Lions
-03. Suffer
-04. Nothing to Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Hard RockПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E6979DCBA17B6A7C7BD8470124990949D3820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197636   (813925) от 08.01.2018
-
-VA - Illuminations II (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Martin – Fallen Ground (01:43)
-02. Bruno Sanfilippo – Muse (04:47)
-03. Loscil – Azimuth (03:40)
-04. Jacaszek – Qualia (04:04)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Experimental, DroneПродолжительность: 02:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3426574383BC9F1AC28E64F3D14FA93CB5874C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197196   (813926) от 08.01.2018
-
-VA - Total Trance Selections Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maria Healy  -  Maktub (Extended Mix)  7:04
-02.  Neofance  -  Omicron (Original Mix)  7:46
-03.  A-Leo feat. Lauren Mayhew  -  Frequency (Virium Remix)  5:39
-04.  Heart Of Steel  -  Try To Forget (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D8474357B854754377D5D4DC73293FDBD6091D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197178   (813927) от 08.01.2018
-
-VA - Trance (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Arty  -  Twilight Tonight (Steve Brian Remix)  2:57
-02.  Daniel Kandi  -  What Happens When We End (Original Mix)  4:21
-03.  Paul Arcane  -  Transcend (Original Mix)  4:14
-04.  Emme  -  Kilimanjaro (Original Mix)  3:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCEF19DC0F9729CFE85174136537A2D25D86FDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197237   (813928) от 08.01.2018
-
-VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Betsie Larkin & Roman Messer  -  Unite (Extended Full Fire Mix)  5:46
-02.  Sunset & Steve Dekay  -  Turbulence (Extended Mix)  6:02
-03.  Attila Syah feat. Cari  -  Dark Side Of The Moon (Andy Elliass Extended Remix)  6:28
-04.  Cyril Ryaz  -  Punk Connection (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7185F20C4DEE315097FD2BAEA39FBFE99656CC56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197228   (813929) от 08.01.2018
-
-VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer  -  Cosmodrome (Original Mix)  4:46
-02.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Instrumentall Mix)  5:48
-03.  Attila Syah  -  Malang Rain (Extended Mix)  7:08
-04.  NoMosk feat. Maria Milewska  -  Black Light (Dub Mix)  5:29(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A1DF13EA6BF28A399D118E52014694AC832BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008853   (813930) от 19.04.2016
-
-Право голоса. "Тайная армия" Путина" (19.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813930.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Газета Bild опубликовала статью, в которой утверждается, что в Германии действует "тайная армия" Путина. Её основу составляют клубы единоборств, живущие в стране казаки и завербованные агенты из различных слоёв общества. Верят ли обычные европейцы в эти "страшилки" и много ли тех, кто поддерживает Путина? Как будут развиваться отношения с Европой? (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4B0C3B14F01AF98BB14A9E788A94111AA555EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008738   (813931) от 19.04.2016
-
-Джон Голсуорси | Братство (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые времена - новые нравы… Пока профессор Сильванус Стоун, представитель уходящей эпохи викторианской Англии, работает над трудом "Книга братства", в его доме кипят нешуточные страсти молодого поколения. Отношения между молодыми людьми, преисполненные то комизма, то подлинного драматизма, снова и снова нарушают непререкаемые представления добродушного (   Читать дальше...   )Жанр: КлассикаПродолжительность: 13:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7845C6454814964E4DDEE746EB2F88E2172C68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008917   (813932) от 19.04.2016
-
-VA - My Kind Of Music: A Fine Romance (2012)3CD [FLAC|Lossless|tracks + .cue] <Jazz,Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ella Fitzgerald & Louis Armstrong - A Fine Romance - 00:03:55
-02.Bobby Darin - Dream Lover - 00:02:32
-03.Shirley Bassey - As I Love You - 00:02:55
-04.Frank Sinatra - Young At Heart - 00:02:51(   Читать дальше...   )Жанр: Jazz,Vocal JazzПродолжительность: 02:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280F79617B63C67BCF3A6E1A580F08557BB0929B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008637   (813933) от 19.04.2016
-
-Футбол. Чемпионат Англии 2015-2016. 34 тур. Обзор матчей. (18.04.2016) HDTVRip [H.264/720p-LQ]
+4K Stogram 2.6.17 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813933.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор матчей 34-го тура.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:51:34
+4K Stogram - это приложение для просмотра и скачивания файлов из Instagram. Скачивайте фотографии, видео, stories из публичных и приватных аккаунтов ваших друзей, выполняйте резервное сохранение своих постов и импортируйте список Instagram-подписок.
+
+Работать с приложением просто — введите название Instagram-аккаунта, хэштега или локации и нажмите "Подписаться". (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B3CD2983610A37E24508BE296A09665FABB6ECD
+magnet:?xt=urn:btih:DAE94E1709A00962C3451FA17453ED7B41A21888
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008661   (813934) от 19.04.2016
+###  Публикация: 1272439   (799394) от 03.01.2019
 
-VA - LUXEmusic: Dance Super Chart Vol. 64 (2016) [MP3|320 кб/с] <Club House, Dance, Deep House, Electro House, House>
+Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813934.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 50 Cent - P.I.M.P. (DJ Krupnov & DJ All Inclusive feat DJ O'Neill Sax Radio Edit) [03:12]
-02. Adele - Hello (DJ Denis Rublev Remix) [04:25]
-03. Aisha - Новое поколение (DJ Andy Light & DJ O'Neill Sax Radio Remix) [03:49]
-04. Anton Liss feat. Гейдар Багиров - Океаны (Radio Edit) [03:45](   Читать дальше...   )Жанр: Club House, Dance, Deep House, Electro House, HouseПродолжительность: 03:26:37
+01.Main Theme. 2,13
+03. Narrative 02.    9,27
+04. Schindelgeist. 14,5
+05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C2BDFEA738293E20D044E79199DE172BA61E7CC
+magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008850   (813935) от 19.04.2016
+###  Публикация: 1273550   (799395) от 03.01.2019
 
-VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
+Athentech Perfectly Clear Complete 3.6.3.1400 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2108Разработчик: AthentechПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB16732E57C2A9ACE838FBC15748997A22B2021A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273797   (799396) от 03.01.2019
+
+Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down to the Moon 02:27
+02. Moon Dance 04:10
+03. Steam Forest 04:59
+04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273575   (799397) от 03.01.2019
+
+VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813935.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mr. Fingers - Qwazars [06:17]
-002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
-003. Borrowed Identity - Mary Jane [07:12]
-004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
+001. Dan & Dan - 2+2 (D S B Remix)
+002. Leon Krasich - Level 44
+003. Oliver Smith - Foundation
+004. We Ourselves - Good Vibrations(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:55:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
+magnet:?xt=urn:btih:53190A269F61E222477027049218101A0B2B6B24
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008606   (813936) от 19.04.2016
+###  Публикация: 1273730   (799398) от 03.01.2019
 
-Журнал | Мир криминала №8 (апрель 2016) [PDF]
+Coldplay - Live in Buenos Aires (2018) Live album [FLAC|Lossless|tracks + .cue] <Alternative Rock, Britpop>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813936.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Мир криминала» - одно из самых популярных СМИ криминальной тематики, на рынке свыше 10 лет.
-Недавно был сделан ребрендинг издания. У журнала теперь обновленный макет, постепенно меняется и содержание номеров. Хотя упор, как и прежде, делается на самые громкие и скандальные преступления в России и за рубежом, специальные расследования, эксклюзивные материалы из жизни (   Читать дальше...   )Жанр: История, криминалистика, детективФормат: PDF
+01. Hymn For The Weekend (Live In Buenos Aires) (05:02)
+02. Fix You (Live In Buenos Aires) (05:27)
+03. Viva La Vida (Live In Buenos Aires) (04:11)
+04. Adventure Of A Lifetime (Live In Buenos Aires) (05:06)(   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 00:57:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFA1DFBBFDC39E009E39C1502876FDF6061D96E3
+magnet:?xt=urn:btih:B7D1CFEE597581E365A018C5746925106CA00FB4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008786   (813937) от 19.04.2016
+###  Публикация: 1273665   (799399) от 03.01.2019
 
-The Cannonball Adderley Quintet - 74 Miles Away / Walk Tall (1967) Remaster, 2011, EMI Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, Other>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813937.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Do Do Do (What Now Is Next?) [06:23]
- 02.I Remember Bird [06:57]
- 03.Walk Tall (Baby, That's What I Need) [02:37]
- 04.74 Miles Away [13:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:11
+01. Sade - The Sweetest Taboo
+02. Lenny Williams - 'Cause I Love You
+03. The Isley Brothers - Between the Sheets (Single Version)
+04. Dalton - Soul Brother(   Читать дальше...   )Жанр: Soul, Pop, OtherПродолжительность: 01:07:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:518A97CC25BE40EBBEE4BECFCB53D51CA71CE48D
+magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008784   (813938) от 19.04.2016
+###  Публикация: 1273650   (799400) от 03.01.2019
 
-Даниил Гранин | Путевые очерки (1977) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниил Гранин,интересный русский писатель,рассказывает о своих путешествиях в Австралию и Францию, и описывает свои впечатления от увиденного.
-Для нескольких поколений россиян книги писателя Даниила Гранина были, как сейчас принято говорить, культовыми. Самые заметные из них - такие, как роман "Искатели" и повесть "Иду на грозу", - неразрывно (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848611E4810FB87CA18F34A051AAA07820C7DABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008713   (813939) от 19.04.2016
-
-Coleman Hawkins - Blues Wail: Coleman Hawkins Plays The Blues (1996) Remastering, 1996 [APE|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juicy Fruit
-02. Blues for tomorrow
-03. Blues Wail
-04. Soul blues(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF598EB6A1F4ACC8795B8DCCC75D010F57B4FB7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008561   (813940) от 19.04.2016
-
-Riot - Shine On (1998) Japan [APE|Lossless|image + .cue] <Heavy Metal>
+CJ Rise - Lost Empire (2019) [MP3|320 Kbps] <Spacesynth, Synthwave>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813940.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01."Black Water" - 1:47
-02."Angel Eyes" - 4:26
-03."Soldier" - 4:51
-04."The Man" - 4:05(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:17
+1. Lost Empire (4:54)
+2. Echosphere (4:20)
+3. Solar Flare (5:39)
+4. Secret Signs (4:05)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 00:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0E12D77B9D1DA3B34ED9D87D9970F735550C53D
+magnet:?xt=urn:btih:266C30A6701FA080B82AF2DBDB6149841587EE11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008721   (813941) от 19.04.2016
+###  Публикация: 1273697   (799401) от 03.01.2019
 
-Этель Войнич | Оливия Лэтам (2015) [MP3]
+VA - Confessin' The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813941.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Оливия Лэтам" - третий роман Этель Лилиан Войнич. В этом романе отразились ее впечатления от пребывания в России в 1887-1889 годах. Впечатления от семейства народовольцев Василия и Николая Карауловых легли в основу описания семьи Дамаровых. На русском языке "Оливия Лэтам" впервые была опубликована в 1906 г. в переводе А.Н. Анненской со значительными (   Читать дальше...   )Жанр: РоманПродолжительность: 08:04:37
+1. Just Like I Treat You - By Howlin' Wolf
+  2. I Got to Go - By Little Walter
+  3. Carol - By Chuck Berry
+  4. Mona - By Bo Diddley(   Читать дальше...   )Жанр: BluesПродолжительность: 01:29:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:342E62B7DBBA49FC78F50112986BD300D75376F1
+magnet:?xt=urn:btih:071CD8CFE4E8D6A589E07E147FFF59D53CB47CDB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008669   (813942) от 19.04.2016
+###  Публикация: 1273801   (799402) от 03.01.2019
 
-Антивирусные базы Qihoo 360 (Bitdefender) от 2016.04.18 [En]
+Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не раскрученный, из-за развода с женой, проект продюсера Бони-М, Джиллы, Милли Ванилли и др. - Фрэнка Фариана с участием его дочери Янины.01. Show Me What You've Got (3:33)
+02. School's Out (Radio Version) (3:49)
+03. Pink Lemonade (3:41)
+04. Yummy Yummy (3:55)(   Читать дальше...   )Жанр: Electronic, Disco, Europop, Euro HouseПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1BF925E91F9F3035E4D785B95EC566E886390D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273758   (799403) от 03.01.2019
+
+Мэтт Хейг | Отец Рождество и Я (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человеческому ребёнку нелегко прижиться в сказочном Эльфхельме, даже если твои приёмные родители – Отец и Матушка Рождество. Уж кому как не Амелии Визарт это знать! В школе для эльфят над ней смеются – она на две головы выше других учеников, но ходит в младший класс и никак не может освоить эльфийскую математику, в которой два плюс два равно снег. А к управлению (   Читать дальше...   )Жанр: Фантастика для детейПеревод: Е.И. КолябинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0A5C637AFF0B05EF4633CD0D56965AEF8A7DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273182   (799404) от 03.01.2019
+
+VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov - Inner Voice (Extended Mix)
+02. Bigtopo - Gallow (Extended Mix)
+03. Simon Lee & Alvin - Raksasa (Extended Mix)
+04. Kiran M Sajeev - Higher (HamzeH Extended Remix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14001A00FC07032093EC944E56F2B0CACC9FABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273790   (799405) от 03.01.2019
+
+BestReminder v2019.01.03.15 Final [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813942.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-360 Total Security и 360 Total Security Essential - бесплатные антивирусы с облачной и проактивной защитой - 360 Cloud и QVM II, а также дополнительными локальным движком Bitdefender для эффективной онлайн и оффлайн защиты от всех угроз.
-Антивирусные базы 360 Total Security для Windows позволяют обновлять локальные движок Bitdefender на компьютерах, не подключенных (   Читать дальше...   )Язык интерфейса: Английский
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7FDF1AA7ADC3282ABE71D6498488257257AACC1
+magnet:?xt=urn:btih:61027D8FCE5ACCF7FE866D7DFD63CB49F4AFDAD2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008798   (813943) от 19.04.2016
+###  Публикация: 1273723   (799406) от 03.01.2019
 
-Art Blakey & Thelonious Monk - Art Blakey's Jazz Messengers With Thelonious Monk (1957) Remaster, 2006, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+Bandizip 6.19 + Portable [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813943.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Evidence [06:47]
- 02.In Walked Bud [06:40]
- 03.Blue Monk [07:55]
- 04.I Mean You [08:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:38
+Bandizip — это быстрая и надежная программа, которая поддерживает работу с форматами WinZip, 7-Zip, и WinRAR, и другими аналогичными архивами. Она использует очень быстрый алгоритм для сжатия и распаковки архивов, высокую скорость архивации, поддержку функции Drag and Drop (перетаскивания) и функцию мультисжатия.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:989EFA8E8EE9B3DEF1EF10E359D1375E023F1FE4
+magnet:?xt=urn:btih:A500B7742CC4E79DAE68ED100363CB1780E6486C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273593   (799407) от 03.01.2019
+
+Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|320 Kbps] <Pagan, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol. 1 - Barrow Wake:
+01.The Enchanted Realm (5:53)
+02.Woman to Hare (Daemon Romantica Mix) (5:20)
+03.Lost to the Sea (5:34)(   Читать дальше...   )Жанр: Pagan, RockПродолжительность: 03:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273812   (799408) от 03.01.2019
+
+dBridge - A Love I Can't Explain (2018) Exit Records [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Experimental, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gen 19 (07:00)
+ 02. Broadcast Pain (03:52)
+ 03. Depersonalised (06:34)
+ 04. Syncofated (04:02)(   Читать дальше...   )Жанр: Drum n Bass, Experimental, DowntempoПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49995D51A2B5CB18D003D4FD58C35892DE9F4218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273804   (799409) от 03.01.2019
+
+Cholosus - Way Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lord Will Make It Happen (06:06)
+ 02. Aeris (12:48)
+ 03. Winter (09:26)
+ 04. Loner (12:08)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBA6840B586DDA5EF6094ACD5C4AFA9C47D283C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273725   (799410) от 03.01.2019
+
+Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight
+02. Missing
+03. Airplane Mode
+04. Cabin Fever(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273721   (799411) от 03.01.2019
+
+VA - Infinite Moment (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Das Butterschnitzel - Alarmclock
+002. OTR - Bliss (feat. Ashley Leone)
+003. Andrea Castello - Stint
+004. Neotropica - Orchidaceae(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C46FEC0F7B3CBFF178EBED3C86F47D2A57C4AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273694   (799412) от 03.01.2019
+
+VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense - Space Walker
+02. Lost Shaman - Loosing Her Grip
+03. Foodsoul - Soulbeat
+04. AudioStorm - Network Error(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 11:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1106DFB5B8EBDE7B16F4ED0E74D8CAC2D2728F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120040   (799413) от 03.04.2017
+
+Windows XP Pro SP3 VL Ru x86 by Sharicov (v.27.03.2017)  [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых удачных операционных систем, когда либо выпущенных Microsoft. Остаётся популярной и по сей день. Интегрированы обновления, доступные по март 2017 года, а также набор технических непубличных обновлений "Unofficial RE". Обновлён Internet Explorer до версии 8. Поддерживается откат до "родного" IE6 и возможность установки без IE8.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC695BB421318D16F9C47F5B554D10D660FF71A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121661   (799414) от 03.04.2017
+
+Огни большой деревни (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799414.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Родина» в смертельной опасности. Ровно через неделю ее сравняют с землей. Спасти кинотеатр может только успешная премьера. За дело берется пара супергероев без суперспособностей. В их распоряжении — камера, девушка-ниндзя и Дмитрий Дюжев. Правда, он об этом еще не знает.Производство: Россия, ТПО РокЖанр: КомедияРежиссер: Илья УчительАктеры: Дмитрий Дюжев, Кирилл Фролов, Максим Емельянов, Анастасия Мытражик, Василий Кортуков, Юрий Быков, Тагир Рахимов, Карен Мартиросян, Кирилл Полухин, Анна ВоркуеваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E115DC2249CC67C3467890E7BB981C38212AB76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121687   (799415) от 03.04.2017
+
+Рик и Морти / Rick and Morty (2017) WEBRip [H.264/720p-LQ] (Сезон 3, серии 1 из ?) Сыендук
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799415.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета обычный школьник по имени Морти и его не совсем вменяемый дедушка Рик, который очень любит выпить. Морти — самый обычный мальчик, и ни чем не отличается от своих сверстников. А вот его дедуля занимается необычными научными исследованиями, и зачастую полностью неадекватен. Он может в любое время дня и ночи схватить внука и отправиться вместе с ним (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, Комедия, Фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсПерсонажи: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровыйОзвучка: Сыендук (Присутствует ненормативная лексика)Субтитры: РусскиеПродолжительность: 1х 00:22:45Реклама: Вырезана
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D57C2FC3B7B63ADD63E89B079E0582394BD1CE
 ```
 
 

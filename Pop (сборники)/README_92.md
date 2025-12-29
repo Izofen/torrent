@@ -1,3 +1,30 @@
+###  Публикация: 1131683   (731509) от 08.02.2022
+
+Cherry Laine - The Singles Collection (1977-1986) Vinyl 7",12" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черри Лейн (Cherry Laine, настоящее имя Флоренс Миллз (Florence Evadne Mills) - немецкая диско-певица ямайского происхождения. Самый известный хит - Catch The Cat. В раздачу вошли все синглы исполнительницы, включая малоизвестные, но - интересные в экспериментальных одно-сезонных группах.01. Everybody Knows It (1977) (2:48)
+02. Island Guy (1977) (2:26)
+03. A Night In Chicago (1977) (3:44)
+04. You Love Me In a Special Way (1977) (2:48)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, PopПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4658E567BDE89A19D9288521B561D0AD508F9ABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021440   (731880) от 30.05.2016
 
 VA - MuviDance Russian Party Vol.1 (2014) (MuViTeam Compilation Promo) [MP3|320 кб/с] <Dance, Disco, Pop>
@@ -668,33 +695,6 @@ VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBEB94CCB75DE5737647CC1E13B327083A19E2AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020743   (743585) от 27.05.2016
-
-VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анна Седокова - О Тебе
-02. Dj Roshka Feat. Farid Aqa - Onun O
-03. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve
-04. Андрей Орельский - Вованчик(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
 ```
 
 

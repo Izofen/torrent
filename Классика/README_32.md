@@ -1,3 +1,111 @@
+###  Публикация: 899309   (673100) от 19.05.2015
+
+Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orchester) (1983) [FLAC|Lossless]<Classical, Romantic Period, Song, Dance, Prelude, Incidental, Lullaby>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (Act I) - Wedding Scene (05:14)
+02. Wedding March (03:11)
+03. Prelude Act II (Abduction & Ingrid's Lament) (03:51)
+04. In The Hall Of The Mountain King (02:43)(   Читать дальше...   )Жанр: Classical, Romantic Period, Song, Dance, Prelude, Incidental, LullabyПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F7979713662D693A9C04157FC2FA8F803AC706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223288   (673302) от 05.05.2018
+
+Berdien Stenberg - Pirouette (1987) [FLAC|Lossless|tracks + .cue] <Classical-crossover, Instrumental, Flute music>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Coppelia, Mazurka + Waltz (L. Delibes) (3:51)
+02 Danzas Espanolas (E. Granados) (4:21)
+03 Solvejg's Song from ''Peer Gynt Suite'' Op. 46, No. 1 (E. Grieg) (3:24)
+04 Nutcracker (P.I. Tchaikovsky) (2:34)(   Читать дальше...   )Жанр: Classical-crossover, Instrumental, Flute musicПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29948F4C1D98696B4EE36296ACAC39641A31B0BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899032   (675343) от 18.05.2015
+
+Mozart - Le nozze di Figaro (Herbert von Karajan & Vienna Philharmonic Orchestra) (2CDs) (1990) [FLAC|Lossless]<Classical, Opera, Classical Period, Comic Opera, Opera Buffa>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Le nozze di Figaro, opera, K. 492
+01. Act 3:Crudel! Perche Finora Farmi Languir Cosi? (02:44)
+02. Act 3:Hai Gia Vinta La Causa (04:59)
+03. Act 3:Riconosci In Questo Amplesso (04:55)(   Читать дальше...   )Жанр: Classical, Opera, Classical Period, Comic Opera, Opera BuffaПродолжительность: 01:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5D385AF5384FD3AC291143AF0BE5FB3026D3C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536228   (676573) от 11.03.2022
+
+Lise Davidsen, Leif Ove Andsnes, Edvard Grieg - Edvard Grieg (2022) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676573.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1]-[8] Haugtussa (The Mountain Maid), Op.67
+[9] Six Poems, Op.25 - II. En Svane (A Swan)
+[10] Six Poems, Op.25 - IV. Med en Vandlilje (With a Water-Lily)
+[11] Six Elegiac Songs, Op.59 - III. Til Én (To Her) (I)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CA5B30A29537A57437A6DED50AF248701362F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223083   (677290) от 03.05.2018
 
 The New London Chorale - Young Forever 15 Jaar Successen (1996) Compilation [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
@@ -188,6 +296,39 @@ Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossove
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7472867F3A9E28540ED5AEB13086AEE7EB36D7D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506856   (681349) от 09.06.2012
+
+Hexperos - 2 albums (2007-2010) [FLAC/APE|Lossless] <Neoclassical, Ethereal, Medieval>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_681349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fairy Appears (01:56)
+02. Queen Mab (03:50)
+03. El Velo Azul (03:39)
+04. Moon Spell (02:44)
+05. Summatem Deam (03:57)
+06. Diadem of the Night (05:35)
+07. Summoning of the Artists (03:17)
+08. A Reason to Live (04:24)
+09. Nocturne (02:34)
+10. Le Lacrime di Proserpina (02:17)(   Читать дальше...   )2007-2010Жанр: Neoclassical, Ethereal, MedievalПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -562,141 +703,6 @@ Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027251   (696199) от 19.06.2016
-
-Itzhak Perlman - J.S. Bach: Sonaten und Partiten (1988) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-Sonata for solo violin No. 1 in G minor, BWV 1001
-1. I. Adagio 4:27(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 02:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAA936D6884DD02E3064C3D61A1EC6085019015
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027305   (696282) от 19.06.2016
-
-Vanhal, Dusek, Brixi, Vranicky, Czech Chamber Philharmonic, Vojtech Spurny - Baroque Bohemia & Beyond (2006) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony In G Minor
-01. Symphony in G minor: I. Allegro moderato    06:16
-02. II. Adagio    05:06
-03. III. Menuetto moderato - Trio - menuetto D.C.    03:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492CCE400A10D9C210A8A77498844565837FB0AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133132   (696775) от 11.05.2017
-
-Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Vocals>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Quanti inverni
-03. Find Me
-04. Amami(   Читать дальше...   )Жанр: Pop, Classical, Crossover, VocalsПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EC5134244A35BAA5F4310917F48D0B25825F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133142   (696777) от 11.05.2017
-
-Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso
-02. Attesa
-03. How Great Thou Art
-04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FCA86A17C360C91E008058CA0BA3EE438FF2BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133137   (696787) от 11.05.2017
-
-Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso
-02. Attesa
-03. How Great Thou Art
-04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B025A1FD4D75FC3C047409632DD5758C0063D0
 ```
 
 

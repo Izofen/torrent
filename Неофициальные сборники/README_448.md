@@ -1,3 +1,165 @@
+###  Публикация: 1025182   (712225) от 11.06.2016
+
+VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Tut - Nothing Is for Certain - Ibiza Mix
+02. Misses Smith - Bag Of Moons
+03. Rainman - Hammock Dreams - Super Extended Beach Mix
+04. Zenyatta - Too Good(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC625CF48FCFADC658B8BA2DB4B72FE6D52F2BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025043   (712226) от 11.06.2016
+
+VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretzeltronik - First Movement
+02. Adeleeya - My Conquest Of Paradise - Sunset Beach Cafe Mix
+03. Loungeotic - Lifetime - Beach Chillout Mix
+04. Vintage Blue - Sunrise To Sunset - Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E76524FC90EA6DCFFE090BBC4507227CE0C32E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025194   (712292) от 11.06.2016
+
+VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Through Your Eyes
+02. Cane Garden Quartet - Love Goddess
+03. Don Gorda Project - Um Momeno
+04. Enrico Donner - Yearning for More(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130817   (712467) от 03.05.2017
+
+VA - 100 Party Play The Music Hits (2017) [MP3|320 Kbps] <Funky, Groove, Jackin, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella Grundy Feat. Jah Wobble - Supersize (Jose Jimenez Clean Clean) 04:06
+02. Luca Debonaire - Bass Is Kickin (Original Mix) 05:42
+03. Mikah Feat. R.E.M. - Lost Religions (Original Mix) 06:06
+04. Dompe Agent - Shake (Original Mix) 07:15(   Читать дальше...   )Жанр: Funky, Groove, Jackin, Progressive, Future HouseПродолжительность: 08:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFF5A1A05C7F7123403E71227CDC5B3EDCAE3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532628   (712478) от 20.02.2022
+
+VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 Kbps] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Natty Bong - Blue Jeans
+002 Sublime Reggae Kings - Human
+003 The Reggister's & Melizza - Back to Black
+004 Stereo Dub & Lila Liu - Set Fire to the Rain(   Читать дальше...   )Жанр: ReggaeПродолжительность: 05:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E8DB97C090D8526276200F84BAAD3BE6184DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532477   (712534) от 20.02.2022
+
+VA - Country: New Folk Music (2022) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
+002. Chris Janson - Beer Me
+003. Brothers Osborne - It Ain't My Fault
+004. Diplo - Hometown(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 09:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532538   (712576) от 20.02.2022
 
 VA - Зайцев.нет Лучшие новинки Февраля (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -533,168 +695,6 @@ VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31F3AE8907CAFFE6D7B520744CB08AD351E7821A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401020   (713473) от 08.08.2020
-
-VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Head & Heart (feat. MNEK)
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. Nathan Dawe - Lighter (feat. KSI)
-04. Harry Styles - Watermelon Sugar(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39054FDDA8ECECE7A779714ADBF2D7CEE5E53823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401023   (713504) от 08.08.2020
-
-VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Omega Danzer - Travelling The Wastelands
-002. Four Seconds Ago - The Vacancy
-003. Daniel Holt - Alles
-004. Lazer Station - Tonight He Comes(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837C13DD874A101820479270F8B04B33B0714C22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219495   (713636) от 14.04.2018
-
-VA - Душевный сборник радио Шансон (10) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Келеберда - Продавщица
-002. Климм - Хочется Любить
-003. Жанна Прохорихина - Все Будет Хорошо
-004. Александр Валявин - Отвали(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849EBE13BD6422DD9EFA61AF0A4EA03504B9BC54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219543   (713642) от 14.04.2018
-
-VA - Любимая волна для души (4) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Павлова - Не Могу Без Тебя
-002. Олеся Атланова - Есть Любовь
-003. Александр Зарецкий & Александр Иванов - Жди Меня
-004. Эдуард Изместьев - Моя Далекая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67B441E7DA65BAC08356DE92E1488B74D5351BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219349   (713644) от 14.04.2018
-
-VA - Душевный сборник радио Шансон (8) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ирина Круг - Ты Сердце И Душа
-002. Николай Шишкин - Летят Песни Шансона
-003. Майя Подольская - Он Просто Не Знает
-004. Сергей Матвеев - Проводник(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263548E6BE4BBCBE7A3864B626CBEB64D5DC4B3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219493   (713645) от 14.04.2018
-
-VA - Душевный шансон в хорошей компании (7) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Корн - Одинокая Девочка
-002. Александр Кир - Сон
-003. Раиса Отрадная - Облака Крылатые
-004. Александр Маршал & Роман Юрченко - Ветераны(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B11BFD2A9FD562570BA3058B54F9B7A3B9E0E9
 ```
 
 

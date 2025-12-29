@@ -1,3 +1,245 @@
+###  Публикация: 1023796   (722376) от 06.06.2016
+
+VA - Walking Home Vol.9 (2016) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jozay - Glossy (11:12)
+02. Itchy Lemon - Distant Echoes (Remix) (feat. Cimmone Ferry) (6:31)
+03. Jaques Le Noir - Reaching for the Stars (6:57)
+04. Wander Sa - Only Love Remains (6:19)(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 02:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2397E837F8A49DADD08E70B5F8BAD699E1805F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129025   (722385) от 28.04.2017
+
+VA - Infusion Vol. 1 (2017) [MP3|320 Kbps] <Dubstep, Trap, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LeSage - Tombolo (04:16)
+02. ill-esha - Loose Leaf feat. Ross Pennock (04:33)
+03. Of The Trees & Cristina Soto - Heavy (04:21)
+04. Intrasol - After Dusk (02:25)(   Читать дальше...   )Жанр: Dubstep, Trap, DowntempoПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2EB49E363C1D23CC91DF94332C73CCECDC16F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023860   (722467) от 06.06.2016
+
+Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnect (Edit) (03:13)
+ 02. Headcase (10:19)
+ 03. Digital / Divide (10:28)Жанр: Techno, MinimalПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D52554B0AE3BCB43EA342E24516A23EC4ECBDF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023855   (722470) от 06.06.2016
+
+VA - EDM Galaxy Vol.5 (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcel Scott - Strike On (4:08)
+02. Chris Packer - Random (4:02)
+03. Leventina - Grenoble (Radio Mix) (3:00)
+04. Eran Hersh - Deadly Kiss (5:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA5A1A81164B4C548D30E7773AF741FBEEECE25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129251   (722617) от 28.04.2017
+
+VA - Coral City Compilation (2016) [MP3|320 Kbps] <Nu Disco, Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereocool - Welcome to Coral City (03:54)
+02. Skibblez - Azure (03:45)
+03. My NamE - So I Dance (03:20)
+04. Tightshirt - Cidre Circles (04:22)(   Читать дальше...   )Жанр: Nu Disco, Disco HouseПродолжительность: 01:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023676E7090512BA9AF5BEF9B61CA91C68A0A801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129230   (722620) от 28.04.2017
+
+Mauro Picotto - Deep Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Good Morning (4:55)
+2.  Deep Blue (3:49)
+3.  Sibu (6:34)
+4.  Legacy (5:18)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9222B02FF367EB9235BFCC725EA668BA38ECA3CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129204   (722621) от 28.04.2017
+
+VA - Ristorante Lounge And Deep - Restaurant Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Donati - Lounge Delight (Original Mix) 05:23
+02. Costez Ensemble - Violet Dawn (Original Mix) 05:39
+03. Moonshine Project - Noche Suave (Original Mix) 05:06
+04. Smooth Soul Sound - Solaris Touch (Original Mix) 05:06(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673AD9FE1076FC5D527E2AD7C16DA1186BAF2B9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129245   (722622) от 28.04.2017
+
+William Hoshal - River Of Clouds (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  River Of Clouds Part I (11:16)
+02.  West of Everything (10:54)
+03.  Deep Light (14:27)
+04.  Maintaining Status (7:03)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003B4B10FD1B0C49CE0C75AD388A461CD33CC7EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129055   (722628) от 28.04.2017
+
+VA - Black Chill & Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aaron The Baron feat. Mia Lemar - Waiting in the Darkness (Lesny Deep Sweet 'n' Deep Mix)  8:44
+02.  Lamar Ensemble - Tonal Colors  5:32
+03.  Enrico Donner - Deep Rooted  5:07
+04.  DJ Riquo feat. The Third World Man - Mesmerizing Words  5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A62E9B42B9A6B56C580062301D661F7BE7CC188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531537   (722695) от 15.02.2022
 
 VA - Sunny Morning Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -452,249 +694,6 @@ VA - Valentine's Day Classics: 30 Greatest Love Songs (2022) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FE81391D21B8BF35D4705998FC2F74177A926A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285146   (724609) от 24.02.2019
-
-VA - Workout Beats EDM 2019 Power And Workout Motivation Music [MP3|320 Kbps] <House, BigRoom, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofiane - Let's Party (Original Mix) 3:53
-02. Wavejackers - Asgardia (Extended Mix) 4:53
-03. Wizard - Wizarding World (Original Mix) 6:04
-04. Zoom Square - Dangerous (Original Mix) 2:56(   Читать дальше...   )Жанр: House, BigRoom, DanceПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FF307772041EB8EB97AD8A774A3646BB50411A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285026   (724610) от 24.02.2019
-
-Andrey Zhitnev - The Best Of Playing Space and Ray Orion (2017) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Track (4:29)
-02. Meteoric Shower (2:51)
-03. The Heart Of The Jedi (5:10)
-04. Storm Of Love (5:01)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A691F33DCC1C4CE8B0606BEF256D36DCD2FC5E54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023457   (724656) от 05.06.2016
-
-Modern Eleven - Under The Bright Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Bright Light (7:36)
-02. Hall of Ice (4:56)
-03. Masked (8:58)
-04. An Ethereal Path (3:25)(   Читать дальше...   )Жанр: Ambient, Dub Techno, TechnoПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9DB6938EF32D836A3D54E5F40A67C290DBE9EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023520   (724658) от 05.06.2016
-
-VA - Jango Music - Bora Bora Ibiza Summer (2016) [MP3|320 кб/с] <Tech House, UK Garage, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Caseli, David Jimenez & Errol Reid - Stay Together (My Digital Enemy Remix) 04:25
-02. Peverell Bros, RONN & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix) 08:24
-03. Paul Jockey - Keep Pushing 04:51
-04. Luca Debonaire - Get Down with This (Club Mix) 05:51(   Читать дальше...   )Жанр: Tech House, UK Garage, FunkyПродолжительность: 07:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3088C2011310FADEFF6F2B69B05402B2B2022FBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284779   (724781) от 24.02.2019
-
-Poppy Ackroyd - Resolve Reimagined (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper (Max Cooper Remix) (06:21)
-02. Light (Hauschka Remix) (04:51)
-03. The Calm Before (Daisuke Tanabe Remix) (05:52)
-04. Resolve (Floex Remix) (07:40)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7964DDD88803EFF195529599737F7728185321B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129013   (724838) от 27.04.2017
-
-VA - Sportskanone Vol 1 (25 Dance Bangers To Make You Sweat) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noax - Dope (Koczinsky Remix)
-02. PARS - Ready To Bounce
-03. Dyren - Whoop It Up (feat Dora S - Steve Cypress remix edit)
-04. Flip Capella - Everybody Raise Your Hands (instrumental mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6AB8E3A5F859B30AD63A4393D2B5645893C265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285030   (724914) от 24.02.2019
-
-Mirror System - Mirrorsystem (2005) [MP3|320 Kbps] <Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud II (6:59)
-02. Stela (duende mix) (7:54)
-03. Hilal (6:41)
-04. Flex e fun (8:07)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DD2DC8C3B78E3E3CDC422D659907739686DD2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284799   (724916) от 24.02.2019
-
-VA - Alfa State - Plays 7V (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ercos Blanka - Brigante (08:55)
-02. Ben Preisinger - The Quiet Wanderer (07:03)
-03. Agatha Pher - Light Shadow (06:40)
-04. Yarosslav - Boundaries (Iron Curtis No Boundaries Mix) (07:32)(   Читать дальше...   )Жанр: Deep House, Downtempo, Tech House, TechnoПродолжительность: 02:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923A78D659952C4EA1C4B67F482EA90E9772058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285120   (724918) от 24.02.2019
-
-Swoop And Cross - Stories Of Disintegration (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, IDM, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. No (12:57)
-02. 10439 (7:34)
-03. Sykkel (4:51)
-04. Skopi (7:07)(   Читать дальше...   )Производство: Time Released SoundЖанр: Ambient, IDM, Drone, Modern Classical, PianoПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87ED4B977FAC7303E416FF93F753F25B269BEEFD
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1385770   (795910) от 27.05.2020
+
+VA - The Road to Punk Rock (2020) [MP3|320 Kbps] <Rock, Rock & Roll, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Urinals - I'm a Bug (1:12)
+2. Jack Starr - Born Bad (1:20)
+3. Ramones - Judy Is a Punk - 2016 Remaster (1:32)
+4. David Peel and The Lower East Side - Up Against the Wall (1:44)(   Читать дальше...   )Жанр: Rock, Rock & Roll, OtherПродолжительность: 05:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C25481874467DA3540C6AC6ADCA40B6A753E7D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385783   (795914) от 27.05.2020
+
+VA - Music News vol.9 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andreea Balan - Am Crezut In Basme (03:36)
+ 02. ANIKV feat. Saluki - Меня Не Будет (Alex Shik Remix) (03:04)
+ 03. Bramsito feat. Niska - Criminel (03:17)
+ 04. Burak Cilt - She Said (Sharapov Remix) (02:46)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42858BC6F514B2A2698ED07BFCDE90C0C372906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386097   (795918) от 27.05.2020
+
+VA - Women of Pop (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Charli XCX - enemy (3:43)
+2. Lady GaGa - Rain On Me (3:02)
+3. Dua Lipa - Break My Heart (3:41)
+4. Sia - Together (3:25)(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 03:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE86B2F472C55CF8D84E5A14FCBBC1D86207D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386124   (795919) от 27.05.2020
+
+VA - House of love (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Marvin Gaye - Let's Get It On (4:52)
+2. Etta James - I Just Want To Make Love To You (3:08)
+3. Grover Washington, Jr. - Just the Two of Us (7:23)
+4. Lee Fields & The Expressions - It Rains Love (3:55)(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 03:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2D0032E1641FB6BA9D707F52C0B858C03598A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386078   (795920) от 27.05.2020
+
+VA - Sad Songs Sing-along (2020) [MP3|320 Kbps] <Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Billie Eilish - when the party's over (3:16)
+2. Sam Smith - How Will I Know (3:52)
+3. Rihanna - Stay (4:00)
+4. Bruno Mars - When I Was Your Man (3:33)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 04:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552E2A1F51FAE451D65490F931C26934DCAD8C01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385870   (795926) от 27.05.2020
+
+VA - Acoustic Soul (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sinead Harnett - Be the One (acoustic) (2:24)
+2. Tété - The Sorrow Song (Acoustique) (3:43)
+3. Jessie Reyez - INTRUDERS (3:05)
+4. Black Pumas - Colors (Acoustic) (5:23)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59B5C6BE04724D12125743066102D3474573FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011684   (795954) от 28.04.2016
 
 Потап и Настя - Коллекция песен (2016) [MP3|320 кб/с] <Поп, Ритм-н-Блюз>
@@ -533,168 +695,6 @@ VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63B0DCE9FB960A70D5C8C6B9793529E78359478B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011730   (796431) от 28.04.2016
-
-VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dance, EDM>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796431.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chase, Sunlounger, Roger Shah - Surrender feat. Chase (Pierre Pienaar Remix)
-002. Robin Schulz - Sugar
-003. Felix Jaehn - Eagle Eyes (Lucas & Steve Remix) ( feat. Lost Frequencies & Linying)
-004. Jordi Castillo - Darth (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, Dance, EDMПродолжительность: 08:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92D62A8E3C06CB98A2A38886C2164755577CCCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011741   (796434) от 28.04.2016
-
-VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hairy Orchard - Bad Teen (Houzee Mix)
-02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
-03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
-04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011608   (796440) от 28.04.2016
-
-VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabtrap - Your Love 03:35
-02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
-03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
-04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011779   (796442) от 28.04.2016
-
-VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Goldstone - Please Full - Deepfully Mix
-02. Carl Kennedy - Skank Henz - King Size's Cool Groove
-03. Claude Roberts - Ready for the Trip - Deephouse Mix
-04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011600   (796443) от 28.04.2016
-
-VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
-02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
-03. TIA Milano -  Wizard (Dirty Mix)  4:38
-04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011592   (796447) от 28.04.2016
-
-VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia, Jonathan Mendelsohn -  A New Dream (Original Mix)  6:16
-02. Andrew Rayel -  Andrew Rayel - 550 (Senta Aeth  7:44
-03. Karanda -  Agony - Shawn Mitiska Remix  7:08
-04. Fabio XB & Liuck ft. Christina -  Back To You (Purple Stories Re  8:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E2ACE793508F26F8FB33A5A3C82EB9A80E9DAF
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1382105   (822092) от 09.05.2020
+
+VA - Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix vs. Matisse & Sadko with Michel Zitron - Hold On (feat. Michel Zitron) 4:05
+02. SAINt JHN - Roses (Imanbek Remix) 2:57
+03. R3HAB x Timmy Trumpet - 911 2:09
+04. Dubdogz & Bhaskar - Infinity (Dubdogz & Bhaskar Edit) 3:16(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4F63988DF495AAB6D40E43E54C7A99D459DEE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116412   (822241) от 20.03.2017
+
+Pet Shop Boys - Ultimate Tracks Surprise (2017) [MP3|320 Kbps] <Europop, Art Pop, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yesterday, When I Was Mad (Raf Zone Dub)  5:41
+02.  Opportunities (Let's Make Lots Of Money) (Full Length Original 7'')  4:37
+03.  Miserabilism (Moby Electro Mix)  5:36
+04.  London (Thee Radikal Blaklite Edit)  5:44(   Читать дальше...   )Жанр: Europop, Art Pop, Synthpop, New WaveПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDC9549FAE6CF98A9EF66117FD5C5A412714492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116764   (822246) от 20.03.2017
+
+Snowy White - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue To The Bone
+02. I Loved Another Woman
+03. The Agency Blues
+04. Loving Man(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C696608BEBBF2925AB66744D80F320EBCA4E9CE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196517   (822314) от 03.01.2018
+
+VA - Best of Deep House. Volume 10. Titanic Emotions [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House, Tech House, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nic Fanciulli - The Light (feat. Constance) [2:56]
+02. Abel - NYE 2014 [6:10]
+03. Neil Quigley - Look CLoser [6:57]
+04. Marco Resmann - Babylon Side (feat. Deep Aztec & Black Soda) [6:51](   Читать дальше...   )Жанр: Deep House, Tech House, Nu-DiscoПродолжительность: 05:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57998D213F94791B6CFE1A01E3C81787FC1518E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116551   (822319) от 20.03.2017
+
+VA - Top 100 Зайцев нет. Март (2017) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822319.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Pac - Dear Mama 4:39
+002. Ace Of Base - All That She Wants 3:31
+003. Alan Walker - Alone 2:41
+004. Alan Walker - Faded (DJ Amice Remix) 4:02(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0065596472B9109100FA370EE4F4701D630BCF5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114508   (822343) от 20.03.2017
+
+Moscow Cast - Бал Вампиров - официальная запись со спектакля (2017) [MP3|~223 Kbps (V0)] <Мюзикл>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uvertyura. Prolog
+02. Ne Spitsya Etoy Noch'yu Mne
+03. Bog Zabyt
+04. Priglashenie na bal(   Читать дальше...   )Жанр: МюзиклПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024CD5B3ACF5E63E0A80C5EF065A01A38EEF3C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196520   (822404) от 03.01.2018
 
 VA - Private Sound Chill Session December (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -533,168 +695,6 @@ VA - Interkosmos (Compiled by Breeeze) (2016) [MP3|128-320 кб/с] <Cosmic Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA6BD27AB044DB66237D27261F376BE4B791AA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007020   (823484) от 14.04.2016
-
-VA - La Noche Piano: y Dulces Atmosferas Musica Clasica (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philip Bennetts - Proud Achievement
-02. Francesco Morettini - Nel pianoforte in A Major - for Piano
-03. Pino Cangialosi - Rain on Kids
-04. Gianluca Ricciardi - Conseguenze(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC3EE3CBA9DBDE6D94FC2F1EAC9ACC31D8C5CFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007114   (823567) от 14.04.2016
-
-VA - Мачо. Академия хитов шансона (2016) [MP3|256-320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Кнут - Ножичек
-02. Мурки - Мачо
-03. Виктор Калина - Дочка
-04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314BC4182A9E8E1E66378C70A3211A6BC5B05FE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007148   (823635) от 14.04.2016
-
-VA - BacauHouseMafia Vol.10 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bass Inside (Original Mix) - AC Slater 04:24
-002. Adam Lambert - If I Had You (Ricky C Remix) 04:11
-003. Ahxello - Levitate (Original Mix) 03:21
-004. Anro - I Remember House (Original Mix) 06:04(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 13:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1F3B160415C41C11C6E25D338F67FBA97309F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006774   (823638) от 14.04.2016
-
-Анастасия Макаревич (Лицей) - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2016) [MP3|128 кб/с] <Поп, Интервью>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Паровозик-облачко
-2. Фотография
-3. Ты Думала
-4. Осень(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8C82330EFD938350EB05BBAC00D86B6DD03AAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196382   (823721) от 02.01.2018
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol.68 (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Darude  -  Sandstorm (Velchev & Arefiev Remix) (Radio Edit)  2:42
-02.  Maria Balak feat. Nejtrino  -  Звенит Январская Вьюга (Arefiev & DJ Olmega Remix)  3:24
-03.  Татьяна Буланова  -  Иди  3:33
-04.  W&W  -  Supa Dupa Fly 2018  2:53(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 07:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D80DC488FA8F92EA2D43FB3FFD2B5A3429E6445
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196425   (824003) от 02.01.2018
-
-Amure - Calypso (2018) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow On The Wall (4:27)
-02. Frozen Love (4:52)
-03. Soran (5:27)
-04. The Rain (5:13)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBFB92D37762D538B6DA3E2D9EF3C5D579F5085
 ```
 
 

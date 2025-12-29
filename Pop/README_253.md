@@ -1,3 +1,163 @@
+###  Публикация: 1219978   (709860) от 16.04.2018
+
+Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приятное редкое германское диско со звуковыми элементами панфлейты.01. Start The Fire (4:13)
+02. Pandora's Box (4:11)
+03. Magic Music (4:26)
+04. Pantomime (3:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7741E0AD0235178E9B26E1139A36986B6E703828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025470   (709930) от 12.06.2016
+
+Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chase (8:25)
+02. Love's Theme (5:33)
+03. (Theme from) Midnight Express (4:39)
+04. Istanbul Blues (3:22)(   Читать дальше...   )Жанр: Electronic, Disco, SoundtrackПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286CBBF8A7B6F7B7133DC96D64CE9FD116F9385E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219958   (709950) от 16.04.2018
+
+VA - Radio Italia Spring (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 Non mi avete fatto niente - Ermal Meta & Fabrizio Moro
+02 Nessuno vuole essere Robin - Cesare Cremonini
+03 Da sola / In the night (feat. Tommaso Paradiso e Elisa) - Takagi & Ketra(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD47C2485C4850F61B8D27FBEC1382CFB681BAE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025459   (710024) от 12.06.2016
+
+Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Divorcio (04:00)
+02.  Corazon de papel (03:58)
+03.  Criollo soy (03:56)
+04.  Qui ganaste (03:02)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D12523B90CABF2A577D0FE300BC9C3163DB7946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025461   (710034) от 12.06.2016
+
+Giorgio and Chris - Loves In You, Loves In Me (1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's In You, Love's In Me (3:35)
+02. Keep It Together (3:26)
+03. I Can't Wait (9:35)
+04. Love Now, Hurt Later (6:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4492FE88A2780A2C13B4165F3E250316E45F8EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025699   (710098) от 12.06.2016
+
+Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Up    [03:12]
+02. Fightin' Over MeЖанр: Pop, R'n'BПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025548   (710184) от 12.06.2016
 
 Paris - You Know Me (2002) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
@@ -534,172 +694,6 @@ Bobby Farrell - Boney M. I Successi (2001) CD [MP3|320 Kbps] <Electronic, Pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A97D8854F279A4D550EFF65A90AE45EE3A36BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791977   (711939) от 01.06.2014
-
-Ева Польна - Поёт любовь (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я здесь (intro) - 02.36
-02. Выход - 04.36
-03. Слова - 03.45
-04. Молчание - 03.29
-05. Миражи - 04.28
-06. Не расставаясь - 03.10
-07. Корабли - 04.45
-08. Это не ты - 03.43
-09. Поёт любовь - 03.45
-10. На последнем дыхании - 03.55(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DB7EDDB4BB0039170A5F9C43EC120C83169A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025103   (711952) от 11.06.2016
-
-Giorgio Moroder - Innovisions (1985) [MP3|320 кб/с] <Electronic, Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Time Is Right Time (feat Edie Marlena) (4:08)
-02. My Girl  (feat Joe Esposito) (3:54)
-03. American Dream (feat Paul Engemann) (4:10)
-04. Baby Blue (4:22)(   Читать дальше...   )Жанр: Electronic, Disco, SynthpopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD09F1E39F0257F4382C04099BC922319C521C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025062   (711961) от 11.06.2016
-
-Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Me High    07:20
-02. There's A Fire    05:37
-03. Only One Night    07:34
-04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219611   (711973) от 15.04.2018
-
-Reba McEntire (Риба МакИнтайр) - Reba McEntire (1977) Mercury [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Риба МакИнтайр (полное имя - Риба Нилл МакИнтайр) - американская кантри певица, автор песен, продюсер и актриса, которая за свою карьеру продала более семидесяти миллионов копий своих альбомов по всему миру. Она выпустила 26 студийных альбомов, выпустила 24 синглов, которые стали №1, 28 альбомов были сертифицированы как Золотые, Платиновые и Мульти-Платиновые по (   Читать дальше...   )01. Glad I Waited Just for You 3:01
-02. One to One 2:41
-03. Angel In Your Arms 2:51
-04. I Don't Want To Be A One Night 3:03(   Читать дальше...   )Жанр: CountryПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629C13E2C40623A29E9CE9D3CD6434424DFE2E87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219644   (711979) от 15.04.2018
-
-Kenny Chesney (Кенни Чесни) - In My Wildest Dreams (1994) Capricorn Records [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кенни Чесни - американский исполнитель кантри-музыки, один из самых популярных в 2000-2010 годах в своём стиле. Он записал 16 альбомов, 14 из которых сертифицированы как золотые и платиновые по данным RIAA, а 7 альбомов возглавляли национальный хит-парад Billboard 200. Также он является автором более 30 синглов, вошедших в Top 10 списка Hot Country Songs журнала (   Читать дальше...   )01. Whatever It Takes 3:01
-02. Somebody's Callin' 2:36
-03. The Tin Man 3:29
-04. High And Dry 2:58(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5383E2EEDF1B19BC585ECA4CFA44416D8066905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025395   (712066) от 11.06.2016
-
-Electra - Cuando Cuando (1985) LP, Maxi-Single [MP3|320 кб/с] <Electronic, Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuando Cuando    03:40
-02. Cuando Cuando (Instrumental)    03:10Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 00:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0EDAAB8269711508354147731EF40720BEF18D
 ```
 
 

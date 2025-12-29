@@ -1,3 +1,57 @@
+###  Публикация: 1437921   (1041705) от 06.01.2021
+
+Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041705.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Рэгтайм
+A2 Улыбка Старой Москвы
+A3 Рэг-Дикси
+A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610733   (1041888) от 09.02.2023
+
+Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
+1993 - Genesis
+1994 - Humanimal. Part 1
+1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610271   (1042343) от 07.02.2023
 
 Work Of Art - Studio Albums (4 releases) (2008 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, AOR>

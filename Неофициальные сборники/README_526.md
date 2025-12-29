@@ -1,3 +1,165 @@
+###  Публикация: 1011730   (796431) от 28.04.2016
+
+VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dance, EDM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chase, Sunlounger, Roger Shah - Surrender feat. Chase (Pierre Pienaar Remix)
+002. Robin Schulz - Sugar
+003. Felix Jaehn - Eagle Eyes (Lucas & Steve Remix) ( feat. Lost Frequencies & Linying)
+004. Jordi Castillo - Darth (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, Dance, EDMПродолжительность: 08:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92D62A8E3C06CB98A2A38886C2164755577CCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011741   (796434) от 28.04.2016
+
+VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hairy Orchard - Bad Teen (Houzee Mix)
+02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
+03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
+04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011608   (796440) от 28.04.2016
+
+VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabtrap - Your Love 03:35
+02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
+03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
+04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011779   (796442) от 28.04.2016
+
+VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Goldstone - Please Full - Deepfully Mix
+02. Carl Kennedy - Skank Henz - King Size's Cool Groove
+03. Claude Roberts - Ready for the Trip - Deephouse Mix
+04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011600   (796443) от 28.04.2016
+
+VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
+02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
+03. TIA Milano -  Wizard (Dirty Mix)  4:38
+04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011592   (796447) от 28.04.2016
+
+VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia, Jonathan Mendelsohn -  A New Dream (Original Mix)  6:16
+02. Andrew Rayel -  Andrew Rayel - 550 (Senta Aeth  7:44
+03. Karanda -  Agony - Shawn Mitiska Remix  7:08
+04. Fabio XB & Liuck ft. Christina -  Back To You (Purple Stories Re  8:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E2ACE793508F26F8FB33A5A3C82EB9A80E9DAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011376   (796603) от 27.04.2016
 
 Scorpions - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
@@ -533,168 +695,6 @@ VA - Ibiza 2015. Soulful Deep-House. Vol.2 В клубах (2015) [MP3|253-320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95612B619A937E95D9B2DF52862D552C1573DA8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011285   (797026) от 27.04.2016
-
-VA - Styles Ultimate Tech Vocals (2016) [MP3|251-320 кб/с] <Funky, Soulful, Deep House, Tropical, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangelis Kostoxenakis - Show Me Some Skin (Original Mix) 06:16
-02. Tony Romera, Jeremy Pianelli - Back To You (Carl Nunes Remix) 04:13
-03. Sick Individuals Feat. Kaelyn Behr - Never Fade (Original Mix) 05:50
-04. Klaas - The Gallery (We Are One) (Club Mix Edit) 02:53(   Читать дальше...   )Жанр: Funky, Soulful, Deep House, Tropical, BigroomПродолжительность: 06:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269828D2F59DD43FCAE7461A61F2AA4ECEB2EDF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011250   (797041) от 27.04.2016
-
-VA - Wow House Inspiration Reserve (2016) [MP3|240-320 кб/с] <Electronic, House, Soulful, Tech, Funky, Electro, Club, Fidget House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797041.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klik Klak - Get Down (Original Mix) 04:27
-002. Eric Chase Feat. Michelle Hord - I Can't Wait (Extended Mix) 04:35
-003. Lisa Stansfield - Junk (Electro Swing Remix) 06:41
-004. Turbotronic - To The Party (Extended Mix) 04:46(   Читать дальше...   )Жанр: Electronic, House, Soulful, Tech, Funky, Electro, Club, Fidget HouseПродолжительность: 17:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CE166446E36AD2F9A8FDC23C32C0BAA4277182
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385509   (797140) от 25.05.2020
-
-VA - 100 Tracks Love Ballads Playlist Spotify (2020) [MP3|320 Kbps] <Rock, Pop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797140.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bryan Adams - (Everything I Do) I Do It For You (6:33)
-2. Bon Jovi - Bed Of Roses (6:32)
-3. Bryan Adams - Please Forgive Me (5:55)
-4. Bon Jovi - Always (5:53)(   Читать дальше...   )Жанр: Rock, Pop, AlternativeПродолжительность: 06:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C107EC038C6245605ADA771C26C6ABC8CB64BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385615   (797199) от 25.05.2020
-
-VA - Music News vol.8 (2020) [MP3|320 Kbps] <Progressive Rock, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asammuell - Всем Для Тебя (03:03)
- 02. Asking Alexandria -  Lorazepam (04:02)
- 03. Asking Alexandria - All Due Respect (03:55)
- 04. Asking Alexandria - Antisocialist (03:36)(   Читать дальше...   )Жанр: Progressive Rock, Rock, PopПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C320B9F8734E8845E90CDD71C48B7754448ABF18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385558   (797202) от 25.05.2020
-
-VA - Beatport Drum & Bass: Electro Sound Pack #91 (2020) [MP3|320 Kbps] <Drum & Bass, Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sullen - Can't Escape
-002. Hothead - Dark Side
-003. Shodan - Gobsmacked
-004. Drum Boss - Core (Original Mix)(   Читать дальше...   )Жанр: Drum & Bass, Bass, BasslineПродолжительность: 10:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B93DB1CF9BAF63C2CEE32EE0942E74D95FDFFDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010969   (797221) от 26.04.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 30 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etolie Vipe - Save The World (Freeze Remix) (04:42)
-02. Pharao - There Is A Star (John Remix) (03:56)
-03. A La Carte - Doctor Doctor (Mahnovsky Remix) (05:42)
-04. Arabesque - In The Heart Of A Disco Night (Remix) (03:51)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913881EFE9C0E50F762DD3A6AC0C465E3FDBFB4E
 ```
 
 

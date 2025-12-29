@@ -1,3 +1,165 @@
+###  Публикация: 1607245   (1044084) от 26.01.2023
+
+Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into overdrive [00:04:04]
+02 - Mutiny [00:04:15]
+03 - Late to life [00:04:27]
+04 - Diva of death and destruction [00:05:06](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED02AEDD2B1598386EC45F509C338C960D40543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606717   (1044305) от 23.01.2023
+
+Rainbow - Ritchie Blackmore's Rainbow (1975) Reissue, 2014, Polydor [OGG Vorbis|520 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Man On The Silver Mountain
+02.Self Portrait
+03.Black Sheep Of The Family
+04.Catch The Rainbow(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49ED327559DC7A47B0680A01DA2A050FDD507DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606569   (1044441) от 22.01.2023
+
+Bonnie Tyler - 3 Original Classics Box Set (1992) [MP3|320 Kbps] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just A Woman
+02. We Danced On The Ceiling
+03. Wild Love
+04. The Closer You Get(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:57:129
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA8DF09611CE9BBA79934D4BF19CFAFABFA8F53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606585   (1044442) от 22.01.2023
+
+Rainbow - Difficult To Cure (1981) Reissue, 2013, Polydor [OGG Vorbis|450 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Surrender
+02. Spotlight Kid
+03. No Release
+04. Magic(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34006CB4C15AC474005B8671FE06C9605CCD88DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606195   (1044475) от 21.01.2023
+
+Scorpions - Blackout (1982) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|450 Kbps] <Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackout
+02. Can’t Live Without You
+03. No One Like You
+04. You Give Me All I Need(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C9D72B8498E2225FB2A56CD36E61DF3D733777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606342   (1044525) от 21.01.2023
+
+Dire Straits - Love Over Gold (1982) Reissue, Remastered, 2011, Vertigo [OGG Vorbis|450 Kbps] <Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telegraph Road
+02. Private Investigations
+03. Industrial Disease
+04. Love Over Gold(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C705E05975B1A9467D5BC64AB1FE9A5041B125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606179   (1044552) от 21.01.2023
 
 Journey - Escape (1981) Reissue, 2000, Columbia [OGG Vorbis|450 Kbps] <Rock>
@@ -533,32 +695,6 @@ The Vegetarians - Uncle Meatless Favorite Recipes (2025) [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D089A503AF93768DBD1430AA7F40503252C0ED08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841655   (1048220) от 12.12.2025
-
-Pink Floyd - Wish You Were Here 50 (1975) 3xCD, 2025, Legacy Recordings [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raving And Drooling (Live from the Los Angeles Sports Arena, 1975)
-02. You've Got To Be Crazy (Live from the Los Angeles Sports Arena, 1975)
-03. Shine On You Crazy Diamond (Pts. 1-5)Жанр: Progressive RockПродолжительность: 3CD, 04:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3340723859519D6DE9FDAC99BC43F689407605C0
 ```
 
 

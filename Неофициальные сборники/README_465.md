@@ -1,3 +1,165 @@
+###  Публикация: 1127747   (731145) от 22.04.2017
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Громова - Не Хочется 2:58
+002. Mike Perry Feat. Casso - Inside The Lines 3:25
+003. Катерина Sky - Мне Тебя Не Хватает 3:21
+004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127753   (731149) от 22.04.2017
+
+VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инфинити Feat. Гена Дудин - Воланчик 3:18
+002. Илья Гуров - Геолокация 3:14
+003. Егор Диких - Маэстро 3:55
+004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021388   (731264) от 30.05.2016
+
+VA - Стёбный Кавер! (Забавные Кавер-Версии и Пародии Популярных Песен) Часть 2 [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Covers, Parody>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Frank Zander - Da Da Da Ich Weiss Bescheid Du Weisst Bescheid (03:32)
+02 Guns & Charoses - Don't Worry Keep Kosher (04:14)
+03 Sugarpie And The Candymen - Lemon Tree (04:09)
+04 Playa Desnuda - Mad World (03:52)(   Читать дальше...   )Жанр: Covers, ParodyПродолжительность: 01:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F6B2FC6591F548082C449FF068BFF0BD567DF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127339   (731347) от 21.04.2017
+
+VA - Дискотека 2017 Dance Club Vol. 163 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Techno, Chill Out, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Premium-Art vs. Ksu Krusenshtern - Серые глаза (Extended Cover Mix)  4:16
+002.  Roman Messer & Betsie Larkin - Unite (Extended Mix)  5:30
+003.  Светлана Лобода - Стерва  3:39
+004.  Tosel & Hale vs. Heavy Pins feat. Veselina Popova - Read The Signs  5:59(   Читать дальше...   )Жанр: Pop, House, Trance, Techno, Chill Out, Club, DanceПродолжительность: 13:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FE3834439CE59B34306F4A33D7618B331B3AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283735   (731471) от 18.02.2019
+
+VA - Deep House Collection Vol.197 (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 1979 - Enigma (Original Mix)
+002. Adam Da Guy - Get Loose (Original Mix)
+003. Adam Nyquist & Jay Gecko feat. Kirstie Fox - This Is Our Love  (Original Mix)
+004. AfroZone - Transition (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 14:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC747BCC0216A27B63D91381CA3F3D3742078402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127376   (731498) от 21.04.2017
+
+VA - Рок в машину (2015-2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Saving Abel - Addicted (3:43)
+02.	12 Stones - Hey Love (3:53)
+03.	AC/DC - You Shook Me All Night Long (3:30)
+04.	Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E512DE5FDFB3338E1285629BF80C508B81F831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529876   (731505) от 08.02.2022
 
 VA - Свежий Русский Хит от ALEXnROCK часть 9 (2022) [MP3|320 Kbps] <Pop>
@@ -539,168 +701,6 @@ Blue Tribe - Walks With Indian (compilation) (2022) [MP3|320 Kbps] <Native Ameri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5394B4D91D0D2E551C9B1DEDC36A3A1A986B6EC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529740   (732531) от 07.02.2022
-
-VA - Pop Drive 2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo, X Ambassadors - Undeniable (3:00)
-002. Alesso, Katy Perry - When I’m Gone (with Katy Perry) (2:41)
-003. Taylor Swift - Wildest Dreams (3:38)
-004. The Kid LAROI, Miley Cyrus - WITHOUT YOU (2:41)(   Читать дальше...   )Жанр: PopПродолжительность: 05:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCE532FCB12464B63F2360211D09E367A49CBBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529216   (732655) от 06.02.2022
-
-Sven Zetterberg - Compilation (2022) [MP3|320 Kbps] <Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Sweetest Touch
-02. The Handwriting Is on the Wall
-03. All For Business
-04. More Love(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 02:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8799A89F802F5E11C087436856771DFC2036601A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529411   (732685) от 06.02.2022
-
-VA - Pop Party 2 (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spiller, Sophie Ellis-Bextor, Riva Starr - Groovejet (If This Ain't Love) (7:31)
-002. EKAE - See Me Fall (2:05)
-003. Lucas Estrada, Wahlstedt, AMAYA - Naked (3:17)
-004. PRE55URE - The Way It Is (3:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F3F2F7B4D73445360B0BE27E9A9411A66F16AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399590   (732836) от 01.08.2020
-
-VA - Glam, Heavy Metal Ballads (2020) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helloween - Forever and One (Neverland)
-02. Bon Jovi - Runaway
-03. Twisted Sister - We’re Not Gonna Take It
-04. Vision Divine - The Sin Is You(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 15:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3666035BE8260D7C09BF03470F276B4A5987750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399521   (732907) от 01.08.2020
-
-The Dead Daisies - From Yesterday To Tomorrow (2020) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mainline
-02. Angel in Your Eyes
-03. Your Karma
-04. Long Way to Go(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2379D9B5A44BFEE10778D71D6361F8E4FFFE6DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399561   (732913) от 01.08.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 31.07.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NRD1 - All Good Things (Come To An End) 3:27
-02. Pascal Letoublon - Friendships 4:02
-03. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) 2:45
-04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EEE2D344F7075F14FC86D31D16D28F8659C725
 ```
 
 

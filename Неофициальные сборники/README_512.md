@@ -1,3 +1,165 @@
+###  Публикация: 1388362   (786717) от 06.06.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 05.06.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topic & A7S - Breaking Me 2:47
+02. NRD1 - All Good Things (Come To An End) 3:27
+03. Regard - Ride It 2:38
+04. Zivert - ЯТЛ 3:44(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9730B8B20B2CC92FDEBAC245D0C7493AD0990444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388469   (786724) от 06.06.2020
+
+VA - Summer Jam: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mykal Rose - Everybody Gwan Ska
+002. Al-Beeno - Catch The Pre
+003. Lee Scratch Perry - Dub Magik
+004. I-Octane - Something To Say(   Читать дальше...   )Жанр: Reggae, Dancehall, Riddim, SoulПродолжительность: 05:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312601F2E207238EA29A55B3081C3B7A0730E9BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388530   (786753) от 06.06.2020
+
+VA - The Official UK Top 40 Singles Chart 05.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBaby - ROCKSTAR
+02. Lady Gaga - Rain On Me
+03. S1mba - Rover (feat. DTG)
+04. Drake - Toosie Slide(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F119DA8A75FE1C499A4F3BEC28957EAF94AFE5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388470   (786762) от 06.06.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #99 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786762.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atomic Pulse - Signals
+002. Soundreamer - Megamix
+003. Beatman - Walking In The Forest
+004. Captain Hook - Space Tube 25(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4156C6F499A50CD81D45A0D067D537879916C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388151   (786827) от 05.06.2020
+
+VA - The correct Legend of Rock (2020) 6CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Gilmour - What Do You Want From Me (Live At Pompeii 2016)
+02. Sweet - Blockbuster
+03. Uriah Heep - Dreams Of Yesteryear
+04. Suzi Quatro - Shakin' All Over(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 41:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B9CBC3F4BDAB931989A1737489F81A39F5628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388262   (786839) от 05.06.2020
+
+VA - Rock Ballads About The Sublime (2020) [MP3|320 Kbps] <Rock, Ballads, Metal, Symphonic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786839.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scheepers - Before The Dawn
+002. Fergie Frederiksen - How Many Roads
+003. Wolfpakk - Cold Winter
+004. Europe - Carrie(   Читать дальше...   )Жанр: Rock, Ballads, Metal, SymphonicПродолжительность: 13:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E644EF77CEE1838774EC389853AAE1218142B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277212   (786906) от 19.01.2019
 
 Света - Хватит довольно (2018) Remix [MP3|320 Kbps] <Club, Dance>
@@ -530,168 +692,6 @@ VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512330   (787469) от 24.11.2021
-
-VA - Synthwave Dream (Vol.03) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karlo Wanny - Among Us
-002. Shock Therapy - You Were The Moon
-003. Koreless - White Picket Fence
-004. Quiqui - Everything About You(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7460E2D405625CD6595733C64529051BFA0852D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512295   (787471) от 24.11.2021
-
-VA - Beatport Electro House: Sound Pack #370 (2021) [MP3|320 Kbps] <Electro, House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Detroit Experiment - Think Twice
-002. Yves Murasca & Rosario - Time
-003. Marcelo Pm - Strangers
-004. Gerardo Moro - District(   Читать дальше...   )Жанр: Electro, House, ClubПродолжительность: 10:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B307CD60892564395280CF1863029F2AE1C35FF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276658   (787628) от 17.01.2019
-
-VA - Billboard Hot 100 Singles Chart 19.01 2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-002. Halsey - Without Me
-003. Ariana Grande - thank u, next
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B6C831E2C25E234DE041C0615FA77C9E9F6E66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276668   (787655) от 17.01.2019
-
-VA - Uplifting Language Adaptation (2019) [MP3|320 Kbps] <Melodic, Emotional, Vocal, Harmonic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gainworx - Voices Of Sahara (Extended Mix) 6:38
-02. Ozan Dede - The Ocean (Original Mix) 6:38
-03. Aeden & Dan Kingsley - The Butterfly Effect (Kiyoi & Eky Remix) 6:55
-04. Fischer & Miethig - On The Run Again(Extended Mix) 6:50(   Читать дальше...   )Жанр: Melodic, Emotional, Vocal, HarmonicПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79631A645F1265399D613866713F59A0079C54E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203877   (787664) от 03.02.2018
-
-VA - Лидеры чартов танцевальных FM станций 9 (2018) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владислав Курасов - Прощение
-002. Меседа Багаудинова - Жаль
-003. Мальбэк Feat. Сюзанна - Стильный Бит
-004. Натали Янковских - Новая Я(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0201C92F980699614BBCA82B73909CD3FAAA4F67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203675   (787669) от 03.02.2018
-
-VA - Евро Хит Топ 40 Europa Plus 02.02.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Malone ft. 21 Savage - Rockstar 3:38
-02. Imagine Dragons - Whatever It Takes 3:22
-03. Jason Derulo - Tip Toe (ft. French Montana) 3:08
-04. Luis Fonsi, Demi Lovato - Echame La Culpa 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B6DBB030966E07BEB8EE0F1A55A1A3BA93C68C
 ```
 
 

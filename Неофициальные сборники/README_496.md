@@ -1,3 +1,162 @@
+###  Публикация: 1212534   (775109) от 13.03.2018
+
+VA - Если Ты Меня Ждёшь: Сборник Авторской Песни (2018) [MP3|256-320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775109.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юрок Аверин - Братка
+002. Александр Блик - Пришла Весна
+003. Юрий Северин - Дорога-Ночь
+004. Гвоздика Сергей - Ты - Моя Красавица(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ECFC6CACFA362E779EEEF8CBC8395A71DD9DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212677   (775191) от 13.03.2018
+
+VA - Morning Coffe Chillout Original Party (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daminika - Snatches Of Memory (Original Mix)
+002. DJSaint - Souls (Harold-Alexis Remix)
+003. Leslie Dhani - What I Need - Deep House Dance Mix
+004. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C7C479E3563F612E457F2AB929257E53F9682E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276989   (775498) от 21.01.2019
+
+VA - Super Disco Еxclusive Vol.5 (Новогодний) (2019) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanotek feat. Eneli - Back To Me
+002. 7even (GR) - Mystery (Original Mix)
+003. Adelina - Bye Bye (Robert Cristian Remix)
+004. Techno Project & Dj Geny Tur - DUDUK(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 07:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5829745F8FAD880A24149F572704AFA4589E8A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277754   (775499) от 21.01.2019
+
+Roxette - Listen To Your Heart (2016) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roxette - Listen To Your Heart (Ennis Remix)Жанр: Club, DanceПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFD024F94A845CAF77CEB819A66E3D1CD9CEB68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276966   (775500) от 21.01.2019
+
+VA - Super Disco Еxclusive Vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dr. Alban - Its My Life (DJ SAVIN  Alex Pushkarev Remix)
+002. Above & Beyond feat. Justine Suissa - Cold Feet
+003. Michelle Andrade - Hasta la Vista
+004. Ennio Morricone - Chi Mai (A-Mase Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E3A53F485E176E94A9E1226D99612AF7A8EC31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276967   (775503) от 21.01.2019
+
+VA - Super Disco Еxclusive Vol.2 (2019) [MP3|256-320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Captain Jack - In The Army Now (Radio Mix)
+002. A. Rassevich - The Red Space (QRVZH Remix)
+003. DJ BeeCo - Give me kiss, kiss
+004. Jayan - Hasta Luego(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED55B6610F1BA59617CDCC6F10FFA802ED5A096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276969   (775504) от 21.01.2019
 
 VA - Super Disco Еxclusive Vol.3 (2019) [MP3|256-320 Kbps] <Pop, Dance, Club>
@@ -531,168 +690,6 @@ VA - Women Blues (2000-2016) (2018) 2CD  [MP3|320 Kbps] <Blues, Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB1A27FBB4F8CF6D6F9267DBEDB5EF2CC6572BF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212433   (776009) от 11.03.2018
-
-VA - Зарубежные Хиты (Март) (2018) [MP3|320 Kbps] <Dance, Pop, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776009.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 30 Seconds To Mars - Dangerous Night
-002. 247 - Tu Guerrero
-003. Adam Cola - Be Free
-004. Adelen - Go Home(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 05:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F25B29898A5CEBDCE75EB21A40F1B0A4AB8EE89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212263   (776015) от 11.03.2018
-
-VA - Философия Весны от Авторадио (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776015.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Воробьев - Я Тебя Люблю
-002. Emin & А-Студио - Если Ты Рядом
-003. Alisher - Грешник
-004. Планка - Это Было Больно(   Читать дальше...   )Жанр: PopПродолжительность: 12:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4175E48F47F8AB3E89DB8F11184B407B2AD80B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212281   (776017) от 11.03.2018
-
-VA - Popular Italian Songs: Classic Collection 80s (2018) [MP3|320 Kbps] <Pop, Disco, Italian>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Toto Cutugno - L'italiano
-002. Raffaella Carra' - A Far L'Amore Comincia Tu
-003. Brunella - Mambo Italiano
-004. Adriano Celentano - L'Estate E Gia Qua(   Читать дальше...   )Жанр: Pop, Disco, ItalianПродолжительность: 07:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026D8FEDF90D80513E013A606B0FBFED3099180D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212438   (776049) от 11.03.2018
-
-VA - Танцевальная весна (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VANLAV feat. Derek Joel — Poison
-02. Kadebostany — Save Me (Guillaume de Kadebostany Remix)
-03. Sherrie Sherrie, The Ware feat. Nina — Nana Song (DJ Antonio & DJ Renat Remix)
-04. Family Man — Fallin' Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90395D22813BA0760DAB157655796FF00F16A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212272   (776051) от 11.03.2018
-
-VA - Declaration Of Love: Pop Rock ballads (2018) [MP3|320 Kbps] <Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776051.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Destiny's Child - Cater 2 U
-002. George Michael - Careless Whisper
-003. Whitney Houston - I Will Always Love You
-004. Foreigner - I Want To Know What Love Is(   Читать дальше...   )Жанр: Pop RockПродолжительность: 09:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F1D231238B1AF73304266CF473CA680D0CA9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014560   (776065) от 08.05.2016
-
-VA - Владимирский централ. Легенды 90х (2016) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Геннадий Жаров и группа Амнистия 2 - Ушаночка
-02. Иван Кучин - Человек В Телогрейке
-03. Михаил Круг - Владимирский централ
-04. Владимир Черняков - За друзей(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7821C14DC3E3F4751C0AE921E3C9A1FCB24BBD6B
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1005652   (832388) от 09.04.2016
+
+VA - Музыка хорошего настроения 7 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832388.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lemaitre - Stepping Stone
+002. Слот - Круги На Воде
+003. Remady & Manu-L - Another Day In Paradise
+004. Gaia - Carnation(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB531344A6D6EC8C762AA68B0D0E051E9EEF79B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005353   (832465) от 09.04.2016
+
+VA - Workout Mix vol.4 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-The Black Eyed Peas  - Lets Get It Started (PRIDE & CHIPPON Remix)
+ 02-Dr. Dre & Snoop Dogg ft. San Holo vs Maz & Rascal - Next Talking (Krasovsky Mash Up)
+ 03-Kolya Funk & Eddie G vs BrainDeaD - Spread Out (JOHN ROCKS & DIMA HOUSE MASH UP)
+ 04-Teo Moss x Party Favor - Booty Loose (Yuri Rider & Dj Alex Trapleg)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79A2EB27621B86B2001F5BF19D6E3EC215753D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005667   (832558) от 09.04.2016
+
+VA - Музыка дороги Сборник русского шансона 2 (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аркадий Стародубцев - Адвокаточка
+02. Братва - Девочка Дождь
+03. Артур - Лак Дождя Покрыл Асфальт
+04. Игорь Голубев - Возвращение(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B78DDC285F1DD62737259907DF4D20440B7F8FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005589   (832560) от 09.04.2016
+
+VA - XimeRa present Alternative Collection vol.24 (2016) [MP3|192 - 320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832560.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 3 Doors Down - The Broken
+2. Shallow Side - Stand Up
+3. Fivefold - Just Close Your Eyes
+4. 7eventh Time Down - Alive In You(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176EE343A63E48808A6350887EFDFE3600221D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005432   (832638) от 09.04.2016
+
+VA - Шансон душевный. Любимые песни 4 (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Княжевич - Ты Моя Судьба
+02. Димасик Костень - Фонари
+03. Лесоповал - Прорвусь
+04. Стас Михайлов - Стриптиз(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221C5582020A280D6EC4BE9F3559B56DC9A1A6DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005629   (832707) от 09.04.2016
+
+VA - Летний Хитовый Музон (2015) [MP3|256 кб/с] <Dance, Сlub>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лена Катина - Waiting
+02. VIA - Летта и Пьер Нарцисс - Лето
+03. Макsим - Не Выдыхай
+04. Алёна Высотская - Тонем(   Читать дальше...   )Жанр: Dance, СlubПродолжительность: 06:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2ED6EC958173FDDAE81862024342A66C64B1488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005395   (832829) от 09.04.2016
 
 VA - Lounge Music for Your Senses (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -533,168 +695,6 @@ VA - Музыкальный подарок на радио Europa Plus (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C4718666B66F71021EA4EC3E575DC5FE21C58AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114245   (833497) от 14.03.2017
-
-VA - Deep House Collection Vol.112 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abriviatura IV - Never Gonna Say Goodbye (Hugobeat Remix) 5:22
-002. Alex Daniell - Birds (The Black 80s Remix) 10:29
-003. Alex Mica - Dalinda (Suprafive 2k17 Remix) 4:31
-004. Alex Panchenco - Chaos (Original Mix) 4:53(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5019A1B843719466B16406298DDBC0DC2B0F6211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114254   (833499) от 14.03.2017
-
-VA - I Love Music! - Heavy Metal Edition Vol.32 (2017) [MP3|288-320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833499.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 13Tries - Signs Of Life (Breath) 4:59
-002. Al Atkins - Cradle to the Grave 4:28
-003. Almah - Innocence 4:36
-004. Amalgama - Ночь Нежна 4:15(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C954B8B38D7EC05C69FA43841A6028CD5F3946CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114281   (833503) от 14.03.2017
-
-VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Austin Mahone ft. Pitbull - Lady (Modjo Cover / Richard Vission Remix) 5:21
-002. The Weeknd vs. Don Diablo - Might Not Switch (Mighty Mi Hype Bootleg / Dirty / Acapella Out) 4:15
-003. Bruno Mars - That's What I Like (Dirty / Short Edit) 3:23
-004. Claptone - Party Girl (Format B Remix) 7:06(   Читать дальше...   )Жанр: Dance, Club, FunkyПродолжительность: 08:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114182   (833504) от 14.03.2017
-
-VA - Я слушаю шансон. Реальный блатняк. Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Тартанов - Рубиновое Сердце 4:20
-002. Андрей Шпехт - Придет Весна 3:52
-003. Ян Марти - Гейзер Страсти 3:19
-004. Игорь Голубев & Юлия Прокофьева - А Счастья Хочется 3:54(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CEC86DDE1A19BCD18C829FBBB4348227887752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114174   (833600) от 14.03.2017
-
-VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xana - Красивыи Мужчина 4:00
-002. Натали Янковских - Новая Я 3:08
-003. Moyyo - Любил Тебя Я 3:10
-004. Бьянка - Вселенная 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7001F7088239DF026826550FB18B22063A9F00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114284   (833603) от 14.03.2017
-
-VA - The Place Dance (2017) [MP3|320 Kbps] <Dance, Club, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833603.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Enrique Iglesias f. Ciara - Takin' Back My Love 2017 (Kay Stafford Club Mix) 4:47
-002. Luca Debonaire - Walking On Clouds (Croatia Squad Club Mix) 5:18
-003. Markus Schulz f. Brooke Tomlinson - In The Night (4 Strings Club Mix) 5:19
-004. Morgan Page f. Steve James - Candles (Original Radio Mix) 3:04(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 14:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B4AD9C2CD4B859BF19158B17E46786DF970F83
 ```
 
 

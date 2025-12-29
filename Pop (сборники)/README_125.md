@@ -1,3 +1,36 @@
+###  Публикация: 604639   (996163) от 18.01.2013
+
+VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luchian Cris feat. Loly - All My Love
+02. The Weeknd - Enemy
+03. Scooter - What Time Is Love
+04. The Weeknd - Twenty Eight
+05. Sergio DN feat. Khristeen - Can You Feel (Radio Edit)
+06. Adam Lambert - Trespassing (Vanity Machine Remix)
+07. Andy M. feat. Ellise - Beautiful Day (Radio Edit)
+08. Anastacia - Dream On
+09. Anna Lesko - Ia-Ma (Radio Edit)
+10. Delerium feat. Jael - Light Your Light(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604325   (996455) от 17.01.2013
 
 VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 кб/с]<Pop>
@@ -791,33 +824,6 @@ Teach In - Bye Bye Bye (2020) (2 CD Compilation) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A05C604B2D688024D1F35742FB09D15C3A2C0C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350207   (1003447) от 05.01.2020
-
-Zarina Tilidze - Hit Collection (2019) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Leto Nad Dvoih
-02 Ya I Ti
-03 Amore
-04 Angel Moi(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 02:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F679D45489599D327216E461F08F7934D1C139EF
 ```
 
 

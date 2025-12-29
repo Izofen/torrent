@@ -1,3 +1,165 @@
+###  Публикация: 1020120   (746912) от 25.05.2016
+
+VA - Junodownload DJs Most Charted Minimal Tech House/Techno April (2016) [MP3|320 кб/с] <Minimal, Chicago House, Detroit Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Juno DJs Most Charted Minimal Tech House:
+01. Frank Wiedemann - Moorthon Ii (Original Mix) 08:55
+02. Pig&Dan - Growler (Original Mix) 07:18
+03. Dj Tennis - Divisions (Roman Flugel Remix) 08:31(   Читать дальше...   )Жанр: Minimal, Chicago House, Detroit TechnoПродолжительность: 06:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0801BF8CB4C52F64BF98306F4AD793C9FD3748
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396500   (746915) от 15.07.2020
+
+VA - Beach Dance Classic Radio: Deep House Party (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746915.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pete Ello - Moon
+002. Steven Stone - Let It Go
+003. Danny Hay - Rage
+004. Be Beats - Saturday(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46647CE372F51E2496655E6471F3918826ABF37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396499   (746924) от 15.07.2020
+
+VA - EDM Hawaii Party (2020) [MP3|320 Kbps] <EDM, House, Tech House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drival - Clockwise (Original Mix)
+002. Dmak - Go
+003. Der Hon - La Premiere
+004. Savant - Monster(   Читать дальше...   )Жанр: EDM, House, Tech House, TranceПродолжительность: 08:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DA3EC96E3DF6E6AB9D608A1E03E1924C2A72B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396494   (746966) от 15.07.2020
+
+VA - Sound Of Innocence (2020) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Dark - Open
+002. Lowpaz - Floating
+003. Lounge Aura - The Last Train
+004. Emancipator - Snakes(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 08:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5BA70FC646ACD2F64E069FC9EE5A8B529C4992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783199   (747203) от 03.05.2014
+
+VA - Lounge At The Seashore 11 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chill-Out Orchestra - The Sound of Silence
+002. Le Petit Dejeuner - A Girl's Dream
+003. Sao Vicente - Daddy Cool
+004. Ascent & Argus - Water The Perfect Element(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C25D18AD89F0CE358E3C4C3765885408002DF4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019677   (747575) от 24.05.2016
+
+VA - Disco Eurodance 90s (2016) [MP3|320 кб/с] <Dance, Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tanaka - More, More, More
+002. L.E.T. Generation - Send Me An Angel (Hard Club Mix)
+003. Xstress - I've Got The The Feeling
+004. Valencia No Existe - Feel Your Loving (Extended Mix)(   Читать дальше...   )Жанр: Dance, Pop, DiscoПродолжительность: 07:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A74E49834BF309BE8FD4E637FFE6DAA93CC8BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281819   (747702) от 10.02.2019
 
 La Bouche - Be My Lover (2017) Remix [MP3|320 Kbps] <Club, Dance>
@@ -530,168 +692,6 @@ VA - Just An Illusion: Hard Rock Songbook (2019) [MP3|320 Kbps] <Alternative, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D3325C59A3C288A1849FD293AAD26B294A72AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019572   (748332) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Colder Than Ice ( 1985 )
-02. Flirts - Boy Crazy ( 1982 )
-03. Lee Marrow - Shangai ( 1987 )
-04. Modern Talking - You Can Win If You Want ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019658   (748342) от 24.05.2016
-
-VA - Top 100 EDM Summer (2016) [MP3|256-320 кб/с] <Electronic, Dance Music>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Militia & Vanze Ft. Tyler Fiore - You Found Me (Original Mix)
-02. Christopher S & Lecrema - Rebel's Mind (Radio Edit) (feat. Jamayl Maleek)
-03. Mario Joy - California (Radio Edit)
-04. Calvin Harris - This Is What You Came For (feat. Rihanna)(   Читать дальше...   )Жанр: Electronic, Dance MusicПродолжительность: 06:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D656944134408E7DBC17752E9FE0971D9D58994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019587   (748347) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O'Kay - The Wild Wild Western ( 1989 )
-02. Al Bano & Romina Power - Felicitа ( 1982 )
-03. Scotch - Delirio Mind ( 1985 )
-04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019568   (748355) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Don`t Stop ( 1984 )
-02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
-03. C.C.Catch - Cause You Are Young ( 1986 )
-04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019806   (748356) от 24.05.2016
-
-VA - Музыка дороги Сборник русского шансона 6 (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Чернов & Икона - Батя
-002. Орская Маргарита - Любимый Муж Мой
-003. Константин Крымский - Может Быть
-004. Бумеr - До Поры До Времени(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC32E6CF030BD794893B2767731B33F925C7140
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281885   (748411) от 10.02.2019
-
-VA - Butterfly's Eyes: Trance Project (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abstract Vision - Noonday Shadows
-002. Apaches - Back2Again (Extended Mix)
-003. Jo Cartwright - Through The Barricades
-004. Cenk Basaran - Acid Harmony (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D066CFC1F482ECE454B8E426317B0A38260F5AE6
 ```
 
 

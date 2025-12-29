@@ -1,3 +1,166 @@
+###  Публикация: 1002409   (848921) от 31.03.2016
+
+VA - Fitness House.Musical Energy (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Nico Otten-Sueno (Radio Cut) 04:02
+02 Sonny Vice vs. Antiheroes-Rock 'n' Rolla (Radio Cut) 03:35
+03 Sam Slim-Break Your Spell (Radio Cut) 03:51
+04 Ian Solano-Quadzilla (Radio Cut) 04:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C74F0394A599289B80930E63D48861DC26FE094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002463   (848998) от 31.03.2016
+
+VA - Romantic Deep and Future House Beedroom Music (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crew 7 - Luv 4 Luv - Club Edit
+02. Konstantin Maria - Take A Chance - Kim Morgan & Tobstar Remix Edit
+03. Carlos Room - Rocket
+04. Arom Side - Are You Ready(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E95482DEE82D3DF4653417FBDDC403848538CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002237   (849001) от 31.03.2016
+
+VA - The Sound Of Soul Heaven Miami (2016) [MP3|320 кб/с] <House, Club House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound of Soul Heaven Miami 2016 Mix 1 (Continuous Mix) [70:43]
+02. The Sound of Soul Heaven Miami 2016 Mix 2 (Continuous Mix) [71:02]
+03. The Sound of Soul Heaven Miami 2016 Mix 3 - Classics Mix (Continuous Mix) [71:31]
+04. The DangerFeel Newbies - What Am I Here For? (Kai KZR Alcé Late Night Mix) [07:05](   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 08:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDF2A4E2D8D45CCC4F42CA0DF455113E91B26A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002150   (849107) от 31.03.2016
+
+VA - Trance Сollection vol.40 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 ABHISHEK Y2V-The Myst (Extended Mix) 05:21
+002 Abide-Perpetuity (Original Mix) 08:02
+003 Air Project-Memoirs (Original Mix) 06:51
+004 Alex Byrka & Jay Flora feat. Tanya Lindsgrey-Magic (Andrew Lang Remix) 06:23(   Читать дальше...   )Жанр: TranceПродолжительность: 10:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADC623E8AEBA28CF5B610833C87E53FD9203259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877249   (849160) от 11.03.2015
+
+VA - Billboard Top 25 Hot Rock Songs (14-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Billboard опубликовал  новые чаты за 14 марта 2015 года, из которых представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
+Топ создается в соответствии с ранжированнием в радиоэфире во всех форматах, а также на основе данных о продажах и потоковом воспроизведении треков. (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
+02. Fall Out Boy - Centuries  (3:52)
+03. Vance Joy - Riptide  (3:20)
+04. WALK THE MOON - Shut Up and Dance  (3:19)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90CAA2C89A9A3283626619E29EE201BAF95561D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876575   (849257) от 11.03.2015
+
+VA - 50 Оттенков Шторма (2015) [MP3|128 кб/с]<Chillout, Chillstep, Downtempo, Acoustic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifehouse - Storm
+02. LuQus feat. Magdalena Wolk - Cinders
+03. Movement - Us
+04. Holobody - Fantasy (Mariah Carey Cover)(   Читать дальше...   )Жанр: Chillout, Chillstep, Downtempo, AcousticПродолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6802934FD796E41B284D44FCE1EDC484D4F90CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498589   (849527) от 01.10.2021
 
 VA - Cores vs. Mandala vs. Code vs. Nuclear Hyde vs. Nostrum (2021) mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Acid>
@@ -531,169 +694,6 @@ Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377608   (851500) от 22.04.2020
-
-VA - Circle of Life (Native American Music) (2020) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Dog Dance
-02. Existence; RodrigoGomes; ChristianTeele; ChrisEngelman; JosephFirecrow; Se-Chen-Ko; LeonardPeltier; MargotReisinger - First Nations Flute Player
-03. Big City Indians - May You Walk (Roussinoff Remix)
-04. A Tribe Called Red - Electric Intertribal (Feat. Smoke Trail)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 08:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A60E0C38AD21FD80B8620C315E72B7D3EB0A3DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377516   (851507) от 22.04.2020
-
-John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (2010 Mix)
-02. Jealous Guy (Remastered 2010)
-03. (Just Like) Starting Over
-04. Watching The Wheels(   Читать дальше...   )Жанр: RockПродолжительность: 06:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191538   (851567) от 12.04.2010
-
-VA - Mystic (2006) [MP3|256 kbps]<Worldbeat, Chillout, New Age, Ethnic Fusion>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wendy Stark - Animus Anima
-02. Phil Thornton - The Mask of Seduction
-03. Midori - Mercy on Me
-04. John Richardson – Benedictions
-05. Wendy Stark - Child Of Transference
-06. Midori - Ancient Ways
-07. Phil Thornton - Kiss of the Sorcerer
-08. Wendy Stark – ReflectionЖанр: Worldbeat, Chillout, New Age, Ethnic FusionПродолжительность: 05:01:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377546   (851632) от 22.04.2020
-
-Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Don't Know (Sure Can Hurt You)
-02. Bad Boys (Of Rock 'N' Roll) (Remastered Version)
-03. Run for Your Life
-04. Shoot 'Em Down(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 03:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E68019FFB49AC6BAC8906F0F8F9D07DD0321D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377587   (851634) от 22.04.2020
-
-Motley Crue - 100% Motley Crue (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dirt (Est. 1981)Жанр: Rock, Hard Rock, MetalПродолжительность: 03:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB191FCA402841DDDF5660F8225CFC5B1A50E10E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377643   (851637) от 22.04.2020
-
-VA - Hard Rock Ballads (2020) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - Never Say Goodbye 4:49
-02. Guns N' Roses - Don't Cry (Original) 4:45
-03. Whitesnake - Is This Love (2017 Remaster) 4:45
-04. Def Leppard - Hysteria 5:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA73C0E69D84804C13F4E15085049B5150EBD51
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1093456   (933955) от 15.01.2017
+
+VA - Empire Records - Blue Line 2 (2017) [MP3|128-320 Kbps] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finchman - Wake Up at Seven Two
+02. Fly Project, Andra - Butterfly (Extended Version)
+03. Inventive Sound ft. Rares Joshua - Come To Me (Radio Edit)
+04. Arcade 82 & FDF (Italy) - Far Away (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F88A4D6C0BE51EB7A1D8C3385F0F1AA2FBF1F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985779   (933987) от 12.02.2016
+
+VA - Лучшие хиты года. Часть 4 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933987.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaiser Chiefs - Falling Awake
+002. Базиль - Ищи Другого
+003. Lawson - We Are Kings
+004. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0452E06AAD6D2DF391C46123FC2DF4EB6290B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985797   (933993) от 12.02.2016
+
+VA - Медлячок в машину. Зарубежная версия 1 (Из треков 2014) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933993.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Richard Marx - Inside
+002. Patrick Fiori - Demain
+003. Alex Lloyd - Last Bell
+004. Danny Fernandes - Breathe Again(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F705D643A70EBFE2DEB194454F08EAF4562636C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093528   (934013) от 15.01.2017
+
+VA - Empire Records: Trance 2 (2017) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bakun - Out Of Control (Phetros Remix)  6:01
+02.  Pirate Jams - Sweets From Heaven (Jolyon Petch's Late Night Mix)  5:06
+03.  Dainpeace - It's Not Too Late (Radio Edit)  2:42
+04.  Sam Feldt - What About The Love (Extended Mix)  4:14(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8E7C752FEE6E9EDE07DA1E0979E1CD30EBB482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985378   (934084) от 12.02.2016
+
+VA - Deep Flover Dance (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934084.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sanil Fenice - Before Dawn - Vocal Mix 06:13
+002. Matthias Freudmann - Metropolis 06:23
+003. Scot & Millfield - It's a Fine Day - Summer Fifteen Remix 05:31
+004. Matthias Freudmann - City Life 07:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508D07C2239D489D29D5C70BC9622CD08C72EF65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984852   (934085) от 12.02.2016
+
+Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве Remaster (2015) [MP3|320 кб/с] <Brit-pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 ******
+02 Воздушный шар
+03 Импровизация в синтетическом парке
+04 Говорящий вакуум(   Читать дальше...   )Жанр: Brit-popПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11E170CC6FC87076C7DF9AF308E3E5E63244AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985873   (934113) от 12.02.2016
 
 VA - Sunrise Lovers Vol 1: 20 Relaxing Lounge Tunes (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
@@ -529,171 +691,6 @@ VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3D8EDE94912119B83725BD3B9EFCE7A5321398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985069   (936531) от 10.02.2016
-
-VA - Blues Collection (2016) [MP3|320 кб/с] <Blues, Blues-rock, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Bell & 100% Blues - Two Jobs 05:48
-002. Beth Hart - L. A. Song (Out Of This Town) 03:55
-003. Blues Company - Cold Rain 06:15
-004. Big House - Hey Jenny 03:59(   Читать дальше...   )Жанр: Blues, Blues-rock, JazzПродолжительность: 13:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29662E5CEC3A9BD2FD98E147E3C12A3C5A2A1CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984765   (936772) от 10.02.2016
-
-VA - Русская дискотека. Энергия хитов (2016) [MP3|256 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мята - Бомба
-002. Артур Лабор - Твой Каблук
-003. Глюкozа - Пой Мне Ветер
-004. Район Моей Мечты Feat. Luina - Following(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B20DEB2C0E278B097DA1D4B353771142F3A02C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985032   (936882) от 10.02.2016
-
-VA -Танцевальная Зима 2016 Тор 100 (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. R3hab & Ciara - Get Up 03:14
-002. KastomariN - Beautiful (Original Mix) 04:40
-003. Rick Pier O'neil - Abstractions 09:45
-004. X-Killer - Everlasting (Original Mix) 04:16(   Читать дальше...   )Жанр: Dance, Club, House, TranceПродолжительность: 08:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C6FAC979149C1FC880A1F225C07BCC4D261437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984755   (937002) от 10.02.2016
-
-VA - Каюсь. Сборник хитов русского шансона (2016) [MP3|256 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937002.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вадим Петров - Три Дороги
-002. Папа Радж - Мадам Постойте
-003. Вася Пряников - Сочи В Феврале
-004. Mr. Bleden - Маленькое Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43076EE0D75A0896B6500BF4976DF5EA9D4AA93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985004   (937036) от 10.02.2016
-
-VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldplay - Adventure of a Lifetime
-002. Sido - Astronaut (feat. Andreas Bourani)
-003. K.I.Z. - Hurra die Welt geht unter
-004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092664   (937129) от 13.01.2017
-
-VA - Hits of My Soul Vol. 21 (2016) [MP3|320 кб/с]<Drum & Bass, Dubstep, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Drumsound & Bassline Smith - Through the Night (Club Mix) (05:20)
-02. Spor ft. James Hadouken! - Empire (04:25)
-03. Vanic ft. K.Flay - Cant Sleep (04:22)
-04. Flux Pavilion & Whethan ft. MAX - Savage (03:24)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, Electro House, Electronic, House, TrapПродолжительность: 03:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2515EDB73E60CF235EC4FC988077DB714D617CFA
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1438477   (1041029) от 08.01.2021
+
+Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Roll On Down The Highway
+02 - Hey You
+03 - Lookin' Out For #1
+04 - Gimme Your Money Please(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7237123425A467C44A294782B28AE399FF76601F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611393   (1041300) от 11.02.2023
+
+Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438000   (1041352) от 07.01.2021
+
+Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emmanuelle (1976)
+
+01. Emmanuelle (Soloist, GuitarЖанр: Easy ListeningПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437921   (1041705) от 06.01.2021
 
 Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
@@ -609,87 +686,6 @@ A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840956   (1047680) от 08.12.2025
-
-Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triskelyon - канадский трэш-метал проект, созданный Джеффом Уэйем в 2021 году..
-2022 - Downfall
-2023 - Artificial Insanity
-2025 - Maelstrom Of ChaosЖанр: Thrash MetalПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840951   (1047681) от 08.12.2025
-
-Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
-2022 - Embers of Eternity (EP)
-2023 - Pandemonium (EP)
-2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841130   (1047754) от 09.12.2025
-
-VA - The Most Collection. Volume 2 (1971) Compilation, Dutch Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock, Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 New World - Tom Tom Turnaround
-A2 Peter Noone - Oh You Pretty Things
-A3 Lulu - The Boat That I Row
-A4 Hot Chocolate - Love Is Life(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Pop Rock, Soft RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4FC91550A2A1F1BCD9C62F9D9182EF3A45201E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1000776   (857311) от 26.03.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 26 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lian Ross - Say You'll Never (D.J. Alternative Mix) (6:33)
+02. Fancy - Flames Of Love (Vox Extended Mix) (5:51)
+03. Sandra - Around My Heat (Dj Sveshnikov Remix) (3:43)
+04. Depeche Mode - Personal Jesus (The Stargate Mix) (3:59)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2B78F084E24202B78FD380659CFB50C65877EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000655   (857374) от 26.03.2016
 
 Вероника Агапова - Сборник песен (2016) [MP3|128-320 кб/с] <Pop>
@@ -656,33 +683,6 @@ VA - Высшая лига интернациональная 50/50 (2011) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F044EDBBF018CA66A1073264416D9F3341562AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106738   (869672) от 21.02.2017
-
-VA - Unknown 80's (part IV) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon F (Simon Fellowes) - New York Girl - 1987
-02. Re-Flex - Praying To The Beat - 1983
-03. Rettore (Donatella Rettore) - Lamette - 1982
-04. The Teens - Shakin' All Over - 1979(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6884ACA586F322AD871B2E26FD38B153196B452
 ```
 
 

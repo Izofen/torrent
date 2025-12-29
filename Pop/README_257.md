@@ -1,3 +1,219 @@
+###  Публикация: 1129692   (720232) от 29.04.2017
+
+VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
+02. Ed Sheeran - Castle On The Hill (4:21)
+03. Alma - Chasing Highs (3:15)
+04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129685   (720321) от 29.04.2017
+
+VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
+01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
+02. Johny Cash - It Ain't Me Babe  (3:04)
+03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129802   (720332) от 29.04.2017
+
+Den Harrow - The 12'' Collection 1984-1987 (2015) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Desire (12'' Version) 6:31
+02. Future Brain (12'' Version) 5:32
+03. Bad Boy (12'' Version) 5:49
+04. Make Ends Meet (12'' Version) 5:37(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFD35017B44D97CAF71E5748C9C958163BE343A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129517   (720333) от 29.04.2017
+
+Филипп Киркоров - 4 альбома (1990-1993) Vinil-Rip [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной бал (К. Кравчик — Л. Рубальская)
+02. Кармен (3. Попова — О. Серебренников)
+03. Бегущая по волнам (В. Казасян — И. Резник)
+04. Не смотри ты на часы (А. Иосифов — Л. Дербенёв)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1790380B961E31C85569892E884A5C41E8DDA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129834   (720338) от 29.04.2017
+
+VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boef - Habiba (3:35)
+02. Anne-Marie - Ciao Adios (3:19)
+03. Kensington - Bridges (3:38)
+04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129621   (720437) от 29.04.2017
+
+Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720437.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bambino
+02. Gondolier
+03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129489   (720463) от 29.04.2017
+
+Tom Hooker - Back In Time (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Want To Fight (5:44)
+02. King Of The World (5:13)
+03. I Want You Tonight (5:45)
+04. Give Me Your Love (4:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA735088CD372D08D13A546852A1D6B9FC86331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129447   (720545) от 29.04.2017
+
+Tam Harrow - Incredible Idiot (2015) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Eurobeat, Parody>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incredible 3:43
+02. I Look Into Your Eyes 5:26
+03. Not Today Not Tonight 4:16
+04. Toledo 4:58(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, ParodyПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2449C474D037F3F7202BF4AAA1AE47932A7513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129842   (720547) от 29.04.2017
 
 Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|312-322 Kbps] <Disco, Italo-Disco, Synth-pop>
@@ -430,6 +646,33 @@ magnet:?xt=urn:btih:CF4270E0064789496C4403CFAABABDC5899CE508
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 144002   (722007) от 28.04.2017
+
+Е.Моргунов, Ю.Никулин, Г.Вицин  - Веселая троица (2004) [MP3|320 kbps]<Retro, Soundtrack>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_722007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Марш браконьеров
+02. Легкий завтрак
+03. Погоня за собакой
+04. Финальный марш(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129315   (722498) от 28.04.2017
 
 VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
@@ -450,247 +693,6 @@ VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285154   (722766) от 25.02.2019
-
-Kipper - This is Different (2006), Bang & Olufsen [WV|Lossless|image + .cue] <Instrumental Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Rebello   (feat.Ding Ding) [07:10]
-02. Jenny Linn Smith   (feat. My Generation) [03:56]
-03. Neil Stacey   (feat. To Be Free) [04:27]
-04. Tommy Blaize   (feat. We Come In Peace)  [03:49](   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AF8FD7A740126F19E09925C1047C99AAA14572
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218369   (723023) от 09.04.2018
-
-Dschinghis Khan - Moskau - Das Neue Best Of Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan
-02. Moskau
-03. Mexico
-04. Madagaskar(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCEF097BDD729BF45B0C9C82DE8C22AEC2D1A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218407   (723115) от 09.04.2018
-
-VA - NRJ Hit Music Only 2018 (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723115.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Maître Gims - Mi Gna (00:03:36)
-02. David Guetta - Like I Do (00:03:23)
-03. Vald - Désaccordé (00:03:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218446   (723297) от 09.04.2018
-
-Наталия Могилевская - Самое... Самое (2003) |Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Плачь
-02. Снегопад
-03. Зима
-04. Лимоновый фонарь(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218427   (723299) от 09.04.2018
-
-Revanche - Music Man (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Get High In N.Y.C. (8:39)
-02. Revenge (8:53)
-03. Music Man (8:17)
-04. 1979 (It's Dancing Time) (8:44)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B540858DA0A1164F7D4F1E7F62E84AE6ED7E5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218484   (723302) от 09.04.2018
-
-The Eastern Gang - The Flasher (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Faces (4:20)
-02. The Flasher (4:36)
-03. Hamburger Man (5:04)
-04. Charlotte (4:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CD0963C13072213499F70DDCE2F15CAFB002F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023411   (723838) от 05.06.2016
-
-Александр Малинин - Звездная серия (1997) [FLAC|Lossless|image + .cue] <Pop, Romance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поручик Голицын
-02. Черная гвоздика
-03. Коррида
-04. Белый конь(   Читать дальше...   )Жанр: Pop, RomanceПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F74EC1652078A95AD5640252074D2911967B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104482   (723978) от 14.02.2022
-
-Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul, House, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jean-Marc Cerrone, больше известный как Cerrone, родился в 1952 году в Париже. Вместе с Giorgio Moroder, внес наибольший вклад в развитие европейского диско, практически, они стали родоначальниками ранней house-музыки.Список альбомов:
-1976 - Love In C Minor
-1977 - Cerrone's Paradise
-1977 - Supernature(   Читать дальше...   )Жанр: Electronic, Funk-Soul, House, DiscoПродолжительность: 01:00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE4702E3ED67BBE0E8623D42FC998651DD599EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128990   (724228) от 27.04.2017
-
-Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop! Stop! Stop! (Original Version) (3:48)
-02. Stop! Stop! Stop! (Upbeat Version) (3:48)Жанр: PopПродолжительность: 00:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AEDB788CAED5B7CA433285B263B660EB3332AF
 ```
 
 

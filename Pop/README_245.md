@@ -1,3 +1,90 @@
+###  Публикация: 1222694   (683029) от 30.04.2018
+
+Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Dance To The Beat (Remix) 5:01
+02. Indian Grave 4:02
+03. Pump It Up 4:26
+04. Masterboy Theme 4:41(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222791   (683032) от 30.04.2018
+
+Crystal Grass With Kristi B. - Love Train (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture To Love Train, Believe In Magic, Love Train Theme (8:27)
+- Overture To Love Train
+- Foggy Day
+- Arrivedercci Roma(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA623B01681171E47B1AD8A978A84740707A92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507204   (683268) от 08.06.2012
+
+Amy Macdonald - Life In A Beautiful Light (2012) [MP3|~247 кб/с (V0)]<Pop, Folk-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4th Of July
+ 02. Pride
+ 03. Slow It Down
+ 04. The Furthest Star
+ 05. The Game
+ 06. Across The Nile
+ 07. The Days Of Being Young And Free
+ 08. Left That Body Long Ago
+ 09. Life In A Beautiful Light
+ 10. Human Spirit(   Читать дальше...   )2012Жанр: Pop, Folk-RockПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8F6BCFBC8CFE4F1802892EAEF7682F4E015A82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289953   (683842) от 17.03.2019
 
 Юлия Началова - Лучшие песни (2008) [FLAC|Lossless|image + .cue] <Pop>
@@ -612,87 +699,6 @@ Goombay Dance Band - Sun Of Jamaica (1995) Series Pop Shop Sony Music [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:808C48F84EEFB2BF205421F165B589438EEDB3AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289333   (686477) от 16.03.2019
-
-Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Orchestral>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovejet (Orchestral Version) (3:21)
- 02. Take Me Home (Orchestral Version) (4:23)
- 03. Murder On The Dancefloor (Orchestral Version) (3:46)
- 04. Move This Mountain (Orchestral Version) (4:48)(   Читать дальше...   )Жанр: Pop, Classical, OrchestralПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028906   (686494) от 24.06.2016
-
-Владимир Шурочкин - С корабля на бал! (1999) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "С корабля на бал  "
-02. "Ночной бродвей  "
-03. "Тальяночка  "
-04. "Дороги  "(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5DBBEC5D2B330195056147ACEA6F947E87F48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289331   (686623) от 16.03.2019
-
-Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Battle Of The Sexes (Duet with Rod Stewart)
-03. Slow Walk
-04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1026429   (704065) от 15.06.2016
+
+Epolets - Cult (2016) [MP3|320 кб/с] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro  (02:16)
+02.  Залиш мене  (03:27)
+03.  Скажи  (03:38)
+04.  Мелодія  (04:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96358D398F71D008539C835FBACFB51E106E6F27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026411   (704158) от 15.06.2016
 
 Arlett (ex-Леді Арлет) - Arlett (2016) [MP3|320 кб/с] <Rock>
@@ -263,6 +290,63 @@ Velvet Volume - Nest (2022) [MP3|320 Kbps] <Rock, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4540F38F40FF4ECE4FC004F0F60AF55EA9D52DD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209097   (707449) от 13.06.2010
+
+Roy Orbison - Discography (1960 - 2008)[MP3|192-320 kbps]<Rockabilly, Rock’n Roll, Rock, Ballads, Country, Pop>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_707449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанры: Rockabilly, Rock’n Roll, Rock, Ballads, Country, PopПродолжительность: 01:14:33 + 01:15:38 + 01:15:55 + 01:18:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209440   (707726) от 13.06.2010
+
+Russ Ballard - 13 альбомов (1974-2006) [MP3|128-320 kbps] <Classic Rock / Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_707726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1974-2006Жанр: Classic Rock / Progressive RockПродолжительность: 01:08:12
+
+01 | It's My Life (Stand In My Shoes) | 02:38
+02 | Crazy World | 04:33
+03 | In The Dark | 03:27
+04 | When You Sleep | 03:09
+05 | Love Works In Strange Ways | 03:00
+06 | Like Father Like Son | 04:12
+07 | Is There Anybody Out There | 05:06
+08 | I'm Just Not Made For This World | 04:45(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -538,6 +622,54 @@ magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 207691   (717193) от 08.06.2010
+
+Emerson, Lake & Palmer - From the Beginning [5 CD Boxset] (2007) [MP3|320 kbps]<Progressive rock, Symphonic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_717193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive rock, Symphonic rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 208384   (717437) от 08.06.2010
+
+The Mamas & The Papas - All The Leaves Are Brown: The Golden Era Collection (2CD) (2001) [MP3|320 kbps]<Pop-Rock,Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_717437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-Rock, Folk-Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285612   (718814) от 27.02.2019
 
 Randy Pie - 6 Albums (1974-1986) Collection [MP3|320 Kbps] <Krautrock, Prog Rock, Pop Rock>
@@ -560,138 +692,6 @@ Randy Pie - 6 Albums (1974-1986) Collection [MP3|320 Kbps] <Krautrock, Prog Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C66D327324E2D9E9A162FF3BAAC06D229645A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669241   (719214) от 17.06.2013
-
-VA - 100 Hits Rock Classics (5CD) (2012) [MP3|256 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E42EBB2D96369865931B41CFA9E33DCA9F48A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 891675   (719756) от 26.04.2015
-
-VA - Essential Rockabilly. The Mercury Story (2012) 2CD [MP3|320 кб/с]<Rockabilly, Rock‘n’Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curtis Gordon - Sitting On Top Of The World (01:53)
-02. Narvel Felts - Cry Baby Cry (01:54)
-03. Roy Moss - You Nearly Lose Your Mind (01:59)
-04. Eddie Bond - Slip, Slip, Slippin' In (02:08)(   Читать дальше...   )Жанр: Rockabilly, Rock‘n’RollПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0314C89BA2603F5E67C9457CB4374372C93BB76F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024021   (719841) от 07.06.2016
-
-Pink Floyd - Wall In Progress 1978-1979 (1979) [MP3|320 кб/с] <Progressive rock, Art rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Flesh?
-02. The Thin Ice
-03. Another Brick In The Wall (Part I)
-04. The Happiest Days Od Our Lives(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7760FC0C7D9C9691FDCB09CA9C1A60BFA0063DE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218729   (721385) от 10.04.2018
-
-Mgzavrebi - Krebuli (The Best) (2018) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Me Movigone
-2. Gaigvidza Bunebam
-3. Dzala Ertobashia
-4. In Vino Veritas(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D69FB90E0DCB748E0BF1A192D8F0290C9DE8F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023477   (724548) от 05.06.2016
-
-Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer (9:18)
-02. Broken (7:08)
-03. Slave (8:39)
-04. Sleepwalker (7:05)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgressiveПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B819C0F53C7B8C6601A0F7618075CBAA0BBAB9
 ```
 
 

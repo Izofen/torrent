@@ -1,3 +1,165 @@
+###  Публикация: 1445869   (1033310) от 07.02.2021
+
+VA - The Magic Of The Yellow Day (2021) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный микс "The Magic Of The Yellow Day" встретит Вас умиротворенной атмосферой с совершенным медитативным саундом. Хорошая подборка композиций для отдыха и приятного времяпрепровождения наедине с близким человеком.01. Monoder - None Multiplied By Many
+02. Substak - Vita Brevis
+03. Marco Monteverde - Cosmos Meditation
+04. Sami Sivananda - Pure Relaxation(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6677FB4D58BE755ED59FE16847F7F78324DB63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445878   (1033314) от 07.02.2021
+
+VA - Future House: DJ Harmony Mix (2021) [MP3|320 Kbps] <Future House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корифеи жанра танцевальной музыки одарили нас еще одним чудесным релизом, содержащим все фирменные приметы их стиля. Февральский выпуск DJ микса в новомодном стиле Future House наверняка понравится всем ценителям электронной музыки.001. Protoculture - Out Of Reality
+002. Oxidaksi - Evolution
+003. Klartraum - Travel Pussy
+004. M Da Gawd - Nagas In Space(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 10:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB028D19405D6CC0991E7E0337AEDEAC1E4D5F12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445370   (1033476) от 06.02.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 05.02.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Yeter - Body Talks (3:55)
+02. Dotan - Numb (3:38)
+03. Tiesto - The Business (2:43)
+04. Meduza & Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEADEEF509BBD9B2D388FB69D3C1436363C20B78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445464   (1033528) от 06.02.2021
+
+VA - Ladies Training Beats 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry, MNEK, Tiesto - Head & Heart - Tiesto Remix (2:04)
+02. Felix Harrer - Eisbar (2:05)
+03. Fremde Passagiere - Teenage Dirtbag (2:07)
+04. Robin Schulz, KIDDO, Ofenbach - All We Got - Ofenbach Remix (2:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BEE7F69DC9EF826CA169E1785004FEA52208BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445176   (1033669) от 05.02.2021
+
+VA - Крутые пушки Зима 2021 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Slon & Катя - Я не дам (Ночное Движение Remix) (6:20)
+02. Depeche Mode - I Feel Loved (Ivan Spell Remix) (5:03)
+03. Damba Khuurak - Take My Heart (4:41)
+04. Zivert - ЯТЛ (Max Flame & Twenty One Radio Remix) (4:19)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 02:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6051C683B0A58274B04BB37126D2C6461E249A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445226   (1033708) от 05.02.2021
+
+VA - 90s Retro Dance Hits (2021) [MP3|320 Kbps] <Dance, Pop, Electro Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мы были молоды, но мамонтов к тому времени уже давно не было, мы звали друзей на дискотеку. Не на модное нынче party, ну и уж никак не на вечеринку. Мы отрывались до такой степени, что уже не могли шевелить руками. Одежда была насквозь мокрой, а ди-джей продолжал проверять нашу выносливость. И когда утром, уставший, но счастливый, ты идешь домой, понимаешь, (   Читать дальше...   )001. Matchbox Twenty - Push
+002. Cosmic Gate - Exploration Of Space
+003. Brandy And Monica - The Boy Is Mine
+004. DJ Bobo - There Is A Party(   Читать дальше...   )Жанр: Dance, Pop, Electro DanceПродолжительность: 06:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450A59373B22EDF66EC97DFFB3EBD9CDA6D9ACCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445223   (1033709) от 05.02.2021
 
 VA - Ultimate Rock`n`Roll Party (Vol.02) (2021) [MP3|320 Kbps] <Rock & Roll>
@@ -533,168 +695,6 @@ VA - CarMusic for lady (2021) [MP3|320 Kbps] <Pop, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA2FC5DF8ADD6C32EA71077763DD68B62A8A85E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444585   (1034422) от 02.02.2021
-
-VA - Music News vol.68 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KiRA MaZUR - It's Yours (03:39)
- 002. AFI - Twisted Tongues (04:02)
- 003. Alex Say - Рядом С Тобой (01:53)
- 004. Alizzer & Chimes - Body Light (02:53)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCC5EB539CDF465EEACB777967E5351B3F8ABC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444258   (1034540) от 01.02.2021
-
-VA - Шансон Зима (2021) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Романов - Ты Просто Люби (2:44)
-02. Сергей Врачев - Это Было Летом Жарким (2:46)
-03. Сергей Клушин & Екатерина Эбель - Пустые Банки (2:55)
-04. Андрей Шпехт - Два океана (3:42)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74B1E4404E2495F01FAF3EC5E9FBB787EB0BBEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444294   (1034594) от 01.02.2021
-
-VA - New York Roots Blues (2021) [MP3|320 Kbps] <Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что композиции альбома "New York Roots Blues" обладают ярко высказанный меланхоличный типаж, воспринимаются они при этом легко и непосредственно. Музыка с глубоким во всех смыслах этого слова смыслом и предназначена далеко не для единичного прослушивания.001. Pete Wilde - Savior
-002. Joe Bonamassa - A New Day Yesterday
-003. Spirits Having Fun - Touch The Sky
-004. Tedeschi Trucks Band - Shame(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 07:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFA74CB2A5A6C3F45C86EEBDD2FE1C60422DC11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444293   (1034686) от 01.02.2021
-
-VA - Beatport Dance House: Electro Sound Pack #236 (2021) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный танцевальный сборник в стиле танцевального электро хауса, который полностью наполнен качественными хитами электронной сцены. Представленные треки продуманы до самых мелочей и демонстрируют собой истинную музыкальную эстетическую гармонию.001. Bobby Stewart - Flashback
-002. Julian Jordan - Boss
-003. Duke Jones - Suddenly (Dub Mix)
-004. Glock.Lee - Bring The House Down(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA02BE1F7AC7161DA5D2CE4BAFF2AE5938CE43A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443636   (1034898) от 31.01.2021
-
-VA - Europa Plus: ЕвроХит Топ 40 [29.01] (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Everything I Wanted (4:06)
-02. Burak Yeter - Body Talks (3:56)
-03. Hurts - Redemption (4:19)
-04. Dotan - NUMB (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B811D9E8674375D005D73479A475CF478F38BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444146   (1034911) от 31.01.2021
-
-VA - Reggae Night: Sweet Sensation (2021) [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бытует мнение, что растаманы это пропащие люди, бесконечно курят травку, питаются чем попало, не моют голову, не дружат с зубной пастой - чего только о них не сочиняют. Но не будет никого, кто вспоминал бы о их призывах к миру и любви, ненасилию, согласию между людьми и равенству, которое они проповедуют.001. Kumar - Change
-002. Delroy Denton - Sufferer's Child
-003. Enos Mcleod - See It Deh
-004. Mikey Spice - Everybody Needs Love(   Читать дальше...   )Жанр: ReggaeПродолжительность: 07:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C530864D820FF4CB43E0515BDF4353E7E3020F2
 ```
 
 

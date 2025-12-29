@@ -1,3 +1,84 @@
+###  Публикация: 1008740   (813553) от 19.04.2016
+
+Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
+</div>
+
+
+###  Подробнее
+
+• The Montreux Album •
+
+01. The Girl Can't Help It  3:48
+02. Power of Love  1:58(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117989   (814903) от 24.03.2017
+
+Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallin' Apart at the Seams (5:19)
+02. Gypsy Road (3:55)
+03. Don't know What You Got (Till It's Gone) (5:54)
+04. The Last Mile (3:52)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008532   (815255) от 18.04.2016
+
+Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smooth-jazz, new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815255.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Through The Lens
+2. Grasslands
+3. Flowers
+4. Clockwork(   Читать дальше...   )Жанр: smooth-jazz, new ageПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A3C004ED197BFD75B3C70845F87362723AE935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008559   (815263) от 18.04.2016
 
 Inside the Music: Women on Top (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Pop, Pop/Rock>
@@ -607,87 +688,6 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773795   (832753) от 04.04.2014
-
-Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832753.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Ocean Breakup / King of the Universe (4:06)
-A2. Bluebird Is Dead (4:43)
-A3. Oh No Not Susan (3:07)
-A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380624   (832820) от 03.05.2020
-
-The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss You (4:49)
- 02. When the Whip Comes Down (4:21)
- 03. Imagination (4:39)
- 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380462   (832949) от 03.05.2020
-
-Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
-Norman Gimbel, Michel Legrand, Jaques Demy
-A2. Didn't We
-Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
 ```
 
 

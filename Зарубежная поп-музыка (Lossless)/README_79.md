@@ -1,3 +1,57 @@
+###  Публикация: 1378582   (844802) от 26.04.2020
+
+Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Tu te laisses aller
+02 Les deux guitares
+03 J’ai perdu la tete
+04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002972   (845197) от 02.04.2016
+
+SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troubles Deep
+02. All Gone
+03. All You Need
+04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002655   (846928) от 01.04.2016
 
 Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, Pop, Vocal>
@@ -656,60 +710,6 @@ Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000635   (857429) от 26.03.2016
-
-Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsies, Tramps And Thieves [02:37]
-02. The Way Of Love [02:31]
-03. Take Me Home [06:47]
-04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000839   (857498) от 26.03.2016
-
-Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer For Africa [03:41]
-02. Sweet As Candy [04:00]
-03. Ain't Nobody's Business [03:12]
-04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
 ```
 
 

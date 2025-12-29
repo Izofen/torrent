@@ -1,3 +1,192 @@
+###  Публикация: 992423   (900594) от 02.03.2016
+
+Grieg, Prokofiev - Piano Concerto in A; Piano Concerto no. 3 (Nikolai Lugansky, Kent Nagano) (2013) [OGG|256 кб/с] <Классическая музыка, Orchestral, Concerto>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grieg - Piano Concerto in A minor, op. 16
+01 (1) Allegro molto moderato
+02 (2) Adagio
+03 (3) Allegro moderato molto e marcato(   Читать дальше...   )Жанр: Классическая музыка, Orchestral, ConcertoПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C07303FE789F01AA3DD2384C1502CB6D95ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992227   (900649) от 02.03.2016
+
+Debussy & Ravel - Monique Haas (2007) 6CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danse Bohemienne (1:55)
+02. Deux Arabesques: No.1 (3:49)
+03. Arabesque No.2 (3:38)
+04. Reverie (4:27)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0855311769D6A6821AB67B13F324537953FA19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992663   (900737) от 02.03.2016
+
+Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From Verdi's Traviata (2005) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Brindisi (Toast) - Libiamo ne' lieti calici (3:06)
+02.   Un di felice, eterea (3:35)
+03.   Scena ed Aria - Finale - strano!  Ah, fors'e lui (4:29)
+04.   Follie! Follie! Delirio vano  e  questo! (1:00)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BE35C7E3943570C1677B8D68F4437C2E34A66A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992617   (900824) от 02.03.2016
+
+The Chamber Orchestra of Europe feat. conductor  Claudio Abbado - Gioacchino Rossini - Overtures (1991) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il barbiere di Siviglia:  Andante maestoso - Allegro vivace - 07:16
+02. Semiramide:  Allegro vivace - Andantino - Allegro - 11:56
+03. L'Italiana in Algeri:  Andante - Allegro - 7:49
+04. Guillaume Tell:  Andante - Allegro - Andantino - Allegro vivace - 11:01(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEB85A4E845354577B954F65A7127310C3009AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992565   (900919) от 02.03.2016
+
+VA - Gluck. Orpfeo Ed Euridice, Iphigenie En Aulide, Iphigenie En Tauride. Fragments From Operas (2002) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орфей и Эвридика:
+1. Балет I (2 д.)  02:31
+2. Балет II ("Мелодия") (2 д.)  03:46
+(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8331FE4FC93C4838824BC1D79E58065230ADFD93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100226   (901053) от 03.02.2017
+
+Mikalojus Konstantinas Ciurlionis - 1875 - 1911 (2000) Box Set [FLAC|Lossless|image + .cue] <Romantic, Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микалоюс Константинас Чюрлёнис (до 1955 г. использовалась русская форма имени Николай Константинович Чурлянис) - литовский художник и композитор, родоначальник профессиональной литовской музыки, далеко раздвинувший своим творчеством границы национальной и мировой культуры.Список альбомов:
+1. CD1 - Symphonic Poems
+2. CD2 - Fugues, String Quartet In C Minor
+3. CD3 - Piano Works(   Читать дальше...   )Жанр: Romantic, ClassicalПродолжительность: 03:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFCBBC4B33620DE12D8287902F3C2134D32C413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867738   (901093) от 09.02.2015
+
+Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: Wiener Philharmoniker, Karl Bohm (1974-1978) remastering 2001 [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карл Бём тесно сотрудничал с Венским филармоническим оркестром, осуществил с ним много записей. В 1967 г. был назван почётным дирижёром этого оркестра. В 1974 г. осуществил полную запись симфоний Моцарта. Дважды получал музыкальную премию «Грэмми».Wolfgang Amadeus Mozart
+01. Concerto for Piano and Orchestra No.27 KV.595 I.Allegro (14:31)
+02. Concerto for Piano and Orchestra No.27 KV.595 II.Larghetto (09:01)
+03. Concerto for Piano and Orchestra No.27 KV.595 III.Allegro (09:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992175   (901924) от 01.03.2016
 
 Антонио ВИВАЛЬДИ - "Времена Года" (2002) [FLAC|Lossless|image + .cue] <Classical, Concerto>
@@ -509,198 +698,6 @@ Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099737   (903069) от 02.02.2017
-
-Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Classical, Orchestral>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grief (Prelude) (5:58)
-02. The Miracle (9:51)
-03. Letting Go (9:08)
-04. Love (5:06)(   Читать дальше...   )Жанр: Electronic, Classical, OrchestralПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1373B8E2569E7750FB416BE70093F923E10B3B66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991780   (904032) от 29.02.2016
-
-Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|Lossless|tracks + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904032.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Suite bergamasque, состоящая из четырех частей, является одним из самых известных фортепианных сюит французского композитора Клода Дебюсси. Мелодии сюиты навеяны неуклюжими деревенскими танцами, которые присущи уроженцам Бергамо в Италии. Жители этого городка слыли очень неловкими и их манеры и танец Bergomask ассоциируется с клоунами или шутовством.
-Самой известной (   Читать дальше...   )01. Clair de lune (Suite bergamasque)  (5:34)
-02. La fille aux cheveux de lin (Preludes - Book 1)  (2:30)
-03. La cathedrale engloutie (Preludes - Book 1)  (6:29)
-04. Minstrels (Preludes - Book 1)  (2:19)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000905   (904448) от 01.02.2017
-
-Franz Schubert - Fantaisie (David Fray feat. Jacques Rouvier) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 18 in G Major, D. 894, "Fantasie"
-01. I. Molto moderato e cantabile (19:09)
-02. II. Andante (7:57)
-03. III. Menuetto. Allegro moderato - Trio (4:07)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E4B71D31F62FED8A7093960A3329026E7AF00A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180996   (905030) от 10.03.2010
-
-Royal Concertgebouw Orchestra & Riccardo Chailly - Zavod; Symphony No.3; Arcana (Mosolov, Prokofiev, Varese) (1994) [FLAC|Lossless] <Orchestral, Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mosolov, Zavod (Iron Foundry) (3:45)
-2. Prokofiev, Symphony No.3 - I. Moderato (13:24)
-3. II. Andante (7:05)
-4. III. Allegro agitato (7:44)
-5. IV. Andante mosso - Allegro moderato (6:46)
-6. Varese, Arcana (18:30)Жанр: Orchestral, ClassicalПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990998   (905779) от 28.02.2016
-
-Святослав Рихтер, Lovro von Matacic, Orchestre Nacional de l'Opera de Monte Carlo - Grieg, Schumann: Piano Concertos (2003) [OGG|256 кб/с] <Классическая музыка, Classical>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grieg - Piano Concerto in A minor, op. 16
-01 (1) Allegro molto moderato
-02 (2) Adagio
-03 (3) Adagio moderato molto e marcatoЖанр: Классическая музыка, ClassicalПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0A5D2AD82DD833657FD43194708D95593D2516
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991291   (905898) от 28.02.2016
-
-Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto RV 383a - I. Allegro  02:42
-02. Concerto RV 383a - II. Largo e cantabile  01:56
-03. Concerto RV 383a - III. Allegro  02:36
-04. Concerto RV 279 - I. Allegro  04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97374CAB3E32E3A495B37E30B0AF3C7919B0895F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990928   (907905) от 27.02.2016
-
-Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Violini E Archi I (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto RV 523 in A Minor I.Allegro molto  03:53
-02. Concerto RV 523 in A Minor II.Largo  02:51
-03. Concerto RV 523 in A Minor III.Allegro  02:52
-04. Concerto RV 510 in C Minor I.Allegro  02:38(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72952E88035ABB71C34E467094FA0272755232C
 ```
 
 

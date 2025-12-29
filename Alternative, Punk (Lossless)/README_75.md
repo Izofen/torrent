@@ -1,3 +1,300 @@
+###  Публикация: 1441134   (1037982) от 20.01.2021
+
+Foo Fighters - Medicine at Midnight (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Punk, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Making a Fire
+02. Shame Shame
+03. Cloudspotter
+04. Waiting on a War(   Читать дальше...   )Жанр: Rock, Pop Punk, AlternativeПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD5145A1E273BF4D947681B9B5F608CE7595044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615063   (1038085) от 24.02.2023
+
+Gorillaz - Cracker Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Trip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (Feat. Thundercat)
+02. Oil (Feat. Stevie Nicks)
+03. The Tired Influencer
+04. Silent Running (Feat. Adeleye Omotayo)(   Читать дальше...   )Жанр: Alternative Rock, Trip-HopПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF781AA40ABA73ADA5B81B93D1F3BAD2D7B670DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615001   (1038119) от 24.02.2023
+
+Dope - Blood Money Part Zer0 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Industrual Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Respect (4:12)
+02. Believe (4:36)
+03. Best Of Me (2:48)
+04. Choke (3:29)(   Читать дальше...   )Жанр: Nu-Metal, Industrual MetalПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CF4BCC9FDC8A91C8DAC7BE458674B67FED789B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440837   (1038284) от 19.01.2021
+
+Geezer - Groovy (2020) [FLAC|Lossless|image + .cue] <Alternative Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dig (5:08)
+02. Atlas Electra (6:14)
+03. Dead Soul Scroll (5:30)
+04. Awake (5:38)(   Читать дальше...   )Жанр: Alternative Metal, Stoner RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013AE3FD270CAD451885E6CAAB3B9D17C402799C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614832   (1038379) от 23.02.2023
+
+Bloody Capes - Grey Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Bc [00:01:59]
+02. Ashen Horse [00:05:25]
+03. Night Inks [00:07:04]
+04. Knowing [00:07:19](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE4BAA83C08001E6231B7B0AD512557D48E6588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440212   (1038767) от 17.01.2021
+
+Blue Stahli - Obsidian (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Obsidian [00:03:24]
+02 Prognosis [00:03:55]
+03 Gravity [00:04:41]
+04 The Mountain [00:04:50](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A79C6047A65AE92032EBBB7DEA4720B4703EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440127   (1039168) от 16.01.2021
+
+Dinosaur Jr. - Live In The Middle East (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gargoyle (Live)
+02. Kracked (Live)
+03. Bulbs of Passion (Live)
+04. Little Fury Things (Live)(   Читать дальше...   )Жанр: Alternative Rock, RockПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFC47D89E92FF9B36DE8502CE66ECD574582B45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612875   (1039873) от 17.02.2023
+
+Skillet - Dominion: Day of Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock, Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surviving the Game 03:58
+02. Standing in the Storm 04:17
+03. Dominion 03:51
+04. Valley of Death 04:27(   Читать дальше...   )Жанр: Alt. Rock, Modern Rock, ChristianПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13095E6061742BD3A70423DD819A45CA93709AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612049   (1040603) от 14.02.2023
+
+Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death at Dawn [00:02:08]
+02. This Is Your Calling [00:02:59]
+03. BETTER RUN! [00:03:09]
+04. Promise You're Coming Home [00:03:42](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Female VocalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5052A8C708910188D7C8253F78BC16ADF9290AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438353   (1041186) от 08.01.2021
+
+Bury Tomorrow - Cannibal (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choke
+02. Cannibal
+03. The Grey (VIXI)
+04. Imposter(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FF63E9A9FEC5253F805C40893118F1D45D42AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438079   (1041501) от 07.01.2021
+
+Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041501.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. untitled (01:24)
+2. Future Boy (05:15)
+3. Delicious (05:10)
+4. Broken Nose (05:21)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7D39118B5C53C66CF8BB956517B05E5E7ACC33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437013   (1042557) от 03.01.2021
 
 Caspian - On Circles (2020) [FLAC|Lossless|tracks + .cue] <Post Rock, Alternative Rock, Post Metal, Instrumental>

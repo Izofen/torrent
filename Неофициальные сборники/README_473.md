@@ -1,3 +1,162 @@
+###  Публикация: 1020885   (743955) от 27.05.2016
+
+VA - Tropical Island Paradigm (2016) [MP3|236-320 кб/с] <House, Progressive House, Indie Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Club Mix) 05:51
+02. Tyler Ace & Renegade - Colombia (Radio Edit) 03:02
+03. Trvpers - Boeing (Radio Edit) 03:05
+04. Joe K Ft. Jonny Rose - Together Again (Vee Brondi & Pontifexx Remix) 04:22(   Читать дальше...   )Жанр: House, Progressive House, Indie DanceПродолжительность: 07:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C63F2A496106CF7AC5EA924197981B34C6B6D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396951   (744016) от 17.07.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 17.07.2020 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Salt [3:00]
+02. NRD1 - All Good Things (Come To An End)
+03. twocolors - Lovefool
+04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAD8D53EE67A56B2F9E33235759B224AA0C8731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783349   (744054) от 05.05.2014
+
+VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396843   (744076) от 17.07.2020
+
+VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744076.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Davide Alpino - Atlantis (Original Mix)
+002. Scheffwell - I Just Want To Party
+003. Empire B - Beautiful Life
+004. Brown Sneakers - Am I Wrong(   Читать дальше...   )Жанр: Club HouseПродолжительность: 08:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D5F7224089470895B964C51AE90161066A5381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715421   (744321) от 20.04.2015
+
+VA - Persian Music Non Stop Mix vol.1-23 (2013-2014) [MP3|320 кб/с]<Club House, Dream House, Dance, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Non Stop Mix vol.23
+01. Intro - Dj Ikonnikov
+02. Mohsen Amiri - Hashieh
+03. Javad Arab & Abas Balochi - Harfato Rok Bezan
+04. Hamidreza Alikhani - Bemoon(   Читать дальше...   )Жанр: Club House, Dream House, Dance, Pop |Продолжительность: 18:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D86267ED1B8AA2DE03DAC75F6C1D74D1F90360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217087   (744353) от 03.04.2018
+
+Scooter - The Logical Song (2017) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744353.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Logical Song
+2. Alex Mistery
+3. Up MusicЖанр: Deep HouseПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BF77559B54DEF0A494BA3B22A1E4C78A86FA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217172   (744356) от 03.04.2018
 
 Григорий Лепс - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
@@ -530,168 +689,6 @@ VA - Summer Throwback Spotify (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956BE7BDE5864FF2DA8E45ABC79C7919C9484719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020437   (745470) от 26.05.2016
-
-VA - Treasure Driving Melodic Uplifting (2016) [MP3|320 кб/с] <Uplifting Trance, Vocal Trance, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diher & R3dub - Sense (Original Mix) 06:32
-02. Michael Flint & Stephanie Kay - Hide (Original Mix) 06:03
-03. Baseman - Planet (Original Mix) 06:46
-04. Dark Entity - Reflection 05:58(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, EnergyПродолжительность: 08:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0884CCCD834AC8138CB77327C4E7EC51B81F1C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020433   (745471) от 26.05.2016
-
-VA - Professional Dj Proud Radio (2016) [MP3|247-320 кб/с] <Club, Hands Up, DanceCore, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Cap Feat. Marybran - One More Chance (Radio Edit) 03:23
-02. D-Vibes - Out Of Control (Radio Edit) 03:03
-03. Dj Hyo - Ring Ding Dong (Radio Edit) 03:05
-04. Dj Happy Vibes Feat. Jazzmin - Point Of No Return (Dance Radio Version) 03:34(   Читать дальше...   )Жанр: Club, Hands Up, DanceCore, FunkyПродолжительность: 04:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4420FC4E7CC27701DA89BBFC98CE46FB7110A1DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216873   (745760) от 02.04.2018
-
-VA - Top 50: Зайцев FM - Март (2018) [MP3|320 Kbps] <Pop,  Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Filatov & Karas feat. Лигалайз  -  Ещё один день  3:45
-02.  G-Eazy & Halsey  -  Him & I  4:29
-03.  Janieck  -  Does It Matter  3:28
-04.  SHANGUY  -  La Louze  3:08(   Читать дальше...   )Жанр: Pop,  DanceПродолжительность: 02:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D74972691CACEAAB169E05CD222F5F5A2FA16D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216922   (745840) от 02.04.2018
-
-VA - Перфоратор 2: Русский Рок (2018) [MP3|320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Твёрдый ЗнакЪ - День
-002. Воздухоплавательный парк - Звезда по имени солнце
-003. Зоопарк - Позвони мне рано утром
-004. Инкогнито - Небо и трава(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DE6BAB4EDB045695D9CF8E939851DABA03C7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020143   (745946) от 25.05.2016
-
-VA - Музыкальные сливки хит-парадов. Зарубежный выпуск (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyonce - Sandcastles
-002. Stephen - Sincerely
-003. Andeeno Damassy Feat. Jimmy Dub - Dime Tu
-004. Tiesto & Don Diablo Feat. Thomas Troelsen - Chemicals(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE13EFD5BBC5AA951E1D0658B62C04642E869A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282275   (745952) от 11.02.2019
-
-Pink Floyd - Blues (2019) [MP3|320 Kbps] <Blues, Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Blues
-02. Pink Blues
-03. King Bee
-04. Country Song(   Читать дальше...   )Жанр: Blues, Progressive & Art-RockПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9750638216A0DEAE1AF27CDAABA693D433D68E18
 ```
 
 

@@ -639,6 +639,72 @@ magnet:?xt=urn:btih:C4CBBCCAC60E9B0D31DB8521A1E87CFC8C40FD0A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514682   (657745) от 24.06.2012
+
+VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Allegro - Pepe Romero, Celin Romero, San Antonio Symphony Orchestra, Victor Alessandro, Antonio Vivaldi [03:44]
+2. Adagio in G minor - Dominic Miller, Budapest Film Orchestra, Nick Ingman, Tomaso Albinoni [05:08]
+3. Questa Notte - Craig Ogden, Ludovico Einaudi [05:07]
+4. Canario (Allegro ma non troppo) - Pepe Romero, The Academy of St. Martin in the Fields, Neville Marriner, Joaquin Rodrigo [04:42]
+5. Canarios - Heinz Wildhagen, Narciso Yepes, Guenther Dieckmann, Gaspar Sanz [03:10]
+6. Berceuse from Dolly Suite - Gabriel Faur? [03:17]
+7. Farewell to Stromness - Los Angeles Guitar Quartet, Peter Maxwell Davies [04:19]
+8. Spanish Dance, Op.37, No.10 - "Danza triste" - Pepe Romero, Celin Romero, Enrique Granados "[03:48]
+9. Romance No. 1 - Craig Ogden, John Brunning [02:57]
+10. Melodie - Pepe Romero, Robert Schumann [01:48](   Читать дальше...   )Жанр: Classical GuitarПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514455   (657968) от 24.06.2012
+
+Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibert - Entr'acte [03:16]
+02. Villa-Lobos - Bachianas brasieleiras No. 5  - Aria [05:57]
+03. Desportes - Ronde [02:04]
+04. Ovalle - Azulco [01:31]
+05. Chopin - Prelude in E minor, Op. 28 No. 4 [02:18]
+06. Almeida - O Cacador [01:51]
+07. Desportes - Pastorale joyeuse [02:41]
+08. Ovalle - Tres pontos de santo [04:10]
+09. Gossec - Tambourin [01:31]
+10. Henrique - Boi-Bumba [01:39](   Читать дальше...   )1990Жанр: ClassicalФормат: CDПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139766   (658038) от 04.06.2017
 
 Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
@@ -661,60 +727,6 @@ Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84190B82C8971BE759E975753B9C30434227B68B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139770   (658112) от 04.06.2017
-
-Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossless|tracks] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stones (4:36)
-02 - Go Be Love (4:09)
-03 - Not Dead Yet (3:59)
-04 - Temperance (4:13)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6C55B26F7A890A4E4CA0E5B7AB0ADAEF03DA2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139662   (659194) от 03.06.2017
-
-David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repercussions
-02. Magdalena
-03. Valhalla
-04. Delia(   Читать дальше...   )Жанр: Classical, Neoclassical, New AgeПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
 ```
 
 

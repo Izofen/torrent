@@ -1,3 +1,246 @@
+###  Публикация: 1024218   (720310) от 07.06.2016
+
+Bobina - Speed Breaker (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobina - Speed Breaker (05:28)
+ 02. Bobina with Natalie Gioia - Addicted (03:35)
+ 03. Bobina with Kyle Richardson - Love Is The Answer (03:10)
+ 04. Bobina - Music Box (Album Mix) (06:52)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286C36A3D687FDE3BFF0C3059094DA9836028119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024074   (720433) от 07.06.2016
+
+Above & Beyond - Acoustic II (2016) [MP3|320 кб/с] <Downtempo, Chillout, Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello (2:45)
+02. We're All We Need (5:02)
+03. On My Way To Heaven (5:14)
+04. Save Me (6:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B24EDE81C2F26484588442EE279DA6921B2618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024078   (720453) от 07.06.2016
+
+Dinka - Sundry: The Chillout Collection (2016) [MP3|320 кб/с] <Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe (Chill Out Mix) (3:26)
+02. Hotel Summerville (Original Mix) (5:37)
+03. Campfire (Original Mix) (4:23)
+04. Smile When You're Hurt The Most (Original Mix) (4:48)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 02:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F071BC4CF334E840DC32160205C2167060FB1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024102   (720460) от 07.06.2016
+
+VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innellea - Galagant (Dahu Remix) (7:40)
+02. Nick Devon - Metis (7:22)
+03. Dahu & MPathy - Shattered (Jonas Saalbach Remix) (8:19)
+04. Tom Peters - Two of Us (6:19)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279BEB1D95258337915AD01930838142C93FD562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790122   (720465) от 28.05.2014
+
+Ben Frost - A U R O R A (2014) [FLAC|Lossless|WEB-DL]<Experimental, Industrial, Noise>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flex (2:51)
+ 02. Nolan (6:58)
+ 03. The Teeth Behind Kisses (3:13)
+ 04. Secant (4:55)(   Читать дальше...   )Жанр: Experimental, Industrial, NoiseПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36136EB209E8BA35814F4A00537FD82F583084C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023921   (720552) от 07.06.2016
+
+Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno, Dark Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Into Dampness (4:18)
+02. Misme's Breath (5:11)
+03. Senses (4:48)
+04. Uton (7:06)(   Читать дальше...   )Жанр: Electronic,  Ambient, Techno, Dark AmbientПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99F7396907BF4247B1E433CB2D8A72CE03AF483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024189   (720558) от 07.06.2016
+
+VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 1) (57:23)
+02. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 2) (59:11)
+03. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 3) (52:21)
+04. Adam Beyer - What You Need (6:41)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 06:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DEF068938555AA1155CEE8D6AA2ECB47BA15EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024047   (720578) от 07.06.2016
+
+Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Sides of Nowhere (Original Mix) (7:49)
+02. Bianca (Original Mix) (7:46)
+03. Mom's Clown (Original Mix) (8:01)
+04. Stripped (Original Mix) (9:10)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C03C4206D45D805C302EC9E6911D6B9A06966C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024087   (720653) от 07.06.2016
+
+Fedde Le Grand - Something Real (2016) [MP3|320 кб/с] <Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fedde Le Grand & Merk & Kremont - Give Me Some (Radio Edit) (3:25)
+02. Fedde Le Grand & Holl & Rush - Feel Good (Radio Edit) (3:16)
+03. Fedde Le Grand & Cobra Effect - I Can Feel (Radio Edit) (3:14)
+04. Fedde Le Grand Ft. Mozella - Beauty From The Ashes (Original Mix) (3:28)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70017BCA624EC50FF8305C9CF592B8034BCE5544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023931   (720657) от 07.06.2016
 
 Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno>
@@ -452,248 +695,6 @@ Jeff Pearce - Follow The River Home (2016) [FLAC|Lossless|tracks] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94338B0A32ACDE086468198D5A9FC69BFCB81CD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023796   (722376) от 06.06.2016
-
-VA - Walking Home Vol.9 (2016) [MP3|320 кб/с] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jozay - Glossy (11:12)
-02. Itchy Lemon - Distant Echoes (Remix) (feat. Cimmone Ferry) (6:31)
-03. Jaques Le Noir - Reaching for the Stars (6:57)
-04. Wander Sa - Only Love Remains (6:19)(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2397E837F8A49DADD08E70B5F8BAD699E1805F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129025   (722385) от 28.04.2017
-
-VA - Infusion Vol. 1 (2017) [MP3|320 Kbps] <Dubstep, Trap, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LeSage - Tombolo (04:16)
-02. ill-esha - Loose Leaf feat. Ross Pennock (04:33)
-03. Of The Trees & Cristina Soto - Heavy (04:21)
-04. Intrasol - After Dusk (02:25)(   Читать дальше...   )Жанр: Dubstep, Trap, DowntempoПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2EB49E363C1D23CC91DF94332C73CCECDC16F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023860   (722467) от 06.06.2016
-
-Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnect (Edit) (03:13)
- 02. Headcase (10:19)
- 03. Digital / Divide (10:28)Жанр: Techno, MinimalПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D52554B0AE3BCB43EA342E24516A23EC4ECBDF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023855   (722470) от 06.06.2016
-
-VA - EDM Galaxy Vol.5 (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcel Scott - Strike On (4:08)
-02. Chris Packer - Random (4:02)
-03. Leventina - Grenoble (Radio Mix) (3:00)
-04. Eran Hersh - Deadly Kiss (5:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA5A1A81164B4C548D30E7773AF741FBEEECE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129251   (722617) от 28.04.2017
-
-VA - Coral City Compilation (2016) [MP3|320 Kbps] <Nu Disco, Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereocool - Welcome to Coral City (03:54)
-02. Skibblez - Azure (03:45)
-03. My NamE - So I Dance (03:20)
-04. Tightshirt - Cidre Circles (04:22)(   Читать дальше...   )Жанр: Nu Disco, Disco HouseПродолжительность: 01:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023676E7090512BA9AF5BEF9B61CA91C68A0A801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129230   (722620) от 28.04.2017
-
-Mauro Picotto - Deep Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Good Morning (4:55)
-2.  Deep Blue (3:49)
-3.  Sibu (6:34)
-4.  Legacy (5:18)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9222B02FF367EB9235BFCC725EA668BA38ECA3CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129204   (722621) от 28.04.2017
-
-VA - Ristorante Lounge And Deep - Restaurant Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Donati - Lounge Delight (Original Mix) 05:23
-02. Costez Ensemble - Violet Dawn (Original Mix) 05:39
-03. Moonshine Project - Noche Suave (Original Mix) 05:06
-04. Smooth Soul Sound - Solaris Touch (Original Mix) 05:06(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673AD9FE1076FC5D527E2AD7C16DA1186BAF2B9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129245   (722622) от 28.04.2017
-
-William Hoshal - River Of Clouds (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  River Of Clouds Part I (11:16)
-02.  West of Everything (10:54)
-03.  Deep Light (14:27)
-04.  Maintaining Status (7:03)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003B4B10FD1B0C49CE0C75AD388A461CD33CC7EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129055   (722628) от 28.04.2017
-
-VA - Black Chill & Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aaron The Baron feat. Mia Lemar - Waiting in the Darkness (Lesny Deep Sweet 'n' Deep Mix)  8:44
-02.  Lamar Ensemble - Tonal Colors  5:32
-03.  Enrico Donner - Deep Rooted  5:07
-04.  DJ Riquo feat. The Third World Man - Mesmerizing Words  5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A62E9B42B9A6B56C580062301D661F7BE7CC188
 ```
 
 

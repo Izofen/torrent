@@ -1,3 +1,57 @@
+###  Публикация: 1137698   (665645) от 28.05.2017
+
+VA - Pure Deep Sexy Vol 4 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nu - Carat 06:40
+02. Fonnikdeep - Love (Broken Instrumental) 07:19
+03. Midas 104 - Traute 07:20
+04. Nils Nuernberg - Flame Trees 07:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522DE0B60877011C0D0AE772E86750656F253FB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138026   (665646) от 28.05.2017
+
+VA - Rich & Bitch (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piece Grade – Jazzy Company (Supa Trumpet Mix)
+02. Edo Romani – Syntomatique (Flying Mix)
+03. Brodie Sleath – Make up Basement (Soullhouse Mix)
+04. Ennio Laan – Arcobaleno (Dondeep Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B0BA7761B73678B1B3F6DA68E9D852A08F67D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137904   (665650) от 28.05.2017
 
 VA - Chillout Essentials Vol.1 (Selected by Simon Le Grec) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -241,6 +295,30 @@ magnet:?xt=urn:btih:5D2BBC33AB6769626326B7F381BD74B312530AF8
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512028   (665857) от 17.06.2012
+
+Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_665857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:15:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224438   (665943) от 10.05.2018
 
 ScAnDroid Experiment's - Erunt Omnia (2018) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Ethno-Electronic>
@@ -317,6 +395,30 @@ VA - Selected Moments I (2008) Shoreless Recordings [FLAC|Lossless|tracks+.cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655F16BEEB427299916DE5017AC6BE9D7C976A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339069   (667412) от 20.05.2011
+
+Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -593,113 +695,6 @@ VA - Electrosounds Vol. 1 (1998) Globe [FLAC|Lossless|tracks+.cue] <Techno, IDM,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27CDB562A443DE221808DF187F70F4C33A4C50EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031131   (668655) от 03.07.2016
-
-Henry Saiz - Secrets (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets (Original Mix) [06:56]
-02. Secrets (Brassica Remix) [05:16]
-03. Secrets (Brassica Remix Club Version) [06:55]Жанр: Deep House, Tech HouseПродолжительность: 00:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB2651978FAFBB734DF41527DA51B0DE38741B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031146   (668656) от 03.07.2016
-
-Lauer - Borndom Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ByBy (Fort Romeau Remix) [06:32]
-02. Alright (The Working Elite Remix) [06:45]
-03. ESC (Prins Thomas Diskomiks) [07:30]
-04. Hump Acid (Lexx Remix) [06:37](   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AD4B2C00D26D42CCC6B69AB604A6901CA3AE03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031299   (668782) от 03.07.2016
-
-VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage -  Tell Me (Club Mix) 4:05
-02. Vio -  One Girl (Stephan F Extended) 4:45
-03. Deeplow -  Limelight (DJane HouseKat Remix) 4:45
-04. Fucking Role Models -  Leave Me Alone (Feat. Adeena) (Extended Mix) 4:52(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 02:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CF45DA0B996397BC7B4CF925C6F858FFC30426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031368   (668783) от 03.07.2016
-
-VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
-02. Cedric Gervais -  Make Me Feel 3:28
-03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
-04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1438260   (1041059) от 08.01.2021
+
+VA - Radio Discomania (2021) [MP3|320 Kbps] <Pop, Italo-Disco, Euro-Disco, Synthdance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MarcelDeVan - Day of Dreams, Pt. 2 (3:45)
+02. Italove - The Mirror (Radio Edit) (4:09)
+03. Fresh Fox - Don't Stop The Night (4:08)
+04. Silent Circle - Night Train (Radio Edit Remastered) (3:52)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Euro-Disco, SynthdanceПродолжительность: 03:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7EAD783F78139BED3FFC764C4A7283F4AACFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611317   (1041329) от 11.02.2023
+
+VA - Музыка для машины Vol.7 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5Утра - Рядом (Luna Abn & Mght Remix) (02:16)
+02. Soldout  - Холодный Дым (02:52)
+03. Ангалия - За Любовь Мою (03:51)
+04. Moonsound Feat. & Na-No & Bubblezz - High (02:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095F0176803C66D5B101237E0F6F83DE5729D16F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611115   (1041362) от 11.02.2023
+
+Davit Barqaia - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia
+02. Frozen Heart
+03. Don T Cry
+04. No War(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB7ACB17208ABF3967736E4B1B478C6B81F0997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611114   (1041378) от 11.02.2023
+
+VA - Pop Punk Motivation (2023) [MP3|320 Kbps] <Rock, Punk Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - American Idiot
+02. Simple Plan - Addicted
+03. All Time Low - Blinding Lights
+04. My Chemical Romance - Teenagers(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 02:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95746C3D3F4A2EAF06944A4DEC79CE1BD22F1D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610859   (1041380) от 11.02.2023
+
+Ivy Levan - Compilation (2023) [MP3|196-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dame Says (Final Audio)
+02. Biscuit
+03. Carol of the Bells
+04. Hot Damn(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3441F40FE7DD5CB06F45DCB13379A07BB00FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610851   (1041383) от 11.02.2023
+
+Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Life
+02. Down to the Bottom
+03. Flawless
+04. Get Up(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594995FD73F7861F34D2C312F632B6B2FF50C7B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611310   (1041422) от 11.02.2023
 
 Timi Yuro - Compilation (2023) [MP3|320 Kbps] <Vocal, Soul, Easy Listening>
@@ -533,168 +695,6 @@ VA - Beat Glam House (2021) [MP3|320 Kbps] <Club House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9D0C1E6C6AB7F950999B1A6D6DB64AC53703C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437235   (1042293) от 04.01.2021
-
-VA - Beatport Techno Electronic: Sound Pack #217 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декабрьский 217-й микс с музыкальной площадки Beatport несомненно заслуживает чтобы Вы обратили на него внимание даже в том случае, если вы не считаете себя настоящим приверженцем жанра техно электроники. Большое количество интересных идей заключены в оригинальную музыкальную оболочку, знакомится с которой одно удовольствие.001. Leonce - Arpjam 916
-002. Apollo Twin - Selected
-003. Andy Slate - Quarter
-004. Jeff Haymaker - Diving(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1507E2F39D1FF0970BB90D435F5845C1070F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437163   (1042297) от 04.01.2021
-
-VA - Electronic Glitch (2020) [MP3|320 Kbps] <Electronic, Synth, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием "Electronic Glitch". Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Boots & Kats - Park Talk
-002. Waqwaq Kingdom - Positive Sound
-003. Cy8Er - Yumezora Kokoro
-004. Mallorquín - Yellow Machine(   Читать дальше...   )Жанр: Electronic, Synth, TechnoПродолжительность: 11:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAFD4409EBD5E752D8669E89C183B0AC09BC119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437176   (1042300) от 04.01.2021
-
-VA - Club Techno Electronics: EDM Liveset (2020) [MP3|320 Kbps] <Techno, Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того, чтобы окунуться в мир клубной жизни, не обязательно посещать чопорный клуб для избранных. Достаточно просто скачать новый сборник танцевальной электроники "Club Techno Electronics: EDM Liveset" и устроить клуб у себя дома или на даче и весело зажечь с друзьями!001. Boki Fetish - Hardcatz
-002. Extra - La Pin (Fiesta Version)
-003. Dj Jackson - Hannibal
-004. Ferum - Arabian Acid(   Читать дальше...   )Жанр: Techno, ElectronicsПродолжительность: 13:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D9220DBEF90C43805FFAF7BFD14A44803F75F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610269   (1042405) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume I (2022) [MP3|320 Kbps] <Progressive metal, progressive rock, avant-garde metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irist - Gloria
-02. Aenaon - Psyche
-03. The Blank Canvas - Epitaph For A Friend
-04. Charlie Griffiths - Arctic Cemetery(   Читать дальше...   )Жанр: Progressive metal, progressive rock, avant-garde metal, melodic death metalПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DE56D2C2D9B7D409A6DE3A0B9DD2525BDEC13C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610389   (1042407) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume III (2022) [MP3|320 Kbps] <Post-metal, blackgaze, sludge metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Mal En Pire - L'Astre de Velours
-02. Asunojokei - Heavenward
-03. Adolf Plays The Jazz - Cinnamon
-04. Lodz - This Mistake Again(   Читать дальше...   )Жанр: Post-metal, blackgaze, sludge metalПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF685F925DD75B78D71BCBC014B5CBDFF10444E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610383   (1042436) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenobiotic - The Wretched Strive
-02. Sigh - Shoujahitsumetsu
-03. Psycroptic - Enslavement
-04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
 ```
 
 

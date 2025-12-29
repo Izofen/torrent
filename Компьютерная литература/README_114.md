@@ -1,3 +1,27 @@
+###  Публикация: 1443900   (1035142) от 30.01.2021
+
+Елена Савина | Практикум по программированию на PascalABC.NET (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035142.jpg" />
+</div>
+
+
+###  Подробнее
+
+PascalABC.NET — современная версия языка программирования Паскаль, предназначенного для обучения программированию. Настоящий практикум включает краткую справку по языку и собственно задания и упражнения для лабораторных и практических занятий по таким дисциплинам, как «Информатика и программирование», «Языки программирования» и ряду других. Задания разделены по темам, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F455EDFCD7F8157B3D69CFB952D2CB33DF2496
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617361   (1035268) от 06.03.2023
 
 Roger Ye | .NET MAUI Cross-Platform Application Development (2023) [PDF] [EN]
@@ -597,31 +621,6 @@ ABBYY FineReader PDF 15 — это универсальный инструмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A23F852D6F29C3ACF83128F7BF86557787E8E868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439690   (1039451) от 14.01.2021
-
-Джозеф Албахари, Бен Албахари | C# 9.0 Карманный Справочник (2021) [EPUB] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039451.jpg" />
-</div>
-
-
-###  Подробнее
-
-When you need answers about using C# 9.0, this tightly focused and practical book tells you exactly what you need to know without long intros or bloated samples. Succinct and easy to browse, this reference is an ideal quick source of information and can be used as a guide to get you rapidly up to speed if you know Java, C++, or an earlier C# version.
-All programs (   Читать дальше...   )Жанр: ПрограммарованиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
 ```
 
 

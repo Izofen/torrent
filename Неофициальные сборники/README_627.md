@@ -1,3 +1,165 @@
+###  Публикация: 982531   (946587) от 04.02.2016
+
+Nazareth - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Animals 1989 (03:57)
+02. Let Me Be Your Leader 1981 (03:51)
+03. Where Are You Now 1983 (03:55)
+04. Big Dog's Gonna Howl 2011 (03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC8724D2D4B0FBF94314AB48FE279F41D4DF5FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982537   (946597) от 04.02.2016
+
+David Bowie - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Art Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazarus 2016 (06:23)
+02. The Hearts Filthy Lesson (Good Karma Mix By Tim Simenon) 1995 (05:01)
+03. Ashes To Ashes 1980 (04:26)
+04. Let's Dance 1983 (07:38)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556330202FC2E0782ECC129BFA939795008E568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982602   (946708) от 04.02.2016
+
+VA - Blues Forever vol.17 - vol.20 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Doiron - Slippin' Back Into The Dip
+02. B.B.Chung King - When The Blues Catch Up With You
+03. Kenny Lee - Country Boy
+04. Jim Capaldi - Living On The Outside(   Читать дальше...   )Жанр: BluesПродолжительность: 05:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D6BF6F747838201620605AD0841885A4EA38C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982648   (946727) от 04.02.2016
+
+VA - Новая Русская Дискотека (2016) [MP3|205 - 320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анонс - С Новым Годом Обезьяны (03:52)
+02. Кирилл Филамешин - Белый снег (prod.ABS-DIGITAL ) (03:11)
+03. Aркадиас - Cоленый дождь (04:06)
+04. Арвид - Ты позови меня (03:48)(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E3C578905E77E0137F92797CBD7AE21CF7BF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751487   (946840) от 30.01.2014
+
+VA - Lounge At The Seashore 4 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946840.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aperitif Quartet - Another Drink
+002. Soleil Fisher - Daydreaming - Chill Mix
+003. Enigmatic - Jardin D' Hiver
+004. KZ Groove - Turchese(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3D5061BC28260523AAEFA6D18E265613A1C5F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982428   (946896) от 04.02.2016
+
+VA - House Nation Volume 1 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mat Zo - Lucid Dreams (The M Machine Remix) (05:24)
+02. Herve feat. Seasfire - Lose Control (Taiki & Nulight Remix) (04:23)
+03. Gareth Emery feat. Krewella - Lights Thunder (Darren Styles Remix) (05:06)
+04. Naughty Boy feat. Sam Smith - La La La (Kaos Remix) (03:55)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C82A0C6F9297AB3E6097AD18D65C68841A8E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090195   (946918) от 06.01.2017
 
 VA - Лучшая Дискотека 80-90 (2017) [MP3|320 Kbps] <Pop, Disco, Dance>
@@ -533,168 +695,6 @@ VA - Selected DJ Tracks Impact (2017) [MP3|320 Kbps] <Future House, Funky, Bigro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93EB1E4984530CBD184F0811CB912330E2647337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090235   (947692) от 06.01.2017
-
-VA - Progressive Logic House Hits (2016) [MP3|320 Kbps] <House, Progressive, Tribal, Future House, Funky, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin Van Buuren - Mirage (Martijn Ten Velden Extended Remix) 7:01
-02.  Fedde Le Grand - Down On Me (Extended Mix) 4:45
-03.  Deadmau5 - Strobe (Feed Me Remix) 9:27
-04.  David Guetta & Cedric Gervais ft. Chris Willis - Would I Lie To You (Radio Edit) 3:18(   Читать дальше...   )Жанр: House, Progressive, Tribal, Future House, Funky, ElectroПродолжительность: 03:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291394CAB104985A7E4391C0D12FAF4394A5F60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089943   (947697) от 06.01.2017
-
-VA - Global House Lighting Club (2017) [MP3|320 Kbps] <House, Funky, Tech House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daddy's Groove - Where I Belong (Radio Edit) 3:29
-02.  Ambient P - Hot Stuff (Ivan Paganessi Club Remix) 6:06
-03.  Felipe C - Cantores (Original Mix) 4:47
-04.  Aldy Th - Knockout (Original mix) 4:51(   Читать дальше...   )Жанр: House, Funky, Tech House, Progressive, ClubПродолжительность: 08:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40108495D23BB6CD3137CC7B50F607957F47868F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982433   (947997) от 03.02.2016
-
-VA - Guitar Collection 1 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Acoustic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947997.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arida Vortex - Alienation 04:35
-002. Chet Atkins & Les Paul - The World Is Waiting For The Sunrise 02:21
-003. Garry Moore - Still Got The Blues (Album Version) 04:09
-004. Jesse Cook - Broken Moon 03:19(   Читать дальше...   )Жанр: Instrumental, Blues-Rock, AcousticПродолжительность: 07:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82B93370C4F54F8E8A6CBA13A3AC1521383D61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982171   (948128) от 03.02.2016
-
-VA - Best Reggae Day (2016) [MP3|320 кб/с] <Reggae, Jungle>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Blondy - No Brain No Headache
-02. Omar Perry - Blaze This Ya Fire
-03. Etana - How Long
-04. Nicodrum - Rainy Days(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 03:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE02FF0F11FD0257B340F76296227101B9D4773
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858647   (948208) от 11.01.2015
-
-Стас Михайлов - Лучшее (6CD) (1997-2014) (2015) [MP3|320 кб/с]<Авторская песня, шансон, поп>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948208.jpg" />
-</div>
-
-
-###  Подробнее
-
-096. Мы ждём (2013)
-097. Две души (2013)
-098. Не обижай любовь (2013)
-099. Спящая красавица (с Зарой) (2013)(   Читать дальше...   )Жанр: Авторская песня, шансон, попПродолжительность: 07:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C5B819ACA01871A73F68F174E80B5EF6977E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982458   (948239) от 03.02.2016
-
-VA - Super Disco 90s: Great Radio Mix (2016) [MP3|320 кб/с] <Disco, Pop, Retro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948239.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mc Erik & Barbara - Save The Jungle
-002. Britney Spears - ...Baby One More Time
-003. DJ Bobo - Somebody Dance With Me
-004. Activate - I Say What I Want(   Читать дальше...   )Жанр: Disco, Pop, Retro, DanceПродолжительность: 06:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E21314AC01E130DB6A42EB7E86C9AD913BB9A31
 ```
 
 

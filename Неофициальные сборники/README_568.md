@@ -1,3 +1,165 @@
+###  Публикация: 1110188   (855553) от 01.03.2017
+
+VA - World Latino Mix (2017) [MP3|320 Kbps] <Latin, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855553.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adassa/L.O.K.A.! - Fiesta 4:12
+002. El Chacal - Noche De Brujas (Las Feas) 3:38
+003. Dj Papi Electric/Honorebel/Lotus/Sean Paul/Miyo, Lotus, Dj Papi Electric/Miyo - Party Up C'mon (Fiesta Radio Edit) 4:08
+004. Nando Pro/Jacob Forever/El Dany - Pa Que Goce Un Rato (Radio Edit Remastered) 3:52(   Читать дальше...   )Жанр: Latin, Dance, PopПродолжительность: 08:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D23B857B6F5E3D51E6EC13D115922CDBFF8051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109901   (855561) от 01.03.2017
+
+VA - Funky Swing: Electro Jazz (2017) [MP3|320 Kbps] <Swing, Electro Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Urban Swing Workers - Bei Mir Bist Du Scheen (Unplugged) 3:18
+002. Frank Kramer - Swing 4:02
+003. Club Des Belugas - Save A Little Love For Me 3:35
+004. Elysia & The Two Hats - That Man (Bmvt Remix) 6:13(   Читать дальше...   )Жанр: Swing, Electro JazzПродолжительность: 08:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679F96A6096A85C6F6EC8358CC6C1AF561D66821
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110194   (855565) от 01.03.2017
+
+VA - Aspiration For Awakening: New Age Compilation (2017) [MP3|256-320 Kbps] <New Age, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lisa Reagan - Believe 5:01
+002. Enigma Feat. Aquilo - Amen 4:53
+003. Oliver Scheffner - Nature Energy 6:20
+004. Michael Vermey - Metamorphosis 4:43(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 14:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C87A49CBCC4EB62D15A584BF7BB5C705FCA30E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110201   (855609) от 01.03.2017
+
+VA - Best Chillout Vol.26 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AIYLIIES - Join Me (Original mix) 4:04
+002. Alan Walker - Alone  (Restrung) 3:05
+003. Alan Walker - Faded (Risssing Remix) 3:50
+004. Alexander Tarasov - Winter (Original Mix) 5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F81DBF749C4B25B88548AC9E59399398EFE2BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110089   (855614) от 01.03.2017
+
+VA - Лучший русский шансон. Часть № 3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олег Верд - Пулями 3:51
+002. Олеся Атланова - Встреча 3:48
+003. Белое Золото - Если Боль Назвать Любовью 3:51
+004. Сергей Рудов - Лето 3:45(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EDEA902C8E47800FFB2B3DCED50EB64F0658B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109904   (855616) от 01.03.2017
+
+VA - Автозвук. Отборный зимний хит. Часть 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Ярчинская - Станем Ближе 3:41
+002. Feli - Timpul 3:23
+003. Peg Parnevik - Sthlm Nights 3:21
+004. Olstan Van Guard - Капли Дождя 4:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4602014C21EA040FDD78A4CF65A8B413517669F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109915   (855625) от 01.03.2017
 
 VA - Положительный заряд Hit FM (2017) [MP3|256 Kbps] <Pop>
@@ -532,168 +694,6 @@ magnet:?xt=urn:btih:4B282700F771FC9FC7B4B513139BEF8CDA7BE8EC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA882008F6FA2704C2C94EBC2F3E0B461C39103F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000593   (857423) от 26.03.2016
-
-VA - DJ Tools Essential: DJ Samples DJ Mixtools (2016) [MP3|255-320 кб/с] <Club, Electro, Bass Music, Dubstep, Tribal, UK Garage>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moguai Feat. Cheat Codes - Hold On (Extended Mix) 03:56
-002. 4 Strings Feat. Eric Lumiere - Crazy (Original Mix) 06:47
-003. Knife Party And Tom Staar - Kraken 04:51
-004. Yoel Lewis - Monaco (Original Mix) 05:57(   Читать дальше...   )Жанр: Club, Electro, Bass Music, Dubstep, Tribal, UK GarageПродолжительность: 09:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2732093A679EEA94594772684120B6CDF28F8EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000605   (857427) от 26.03.2016
-
-VA - Новая Жажда Скорости Без Тормозов vol.3 (2016) [MP3|320 кб/с] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zario - Eyes On You (Original Mix)
-02. Blasco Feat. Szen - Hurt (Extended Mix)
-03. Norlak - Hurt You (Darklight Remix)
-04. Dr Rude - Apocalypse (Extended Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000564   (857448) от 26.03.2016
-
-VA - Давай, наливай. Сборник радио Шансон 4 (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виктор Барабанщиков - Сравнение
-02. Александр Дюмин - Братушка
-03. Виталий Волк - Русалочка
-04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109514   (857457) от 28.02.2017
-
-VA - Музыкальное зимнее настроение выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monisha - Брюлли Диванны Автомобилли 3:32
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Катя Ростовцева - Целуй 3:55
-004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0D0595C01578B9AE96F3C386B5EE2ABEEAB461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109594   (857462) от 28.02.2017
-
-VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Omniks - Looking For You (Original Mix)  6:48
-02.  Tycoos & First Sight - Wonderland (Original Mix)  6:12
-03.  Raz Nitzan & Kate Louise Smith - This Time (Steve Allen Remix)  4:44
-04.  Delta IV - Forever Home (Betsy's Heart Pt. 2) (Original Mix)  9:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 01:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BF7922C416C79FA16739239B4B4EC40E9DB45E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000780   (857520) от 26.03.2016
-
-VA - Dr. Metal Presents: Vol.6 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857520.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Helloween-Battle`s Won
-002. Blazon Stone-Fire The Cannons
-003. Fireland-Ancient Time
-004. Luca Turilli-In The Mirror(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BA2662357AF392C0B95391C62BC83ADCF6B4D3
 ```
 
 

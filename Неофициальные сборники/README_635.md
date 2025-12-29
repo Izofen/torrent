@@ -1,3 +1,165 @@
+###  Публикация: 1359947   (963161) от 13.02.2020
+
+VA - Немного песен о любви (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963161.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Artemiev - Виды (4:00)
+2.Boogrov, Mana Island - Swarm (4:28)
+3.K.A.T.Y.A. - Кем была я (3:01)
+4.Mujuice - Химия (4:09)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A345E0D91C80B211F9C7CACEFBB3091122C543DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359742   (963163) от 13.02.2020
+
+VA - House In Space (2020) [MP3|320 Kbps] <Future House, EDM, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Go Satta - A Real Boy
+002. Jubba - Elemento Y
+003. Major K - Narwhal (Original Mix)
+004. Dom Kane - Tunnel Run(   Читать дальше...   )Жанр: Future House, EDM, ElectronicПродолжительность: 11:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65CBF250ED985696C785DC3351B697068D3C3A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359743   (963208) от 13.02.2020
+
+VA - Beatport Techno: Electro Sound Pack #11 (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Mood - Thoughts Are Clear (Original Mix)
+02. Dj Dextro - Reflection (Original Mix)
+03. Mari Mattham - Foggy Destiny (Original Mix)
+04. Suspect Boyz - Madrid (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, Electro, MinimalПродолжительность: 07:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32040658692C20C7673CA518FC7499B9FD5F1901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359737   (963217) от 13.02.2020
+
+VA - Back In The Future: Indie Pop Rock (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Oh Pep! - Bleeding Hearts
+002. They Owe Us - Rest My Mind
+003. Zach Rogue - Mrs. Santa Claus
+004. Ella Blixt - Hellsinkin(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 10:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F135038AE9576C8D4E530EDB66782FA53126B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359736   (963268) от 13.02.2020
+
+VA - Interior Lounge Sounds Vol.02 (2020) [MP3|320 Kbps] <Lounge, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hedflux, Alex Delfont - Manifolds
+002. Ron Sander - True Lies (Intense Mix)
+003. Nova Casa - Feel
+004. Juan Candados - Su Manzanu (Original Mix)(   Читать дальше...   )Жанр: Lounge, Relax, DowntempoПродолжительность: 09:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DBF15F86BB79CEDCB03AFB2D80A413BFB954BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978081   (963334) от 23.01.2016
+
+VA - Blues Forever (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Christian - Wholly Cats
+02. Carl Kress - Jazz in G
+03. Blind Lemon Jefferson - Shuckin' Sugar
+04. Lefty Frizzell - Long Black Veil(   Читать дальше...   )Жанр: BluesПродолжительность: 05:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7368E426704B83A57D282E980F4AC02696E95EA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978440   (963354) от 23.01.2016
 
 VA - Workout Mix vol.3 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
@@ -527,168 +689,6 @@ VA - Reflective Deep House Mix (2016) [MP3|320 кб/с] <Deep House, Club, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B912B900E4333B18D28EA01BAB9CC094ABC817F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977436   (965679) от 21.01.2016
-
-VA - Trance Desire Volume 60 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Simz feat. Emma Lock - Untimate Love (Original Mix) (07:53)
-02. Gareth Emery feat. Bo Bruce - U (Original Mix) (05:28)
-03. Mark Bester feat. Love Dimension - The Voice (Original Mix) (05:32)
-04. Proyal feat. Ai Takekawa - The Orbit (Biotones & Max Farewell Remix) (04:19)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EBFB136FE225E38BFE3AF0EFC6B8091D1AD8C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976136   (965729) от 21.01.2016
-
-2011stress - With eyes closed again (NNM) (2016) [MP3|320 кб/с] <Electronic, Synth-pop, Classical Crossover>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turquoise
-02. Drowning in your eyes
-03. Bubble - Mania 2
-04. Jane Bond(   Читать дальше...   )Жанр: Electronic, Synth-pop, Classical CrossoverПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5DFE8FE3BF34E1CD5BED18EE5A75B9E16D754B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977580   (965737) от 21.01.2016
-
-VA - Sentimental Tropics (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965737.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dominique Langham - In the Middle of the Night
-002. Water on Mars - Biscaya - Realaxing Beach Moments remix
-003. Ayuthya - Dreamy Mood
-004. Phono Sounds Invation - Shores of Eternity - 100 % Downbeat Sunset Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0731C8EB831CA6F646723CBCBDD4C483CF50A21D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977449   (965768) от 21.01.2016
-
-VA - An Endless Drive (2016) [MP3|320 кб/с] <Club, House, Electro, Trance, Tech>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965768.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brenton Mattheus, Ian G, Matierro - Flash feat. Brenton Mattheus
-002. Herve Pagez - Paaarty (Original Mix)
-003. KURA - Makhor (Original Mix)
-004. Alexandre Bergheau & Geert Huinink - Desert Wings (Original Mix)(   Читать дальше...   )Жанр: Club, House, Electro, Trance, TechПродолжительность: 08:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957CCB8A6F24B6B4EF5361534AB8C73183F2883E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358908   (965826) от 10.02.2020
-
-VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Grant David Project - Imagine
-002. Larry Scottish - Summer Rains (Extended Mix)
-003. Mangalia - Minimatt (Original Mix)
-004. Laakkinen - Forever (Extended)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDC9BC9DCE30FD47FF61698A8288065CDEF9B78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358984   (966074) от 10.02.2020
-
-VA - Instrumental Romantic Jazz: Smooth And Chill (2020) [MP3|320 Kbps] <Smooth Jazz, Chill Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966074.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gianluigi Trovesi - Umberto
-002. Gogo Penguin - Ocean In A Drop
-003. Planty Herbs - Nothing Lasts
-004. Third I - Stone Of Destiny(   Читать дальше...   )Жанр: Smooth Jazz, Chill InstrumentalПродолжительность: 09:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6715D6F0BC71B772BFFB8F0D6ED1A742AF528BD0
 ```
 
 

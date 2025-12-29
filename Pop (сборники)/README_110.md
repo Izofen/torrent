@@ -1,3 +1,30 @@
+###  Публикация: 1106738   (869672) от 21.02.2017
+
+VA - Unknown 80's (part IV) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon F (Simon Fellowes) - New York Girl - 1987
+02. Re-Flex - Praying To The Beat - 1983
+03. Rettore (Donatella Rettore) - Lamette - 1982
+04. The Teens - Shakin' All Over - 1979(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6884ACA586F322AD871B2E26FD38B153196B452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106902   (869953) от 21.02.2017
 
 VA - Хиты в тачку выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -662,33 +689,6 @@ VA - Снежный популярный отрыв выпуск № 5 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C8EF65D69FA3E84A690DB0D56FE9284BEEDED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996687   (877197) от 15.03.2016
-
-VA - Сборник от CJ.Koka v.01 (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aisha - Поцелуи[03:13]
-002. Alekseev - Пьяное Солнце (Dj Konstantin Ozeroff & Dj Sky Radio Edit)[03:01]
-003. Artik & Asti - Тебе Все Можно (Remphil Radio Remix)[04:05]
-004. C-Block - So Strung Out (The Distance & Riddick Edit)[06:41](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBD4BAE6B3658118BF0489F179BED4785925ADC
 ```
 
 

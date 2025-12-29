@@ -1,3 +1,144 @@
+###  Публикация: 1222404   (685293) от 29.04.2018
+
+VA - German Top 100 Single Charts 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Dua Lipa - One Kiss
+002. Ariana Grande - No Tears Left To Cry
+003. Marshmello & Anne-Marie - FRIENDS
+004. Olexesh - Magisch (feat. Edin)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BE1D6C2F411A68F31B207FE4061BEB739CCDF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795882   (685726) от 14.06.2014
+
+VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Room Reunion - Storm Rages On
+02. die Apokalyptischen Reiter - Wo Es Dich Gibt
+03. Body Count - Talk Shit, Get Shot
+04. Seventh Day Slumber - Goodbye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028670   (685771) от 24.06.2016
+
+VA - Club Dance Ambience Vol.73 (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dimitri Vegas, Like Mike & Steve Aoki vs. Ummet Ozcan -  Melody (DJ Alliance Remix) 5:07
+002. Don Diablo Ft. DYU -  Drifter (Original Mix) 3:00
+003. Chris Isaak -  Wicked Game (Adimass Kinin Bootleg) 5:09
+004. Alan Walker -  Faded (Jordi Reyes Remix) 3:45(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD2866FF45A57595D6F34CFA62B83360E338799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507287   (685847) от 07.06.2012
+
+VA - Самые модные хиты Русского радио Лето (2012) [MP3|256-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_685847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Елка - Около Тебя
+002 Ева Польна И Денис Клявер - Отбой
+003 Dj Настя Крайнова - Я Это Ты
+004 Женя Тополь - Осколки
+005 Валерий Меладзе - Побудь Со Мной
+006 Нюша - Воспоминание
+007 Влад Дарвин (Darwin) & Alyosha (Алеша) - Смысл Жизни (Dj Amor Remix)
+008 Натаника - Небо Знает
+009 Сергей Галоян - Everything
+010 Макс Барских - Глаза-Убийцы(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:36:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403869   (686041) от 22.08.2020
+
+VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie - Atomic
+02. Gossip - Heavy Cross
+03. Lita Ford - Kiss Me Deadly
+04. Hole - Celebrity Skin(   Читать дальше...   )Жанр: Rock, Hard Rock, Hard 'N' HeavyПродолжительность: 05:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028951   (686090) от 24.06.2016
 
 VA - Need For Speed - Жажда Скорости (2016) [MP3|236-320 кб/с] <Dance, Club, House>
@@ -564,141 +705,6 @@ VA - Hot & Sweaty Nu Disco (2019) [MP3|320 Kbps] <Funky, Groove, Nu Disco, Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECC760F5295FC52FC333FA22E8C58A358A3669D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028755   (686644) от 24.06.2016
-
-VA - Загорелое лето №1 (2016)  [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Женя Юдина - Испытание
-002. Иракли Feat. Dj Nejtrino & Dj Baur - Не Верь Слезам
-003. Гейдар Багиров - Мы Сильные
-004. Мулат - Моя Самая Дюбимая(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E0F9CF236B497110071EF329D6D2DBF1F841A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028914   (686646) от 24.06.2016
-
-VA - Полетела душа. Академия хитов шансона (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686646.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Попутчик - Ша
-002. Сборная Союза - Это Было До Тебя
-003. Александр Кузнецов - Полетела Душа
-004. Сергей Замесин - Песня Моряка(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B574DB85DB894AD2261F8A5FFCE63F23B385CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028843   (686653) от 24.06.2016
-
-VA - Trance 100 Summer (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Ft. Bullysongs -  Freefall 3:01
-002. Orjan Nilsen -  Iconic 3:53
-003. Super8 & Tab -  Mega 3:04
-004. Gareth Emery & Wayward Daughter -  Reckless 3:22(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 05:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C8EECBCCEFF22DF7B3BDFA462F6B52BA73D671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028808   (686660) от 24.06.2016
-
-VA - Trance Collection Vol.46 (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686660.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allen & Envy feat. Robin Vane -  Immortal (UDM Remix) 6:37
-002. Denis Kenzo & Alexandra Badoi -  More Time (Original Mix) 5:49
-003. Fabio XB &  Liuck feat. Roxanne Emery -  Nowhere To Be Found (Extended Mix) 6:20
-004. NoMosk & Ansia Orchestra -  Adventure  (UDM Remix) 6:58(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE01ACC8A5D140F0A70ACD8B31E213CD4849FF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289325   (686737) от 16.03.2019
-
-VA - Chill Deep House: Beautifull Live Mix (2019) [MP3|320 Kbps] <Chill, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686737.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lоvе Pасifiс Industriеs - Till Thе Sun (Sunrisе Mix)
-002. Thе Bluе Bаr Ensеmblе - I'm Running
-003. Rоссо Lаgrооvе - Whit Thе Jаzz
-004. Juliеn Brасht - Lаrgеkiсk(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 11 :23 :54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF183FCF4B2AAB15482F93ED58B4BE1FA2E348C
 ```
 
 

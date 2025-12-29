@@ -1,3 +1,171 @@
+###  Публикация: 1107496   (866484) от 23.02.2017
+
+VA - Cryptic House 4 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Deep House, Tribal House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stavroz - Merci Eclair [05:26]
+02. Ost - Jyo (Discoshaman Edit) [08:20]
+03. Azamat Vs Buika - Mamita (Live Reshape) [07:39]
+04. Rodrigo Gallardo - Ay Que Sera Del Sol [06:31](   Читать дальше...   )Жанр: Deep House, Tribal HouseПродолжительность: 05:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0F1D0011AFDA248FE727AB178EF132628F9B57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999074   (866681) от 21.03.2016
+
+VA - European Gallery EDM (2016) [MP3|320 кб/с] <Club, Dance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866681.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steve Aoki, Chris Lake, & Tujamo - Boneless
+002. D.D.L. - The Fury (Raul Cremona Remix)
+003. Darius & Finlay & TK Tycoon - How I Roll
+004. Nick Fay - Everything Up(   Читать дальше...   )Жанр: Club, Dance, ElectroПродолжительность: 07:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B21E6B8B8C68C7EE9CA5384D4DAD01BD73504B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302360   (866982) от 01.03.2011
+
+VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кукрыниксы - Дождь смывает все!
+02. Найк Борзов - Начало дня
+03. Zdob si Zdub - Молдавский хардкор
+04. Король и Шут - Король вечного сна
+05. Сергей Скачков - Вызов
+06. Глеб СамойлоFF & The MatriXX - Ненормальный
+07. Пикник - Кукла с человеческим лицом
+08. Animal Джаz - Токсикоз
+09. Биплан - Последний день на луне
+10. Илья Шипилов - Моя война(   Читать дальше...   )Жанр: Русский рокПродолжительность: 06:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374731   (867031) от 13.04.2020
+
+VA - Great Artists of My Heart Vol. 01 (2020) [MP3|320 кб/с]<Symphonic Gothic Metal, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867031.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:25| 01. My Indigo - My Indigo
+|03:45| 02. Within Temptation - Grenade (Originally By Bruno Mars)
+|04:53| 03. Within Temptation - Forsaken
+|05:35| 04. Within Temptation - The Heart Of Everything(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Indie •Продолжительность: 08:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D39C77977B6AC9BB4843F2FBEAE0FE0CFC4F5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375294   (867037) от 13.04.2020
+
+VA - Best Metal Of All Time (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal, Industrial-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867037.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Metallica - Master Of Puppets (Remastered) 8:35
+002. Pantera - Walk 5:15
+003. Slipknot - Psychosocial 4:43
+004. System Of A Down - Chop Suey! 3:31(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9344C86F27BF002C3A33881DCAC72EC3691A7F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375103   (867102) от 13.04.2020
+
+VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shirley Bassey - Big Spender
+02. The Pacemakers - How Do You Do
+03. Freddie - The Young Ones
+04. Alma Cogan - Tennessee Waltz(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21000C9052251E8C189F5773963D198FC9831907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375121   (867111) от 13.04.2020
 
 VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
@@ -533,168 +701,6 @@ VA - Лирика шансона 2 от DON Music (2015) [MP3|256-320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E9536D5C5EC0CCD7FAAD8E891553F7327BFC16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998918   (868503) от 20.03.2016
-
-Вика Чинская и анс.Ланжерон - Принцесса из Одессы (1996) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молдаванка
-02. Принцесса из Одессы
-03. Мне не нужна Америка
-04. Золотая осень(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA862FF7E3111B3F0384391196CF9B89C6FB7FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375019   (868608) от 12.04.2020
-
-VA - Acoustic Rock vol.2 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Petty - Free Fallin' (04:19)
-02. R.E.M. - Losing My Religion (04:28)
-03. Tenacious D - Tribute (04:08)
-04. Neil Young - Heart of Gold (2009 Remaster) (03:07)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D2B0F00308A3C2CF82919546A11E8BD0AFC5C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374983   (868617) от 12.04.2020
-
-Manowar - 100% Manowar (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On
-02. Hail and Kill
-03. Battle Hymn
-04. Fighting the World(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 04:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6717DA211254BFE99F66662D96771C83371DA74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998570   (868647) от 20.03.2016
-
-Олег Ершов - За сиреневым дождем (2008) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А где-то там
-02. Ах,заграница
-03. Водочка
-04. Для тебя(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACFE957EC257F9A6D9F75D59BA105071DCA3AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374031   (868725) от 12.04.2020
-
-Комитет Охраны Тепла - Лучшее (1991-2001) [MP3|320 Kbps] <Рэгги>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 48x50 Девочка давай (live Forpost 2001)
-02. 48x50 Девочка давай
-03. Jedem Das Seine (Каждому своё ) (live Forpost 2001)
-04. Африка (live Forpost 2001)(   Читать дальше...   )Жанр: РэггиПродолжительность: 01:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713A46C1354FE7FDDB71F771D0BA6BF0ACE117C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375081   (868903) от 12.04.2020
-
-Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Log (2006 Remaster)
-02. Heaven Knows (2006 Remaster)
-03. Burning Down One Side (2006 Remaster)
-04. Little by Little (2006 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 02:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906B32B664C89E33CEE4030046928EA3E17706DF
 ```
 
 

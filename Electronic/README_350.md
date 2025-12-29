@@ -1,3 +1,192 @@
+###  Публикация: 1403239   (694277) от 18.08.2020
+
+VA - Abora Recordings: Best Of 2019 (Mixed by Ori Uplift) (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Gunichev & DreamLife - Good Night My Dream (Intro Edit)
+02. Sandro Mireno & Alaera - Awakening (Original Mix)
+03. Illitheas - Freefall (Original Mix)
+04. Inci3ion ft Zara Taylor - Holding On (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA37BD89D6D3A8A6B62F3C93F3DF086F5CE1104
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288753   (694307) от 12.03.2019
+
+Igor Cold (Igor Dyachenko) - The Crying Room (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mono Cry (03:32)
+02. Had Black Orchard (06:14)
+03. 57 Navigational Stars (04:01)
+04. Crying Room (07:00)(   Читать дальше...   )Жанр: Electronica, Downtempo, AmbientПродолжительность: 01:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA50F6AD87BE7DB65535B5F24DA458139168293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794873   (694331) от 10.06.2014
+
+Entheogenic - Enthymesis (2014) [FLAC|Lossless|WEB-DL]<Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autopsia (8:24)
+ 02. Infrasensory (6:34)
+ 03. Planetary Medicine (8:51)
+ 04. Silent Knowing (10:44)(   Читать дальше...   )Жанр: Psychill, Tribal, Downtempo, Ambient, Psy-TranceПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFBFF880926A2B358BE0146C27BB6A6B5D01B4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403180   (694404) от 18.08.2020
+
+ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694404.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ALPHA 9 - ID
+2. ALPHA 9 - All That I Cant
+3. Above & Beyond feat. Zoë Johnston - My Own Hymn (ALPHA 9 Remix)
+4. ALPHA 9 - Before The Dawn(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D870299A63EDF5D044B9D021C0468535C77F888
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027756   (694450) от 20.06.2016
+
+Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Past, Present & Future (Intro) (1:00)
+02. Dreamcatcher (4:13)
+03. Arrow (3:27)
+04. Nana (3:24)(   Читать дальше...   )Производство: Not On Label (Vanilla Self-Released)Жанр: Electronic, Jazz, Funk, Soul, Ambient, Experimental, Hip HopПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186D02E6CC994B38F0C59F2CB491E79EA39DE511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027878   (694836) от 20.06.2016
+
+Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe (Chill Out Mix) (3:27)
+02. Hotel Summerville (Original Mix) (5:38)
+03. Campfire (Original Mix) (4:24)
+04. Smile When You're Hurt the Most (Original Mix) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5762FBE153EE6121FA2B048F6502D459987341F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027632   (694845) от 20.06.2016
+
+VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Stand Up (4:41)
+02. Audio Jacker - Gimme Gimme (8:10)
+03. Funkstar - Turn the Beat (5:31)
+04. Serial Thrilla - Get Down (5:53)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: Funky, Disco, Nu-DiscoПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA69AF00519E9293A9EEE38D5CF865449C1FCAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221419   (695065) от 24.04.2018
 
 Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
@@ -504,195 +693,6 @@ VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58C3502974F1217933F660378012FA3A8C5539EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288518   (695817) от 11.03.2019
-
-VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photographer & Abstract Vision - Zero Gravity (Roman Messer Remix)
-02. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix)
-03. Ayda - Voyager (Original Mix)
-04. Adip Kiyoi feat. Andromeda - Only You (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D6CE5E40F408B79DBB81AA06FFE6FAE025B1DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403005   (695824) от 17.08.2020
-
-V.A. - Cafe Del Mar Essentials (Vol. 3) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lux – Northern Lights
-02. Afterlife feat. Rachel Lloyd – Sunrise
-03. Indo Aminata – Leo Leo
-04. Nightmares On Wax – Nights Interlude(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C452EC62742CCAEA5DAAC2C71A1FA59B47E1152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403084   (695941) от 17.08.2020
-
-DJ Samsara & DJ Furvus - A Conversation Between Two Trees (2012) Critical Beats [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sun
-01. Rabitza - Acid Mebius (08:16)
- 02. Lauge & Baba Gnohm - Nostalgi (08:40)
- 03. Astropilot & Panda's Dream - Sunbeam Flowers (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Psybient, Downtempo, Ambient, Psy-Trance •Продолжительность: 02:16:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A9D71CC1D70F584DCFFB345C65623097F9FA8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403078   (695942) от 17.08.2020
-
-VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sly One vs. Jurrane - Everything to Me (Original Mix) (8:36)
-02. Adam Foley - Fourteen Falls (Original Mix) (8:21)
-03. Gary Maguire - Secrets (Original Mix) (7:29)
-04. Tom Colontonio - Subdued (Mike Nichol Remix) (7:50)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027573   (696292) от 19.06.2016
-
-Bassnectar - Unlimited (2016) [FLAC|Lossless|tracks] <Electronic, Breakbeat, Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaching Out (4:54)
-02. Music Is the Drug (4:14)
-03. TKO (feat. Rye Rye & Zion I) (2:38)
-04. Mind Tricks (feat. Lafa Taylor) (3:53)(   Читать дальше...   )Жанр: Electronic, Breakbeat, DubstepПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAA36B12C97DB6C86BB79FBC81AA1DBFDD6AB71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221219   (696801) от 23.04.2018
-
-Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pier (Intro) (01:12)
- 02. Spark (04:24)
- 03. Sand Whirling (04:31)
- 04. Anew (03:47)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, AmbientПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B7718DF8D5DB15DC673305EC2041C108328D73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221268   (696814) от 23.04.2018
-
-VA - The Best Of House, 3CD (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blutonium Boy Feat. Eric Bazil - Where Did I Go (Ponyfarm Remix)
-02. Stupid Goldfish - Blindfolded (Radio Edit)
-03. Zsuzsa - Never Look Back (Radio Edit)
-04. Tradelove - Summer Wine (Radio Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703441C51592BB52B6FE42B12053E71953F30BD4
 ```
 
 

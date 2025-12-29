@@ -1,3 +1,30 @@
+###  Публикация: 1291572   (668671) от 25.03.2019
+
+VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit, Jess Glynne - Rather Be (feat. Jess Glynne)
+02. Birdy - Keeping Your Head Up (Don Diablo Remix; Radio Edit)
+03. Rudimental, John Newman - Feel the Love (feat. John Newman)
+04. Flo Rida - Good Feeling(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0ED605D4D049C9FE2871DB5BC9F0476B019328A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291538   (668681) от 25.03.2019
 
 VA - 100 Greatest Love Songs (2019) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ Le Angeli - The Singles Collection (1976-1982) [MP3|320 Kbps] <Electronic, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C01B77EE797573635701B4017020FB7BC8E887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291359   (670690) от 24.03.2019
-
-Александр Солодуха - Сотни километров до любви (2005) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сахар
-02. Здравствуй, чужая милая
-03. Сотни километров до любви
-04. Песня души(   Читать дальше...   )Жанр: РорПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC47C4F0B4029E759BB7BEB9CB95C92B37F7782C
 ```
 
 

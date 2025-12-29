@@ -1,3 +1,138 @@
+###  Публикация: 1027251   (696199) от 19.06.2016
+
+Itzhak Perlman - J.S. Bach: Sonaten und Partiten (1988) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696199.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+Sonata for solo violin No. 1 in G minor, BWV 1001
+1. I. Adagio 4:27(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 02:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAA936D6884DD02E3064C3D61A1EC6085019015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027305   (696282) от 19.06.2016
+
+Vanhal, Dusek, Brixi, Vranicky, Czech Chamber Philharmonic, Vojtech Spurny - Baroque Bohemia & Beyond (2006) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony In G Minor
+01. Symphony in G minor: I. Allegro moderato    06:16
+02. II. Adagio    05:06
+03. III. Menuetto moderato - Trio - menuetto D.C.    03:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492CCE400A10D9C210A8A77498844565837FB0AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133132   (696775) от 11.05.2017
+
+Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Vocals>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Quanti inverni
+03. Find Me
+04. Amami(   Читать дальше...   )Жанр: Pop, Classical, Crossover, VocalsПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1EC5134244A35BAA5F4310917F48D0B25825F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133142   (696777) от 11.05.2017
+
+Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caruso
+02. Attesa
+03. How Great Thou Art
+04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FCA86A17C360C91E008058CA0BA3EE438FF2BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133137   (696787) от 11.05.2017
+
+Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caruso
+02. Attesa
+03. How Great Thou Art
+04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B025A1FD4D75FC3C047409632DD5758C0063D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026927   (700213) от 17.06.2016
 
 Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
@@ -560,142 +695,6 @@ Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 125533   (734814) от 01.02.2022
-
-Мария Каллас / Maria Callas - 100 Best Classics (2006) [FLAC|LossLess]<Вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВокалПродолжительность: Disc 1 - 01:16:54
-Disc 2 - 01:18:36
-Disc 3 - 01:16:37
-Disc 4 - 01:17:24(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1B3C3DC76898C12D9836C26B4BC77C37A1C012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398035   (736641) от 24.07.2020
-
-Dirk Maassen - Avalanche (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclipse (4:42)
- 02. Helios (feat. Deutsches Filmorchester Babelsberg) (4:30)
- 03. Nocturne (3:45)
- 04. Gravity (4:12)(   Читать дальше...   )Жанр: Modern Classical, Piano, New AgeПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E7BB42AA4D3B401D712CD9A826CBF83ABA5A9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397486   (739831) от 21.07.2020
-
-Dirk Maassen - Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feather (4:41)
- 02. Fjara (3:22)
- 03. Peace of Mind (4:24)
- 04. Eternal (mvmt. I) (3:17)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC8873B47B354AE0B56CA56368C7A07C96E3AC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784140   (740716) от 07.05.2014
-
-VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сравнить этот сборник, пожалуй, можно с прогулкой по Эрмитажу. Что не картина (трек) - то шедевр. Из разных эпох и стран, и оркестровые и соло, прелюдии, фуги, концерты - все в прекраснейшем обрамлении (исполнении).
-Из семи цветов состоит весь белый свет, а классическая музыка из бесчисленного количества оттенков, настроений и  переживаний. Почувствуйте все это у (   Читать дальше...   )01. Glenn Gould - Prelude No. 1 in C Major from 'The Well Tempered Clavier', Book I, BWV 846, f...  (2:25)
-02. Alicia De Larrocha - III. Rondo alla turca. Allegretto from Sonata No. 11 in A Major for Piano, K....  (3:44)
-03. Vladimir Spivakov - Orchestral Suite No. 3 in D, BWV 1068: Air on the G-String  (5:42)
-04. Sir Thomas Beecham;John McCarthy - Messiah: Hallelujah! (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87B256B61956535AE0DDAD9A418C7C19DBD4293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282910   (742224) от 14.02.2019
-
-Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tempelhof
-2. Koad
-3. Erc’h
-4. Usal Road(   Читать дальше...   )Жанр: Neo-classical, ContemporaryПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EAB42500168E3871FA4533ED53565329D7011A
 ```
 
 

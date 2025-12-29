@@ -1,3 +1,165 @@
+###  Публикация: 15325   (761666) от 06.07.2020
+
+Трибьют Энио Морриконе "We all Love Ennio Morricone" 2007
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761666.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Knew I Loved You - Celine Dion
+2. The Good, The Bad and The Ugly - Quincy Jones featuring Herbie Hancock
+3. Once Upon a Time in the West - Bruce Springsteen
+4. Conradiana - Andrea Bocelli(   Читать дальше...   )Жанр: OfherПродолжительность: 02:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54112AF39B28E3A5676B6261462B8EA5AD015D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214920   (761683) от 24.03.2018
+
+VA - 100 Moombahton Real Steps Peace (2018) [MP3|320 Kbps] <Future Bass, Trap, Reggae Fusion, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Rose - Infiel (Dirty) 4:05
+02. El Chevo - Flow De Africa (Djdx) (Intro Dirty) 2:05
+03. El Boy C, Kelmitt Y Menor Menor Ft Lary Over - Por Ahi (Dirty) 4:07
+04. Anitta Y J Balvin - Downtown (Quick Hit Clean) 2:07(   Читать дальше...   )Жанр: Future Bass, Trap, Reggae Fusion, OtherПродолжительность: 05:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F61A6203C98B227AA45E029E0B31445B4F83C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214955   (761696) от 24.03.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 23.03.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+02. Jax Jones - Breathe (Ina Wroldsen)
+03. Zayn Malik feat. Sia - Dusk Till Dawn
+04. G-Eazy & Halsey - Him & I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A967F53DCA6EE3727E6B7C2BA71631637B5833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521849   (761775) от 05.01.2022
+
+Moving Heroes - Compilation (2021) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Good Enough
+02. Crazy (Dance Version)
+03. Dangerous and Real
+04. You're my heart, you're my soul(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4625CFF162B5EA3111FA79422D66698C62EBE1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521917   (761778) от 05.01.2022
+
+Dido - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes
+02. Give Me Strength
+03. Do You Have a Little Time
+04. Here With Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCF79AF9408FCF7F5A0E4DA53038D903FD79467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521638   (761780) от 05.01.2022
+
+Opus - Compilation (2019) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Is Life
+02. Crazy World
+03. Walking Along With You
+04. Follow Me(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 04:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571004B03CBBD8B6FA3C08E925E5C9E215067456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214999   (761810) от 24.03.2018
 
 VA - The Official UK Top 40 Singles Chart 23.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -530,168 +692,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC48AE441BC25CBFC8D884936538834F1B0B923
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214775   (763067) от 23.03.2018
-
-VA - Динамик MP3 Весенний Популярный Микс (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763067.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Нюша - Ночь
-002. Анжелика Агурбаш - Лучше Тебя Нет
-003. Babek Mamedrzaev - Береги Её, Боже
-004. Елена Темникова - Фиолетовый(   Читать дальше...   )Жанр: PopПродолжительность: 12:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9257D0B18EBFB87D341062AD72D2741079393FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214765   (763068) от 23.03.2018
-
-VA - Hit Retromania: Mood Disco 80s (2018) [MP3|320 Kbps] <Pop, Euro Pop, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Kano  -  Another Life (Maxi Version)  7:14
-002.  Pet Shop Boys  -  West End Girls (Remix '86)  5:00
-003.  Ryan Paris  -  Fall In Love  7:23
-004.  L'affair  -  Secret Eyes (12' Version)  5:54(   Читать дальше...   )Жанр: Pop, Euro Pop, EurodiscoПродолжительность: 09:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FBF57D184BE6C8B83282EC7E6E39662319D621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214739   (763071) от 23.03.2018
-
-VA - Vocal Jazz Gold Compilation (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carmen McRae - I Only Have Eyes For You
-002. Laura Fygi - Good Morning Heartache
-003. Rosa Passos & Ron Carter - Insensatez
-004. Saravah Soul - Funk De Umbigada(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 11:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D212F84C7CF3DB44106EDF0CAAE67B4C3B0E36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214748   (763078) от 23.03.2018
-
-VA - Rampage (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aphrodite & Mickey Finn - Drop Top Caddy
-02. Hungry T - Friction on My Feet VIP
-03. 88.3 - Wishin' On A Star (feat. Lisa May)
-04. Bassface Sascha - Sound the Alarm (Serum VIP)(   Читать дальше...   )Жанр: Jungle, Drum and BassПродолжительность: 05:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E1E29CFA24B1AE0D7C569ACC9EC8D6D5242357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017304   (763129) от 16.05.2016
-
-VA - UK Dancefloor Hits Return (2016) [MP3|192-320 кб/с] <Eurodance, Nu Disco, Hands Up, Club, Happy Sound>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project M - Only One Boy In The Club (Extended Club Mix) 05:27
-02. Aldous Feat. Natalie Major - Into The Night (Extended Mix) 05:24
-03. Aby Jackley Feat. Sheera Soul - Just Feel Inside (Extended) 03:52
-04. Raveon & Christian Tanz Feat. Jonny Rose - Take Me Alive 05:07(   Читать дальше...   )Жанр: Eurodance, Nu Disco, Hands Up, Club, Happy SoundПродолжительность: 09:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21D2FB716ECF5640650937513865E2D0F1A04C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017155   (763135) от 16.05.2016
-
-VA - Chillout Instrumentals Chill Out and Lounge Instrumental Track (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nostra - Blooming
-02. Zeb - The Place to Be
-03. Christian Lisi - Ukutasto
-04. Redsolution - Redshift(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585216E0860B07A28F2B2758358520543D161B93
 ```
 
 

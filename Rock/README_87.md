@@ -1,3 +1,171 @@
+###  Публикация: 186000   (883649) от 24.03.2010
+
+Cinderella - Best ballads (2001) [MP3|320 kbps]<Hard-rock / Glam-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_883649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Cold Winter (5:24)
+02. Dead Man's Road (6:38)
+03. Bad Seamstress Blues / Fallin' Apart At The Seams (5:20)
+04. Hard To Find The Words (5:45)
+05. Don't Know What You Got (Till It's Gone) (5:54)
+06. Heartbreak Station (4:28)
+07. Still Climbing (5:22)
+08. Night Songs (4:03)
+09. The Road's Still Long (6:08)
+10. Winds Of Change (5:34)(   Читать дальше...   )Жанр: Hard-rock / Glam-rockПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372376   (885470) от 03.04.2020
+
+VA - NOW Rock Icons (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Aerosmith - Rag Doll (Album Version) (4:24)
+2.Cream - I Feel Free (2:51)
+3.Thin Lizzy - Chinatown (Album Version) (4:41)
+4.Dire Straits - On Every Street (Album Version) (5:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6799E85C52AFBFF163A9BFF6BA985DBBEFFF0FDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103608   (885920) от 12.02.2017
+
+Knight Area - Heaven and Beyond (2017) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken (7:06)
+02. Dreamworld (5:14)
+03. The Reaper (7:11)
+04. Box Of Toys (3:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB940D784A6765308845856A3EF89DD94A907EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494875   (886116) от 09.09.2021
+
+Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Obliterati (02:17)
+ 02 - Natalia (06:17)
+ 03 - Relaxation Music For Sharks (Featuring Feeding Frenzy) (04:36)
+ 04 - Wingbeats (05:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CEB187E1E966CB43969A9CA5ABB5C9DAAD1FBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995210   (886212) от 10.03.2016
+
+VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Presley – Jailhouse Rock
+02. The Yardbirds – For your Love
+03. The Rolling Stones – Honky Tonk Women
+04. The Rolling Stones – (I Can’t Get No) Satisfaction(   Читать дальше...   )Жанр: Rock, MashupПродолжительность: 00:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961EA22123F766D38BE196ADE3CDC41972D4FBF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372134   (887262) от 02.04.2020
+
+Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подих Змія (03:21)
+02. Паранормальні (04:00)
+03. Ворожіння (03:42)
+04. Сонце Небо (03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E467E237054429E279B4153BC7C08E1CA058BA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494453   (889351) от 07.09.2021
 
 Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-Prog>
@@ -534,168 +702,6 @@ Waddy Wachtel - Guitars, Vocals(   Читать дальше...   )01. Can't Sto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E5DC2A9045C210D120357E3AFD8F920188AAAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992622   (900982) от 02.03.2016
-
-Hank Marvin - Marvin At The Movies (2000) [MP3|320 кб/с] <Rock, Pop Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Days Night  03:13
-02. The Sound of Silence  04:42
-03. The Good the Bad & the Ugly  04:18
-04. A Kiss From A Rose  04:50(   Читать дальше...   )Жанр: Rock, Pop Rock, InstrumentalПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E9FDBC2CB15E47828F4705D4CFFA65DCBE4A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100175   (901026) от 03.02.2017
-
-Slade - B-Sides (2007) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready Steady Kids
-02. O.H.M.S.
-03. Daddio
-04. It's Alright Buy Me(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258E75C56F07F73886DC85251E96CC4D95C6E579
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369480   (901942) от 24.03.2020
-
-VA - Play: 70's Music (2020) [MP3|320 Kbps] <Classic Rock, Soft Rock, Other>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warren Zevon - Excitable Boy 2:42
-02. Faces - Cindy Incidentally 2:35
-03. Leon & Mary Russell - Love's Supposed To Be That Way 3:19
-04. Daryl Hall & John Oates - 70's Scenario 3:57(   Читать дальше...   )Жанр: Classic Rock, Soft Rock, OtherПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453BD84AC38909B9B8898D8BF23B2807B73D25C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992250   (902777) от 01.03.2016
-
-The Champs - 25 All Time Greatest Recordings (2000) [MP3|320 кб/с] <Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tequila  02:15
-02. Last Night  02:59
-03. Chariot Rock  02:21
-04. Honky Tonk  03:06(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33541CCDC84172E430AD7D4CDEA8A7977FCFD2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369345   (903129) от 23.03.2020
-
-Deep Purple - Best Of (2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke On The Water
-02. Hush
-03. Woman From Tokyo
-04. Knocking At Your Back Door(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6454D8FB913741F1C87713645FF6E5E9465114B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369315   (903495) от 23.03.2020
-
-Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Shook Me All Night Long
-02. T.N.T.
-03. Dirty Deeds Done Dirt Cheap
-04. Highway To Hell(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112383708EE5FB698940A3E6A1FACD62E6033316
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1029997   (678469) от 28.06.2016
+
+VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (2016) [MP3|320 Kbps] <Trance, Progressive House, Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauro Picotto - Eterea (Mark Sherry Remix)
+02. Mark Sherry & Dark Fusion Feat Jan Johnston - Deja Vu (Outburst Vocal Mix)
+03. Solarstone - Lost Hearts (Mark Sherry Remix)
+04. Mallorca Lee & Stephen Kirkwood - 2029 (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive House, TechnoПродолжительность: 06:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22E3EB39667DEA21B430BE0C1E2C5872B2ACD37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290575   (678477) от 20.03.2019
+
+Third Party - Together (2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher
+02. Free
+03. Remember
+04. Together(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C093CDBA6D55F4D79988B57D250F8E76D6AE588A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290434   (678481) от 20.03.2019
+
+Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoulder to the Bat (04:21)
+02. 100 Bar (03:02)
+03. Nest (03:19)
+04. A Juggling of Numbers (05:07)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA08AF10B354781549A4A0C0F147B19DEB42908C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029767   (678606) от 28.06.2016
+
+VA - Suanda Summer Vol.3 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Alexandra Badoi -  Did We Feel 5:20
+02. Aurosonic Ft. Nicol Cache -  Tell Me Why (Mhammed El Alami Remix) 6:05
+03. Kayat Ft. Clare Stagg -  The Calling 7:11
+04. Eximinds -  Archaea 5:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34F0942A9DC31CFB4EC4EEAAFC4693223CE965B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029973   (678607) от 28.06.2016
+
+VA - Soft Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bessi B. - Do You Remember Me (4:11)
+02. La Brisa Del Mar - Session One (6:03)
+03. Elaphe Guttata - Eulalie (4:30)
+04. Didascalis feat. Wrong Experience - Rainfall (5:23)(   Читать дальше...   )Производство: Sound DesignerЖанр: Lounge, Downtempo, ChilloutПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4166AB32DC659121DB467D7A16B183E482C661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029747   (678610) от 28.06.2016
+
+VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockhouse Crew - Love Extensions - Balearic Remix
+02. Patrick Blasa - Loose - Henrik Schwarz Remix
+03. Julia Messenger - Give This Up
+04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222733   (679253) от 02.05.2018
+
+Hazem Beltagui - VIVID (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made Of Light (In Memory Of Helena Copto) [05:09]
+02. Reasons To Love (Original Mix) [04:39]
+03. You Were Always Mine (Original Mix) [05:19]
+04. Fade Away (Original Mix) [06:14](   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34E0AFF2FD5042F10398EEEFA9C316E21EEA946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223138   (679367) от 02.05.2018
 
 PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -527,194 +716,6 @@ VA - Ibiza Summer Vibes: The Sound of The Party Island (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE51A09D4AE954B5A91FEA7B4D7A0FDA68A99488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290117   (682076) от 18.03.2019
-
-øjeRum (ojeRum) - Nattesne (Eilean 85) (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Neofolk>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	I 	(4:45)
-02. 	II 	(2:42)
-03. 	III 	(4:42)
-04. 	IV 	(2:19)(   Читать дальше...   )Жанр: Electronic, Ambient, NeofolkПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCEA44D23036558E181C79D0EDD3F07492CCFE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289983   (682077) от 18.03.2019
-
-VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luka J Master; Carlo M - El Numerado (Radio Mix)
-02. The Maximum - La Fuerza (Extended Mix)
-03. Alain Deejay - La Isla (feat. Flores Del Sol)
-04. Luka J Master - Conmigo (feat. Mairon Rodriguez & Xent) (Carlo M Extended)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEDF086105CE94AEA4B7BC14EF481BE11C65C5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290019   (682086) от 18.03.2019
-
-VA - Cr2 Records Presents Miami Underground (2 CD) (2019) [MP3|320 Kbps] <House, Tech House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Roger That (UK) - How Does It Feel (Extended Mix) (07:02)
-02. Piem - You Better (Original Mix) (08:08)
-03. Julie McDermott - Don't Go (Ejeca Remix) (06:22)(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1860032621BD2149B9F1F5F4DDE1D9729F59B89A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290011   (682089) от 18.03.2019
-
-VA - Simma Black Presents Miami 2019 (2 CD) (2019) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Endor - Metronome (Original Mix) (04:49)
-02. Leon Benesty, Benny Royal & Shermanology - I Can't Take (Original Mix) (05:49)
-03. Javi Bora, Iban Montoro & Jazzman Wax - Go To Miami (Original Mix) (06:35)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76B3E07B218E66AC6FD0BD67BBE6C5F79FBEF6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028612   (682119) от 26.06.2016
-
-Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Perplexagon Part 1 (2:03)
-02.Perplexagon Part 2 (5:21)
-03.Perplexagon Part 3 (5:27)
-04.Perplexagon Part 4 (5:26)(   Читать дальше...   )Жанр: Electronic, Ambient, SpacesynthПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B23BA1908A7511BBC0649721960F2F9B55D68A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028764   (682134) от 26.06.2016
-
-VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bliss - Sleep Will Come 05:39
-02.Afterlife- Speck Of Gold 05:31
-03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
-04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290085   (682158) от 18.03.2019
-
-Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dyscamupia (Forward) (12:41)
- 02. Dyscamupia (Paused) (05:44)
- 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
 ```
 
 

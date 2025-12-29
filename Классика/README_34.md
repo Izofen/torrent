@@ -1,3 +1,139 @@
+###  Публикация: 125533   (734814) от 01.02.2022
+
+Мария Каллас / Maria Callas - 100 Best Classics (2006) [FLAC|LossLess]<Вокал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВокалПродолжительность: Disc 1 - 01:16:54
+Disc 2 - 01:18:36
+Disc 3 - 01:16:37
+Disc 4 - 01:17:24(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1B3C3DC76898C12D9836C26B4BC77C37A1C012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398035   (736641) от 24.07.2020
+
+Dirk Maassen - Avalanche (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclipse (4:42)
+ 02. Helios (feat. Deutsches Filmorchester Babelsberg) (4:30)
+ 03. Nocturne (3:45)
+ 04. Gravity (4:12)(   Читать дальше...   )Жанр: Modern Classical, Piano, New AgeПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E7BB42AA4D3B401D712CD9A826CBF83ABA5A9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397486   (739831) от 21.07.2020
+
+Dirk Maassen - Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feather (4:41)
+ 02. Fjara (3:22)
+ 03. Peace of Mind (4:24)
+ 04. Eternal (mvmt. I) (3:17)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC8873B47B354AE0B56CA56368C7A07C96E3AC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784140   (740716) от 07.05.2014
+
+VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сравнить этот сборник, пожалуй, можно с прогулкой по Эрмитажу. Что не картина (трек) - то шедевр. Из разных эпох и стран, и оркестровые и соло, прелюдии, фуги, концерты - все в прекраснейшем обрамлении (исполнении).
+Из семи цветов состоит весь белый свет, а классическая музыка из бесчисленного количества оттенков, настроений и  переживаний. Почувствуйте все это у (   Читать дальше...   )01. Glenn Gould - Prelude No. 1 in C Major from 'The Well Tempered Clavier', Book I, BWV 846, f...  (2:25)
+02. Alicia De Larrocha - III. Rondo alla turca. Allegretto from Sonata No. 11 in A Major for Piano, K....  (3:44)
+03. Vladimir Spivakov - Orchestral Suite No. 3 in D, BWV 1068: Air on the G-String  (5:42)
+04. Sir Thomas Beecham;John McCarthy - Messiah: Hallelujah! (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87B256B61956535AE0DDAD9A418C7C19DBD4293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282910   (742224) от 14.02.2019
+
+Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tempelhof
+2. Koad
+3. Erc’h
+4. Usal Road(   Читать дальше...   )Жанр: Neo-classical, ContemporaryПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EAB42500168E3871FA4533ED53565329D7011A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663576   (742822) от 07.06.2013
 
 Webern - Complete Webern: Boulez (2000) [FLAC|Lossless]<Classical, Modern, Avant-garde, Symphony, Chamber>
@@ -128,6 +264,30 @@ Fabrizio Paterlini - Winter Stories (2018) [MP3|320 Kbps] <Neoclassical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B475A4017322F27F95BB852EF3B1DB2FC9E5102
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608800   (745642) от 05.06.2013
+
+Прокофьев | Prokofiev - Piano Sonatas 1, 6, 7, 8; Visions Fugitives; Old Grandmother's Tales; Dumka; Pieces (Oleg Marshev) (1993) [FLAC|Lossless]<Classical, Modern>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_745642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фортепианная музыка Прокофьева: сонаты, думка, "Мимолётности", "Сказки старой бабушки" и два опуса небольших пьес в исполнении пианиста Олега Маршева.Жанр: Classical, Sonata, Piece, ModernПродолжительность: 02:17:59
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -506,187 +666,28 @@ magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393419   (767601) от 30.06.2020
+###  Публикация: 199232   (767395) от 27.01.2019
 
-Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Ambient>
+Д.Д.Шостакович-Симфония №7 'Ленинградская' дирижёр Марис Янсонс (1995) [FLAC|Lossless]<Classical>
 
 >>Классика
->>Фортепиано (Lossless)
+>>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767601.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_767395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Endless Poetry (3:03)
- 02. Mer de velours (3:35)
- 03. Larmes glacées (3:24)
- 04. A Forest Bird Never Wants a Cage (2:09)(   Читать дальше...   )Жанр: Modern Classical, Piano, AmbientПродолжительность: 00:47:34
+9 августа 1942 года по планам фашистского командования Ленинград должен был пасть, на этот день был назначен парад немецких войск в городе. Но в этот день в Большом зале Ленинградской филармонии, на стене которой красовалась надпись: "Граждане! Осторожно! При артобстреле эта сторона опасна!" – в городе, где люди каждый день гибли от голода и бомбёжек – (   Читать дальше...   )1. Allegretto (26:03)
+2. Moderato (Poco allegretto) (10:02)
+3. Adagio (16:22)
+4. Allegro non troppo (16:17)Жанр: Classical, симфоническая музыкаПродолжительность: 01:08:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF0349AA8A5C891478974977AD697451BA0E0974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278958   (767671) от 27.01.2019
-
-Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movement I
-02. Movement II
-03. Movement III
-04. Movement IV(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125473   (767752) от 15.04.2017
-
-Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Ambient, Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No title  (05:16) 
-02. Cuddle  (03:31) 
-03. Stream  (03:25) 
-04. Circus  (03:10) (   Читать дальше...   )Жанр: Piano, Ambient, ClassicalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79ED2E7545E8EF6708A7A8A06548A0FD8333114E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392052   (769798) от 24.06.2020
-
-Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something I Said (1:02)
-02. Pretty Sure We've Met Before (1:01)
-03. Almost But Not Quite (1:02)
-04. I Will Walk You Home (2:11)(   Читать дальше...   )Жанр: Modern Classical, Solo Piano |Продолжительность: 00:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285C8A2D38A326E205DE06E850A23A811558DEEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016451   (770074) от 14.05.2016
-
-VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano,  Easy Listening, Pop-Rock>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из очередной командировки привез музыку для отдохновения из сери Simply (остальные публикации из этой серии найдете по ссылке внизу). У этого двухдискового сета есть две особенности. Первое, это сокращенное переиздание четырехдискового сета, вышедшего в 2008 году. Так что здесь собраны самые сливки. И второе, каждая сливка на этом сете с одной стороны очень узнаваема, (   Читать дальше...   )CD1:
-01. The Chris Ingham Orchestra - Come Away With Me  (3:11)
-02. The Chris Ingham Orchestra - You're Beautiful  (3:12)
-03. The Chris Ingham Orchestra - Moon River  (3:36)(   Читать дальше...   )Жанр: Piano,  Easy Listening, Pop-RockПродолжительность: 02:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB486EA7B821DAF8AF8EDA6335D2A88FE41AEE12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016357   (770156) от 14.05.2016
-
-N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Снегурочка (2008) [APE|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770156.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Пролог. Вcтупление и сцена Весны с птицами.
-02. Пролог. Речитатив и ария Весны.
-03. Пролог. Речитатив.(   Читать дальше...   )Жанр: OperaПродолжительность: 02:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A597A8DC5140B0AB04A96EC591573E06BAECD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661127   (770639) от 26.05.2013
-
-V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED77444AE1E7EC888D19467D36A689E605BB3C
+нет
 ```
 
 

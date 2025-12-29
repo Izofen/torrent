@@ -1,3 +1,58 @@
+###  Публикация: 873662   (866752) от 01.03.2015
+
+Shania Twain - Greatest Hits (2004) [APE|Lossless]<Country,Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Forever And For Always
+2. I'm Gonna Getcha Good!
+3. Up!
+4. Ka-Ching!
+5. Come On Over(   Читать дальше...   )Жанр: Country,PopПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B00C639300B888AAD4B0B4986A5BEFE0DB35F15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375321   (867119) от 13.04.2020
+
+VA - Dance Your Ass Off (Salsoul Remixes) (2013) Remixes+Continuous Mix [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loleatta Holloway - Love Sensation (WhiteNoize Remix) (6:24)
+02. Inner Life - Ain't No Mountain High Enough (WhiteNoize Remix) (6:56)
+03. Jessie Andrews - I Never Knew (5:16)
+04. Aurra - Forever (J Paul Getto Remix) (5:19)(   Читать дальше...   )Жанр: Dance, Disco, FunkПродолжительность: 02:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9471EAF2981638EC3AE40552C9A3498F0A461F97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998389   (867792) от 20.03.2016
 
 Arabesque - Grand Collection (2004) [FLAC|Lossless|tracks + .cue] <Europop, Disco>
@@ -696,60 +751,6 @@ ABBA - Gold - Complete Edition (2008) /Universal Music, Japan/ [FLAC|Lossless]<P
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374307   (874581) от 09.04.2020
-
-Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The JB Shuffle (4:06)
-02. That's what I like (4:04)
-03. Glen Miller Medley (3:55)
-04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496213   (874650) от 16.09.2021
-
-Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly with His Song
-02. Everything I Wanted
-03. Falling
-04. Stop Right Now(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
 ```
 
 

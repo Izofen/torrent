@@ -1,3 +1,169 @@
+###  Публикация: 791977   (711939) от 01.06.2014
+
+Ева Польна - Поёт любовь (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я здесь (intro) - 02.36
+02. Выход - 04.36
+03. Слова - 03.45
+04. Молчание - 03.29
+05. Миражи - 04.28
+06. Не расставаясь - 03.10
+07. Корабли - 04.45
+08. Это не ты - 03.43
+09. Поёт любовь - 03.45
+10. На последнем дыхании - 03.55(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92DB7EDDB4BB0039170A5F9C43EC120C83169A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025103   (711952) от 11.06.2016
+
+Giorgio Moroder - Innovisions (1985) [MP3|320 кб/с] <Electronic, Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Time Is Right Time (feat Edie Marlena) (4:08)
+02. My Girl  (feat Joe Esposito) (3:54)
+03. American Dream (feat Paul Engemann) (4:10)
+04. Baby Blue (4:22)(   Читать дальше...   )Жанр: Electronic, Disco, SynthpopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD09F1E39F0257F4382C04099BC922319C521C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025062   (711961) от 11.06.2016
+
+Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Me High    07:20
+02. There's A Fire    05:37
+03. Only One Night    07:34
+04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219611   (711973) от 15.04.2018
+
+Reba McEntire (Риба МакИнтайр) - Reba McEntire (1977) Mercury [MP3|320 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Риба МакИнтайр (полное имя - Риба Нилл МакИнтайр) - американская кантри певица, автор песен, продюсер и актриса, которая за свою карьеру продала более семидесяти миллионов копий своих альбомов по всему миру. Она выпустила 26 студийных альбомов, выпустила 24 синглов, которые стали №1, 28 альбомов были сертифицированы как Золотые, Платиновые и Мульти-Платиновые по (   Читать дальше...   )01. Glad I Waited Just for You 3:01
+02. One to One 2:41
+03. Angel In Your Arms 2:51
+04. I Don't Want To Be A One Night 3:03(   Читать дальше...   )Жанр: CountryПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629C13E2C40623A29E9CE9D3CD6434424DFE2E87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219644   (711979) от 15.04.2018
+
+Kenny Chesney (Кенни Чесни) - In My Wildest Dreams (1994) Capricorn Records [MP3|320 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кенни Чесни - американский исполнитель кантри-музыки, один из самых популярных в 2000-2010 годах в своём стиле. Он записал 16 альбомов, 14 из которых сертифицированы как золотые и платиновые по данным RIAA, а 7 альбомов возглавляли национальный хит-парад Billboard 200. Также он является автором более 30 синглов, вошедших в Top 10 списка Hot Country Songs журнала (   Читать дальше...   )01. Whatever It Takes 3:01
+02. Somebody's Callin' 2:36
+03. The Tin Man 3:29
+04. High And Dry 2:58(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5383E2EEDF1B19BC585ECA4CFA44416D8066905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025395   (712066) от 11.06.2016
+
+Electra - Cuando Cuando (1985) LP, Maxi-Single [MP3|320 кб/с] <Electronic, Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuando Cuando    03:40
+02. Cuando Cuando (Instrumental)    03:10Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 00:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0EDAAB8269711508354147731EF40720BEF18D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025059   (712112) от 11.06.2016
 
 Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electronic, Pop>
@@ -533,168 +699,6 @@ VA - Maxi Disco (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F1E15A09CD72D7AA0AC5BB7D6A76E8AA391C28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025014   (714080) от 10.06.2016
-
-Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brivido Caldo    04:08
-02. Vorrei Averti Qui    04:15
-03. Non Abbassare Gli Occhi    04:14
-04. Solo Tu    03:33(   Читать дальше...   )Жанр: Pop, Italo-pop, DiscoПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73F6D9D0D02751FD3CCDA09058D19C0BEAABB6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082050   (714125) от 02.05.2017
-
-Ritual (Jillian Ann) - The Code Album (2015) [MP3|320 Kbps] <Alternative Pop, Ethereal, Symphonic Bass>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Code
-02. The Code (feat. Jillian Ann)
-03. I:Root
-04. La Petite Mort (feat. Jillian Ann)(   Читать дальше...   )Жанр: Alternative Pop, Ethereal, Symphonic BassПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3DC97A6616390B3CAE1FC438D5BAAE75EE08D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130635   (714329) от 02.05.2017
-
-Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound
-02. The Glow
-03. Die Young
-04. Radio(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A7E47077F3CB4CCD208A54F46F08DFF190EB76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130661   (714339) от 02.05.2017
-
-Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Désir en désirs (04:07)
-02. Autre que moi (03:30)
-03. Desperado (02:43)
-04. Demi-tour (03:58)(   Читать дальше...   )Жанр: Chanson, Pop, Rock, Female VocalПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4CD1D8389FBA8477FDECE3D05CFD13EF3A89CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532479   (714468) от 19.02.2022
-
-Agnetha Faltskog (ABBA) - 12 Studio Albums + 2 Compilations (1968-2013) Collection, CD [MP3|320 Kbps] <Soft Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агнета Осе Фельтског (род. 5 апреля 1950, Йёнчёпинг) - шведская певица, автор песен, музыкальный продюсер. В 1968 году, выпустив успешную дебютную пластинку, Агнета Фельтског стала известна в родной стране, а мировую славу певице принесло участие в одной из самых успешных групп всех времён - ABBA.Список альбомов:
-1968 - Agnetha Faltskog
-1969 - Agnetha Faltskog Vol. 2
-1970 - Som Jag Ar(   Читать дальше...   )Жанр: Soft Rock, PopПродолжительность: 09:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01AEB8F92EA875CD7C591E0F6C7105D37AD1A77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130597   (714488) от 02.05.2017
-
-Michael Larsen - Solang es deine Sehnsucht gibt (1987) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die letzten Flamingos
-2. In einer Sommernacht
-3. Traumfrau
-4. Solang' es deine Sehnsucht gibt(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDD512016814F7437515193BF11FF15E5FA1C8A
 ```
 
 

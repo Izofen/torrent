@@ -1,3 +1,30 @@
+###  Публикация: 1225845   (657956) от 18.05.2018
+
+DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boarding Call (7:07)
+ 02. Boarding Call (Armen Miran Remix) (6:56)
+ 03. Boarding Call (Hraach Remix) (7:47)
+ 04. Corrected (7:08)Жанр: Deep Progressive HouseПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA1C2783B7D72E8BBC9DA0061C44FC4C70710A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140089   (658020) от 04.06.2017
 
 Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
@@ -671,33 +698,6 @@ VA - After Hours (The Sensuality Continues Vol 3) (2015) [MP3|320 кб/с]<Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B9107C4BCBC4D0A84DEBAA5410C0D9B2FF9259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903134   (659227) от 30.05.2015
-
-VA - Soul & Lounge: Best Ibiza Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Wave - Autumn Fractal [06:05]
-02. Club Camarillo - Baracoa [05:50]
-03. Gerald Peklar - Zwei Flocken Tanz [03:59]
-04. Cafe Royale - Torn Apart - Chillout Mix [03:18](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCBC3C6E039F904D074A36E062D28B81B60B4FC
 ```
 
 

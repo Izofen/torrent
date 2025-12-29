@@ -1,3 +1,165 @@
+###  Публикация: 1840942   (1047690) от 08.12.2025
+
+VA - #008 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walter Trout - Artificial (4:23)
+02.  Sugaray Rayford - How The Other Half Lives (2:54)
+03.  Whiskey Myers - Midnight Woman (4:12)
+04.  Albert Castiglia - Can’t Be A Prophet (3:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41573C795AD7CADB076D6190185B06B15D7736B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840941   (1047691) от 08.12.2025
+
+VA - #007 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John Fogerty - Long As I Can See The Light (John's Version) (3:32)
+02.  Rory Block - High Heel Sneakers (3:39)
+03.  Eric Gales - Something Inside Of Me (5:31)
+04.  Emma Wilson - Good To The Last Drop (4:53)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DB47B72AB61EED599026AEAA13C2491410D1AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841040   (1047741) от 08.12.2025
+
+VA - Music News For Forum vol.151 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elvira T - Всё решено (Index-1 Remix) (02:34)
+ 002. 5sta Family - Снова вместе (Index-1 Remix) (02:41)
+ 003. ACHE - Монстр (02:17)
+ 004. Akamas - Be There With You (01:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB758DD851E0E9FCB628FD12CBC605AAE848A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841223   (1047845) от 09.12.2025
+
+VA - About Something Good (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047845.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Akmalov - Only You (04:54)
+ 002. Butch U - Enemies (03:47)
+ 003. Dj Jedy - Midnight Mirage (02:46)
+ 004. DndmDavvi - Te Fuiste (03:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077009C7B9DB8BF00CDEBD028791E88395DB1DCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841569   (1048067) от 12.12.2025
+
+VA - Christmas hammond organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Tappen - Silent Night [02:16]
+02. Gwen Stefani - Jingle Bells [02:58]
+03. Leigh Harline - When You Wish Upon [04:13]
+04. Studio Bandet - Jingle Bells [02:58](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 02:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0060D5DAF2F8DBF557A14483C4844287549E37E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841735   (1048223) от 12.12.2025
+
+VA - No name compilation part 21 Instrumental, Other (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smtve - Tuesday
+02 - Dj Aurm - Woman in Love
+03 - Smtve - Tears Fall
+04 - Aurora Night - In Memory(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AA58CBCBFAB7CF5CE18D7784270E934E72368C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841722   (1048229) от 12.12.2025
 
 VA - No name compilation part 23 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Blues Ballads>
@@ -533,168 +695,6 @@ VA - Snowflakes And Rhythms (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D984B2607ED70C2509F6587A8A2DF4BC0D46F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843145   (1049145) от 19.12.2025
-
-VA - Midnight Whiskey Blues 2 (2025) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epi K. Paradox - Love Is A Losing Game (9:55)
-02. Stevie Ray Vaughan - Tin Pan Alley (AKA Roughest Place in Town) (9:11)
-03. Twelve Bar Blues Band - The Blues Has Got Me (9:11)
-04. Lucky Lloyd - I Feel The Pain (8:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 07:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F35BFD356298A3980340C183D170C141D06E54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843551   (1049316) от 20.12.2025
-
-VA - Дискотека 2026 Dance Club Vol. 231 Новогодний выпуск! (2025) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. Руки Вверх! - Новый год (2:56)
-002. Stefre Roland, Alex van Sanders, Alexara - Last Christmas (2:28)
-003. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 34:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A1A4C61C58D17269ABC564CA44F4020A25C1EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843294   (1049541) от 
-
-VA - No name compilation part 30 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - Library of Muses
-02 - Marius Feat. the Amazing Ai Machine - Sunset Dance
-03 - Diazza - If You Love
-04 - Hande Ercel - Lightning(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D40338742392252985BEDB68BA409B956FA2CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843298   (1049542) от 
-
-VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dj Calma - Hold Me Closer
-02 - Kasimoff - Missed Call
-03 - Mr Salama - Feel Your Love
-04 - Adex - Low Battery(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843301   (1049543) от 
-
-Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Time of My Life
-02 - The Present of the Past Dub (Version)
-03 - Sensual Flare Dub (Version)
-04 - Tease Me Even More(   Читать дальше...   )Жанр: Reggae, AiПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BCBC25CBCCF7DBABBF5BCDAEC9C8CBB04322EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843303   (1049544) от 
-
-Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sunset Dance
-02 - Within the Dream (Version)
-03 - Sensual Flare Dub
-04 - A Silent Language We Both Know(   Читать дальше...   )Жанр: Deep Chill House, AiПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558A2D177A145055A93483506096AAB834A02DEE
 ```
 
 

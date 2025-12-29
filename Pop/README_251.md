@@ -1,3 +1,111 @@
+###  Публикация: 1401692   (701724) от 14.08.2020
+
+VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellie Goulding - How Long Will I Love You (02:28)
+02. Justin Bieber - Purpose (03:30)
+03. Lewis Capaldi - Someone You Loved (03:04)
+04. Shawn Mendes - Mercy (Acoustic Guitar) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D267E3C7C6610B11C17E3DF959C8EDEF0AF8B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287717   (701759) от 08.03.2019
+
+Света - Сердце моё (2009) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не говори
+02. Сердце моё
+03. Рига
+04. Тайна(   Читать дальше...   )Жанр: РорПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5F0295DA43781E07ADD63C1B3EBC2272C8074E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287642   (701760) от 08.03.2019
+
+VA - At Midnight! Disco Club Classics (2019) [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Connection - At Midnight (5:07)
+02. Chic - Everybody Dance (12" Mix) (8:30)
+03. The Spinners - Are You Ready For Love (Single Version) (3:44)
+04. Norma Jean Wright - Saturday (6:06)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA4A48EDE47C4800A3AAB3488444FA1A0CFB9A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287715   (701868) от 08.03.2019
+
+Ахра - Карие глаза (2006) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карие глаза
+02. Моя любимая
+03. Небо и луна ( New Mix )
+04. Будь моей(   Читать дальше...   )Жанр: РорПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE6989C49C59AC9F5C5F31FADCD85443ABD6DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026787   (701943) от 16.06.2016
 
 Scotch - Pictures Of Old Days (1987) Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|tracks] <Italo-Disco, Synth-pop, Disco>
@@ -585,114 +693,6 @@ Daniel Grau - El Leon Bailarin (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:282A1C0F078C797753DD8999B861BC554FD27D13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287205   (705358) от 06.03.2019
-
-VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kc & The Sunshine Band - Keep It Comin' Love (4:30)
-02. Montana - I Love Music (4:35)
-03. The Braxtons - The Boss (5:57)
-04. Randy Crawford - Wishing On A Star (4:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 2:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401428   (705484) от 12.08.2020
-
-Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch In The Night (05:18)
-02. Stop The Rain In The Night (03:34)
-03. Love Is Just A Word (03:18)
-04. Time For Love (Super Action Mix) (05:20)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026188   (705876) от 14.06.2016
-
-Шоколад - Первый альбом (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Для тебя сегодня я пою
-02. Забудь, прости, прощай
-03. Натали
-04. Елена(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9430F1C8809DBB7D4A1DADD2CE9DF1676FE4909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220327   (705996) от 18.04.2018
-
-My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Indigo
-02. Crash and Burn
-03. Out of the Darkness
-04. Indian Summer(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00811D942443650C6CEEBFFAC51C01BD8D507176
 ```
 
 

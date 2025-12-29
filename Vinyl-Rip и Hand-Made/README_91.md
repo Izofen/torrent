@@ -1,3 +1,57 @@
+###  Публикация: 1273388   (799785) от 02.01.2019
+
+Emmylou Harris - Profile / Best Of Emmylou Harris (1978) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799785.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Of These Days
+A2 Sweet Dreams
+A3 To Daddy
+A4 (You Never Can Tell) C'est La Vie(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C912588F76AD77B972B28D6AC0495A4E262DE1A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273390   (799891) от 02.01.2019
+
+Marie Wulfing - Get Out Of The Boat (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, White Gospel>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+01. Cast All Your Cares On Him
+02. God Loves Me, I Don't Need More!
+03. The Storm Clouds Rumble / He Has The Victory!(   Читать дальше...   )Жанр: Pop, White GospelПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBCF76AFBA1CF33BC4DFA438A69B03F457F4233
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506326   (799933) от 31.10.2021
 
 U2 - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
@@ -647,60 +701,6 @@ VA - Песни Виктора Дорохина и Любови Воропаев
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381521   (826134) от 07.05.2020
-
-Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826134.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sound of Music
-A2 That Old Feeling
-A3 Quiet Nights of Quiet Stars (Corcovado)
-A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502547   (826412) от 15.10.2021
-
-Smokie - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. I'll Meet You At Midnight (Midnight Cafe)
-02. What Can I Do (Midnight Cafe)
-03. No More Letters (The Moutreux Album)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
 ```
 
 

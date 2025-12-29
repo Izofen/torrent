@@ -1,3 +1,164 @@
+###  Публикация: 1131153   (710661) от 04.05.2017
+
+Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Valerie
+02. Lover Why
+03. Stay
+04. It's All Over(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 04:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286668   (710799) от 03.03.2019
+
+VA - К Дню 8 марта (2019) [MP3|320 Kbps] <Шансон, поп>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710799.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Лукоянов - Женский день (4:10)
+002. Белое Золото - Любимая женщина (3:38)
+003. Слава Благов - Невеста (3:28)
+004. Сборная Союза - Спасибо, родная (3:35)(   Читать дальше...   )Жанр: Шансон, попПродолжительность: 06:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91192D02100F079E8F49EC23147BC0465A53EC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532708   (710891) от 21.02.2022
+
+VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marnik & Alfons - Harry Potter Style
+02. Victor Ark - More Physical
+03. Charli Xcx - Good Ones
+04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532391   (710936) от 21.02.2022
+
+VA - DJ Exotic DnB: Heartbeat Mix (2022) [MP3|320 Kbps] <Drum And Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляемый сборник предлагает нам потрясающий набор треков линейки Bassline! Эта музыка примечательна своими красивыми атмосферными звуковыми ландшафтами, теплыми басами и заводными ударными001. Andrey Aryutkin - Motion
+002. Dirtyphonics - Gasoline
+003. Sunchase - Machine Waltz
+004. Kumo - Skeng Riddim(   Читать дальше...   )Жанр: Drum And Bass, JungleПродолжительность: 08:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21FD19B7F6870776E254376EC9132C24F249EB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219437   (711109) от 15.04.2018
+
+Dua Lipa - New Rules (2018) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New Rules
+2. Dj Andersen
+3. Up MusicЖанр: Deep HouseПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16057C52B00E99BD95B6BFB449B600F58B44DFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401175   (711180) от 09.08.2020
+
+VA - Record Super Chart 648 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Lovefool (3:10)
+02. DaBro - Юность (3:39)
+03. Topic feat. A7S - Breaking Me (2:46)
+04. Zivert feat. NILETTO - Fly 2 (3:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B085078FAE2DB0868E7824EC349E0AA67235A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286483   (711286) от 03.03.2019
 
 VA - The Official UK Top 40 Singles Chart 01.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -534,168 +695,6 @@ VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B82ACF6F62C6E809C922D434F2D813CD1616237B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025182   (712225) от 11.06.2016
-
-VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Tut - Nothing Is for Certain - Ibiza Mix
-02. Misses Smith - Bag Of Moons
-03. Rainman - Hammock Dreams - Super Extended Beach Mix
-04. Zenyatta - Too Good(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC625CF48FCFADC658B8BA2DB4B72FE6D52F2BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025043   (712226) от 11.06.2016
-
-VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretzeltronik - First Movement
-02. Adeleeya - My Conquest Of Paradise - Sunset Beach Cafe Mix
-03. Loungeotic - Lifetime - Beach Chillout Mix
-04. Vintage Blue - Sunrise To Sunset - Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E76524FC90EA6DCFFE090BBC4507227CE0C32E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025194   (712292) от 11.06.2016
-
-VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Through Your Eyes
-02. Cane Garden Quartet - Love Goddess
-03. Don Gorda Project - Um Momeno
-04. Enrico Donner - Yearning for More(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130817   (712467) от 03.05.2017
-
-VA - 100 Party Play The Music Hits (2017) [MP3|320 Kbps] <Funky, Groove, Jackin, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella Grundy Feat. Jah Wobble - Supersize (Jose Jimenez Clean Clean) 04:06
-02. Luca Debonaire - Bass Is Kickin (Original Mix) 05:42
-03. Mikah Feat. R.E.M. - Lost Religions (Original Mix) 06:06
-04. Dompe Agent - Shake (Original Mix) 07:15(   Читать дальше...   )Жанр: Funky, Groove, Jackin, Progressive, Future HouseПродолжительность: 08:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFF5A1A05C7F7123403E71227CDC5B3EDCAE3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532628   (712478) от 20.02.2022
-
-VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Natty Bong - Blue Jeans
-002 Sublime Reggae Kings - Human
-003 The Reggister's & Melizza - Back to Black
-004 Stereo Dub & Lila Liu - Set Fire to the Rain(   Читать дальше...   )Жанр: ReggaeПродолжительность: 05:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E8DB97C090D8526276200F84BAAD3BE6184DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532477   (712534) от 20.02.2022
-
-VA - Country: New Folk Music (2022) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
-002. Chris Janson - Beer Me
-003. Brothers Osborne - It Ain't My Fault
-004. Diplo - Hometown(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 09:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
 ```
 
 

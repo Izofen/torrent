@@ -1,3 +1,164 @@
+###  Публикация: 1030627   (672290) от 01.07.2016
+
+Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Wind (2:27)
+02. Visions (2:43)
+03. Reminiscence (2:02)
+04. A New Way (2:01)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50A2BB0C8F1D9CFEF0CA6A0E49903FE4D0A6D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291076   (672326) от 23.03.2019
+
+VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Downtempo, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672326.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Henry Green - Shift
+02. Vanilla - Snowdance
+03. Eli & Fur - Something Was Real(   Читать дальше...   )Жанр: Lounge, Chillout, Downtempo, ElectronicПродолжительность: 02:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C071613123C6A84E13D0EE328FD1E8B042B8F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291258   (672333) от 23.03.2019
+
+VA - Relax Your Mind - Electronic Chillout (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gordon Bleu - Schleswig Holstein (Original Mix) 6:32
+02. Beach Hoppers - City Light (Original Mix) 3:59
+03. Niente feat. Gilianne Lazcano & Almus - Blind Like You (Original Mix) 2:26
+04. Dubdiver - Sarsura (Original Mix) 6:11(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747B69EC346EC13094F5C613918B149D9083E840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291058   (672340) от 23.03.2019
+
+VA - London Relax Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Winder - Donner Bisquits (Original Mix) 5:09
+02. For VIP - Hanvi (Original Mix) 6:13
+03. Gomer Charlier - Exodus Right (Sun Chill Mix) 3:42
+04. Jazzagroove - Pubblicita (Original Mix) 5:07(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, ElectronicaПродолжительность: 03:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A47A9FB27367404F0175706660C6D03F97AD16B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030772   (672412) от 01.07.2016
+
+Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (06:31)
+02. Brooklyn Shuffle (05:03)
+03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291263   (672457) от 23.03.2019
+
+Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_672457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need To Get High (05:33)
+02. Spirals (04:46)
+03. I Found You (05:13)
+04. Five Moons (feat. Chela - extended mix) (06:43)(   Читать дальше...   )Жанр: Electronic, Tech HouseПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291180   (672459) от 23.03.2019
 
 VA - Songspire Records In Miami (2019) [MP3|320 Kbps] <House, Deep House, Melodic House, Progressive House>
@@ -532,168 +693,6 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 March (2019) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2405033D703F692908DB289E3C03B9DC9D24F991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030552   (674411) от 30.06.2016
-
-VA - Pornostar Sessions Ibiza Edition (2016) [MP3|320 Kbps] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zsak - Time Around (5:31)
-02. Zsak & Crazibiza - Sun Goes Down (Unreleased Mix) (4:58)
-03. Luca Debonaire - Dance! (5:52)
-04. Max & Sims - Sunshine (4:35)(   Читать дальше...   )Производство: PornoStar RecordsЖанр: House, Club HouseПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10AD10C403CAB4B6CFB3DC0E38DC7145A6E81A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030535   (674425) от 30.06.2016
-
-Twisted Destiny - 3 Albums (2012-2016) [MP3|320 Kbps] <Electronic, Synthpop, Futurepop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (2:50)
-02. Cut the Distance (4:00)
-03. Virus - The Vision (3:55)
-04. A.I (4:21)(   Читать дальше...   )Жанр: Electronic, Synthpop, FuturepopПродолжительность: 03:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EC8A1C75013894B4F39DB6EDD6C45D3B917DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290689   (674449) от 22.03.2019
-
-Ercos Blanka - Classic Trick (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Trick (8:34)
- 02. 36H (7:01)
- 03. Brigante (8:55)
- 04. You and Him Master (8:40)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E53AEB8DE1A03091B2F7201EB11FA339A9D80A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290656   (674450) от 22.03.2019
-
-Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Grime>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Overgrown 	(2:54)
-02. 	Split Matter (Ft. Kuedo)  (3:49)
-03. 	Armament 	(3:33)
-04. 	Vessel 	(3:09)(   Читать дальше...   )Жанр: Electronic, GrimeПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC417DC8683B0BDB3014DAFCE3A28278400E88BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290657   (674451) от 22.03.2019
-
-Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
-02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
-03. Acid Pauli - Release (1:54)
-04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536593   (674471) от 12.03.2022
-
-The Prodigy - More Music For The Jilted Generation (1994) 2CD Compilation, Remastered, 2008 [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break & Enter (2005 Live Edit) [00:04:59]
-02. Their Law (Live At Pukkelpop) [00:05:28]
-03. No Good (Start the Dance) (Bad For You Mix Remastered) [00:06:50]
-04. Scienide (Remastered) [00:05:50](   Читать дальше...   )Жанр: Breakbeat, Techno, Big BeatПродолжительность: 2 CD, 01:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F01F873607C11541892764B09518B873E00124E
 ```
 
 

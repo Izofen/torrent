@@ -1,3 +1,165 @@
+###  Публикация: 1609738   (1043143) от 04.02.2023
+
+VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043143.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Waterboys - Bed On The Floor
+002. U2 - Even Better
+003. Electric Light Orchestra - Moment In Paradise
+004. Morgen - Everything's Gone(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01849C3A8ADA77203C1FEB9278F1025FAE2DA93E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609764   (1043159) от 04.02.2023
+
+VA - Ethnic House Selections (2023) [MP3|320 Kbps] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Caitlin - Freaks & Misfits
+002. Musiq Mo - Humanoids Dance
+003. Dany Cohiba - Alma Andina
+004. Deephonix Crew - Sthandwa Se Nhliziyo Yam(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 10:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BD4309049269C293FCCD19D4630B8CB5FB56C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609727   (1043164) от 04.02.2023
+
+VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043164.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gambardella - Ascensiones
+002. Kesem - No Future
+003. Liquify - Subzero Descent
+004. The Tyromancers - Behold ! The Tyromancers(   Читать дальше...   )Жанр: Psychedelic-RockПродолжительность: 09:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609746   (1043169) от 04.02.2023
+
+VA - The Carbon Footprint (2023) [MP3|320 Kbps] <Psy, Goa, Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043169.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zen Machines - Interstellar Plumpton
+002. W.A.D - Alone
+003. Who Knows & Mr. Nobody - Bless This Mess
+004. Jacob And Jilax - Art & Melody(   Читать дальше...   )Жанр: Psy, Goa, Trance, ElectroПродолжительность: 12:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A4ECFD9471B55ABE66B645F5DA28DC041DDA55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609439   (1043229) от 03.02.2023
+
+VA - 60 minutes. Old School Dance Music vol.15 (mixed by Dj V) (2022) [MP3|320 Kbps] <Progressive Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Cara Dillon vs 2 Devine - Black Is The Colour (Above & Beyond's Divine Intervent Remix)
+02-BT feat. Jan Johnston - Mercury & Solace (Transa Remix)
+03-Nadia Ali - Rapture (Gareth Emery Extended Mix)
+04-Ayumi Hamasaki - M (Above and Beyond Typhoon Dub)(   Читать дальше...   )Жанр: Progressive Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22428FF29B929CCF9DF7D912623F99C805598569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609021   (1043312) от 02.02.2023
+
+VA - Europa Plus: ЕвроХит Топ 40 20.01 (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future X - This Kind Of Love (02:51)
+02. David Guetta & Bebe Rexha  - I'm Good (Blue) (02:55)
+03. Ava Max - Million Dollar Baby (03:04)
+04. Robin Schulz & David Guetta -  On Repeat (03:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D249B60A9757E31C186FEA1A35C29F119079E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609102   (1043327) от 02.02.2023
 
 Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
@@ -533,168 +695,6 @@ VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606486   (1044382) от 22.01.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 20.01.2023 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
-02. Inna feat. Melon & Dance Fruits Music - Hello Hello (2:43)
-03. Gayle & Blackbear - Fmk (3:09)
-04. Alok feat. Sigala & Ellie Goulding - All By Myself (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6939BBA25519BAF7BD3B7B0F29AC033282348B14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606090   (1044593) от 20.01.2023
-
-VA - Music News vol.239 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alina Eremia - Burning Red (02:30)
- 002. A.V.G - Один (01:45)
- 003. A.V.G - Она Кайф (02:44)
- 004. A.V.G feat. Tatar - Ножевой (01:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BC58153490FF4F9CE7339F3E6D5FE846254DEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605747   (1044664) от 19.01.2023
-
-VA - Ностальгия 7 NNM-Remix (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляпис Трубецкой - Яблони (Ayur Tsyrenov Extended Remix) (6:10)
-02. Света - А Ты Не Мой (Andy Light & DJ ModerNator Work-Up) (5:54)
-03. Полина Ростова - Несчастливая (MY Remix) (5:50)
-04. Татьяна Овсиенко - Я Буду Лететь За Тобой (Maxim Andreev Nu Disco Mix) (5:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD458B4B3111A13AAE060A4507B2FE0B56D3829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605801   (1044736) от 19.01.2023
-
-VA - The Jazz Inspiration (2023) [MP3|320 Kbps] <Jazz, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Joris - Eventide [01:20]
-002. Lucy Yeghiazaryan - Love Isn't Everything [01:21]
-003. S.W. - Mr. Sanders [01:24]
-004. The Sorcerers - End Credits [01:46](   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 09:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50850214394EF7E3B89E2971C8215D9A030A60BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605571   (1044820) от 18.01.2023
-
-Sarah Connor - Compilation (2023) [MP3|320 Kbps] <Pop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatcha Wearing? (Interlude)
-02. Bounce
-03. Cold as Ice
-04. French Kissing (Radio Edit)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 03:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BDD1F00BF04B84BC13FA1972E95DDC55A3E75D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601269   (1044910) от 17.01.2023
-
-VA - В машине с музыкой Vol.326 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Гребенщиков  - Кораблекрушение (03:46)
-02. Birdy - Wings (Radio Edit) (03:49)
-03. Руслан Алехно  - А Мы Будем Счастливыми (03:05)
-04. Calvin Harris & Dua Lipa - One Kiss (R3hab Remix) (03:11)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B13F9FE8F7474A9FB25E7A995D0BEA73684071
 ```
 
 

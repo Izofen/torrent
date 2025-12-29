@@ -1,3 +1,351 @@
+###  Публикация: 1482680   (1007464) от 09.07.2021
+
+Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open (06:53)
+ 02. Currents (07:08)
+ 03. Movements (04:13)
+ 04. Small Positives (05:28)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247A035CDC591A7D47D8AD15805E7357240C42F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482665   (1007471) от 09.07.2021
+
+VA - Genome (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Abstract, Experimental>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testube - Suction Pore (03:43)
+ 02. tokee - Happiness (04:29)
+ 03. proswell - support local dsp (05:29)
+ 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6A39640AE41ABE99F11CF495D87E9E08A70C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482553   (1007473) от 09.07.2021
+
+VA - Genome (2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testube - Suction Pore (03:43)
+ 02. tokee - Happiness (04:29)
+ 03. proswell - support local dsp (05:29)
+ 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7163435D89E2533850D4862526CC7D41B676F0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279108   (1007565) от 08.07.2021
+
+Julia Kent - Discography 22 Releases (2007-2021) Leaf Records [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Contemporary, Experimental, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Refraction (09:26)Тип издания: CD, WebЖанр: Modern Classical, Contemporary, Experimental, Ambient •Продолжительность: 08:41:34 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BA6AEAD795061D97D3E18330810BDA129F7160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482477   (1007616) от 08.07.2021
+
+VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Blue Sky - Original Mix (2:58)
+02. Peter Pearson - Love Chills - Original Mix (5:58)
+03. The Soul Crusaders - Heroes (5:45)
+04. Mission Brown - Watching Clouds - Original Mix (6:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2416BC9860BF003EBB16DF1FA6B99F8E61D53358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482501   (1007621) от 08.07.2021
+
+Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart (4:16)
+ 02. Summer Rain (3:56)
+ 03. Ah Up (3:20)
+ 04. Hung (3:22)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43961E2B41AAB61EB6D34EADBA6FE3C8FBB1AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147225   (1007680) от 07.07.2021
+
+iTAL tEK - Discography 27 Releases (2007-2020) Planet Mu [FLAC|Lossless|tracks+.cue, tracks] <IDM, Dubstep, Bass, Abstract, Juke, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granite And Glass (02:02)
+ 02. Seraph (03:40)
+ 03. The Lake (03:02)
+ 04. For You There Is No Time (02:24)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Dubstep, Bass, Abstract, Juke, Experimental •Продолжительность: 10:55:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D8A5EF7B3607FE4D626A00479ED66324C8C8EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482305   (1007775) от 07.07.2021
+
+World Circuit - Desolate Snow Roads (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6 Million (11:41)
+ 02. Desolate Snow Roads (05:03)
+ 03. Waiting For Winter (04:43)
+ 04. I Hate To Fade Alone (05:23)(   Читать дальше...   )Жанр: IDM, Acid, Downtempo, ExperimentalПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7452196127F3D74627EF71A01DA9D395EA7BFAFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482059   (1007888) от 06.07.2021
+
+VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Norvis, Justine Berg, Dave Crusher - United (Dave Crusher Radio Edit) (2:22)
+02. Pete Ellement - Love Can Heal (Radio Edit) (2:33)
+03. Sean Norvis, Geo Da Silva, Brazylero, DJ Combo, Rayman Rave - Johnny Started (DJ Combo & Rayman Rave Radio Edit) (2:28)
+04. Yamin Bene, MC Ben - Obsessive Thought (Radio Edit) (3:36)(   Читать дальше...   )Жанр: Deep House, Future House, DanceПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481762   (1008032) от 05.07.2021
+
+Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hologram (04:50)
+ 02. Magnetar (08:17)
+ 03. Glass Horizon (03:02)
+ 04. Not Even Light (05:37)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FCF72BEA473A81F5317D370FB5DEACAD58C683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228470   (1008056) от 04.07.2021
+
+All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day & Night (Five Eight Alt Version Unreleased) (02:26)
+ 02. In the Sky (Unreleased Track) (03:11)
+ 03. Spring Day (Unreleased Track) (02:56)
+ 04. Four Three vs Galaxy of Light (Feat Selena Cross) (05:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield •Продолжительность: 58:21:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481594   (1008153) от 04.07.2021
+
+T.Power | Shy FX & T Power | Atomic Dog | Marc Royal - Discography 40 Releases (1993-2017) Soapbar, SOUR, Adastra [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Jungle, Breakbeat, Ambient ...
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstand (03:48)
+ 02. Rise (04:10)
+ 03. 不可能マシン (04:25)
+ 04. Resoudre (04:30)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Drum n Bass, Jungle, Breakbeat, Ambient •Продолжительность: 17:56:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E94E263A797EBCDDBF5FE1B31052B6EDA123E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481743   (1008159) от 04.07.2021
+
+BCee & Charlotte Haining - Life As We Know It (2020) [FLAC|Lossless|Web-DL|tracks] <Drum'n'Bass, Liquid Funk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost There (5:24)
+02. Little Bit Lighter feat. Etherwood (4:36)
+03. Give Me A Break (4:53)
+04. The Hills (5:39)(   Читать дальше...   )Жанр: Drum'n'Bass, Liquid FunkПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8566E24416F2C3B736F75AE78245EE28DDC3241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481678   (1008167) от 04.07.2021
 
 Antiform - City In Exile (2009) [Flac|Lissless]<Drum & Bass, Hip Hop, Breaks, Rock>
@@ -339,357 +687,6 @@ beatfarmer - The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B3764D6F24E93FE9092452BA237398DFD61E67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480970   (1008597) от 01.07.2021
-
-VA - Chilled Orient: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sami Sivananda - Temple Tunes - Original Mix (6:45)
-02. Mirage Of Deep - Road of Life (Frontiers of Asia) - Original Mix (5:36)
-03. Marga Sol - Awakening - Original Mix (4:20)
-04. Vellúa - Navin - Original Mix (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4DBCFE214FD2BAC9E1B03C7D570263C1297742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480767   (1008712) от 30.06.2021
-
-VA - Acoustic Guitar Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JP Cooper - September Song - Guitar Acoustic (3:32)
-02. Filip Rudan - Blind (2:59)
-03. Lewis Capaldi - Before You Go - Guitar Acoustic (3:38)
-04. Vinko Ćemeraš & Talvi Tuuli - A Quiet Storm For Her (3:35)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B829179034E3EF78612BBD7DF7544E2F665E5DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480865   (1008742) от 30.06.2021
-
-VA - Adykt (2021) Dyadik [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Glitch, Jungle, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. exm – Kolder (05:51)
-02. HRYM – Heimferd (06:51)
-03. Weld – Premises (05:07)
-04. dialed – The Cat's Whiskers (06:11)(   Читать дальше...   )Жанр: IDM, Leftfield, Glitch, Jungle, AmbientПродолжительность: 01:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D01472113A1692504E7BC373D45555B397D3A8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994356   (1008797) от 29.06.2021
-
-Ryan Lee West (Rival Consoles, Aparatec) - Discography 20 Releases (2007-2021) Erased Tapes [FLAC|Lossless|tracks, tracks+.cue] <IDM, Techno, Electro, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pattern of the North (05:50)
- 02. Johannesburg (07:22)
- 03. Slow Song (03:52)
- 04. Lone (05:55)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Techno, Electro, Experimental, Ambient •Продолжительность: 09:04:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0E25593036F1DE336425AA85CC9E60D5C29BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370617   (1008833) от 29.06.2021
-
-Протон-4 | Proton-4 - Discography 6 Releases (2015-2021) A-TRIUM [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свет Звезд (03:12)
- 02. Полет Во Сне (03:47)
- 03. Покоряя Галактику (04:18)
- 04. Ветер Весны (04:53)(   Читать дальше...   )Тип издания: WEBЖанр: Synthwave, Retrowave •Продолжительность: 02:31:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0B0C031DD057BA0A4A7D9491693C4CF32F9882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480654   (1008848) от 29.06.2021
-
-VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, IDM, Psybient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Nonstatic - Dreamscapes (07:26)
- 02. Misled Convoy - Fire On The Mountain (06:18)
- 03. Nigel Mullaney - Lost At Sea (06:44)
- 04. Akuratyde - Rouge (05:12)(   Читать дальше...   )Жанр: Ambient, IDM, Psybient, DowntempoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CED093C286A9FBF4A91F1F5102795B4283671F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480709   (1008856) от 29.06.2021
-
-VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Techno, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Souls Of Saturn & TOKiMONSTA - Revision Of The Past
-02. Rampa - The Church
-03. Moodymann - Keep On Coming (feat. CD)
-04. Butch - Raindrops (feat. Kemelion)(   Читать дальше...   )Жанр: Tech House, Deep House, Techno, ProgressiveПродолжительность: 02:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657FA7B165457ED9AEEF73041EF4E8780AC93C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200676   (1008886) от 28.06.2021
-
-Faint - Label-Pack 28 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Techno, Dark Ambient, Drone>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pepo Galan - Blurry Memory (06:36)
- 02. Misleading Structures - Recurrence (06:14)
- 03. Carlos Ferreira - Black Bile (05:15)
- 04. SVLBRD - Fremmede (05:16)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Abstract, Techno, Dark Ambient, Drone •Продолжительность: 30:23:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D26AAE0096649C985768DA01B7A63CD045FF2E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480113   (1009162) от 27.06.2021
-
-VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Fontaine - Lujon (4:11)
-02. Seahawks - Escape Hatch (Edit) (4:55)
-03. Key Tronics Ensemble - Calypso of House (Sicania Soul Reprise) (3:51)
-04. The Ballistic Brothers - A Beautiful Space (Edit) (4:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8439A859E5A80E805DF294173116850FB766ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480085   (1009169) от 27.06.2021
-
-VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Psybient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Nonstatic - Dreamscapes (07:26)
- 02. Misled Convoy - Fire On The Mountain (06:18)
- 03. Nigel Mullaney - Lost At Sea (06:44)
- 04. Akuratyde - Rouge (05:12)(   Читать дальше...   )Жанр: Ambient, IDM, Psybient, DowntempoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EABF42CE53167F2393C4363DC0F8F24207913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480223   (1009180) от 27.06.2021
-
-VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlab - Bionic Mind (6:48)
-02. Mind Vision - Cosmic Rain (6:01)
-03. Atomic Space Orchestra - Space Envoy (5:51)
-04. Rama - The Sea Of Tranquility (4:56)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9473A9784F9EEED3FA4C04140D21D0D79BBC53E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480291   (1009182) от 27.06.2021
-
-Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Post Rock, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day Dawns In Your Right Eye (feat. Lili Cuzor & Clarice Jensen) (4:25)
-02. Rose In Abstract (feat. Morris Kliphuis, Lisa Morgenstern, & Clarice Jensen) (4:58)
-03. La Vagabonde (feat. Alex Browne, Morris Kliphuis, Sam Pankey, Jonathan Sielaff, & James Suter) (5:17)
-04. Landlessness (feat. Clarice Jensen) (5:01)(   Читать дальше...   )Производство: Deutsche Grammophon – 00028948397990Жанр: Modern Classical, Post Rock, ExperimentalПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BD86A46FCA02D0F800A92CEA3CE8C4953B667A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480217   (1009184) от 27.06.2021
-
-VA - Summer In Space Vol. 4 (2021) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlab - Bionic Mind (6:48)
-02. Mind Vision - Cosmic Rain (6:01)
-03. Atomic Space Orchestra - Space Envoy (5:51)
-04. Rama - The Sea Of Tranquility (4:56)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656292704BD8E34F10948C40DE2C09E93B8114B7
 ```
 
 

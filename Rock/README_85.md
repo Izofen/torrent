@@ -1,3 +1,165 @@
+###  Публикация: 1001808   (852190) от 29.03.2016
+
+Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste! (2014) EP [MP3|192 кб/с] <Alternative Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный EP многообещающей команды.01. The Steven Bradley
+02. Dotab
+03. Bob Loblaw
+04. 12 Years Howled(   Читать дальше...   )Жанр: Alternative Progressive RockПродолжительность: 00:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8978C491E591398615CD096CC33A6248EAB65F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001834   (852195) от 29.03.2016
+
+Farm - Farm (1971) Remastered, 2000, Shadoks Music [MP3|320 кб/с] <Psychedelic Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852195.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sunshine In My Window
+2. Cottonfield Woman
+3. Statesboro Blues
+4. Jungle Song(   Читать дальше...   )Жанр: Psychedelic Blues RockПродолжительность: 00:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6AE9828436188CAD9E1B7B27C3830D0BF48DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001537   (852290) от 29.03.2016
+
+Kyle English - 12:33 (2016) [MP3|320 кб/с] <Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Fade Away
+02. Last Of The Innocent
+03. Photograph
+04. Better Plan(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558F9E71605155FA8609A79F48158BAE128FD116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001338   (853788) от 28.03.2016
+
+VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guns n' Roses - Sweet Child O'Mine (5:54)
+ 02. Meatloaf - Bat Out Of Hell (4:44)
+ 03. Midnight Oil - Beds Are Burning (4:15)
+ 04. INXS - Need You Tonight (3:01)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F0F863508E0B70F348D1904D31F7BF3548AE2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001187   (855471) от 27.03.2016
+
+VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  More Than A Feeling - Boston (3:23)
+ 02.  Don't You (Forget About Me) - Simple Minds (4:18)
+ 03.  Time After Time - Cyndi Lauper (4:01)
+ 04.  Africa - Toto (4:25)(   Читать дальше...   )Жанр: Pop Rock, BalladsПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1572FBD5FF099F19A2E0566C3A1C574BD9B945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498091   (857804) от 26.09.2021
+
+Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seventeen [00:02:10]
+02. Satellite [00:04:12]
+03. Feelings (aka 'No Feelings') [00:02:54]
+04. Just Me (aka 'I Wanna Be Me') [00:03:16](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4CD, 04:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32347FD5B464744DDD992DB63B44EA3315F9ED82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376566   (858558) от 18.04.2020
 
 No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
@@ -545,168 +707,6 @@ Lera Lynn - Discography (2011-2019) [MP3|320 кб/с] <Folk-Rock, Independent Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C9C5733FDB9B074C926038F5ABD3F15727E5DAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107022   (870061) от 21.02.2017
-
-Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jay
-2. Theme From The Movie Manhole
-3. ?Come Again? Toucan
-4. It's Only Music(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EF34211315C1A96867A69321437385E246D6D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496612   (871226) от 18.09.2021
-
-Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Tinkertrain
-02. I Don't Want to Change the World
-03. Mama, I'm Coming Home
-04. Desire(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EF5CE72BEA3916A0A65D28CF9A11E3117631E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300979   (872232) от 26.02.2011
-
-Tom Waits - 35 Albums (1973-2009) [MP3|320 Kbps] <Blues, Jazz, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tom Waits (полное имя Thomas Alan Waits; 7 декабря 1949 года) - американский певец и автор песен, композитор, актёр. Обладает своеобразным хрипловатым голосом, описанным критиком Дэниэлом Дачхолзом так: «Он словно вымочен в бочке с бурбоном, его будто оставили в коптильне на несколько месяцев, а затем, когда достали, проехались по нему».Список альбомов:
-1973 - Closing Time
-1974 - The Heart Of Saturday Night
-1975 - Nighthawks at the Diner(   Читать дальше...   )Жанр: Blues, Jazz, Experimental RockПродолжительность: 39:39:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374503   (872683) от 10.04.2020
-
-Скрябін - Best (Сovers & Remixes) (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872683.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я сховаю тебе (Нова версія)
-2. Місця щасливих людей (FDR & CJ Mars Edit)
-3. Шампанськi очi (Pianoбой Cover)
-4. Випускний (CJ Mars Old Disco Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D1FB8296F9049153468EAC62542415D3100A19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496224   (872722) от 17.09.2021
-
-Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <Score>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of the Sisters [00:16:25]
-02. I See You in My Dreams [00:18:25]
-03. House Atreides [00:13:54]
-04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7CBD94EECA77EB0B1D5ECDD6CD816FD7DEB484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496465   (872847) от 17.09.2021
-
-VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oasis - Wonderwall (Remastered) 4:19
-02. Pulp - Common People 5:50
-03. Oasis - Live Forever 4:37
-04. Blur - Song 2 (2012 Remaster) 2:01(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9541DF8E091CA8DA6EE2D36BF626F1A04BF08DBE
 ```
 
 

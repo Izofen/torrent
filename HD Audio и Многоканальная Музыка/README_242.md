@@ -658,6 +658,33 @@ magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342078   (659069) от 27.05.2011
+
+BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_659069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scene 01  17:30
+02.  Scene 02  14:59
+03.  Scene 03  15:01
+04.  Scene 04  15:00(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139527   (659994) от 02.06.2017
 
 Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -680,31 +707,6 @@ B1. I Can't Dance (4:01)(   Читать дальше...   )Производст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138474   (663044) от 30.05.2017
-
-KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Was Made For Lovin' You (7:54)
-2. Charisma (4:26)Жанр: Hard Rock, GlamПродолжительность: 00:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
 ```
 
 

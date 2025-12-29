@@ -1,3 +1,171 @@
+###  Публикация: 1018117   (757549) от 19.05.2016
+
+VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|320 кб/с] <Jazz, Bossa Nova, Instrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paolo Di Sabatino, Janek Gwizdala, Peter Erskine - Driving Blues 6:58
+2. Bossa Nostra - Rain (To Lidia) 7:11
+3. Italian Secret Service - Oky Doky 4:47
+4. Sam Paglia - Strip Tease Organ 1:43(   Читать дальше...   )Жанр: Jazz, Bossa Nova, Instrumental, Easy ListeningПродолжительность: 02:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4912B0C743DA203BD03831D6947A37CAD702D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018172   (757731) от 19.05.2016
+
+VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Diver - Selfishness
+02. Don Gorda Project - Hand In Hand
+03. Zero Feedback - Deep In The Rain Forest
+04. Don Gorda Project - Dreamscape(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321233   (757825) от 09.04.2011
+
+VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Electro-House, House, Trance, Dubstep, Dance, Drum'n'Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757825.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adam Rickfors - Push The Tempo (Album)
+2. Agnes - Release Me 2011 (Guaranna Project Remix)
+3. Alexandra Stan - Get Back (Dj Amor Remix)
+4. Alexandra Stan - Mr.Saxobeat (Vova Baggage Remix)
+5. Amir van Cayenne - Seele
+6. Azzido Da Bass & Malente - Hunting (Ado Remix)
+7. Basto! - Gregory's Theme (Extended Mix)
+8. Beyonce & Jay Z - Crazy in Love (DJ STYLEZZ Remix)
+9. Boyz Feat. Jessy - We Are Away (Original Mix)
+10. Britney Spears - Hold It Against Me (Dancecom Project Remix)(   Читать дальше...   )Жанр: Electro-House, House, Trance, Dubstep, Dance, Drum'n'BassПродолжительность: 08:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCB7DA81623FC07DEA4935F1287151AE465E391
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215527   (757851) от 26.03.2018
+
+Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Александр Маршал - Дай мне руку
+02 Александр Маршал - Обещай мне
+03 Александр Маршал - Погоди, постой
+04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215504   (757852) от 26.03.2018
+
+VA - Bitter Sweet Symphony (2018) [MP3|320 Kbps] <Neo Classical>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757852.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shamis Khassenov - Treasure Island [2:59]
+002. JГіhann JГіhannsson/Ben Russell/Yuki Numata Resnick/Clarice Jensen/Caleb Burhans/Tarn Travers - Flight From The City [6:28]
+003. BrunuhVille - Spirit of the Wild [4:05]
+004. Ludovico Einaudi/AngГЁle Dubeau/La Pieta - Sarabande (with Piano) (Bonus Track) [4:56](   Читать дальше...   )Жанр: Neo ClassicalПродолжительность: 07:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE33B2E050025B17AC6C3A32BA55A3966CB6693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215509   (757867) от 26.03.2018
+
+VA - Hit Euro Dance 90s (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757867.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. L.A. Style - James Brown Is Dead [5:42]
+002. Earlwood - Take Me Away [4:23]
+003. Da Hool - Meet Her At The Love Parade [4:06]
+004. The Free - Born Crazy [3:47](   Читать дальше...   )Жанр: EurodanceПродолжительность: 09:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD7EA13D28E2B19F169980E1AF0D348F205D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280712   (758073) от 04.02.2019
 
 VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
@@ -533,168 +701,6 @@ VA - Chill Acoustic Jazz Playlist (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837C4830FEA63B28D8C161494FE57E03C9F7BC80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017957   (759274) от 18.05.2016
-
-VA - Созвездие весеннее - 7 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ladyhawke - A Love Song
-002. The Jigits - В Эту Ночь
-003. Shakira - Try Everything
-004. Артем Пивоваров - Стихия(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D433EBD7BED32F59B92E57F4B94DFD71CE4FB1BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018022   (759285) от 18.05.2016
-
-VA - Pure Deep Sexy (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miki Leris - Test My Lemonade
-02. Helly Larson - Plastic Dreams
-03. Rochelle Vincente Von K - One Starry Night - Deneha's Full Moon Remix
-04. Cosmic Beets - Tsaka(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BFFACA611B49ED0BE088503A341B5365773906
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215165   (759463) от 25.03.2018
-
-VA - Перфоратор: Сборник Русского Рока (2018) [MP3|320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Северный Флот  -  Революция на вылет  4:10
-002.  Вячеслав Бутусов  -  Бедная птица  4:06
-003.  Северный флот  -  Время любить  4:15
-004.  Аквариум  -  Двери травы  3:13(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAC3213D6C4E5C90890D3F70F69E0F6684B4673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215317   (759609) от 25.03.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759609.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK121 Joe Satriani - Summer Song
-122 Ozzy Osbourne - Zombie Stomp
-123 3 Doors Down - Kryptonite
-124 Aerosmith - Cryin'(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720D2FDCE4D5680B006C6DF1AA2015ECDD21797B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215154   (759611) от 25.03.2018
-
-VA - Rap Trap Nation Play (2018) [MP3|320 Kbps] <Rap, Trap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Lewis - Clockwise (feat. Nick Row)
-02. Carnage & Lil Pump - i SHYNE
-03. Keys N Krates - My Night (feat. 070 Shake)
-04. Getter x Ghostemane - Beware, the Sirens(   Читать дальше...   )Жанр: Rap, TrapПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35C3DAB5FA8E03DBABCE25A81B91416DE48CE15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215125   (759624) от 25.03.2018
-
-VA - Rock Blues And Thousands Of Colors (2018) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Imany  -  I Long For You  3:18
-002.  Barry Goudreau's Engine Room  -  Need  3:54
-003.  Kenny Wayne Shepherd  -  How Low Can You Go  3:00
-004.  Rosedale  -  Man, I Don't Want You Around  3:00(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5602AFDFB8337896160C14C9CD24390E384F8854
 ```
 
 

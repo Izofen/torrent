@@ -1,3 +1,189 @@
+###  Публикация: 1478376   (1010321) от 19.06.2021
+
+Giacomo Scinardo - Yiruma: Piano Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Flows in You
+02. Kiss the Rain
+03. Wait There
+04. Mika’s Song(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D1D504D41D19589912B1280414A3686456FD07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187343   (1010383) от 18.06.2021
+
+Shostakovich Edition / Дм.Шостакович - Собрание сочинений  (27CD) (2007) [APE(image + .cue)|Lossless]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010383.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - 11 SYMPHONIES (Симфонии)Жанр: ClassicalПродолжительность: 28:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE2E56CA246C256B82AE40632713A0F20382882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474082   (1013206) от 01.06.2021
+
+Le Concert des Nations - L'Orchestre du Roi Soleil Symphonies, Ouvertures & Airs a jouer (1999) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Les Bourgeois Gentilhomme (1670)
+01. Ouverture [00:02:59]
+02. Gavotte [00:01:41]
+03. Canaries [00:01:16](   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DC036ADDDE1B9AC2D5142830CB656516A17897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471765   (1014805) от 22.05.2021
+
+Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Lounge>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chopin 24 Preludes, Op. 28 No. 7 in A Major (3:56)
+02. The Piano Melody (3:47)
+03. Chopin 24 Preludes, Op. 28 No. 4 in E Minor (3:45)
+04. Liszt Consolation No. 1 in E Major Andante con moto (3:26)(   Читать дальше...   )Жанр: Classical, LoungeПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B577BB2ADF75AF431274E65D0067618A3047C140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468551   (1015782) от 16.05.2021
+
+Русская фортепианная школа - Генрих Нейгауз (2002) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моцарт :
+01. Рондо ля мажор (8:42)
+
+Соната для двух фортепиано ре мажор:*(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36581F55E0A4C3144F1C50F544325DC6ECFDF0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469721   (1016289) от 13.05.2021
+
+Святослав Рихтер - Бетховен - 33 вариации на вальс Диабелли (1994) [FLAC|Lossless|image + .cue] <Chamber, Instrumental, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tema. Vivace (0:53)
+02. Var. 1. Alla marcia maestoso (2:25)
+03. Var. 2. Poco allegro (0:56)
+04. Var. 3. L'istesso tempo (1:20)(   Читать дальше...   )Жанр: Chamber, Instrumental, PianoПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABBBFD7A481F70A9C71B2D95537E6A9B589DB25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468927   (1016760) от 10.05.2021
+
+Maria Grinberg - Beethoven - Piano Sonatas 18, 19, 20, 21, 22 (2006) [FLAC|Lossless|tracks] <Chamber, Piano, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata no. 18 in E-flat major, op. 31 no. 3
+01 (1) Allegro
+02 (2) Scherzo. Allegretto vivace
+03 (3) Menuetto. Moderato e grazioso(   Читать дальше...   )Жанр: Chamber, Piano, SonataПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467787   (1017526) от 05.05.2021
 
 Изысканная элитарность. «Созвездие хитов. Классика» - J.S. Bach, Beethoven, Bizet, Brahms, Wagner, Vivaldi, Глинка, Grieg, Liszt, Massenet, Paganini (2008) [FLAC|Lossless|tracks + .cue] <Classic ...
@@ -506,199 +692,6 @@ Ich habe genung in C Major, BWV 82:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A6BB7A887CA56DAAD7DCCFC9C539EDD7B6CA08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449850   (1029497) от 23.02.2021
-
-Royal Philharmonic & Roqueville Orchestras - Soft Rock Hits (2008) Box Set, 3 CD [FLAC|Lossless|image + .cue] <Soft Rock, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Royal Philharmonic Orchestra представлен на трекере достаточно хорошо (и у меня есть несколько раздач в их исполнении), то найти какую-нибудь инфу о The Roqueville Orchestra, кроме того, что они в своё время классно исполнили трибьют Beatles, не удалось. Кстати, и сам трибьют не найден на просторах инета. А вот хиты от Роллингов у них получились отличные. Devill (   Читать дальше...   )CD1 - Classical Tribute to U2:
-01. The Royal Philharmonic Orchestra - Pride (In the name of love)  (4:51)
-02. The Royal Philharmonic Orchestra - Even better than the real thing  (4:58)
-03. The Royal Philharmonic Orchestra - Desire  (4:05)(   Читать дальше...   )Релиз состоялся: 12 сентября 2008 годаЖанр: Soft Rock, NeoclassicalПродолжительность: 02:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7427588342BCFD01E569945CF27D4154263466A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449674   (1029521) от 23.02.2021
-
-Andrey Denisov - Plays Bach (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toccata D-Moll (7:11)
-02. Fuga D-Moll (6:42)
-03. Prelude No. 2 C-Moll (5:43)
-04. Air (5:39)(   Читать дальше...   )Жанр: Classical Crossover, NeoclassicalПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E74E00A4B1142076DF13279809474977F3BD9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413232   (1029914) от 21.02.2021
-
-Otavio de Assis Brasil - The Great Classical Music Played On Accordion (2020) Several Records [FLAC 2.0|48/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Otavio de Assis Brasil (из Сан-Габриэль, Бразилия, г.р. - 1984) - бразильско-испанский аккордеонист. Первый южноамериканец, получивший высшую университетскую степень по классическому аккордеону в консерватории Арагона под руководством Анхеля Луиса Кастаньо, своего главного учителя, от которого до сегодняшнего дня он получает советы.
-С 2009 года он также изучал музыкальную (   Читать дальше...   )Antonio Vivaldi: Las Cuatro Estaciones. Concerto In F Minor, RV 297, Op. 25, "Invierno":
-01. I. Allegro Non Molto (03:34)
-02. II. Largo (02:14)
-03. III. Allegro (02:58)Жанр: ClassicalПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F425893A074C5E63A856DB4A52622999997C95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412977   (1029922) от 21.02.2021
-
-Peter Donohoe - Mozart: Piano Sonatas. Volume 2 (2019) SOMM Recordings [FLAC 2.0|88.2/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть обзора Моцарта в исполнении Peter Donohoe была записана в марте 2019 года. Он и команда Somm’s recording возвращаются в Бирмингемскую консерваторию к роялю Bechstein, который идеально звучит без той дерзости, которую мог бы внести Steinway.
-Сонаты представляют собой трилогию, сочиненную во время злополучного путешествия Моцарта в 1777-78 гг. через Мангейм (   Читать дальше...   )Piano Sonata No. 7 in C Major, K. 309:
-01. I. Allegro con spirito (06:11)
-02. II. Andante un poco adagio (05:51)
-03. III. Rondo. Allegretto grazioso (06:08)Жанр: ClassicalПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED1E5A8F10BCE326AFD0171DD530F56D11D3594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412712   (1029929) от 21.02.2021
-
-Mao Fujita - Chopin: Impromptus and Scherzos (2020) Naxos [FLAC 2.0|96/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шопен превратил Скерцо в новую форму фортепианной композиции: самостоятельное виртуозное произведение, которое он приправил драматизмом, польской народной песней, спокойствием и нюансами. Импровизированные композиции с их ритмичным лифтом и филигранным орнаментом пронизаны романтической свободой, в то время как Allegro de concert, Op. 46 изначально задумывался как (   Читать дальше...   )01. - Impromptu No. 1 in A-Flat Major, Op. 29 (04:12)
-02. - Impromptu No. 2 in F-Sharp Major, Op. 36 (Live) (06:01)
-03. - Impromptu No. 3 in G-Flat Major, Op. 51 (Live) (05:15)
-04. - Fantasy-Impromptu in C-Sharp Minor, Op. 66 (05:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691C720D7F2F7E8485713575C6EB361AB90409BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414966   (1029937) от 21.02.2021
-
-NeoBarock – J.S. Bach: Metamorphose (2019) Ambitus [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как уже отмечали музыковеды ХХ века, некоторые композиционные структуры Иоганна Себастьяна Баха (1685–1750) ясно показывают, что они основаны на транскрипциях.
-
-NeoBaroque делает эти находки слышимыми и представляет реконструкцию предполагаемых оригинальных версий знаменитого Двойного концерта для двух скрипок (BWV 1043), скрипичной сонаты ля мажор (BWV 1015) и двух (   Читать дальше...   )Sonate G-Moll (Rekonstruktion der vermuteten Urfassungen für 2 Violinen und Basso continuo nach BWV 1029):
-01. I. Vivace (04:52)
-02. II. Adagio (05:06)
-03. III. Allegro (03:54)Жанр: ClassicalПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D4647130A7023034B4987D026378C801B16F6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446927   (1032261) от 11.02.2021
-
-R.Strauss - Also sprach Zarathustra (2019) [FLAC|Lossless|image + .cue] <Classical orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Also Sprach Zarathustra, Op. 30, TrV 176
-01. 1. Einleitung (Sonnenaufgang) [0:01:50.18]
-02. 2. Von Den Hinterweltlern [0:03:43.09]
-03. 3. Von Der Großen Sehnsucht [0:02:08.70](   Читать дальше...   )Жанр: Classical orchestralПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E90E3999452C924EC7435322885A2A5AA0767D8
 ```
 
 

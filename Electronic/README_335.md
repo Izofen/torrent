@@ -1,3 +1,30 @@
+###  Публикация: 1139358   (660273) от 02.06.2017
+
+VA - This Is My Church Vol.5 The Chill out Edition (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takashi Yomu - Red Lanterns
+02. Sonoric Academy - Under Dress
+03. Suspension 6 - Poisonous Fruits
+04. Nakiro Namoto - Dead Man Walking(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599508805C8C19F2F34FEC60F5FCD6D520EDFA3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040212   (660725) от 15.05.2018
 
 Steven Ward (Aynth, In A Mindset, Her Blood In My Veins, We Embrace Our Decay, aERMA, klyxn) - Discography 49 Releases (2008-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Industrial, Post-R ...
@@ -74,6 +101,39 @@ Ocralab - Sonitum Nubium (2018) Space Of Variants [FLAC|Lossless|tracks+.cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D804C130603B5676FDBDBFE4DB0105BACC1B7E9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513547   (661210) от 21.06.2012
+
+Adham Shaikh (+ Ekko & Dreamtree Project) - 10 albums (1993-2010) [FLAC|Lossless] <Ambient, Chillout, Downtempo, Psychill, World>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_661210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossroads - Part 1 (05:32)
+02. Water Prayer (Holden Space Mix) (04:07)
+03. Water Prayer (Rasta Dub) (03:57)
+04. Carpet Breaker (05:34)
+05. Rug Rippin (Green Crystal Faerie Mix) (06:47)
+06. Sonicturtle's Coupe Decale (04:27)
+07. Sonicturtle's Coupe Decale Reprise (03:23)
+08. Kundalini Fuel (07:30)
+09. Desert Dub (07:12)
+10. Desert Caravan (07:09)(   Читать дальше...   )1993-2010Жанр: Ambient, Chillout, Downtempo, Psychill, WorldПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -641,60 +701,6 @@ VA - Ambient Nectar (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:617059E88683690FD879526CB3C7C697F42881B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138374   (664137) от 29.05.2017
-
-Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystica (feat. Moon Tripper) (8:06)
-02. Be Human (feat. Spiritual Mode) (8:24)
-03. Ascension (feat. John 00 Fleming) (8:23)
-04. Voyage (9:18)(   Читать дальше...   )Жанр: Psy-Trance, Goa TranceПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D607A3836B7C78FBD0E8B2C3C256E1DFE70A19F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138428   (664151) от 29.05.2017
-
-VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder) (2017) [FLAC|Lossless|CD|tracks|Scene] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Nickson - Heliopause (6:09)
-02. Talla 2XLC - Infinity (Extended Mix) (3:29)
-03. Alex Morph & Kim Kiona - Coming Home (Vocal Mix) (5:33)
-04. Factor B - Something Like A Cure (Extended Mix) (4:55)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926794AD2B4AE62C9F1473224E0C7025FBB82D1C
 ```
 
 

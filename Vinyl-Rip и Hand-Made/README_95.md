@@ -1,3 +1,57 @@
+###  Публикация: 1098599   (908581) от 30.01.2017
+
+Tiёsto - Parade Of The Athletes (Limited Vinyl Edition) (2004) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908581.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tiesto - Heroes (9:24)
+B1. Tiesto - Breda 8pm (DJ Montana Edit) (8:44)
+C1. Tiesto - Ancient History (8:39)
+D1. Tiesto - Euphoria (7:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7650CE41A392D200F5473D6C4B3FA4DE024B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098253   (909929) от 29.01.2017
+
+Jean-Michel Jarre - Oxygene Trilogy - The 40th Anniversary Edition (2016) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oxygene 1-6 (1976)
+A1. Oxygene (Part 1) (7:39)
+A2. Oxygene (Part 2) (7:47)
+A4. Oxygene (Part 3) (3:15)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33814FDB42EB12E482E61B5C65DA86829BF1A968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098242   (910003) от 29.01.2017
 
 Jean-Michel Jarre - Oxygene Trilogy - The 40th Anniversary Edition (2016) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Electronic, Ambient>
@@ -638,57 +692,6 @@ A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625617   (938360) от 09.03.2013
-
-И. Кальман - Оперетта Принцесса цирка (1973) /2 Lp/ [FLAC 2.0 24/96 |Vinyl-Rip]<Classic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7F4EC240E47DAE7840D372745C0DE32FF37E07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983234   (939704) от 08.02.2016
-
-Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
 ```
 
 

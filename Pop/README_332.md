@@ -1,3 +1,408 @@
+###  Публикация: 1360009   (961786) от 14.02.2020
+
+Артур Пирожков - Всё о любви (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961786.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Летим со мной
+2. Чужая
+3. Кукла
+4. Она решила сдаться(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B59D0AB8415C4BB7CC494AAB5B3A0C8590D7A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360213   (961807) от 14.02.2020
+
+Ирина Аллегрова - Бывшие… (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наводнение
+2. Бывшие
+3. В городе серых облаков
+4. Города(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F41888BB6C01FA20769AA59B9347002472F4F7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360210   (961813) от 14.02.2020
+
+Александр Серов - Крик на причале (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961813.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Весна
+2. Уже
+3. Размолвка
+4. Катарина(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F9D0B743FF9C5C4360F5B818D50DCDF2037D5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360212   (961844) от 14.02.2020
+
+Наташа Королёва - Неизданное (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Перемена
+2. Танец на крыше
+3. Желтые тюльпаны (Remix)
+4. Почему умирает любовь (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09DED6D9E112FAEBAB17EB8B662FC8012D115BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360124   (961883) от 14.02.2020
+
+Justin Bieber - Changes (2020) [MP3|320 Kbps] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Around Me
+02. Habitual
+03. Come Around Me
+04. Intentions(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F946E614EA3CF2E333D20DC0C569257FBD9905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359615   (961888) от 14.02.2020
+
+Reflex - Сойти С Ума (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сойти С Ума (4:06)
+02. Сколько Лет, Сколько Зим (4:04)
+03. Дальний Свет (3:35)
+04. Встречай Новый День (4:05)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E88B350ABB15B44540664812E7F4EAFDBE24011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359617   (961922) от 14.02.2020
+
+Игорёк - Любовь Без Денег (2001) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хэй, Ребята! (3:30)
+02. Подождем (3:27)
+03. Держаться Нету Больше Сил (3:55)
+04. Доигрался-Навлюблялся (4:15)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425F2B905DF073F55DF78F0DF86F5AC557A50EB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359613   (961939) от 14.02.2020
+
+ЯК-40 - Где-то далеко (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где-то далеко (оriginal Mix) (4:12)
+02. Плохо мне (original mix) (3:40)
+03. Да, начихать (D & R Будь здоров Remix) (3:40)
+04. Где-то далеко (D & R Колыма Remix) (4:31)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11777D45F889603F03775AE55F510E1EBFC90BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359611   (961986) от 14.02.2020
+
+Орбита - Raketa (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вот Такая Любовь [3:33]
+02. Что Же Делать [5:05]
+03. Нарисуй [4:09]
+04. Последний Раз [4:15](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270DA909B8F006B4A7E1B43822BB50825C80D013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978833   (962159) от 24.01.2016
+
+VA - Piano Music For Weddings (2011) [MP3|320 кб/с] <Pop, Easy listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Only Just Begun (Stan Whitmire) (3:20)
+02. I Will Always Love You (Pat Coil) (5:02)
+03. The Wind Beneath My Wings (David Hamilton) (4:59)
+04. So This Is Love (The Cinderella Waltz) (David Huntsinger) (3:07)(   Читать дальше...   )Жанр: Pop, Easy listeningПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CBD9BECA0C7A2D1A47BADB75B0129D58BA0379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978563   (962512) от 24.01.2016
+
+Philippe Chatel - Renaissance (2016) [MP3|320 кб/с] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 heures du matin (2:49)
+02. L'absence (4:07)
+03. La fille dans la bouteille (3:03)
+04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5836D223A03707FE1829C16D1F7C37119F704E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359704   (963092) от 13.02.2020
+
+VA - 100 Greatest Jukebox Hits (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Waterboys - The Whole Of The Moon (2004 Remaster) 4:59
+002. Bob Dylan - Like A Rolling Stone 6:10
+003. The Rolling Stones - Sympathy For The Devil 6:18
+004. Led Zeppelin - Whole Lotta Love (2012 Remaster) 5:35(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8813FEBA5B6076CAC0ACAC7FA6E16251128BCA19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359374   (963093) от 13.02.2020
+
+VA - Disco Disco Disco (1989) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buckbeats - Daydream (6:21)
+02. Den Harrow - Don't Break My Heart (8:26)
+03. Rouge - Loving Me Totally (5:23)
+04. Buckbeats - Dancing Through The Night (3:53)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C18AA5A497C796718F7D595921D7C2929B6282D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359815   (963162) от 13.02.2020
+
+Ihsan Al Munzer - Belly Dance Disco (1979) Reissue CD, 2020, BBE [MP3|320 Kbps] <Disco, Instrumental, Funk Soul, Folk, World>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls Of Iskandariah (2:37)
+02. Night Entertainer (Azef El Layl) (2:24)
+03. The Joy Of Lina (Farha) (4:37)
+04. Dance Of Tenderness (4:06)(   Читать дальше...   )Жанр: Disco, Instrumental, Funk Soul, Folk, WorldПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CA361CFD2BD4C2E8C9DC4B495B89F5565F1FE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359982   (963264) от 13.02.2020
+
+Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Haunt You (02:32)
+02. Need Your Love (03:51)
+03. How to Forgive (03:36)
+04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978342   (963298) от 23.01.2016
 
 VA - Танцевальный рай 36 (2016) [MP3|320 кб/с] <Pop, Eurodance>
@@ -290,411 +695,6 @@ Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359282   (965065) от 11.02.2020
-
-Юлия Савичева - CLV (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иди вперёд
-02. CLV (Селяви)
-03. Забудь
-04. Тик-так(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4C61091AA07152980D6E1935BE16C3F1887365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359195   (965122) от 11.02.2020
-
-VA - Sanremo 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965122.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Elodie - Andromeda (3:22)
-02. Elettra Lamborghini - Musica (E il resto scompare) (3:14)
-03. Alberto Urso - Il sole ad est (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48F81D9504FDBCF10EB804CDB871D3507E2C583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977715   (965487) от 21.01.2016
-
-F.R. David - Greatest Hits (1991) [APE|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Words
-02	Music
-03	Rocker Blues
-04	Long Distance Flight(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34B4E62A22C56DC01E6FC6C38F1F95F7CC32C16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977549   (965546) от 21.01.2016
-
-VA - Nonplusultra: Pop 70er (2007) 5CD Box-Set [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 70-х годов прошлого столетия01. Pop Tops - Mammy Blue (03:53)
-02. Smokie - Lay back in the arms of someone (04:07)
-03. Terry Jacks - Sesons in the sun (03:27)
-04. Bill Withers - Lovely day (Album Version) (04:08)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824AAB4FEBED1794FCA14EC1587443F7DADCE23F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977577   (965735) от 21.01.2016
-
-VA - Red Hot Hits (2005) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G4 - Bohemian Rhapsody (6:09)
-02. Jennifer Lopez - Get Right (3:47)
-03. Britney Spears - Do Something (3:23)
-04. Natasha Bedingfield - Unwritten (4:18)(   Читать дальше...   )Жанр: Pop, Rock, HouseПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E98E5B7432B321E3B3708E24B0B0D4F6708B40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977657   (965736) от 21.01.2016
-
-Sweetbox - Adagio (2004) [MP3|192 кб/с] <Pop, Modern Classical, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberty
-02. LIfe is cool
-03. Somethere
-04. Hate Without Frontiers(   Читать дальше...   )Жанр: Pop, Modern Classical, DowntempoПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C402651813DCFD608CB388E22526E2C9927A16D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977362   (965740) от 21.01.2016
-
-VA - DJ Soul Ballads vol.1 (2000) [APE|lossless|image+.cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whithey Houston - Exhale (Shoop Shoop)
-02. Mariah Carey feat. Boyz II Man - One Sweet Day
-03. Jon B. feat. Babyface - Someone To Love
-04. TLC - Red Light Special(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1935722C97B75471D9273C7655CFAAF3AA2D7AD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977685   (965746) от 21.01.2016
-
-Deborah Harry - Debravation (1993) [APE|Lossless|image+.cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can See Clearly
-02. Stability
-03. Strike Me Pink
-04. Rain(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D39D2EC139BBCCD68826F783A4764C450CCFAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977356   (966572) от 20.01.2016
-
-VA - Nonplusultra: Pop 90er (2007) 5CD Box-Set [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 90-х годов прошлого столетия01. Bangles - Eternal flame (Album Version) (03:57)
-02. Crash Test Dummies - Mmm Mmm Mmm Mmm (03:54)
-03. Shabba Ranks feat. Chevelle Franklin - Mr. Loverman (Radio Mix) (03:39)
-04. TLC - Waterfalls (Single Edit) (04:12)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13AB26C57E55E933484BEF8232FEEA3121CFA42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977225   (966633) от 20.01.2016
-
-VA - Nonplusultra: Pop 80er (2007) 5CD Box-Set [MP3|192 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 80-х годов прошлого столетия01. Bangles - Eternal flame (La flama enternal) (Album Version) (03:55)
-02. Marvin Gaye - Sexual healing (Album Version) (03:58)
-03. Cyndi Lauper - True colors (Album Version) (03:49)
-04. Terence Trent D'Arby - Sign your name (Album Version) (04:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977C9C8D94A107BD4AED84E15979AACA270FEE48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358754   (967133) от 09.02.2020
-
-Al Bano & Romina Power - Raccogli l'attimo (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raccogli l’attimo
-02. Per troppo amore
-03. La luce che hai
-04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28967F9C1FE420EB4E3A9F20CEA7E0C75971640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358673   (967225) от 09.02.2020
-
-VA - 100 Greatest One Hit Wonders (2020) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Morrison - Return of the Mack
-002. Jet - Are You Gonna Be My Girl
-003. Shampoo - Trouble
-004. Deee-Lite - Groove Is in the Heart(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AA05C362783DB9288B0736618425C1680B26A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358825   (967310) от 09.02.2020
-
-VA - 100 Greatest Guilty Pleasures: Cheesy Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Barenaked Ladies - One Week
-002. a-ha - Take on Me
-003. Limahl - Never Ending Story
-004. Deee-Lite - Groove Is in the Heart(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3C59CFC96174A32C99E88D41D50224EC8B0366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976844   (967396) от 19.01.2016
-
-VA - Дискотека СССР - Сборник поп-музыки (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Муромов - Яблоки на Снегу (4:16)
-02. С.Васюта И Гр. 'Сладкий Сон' - На Белом Покрывале Января (5:26)
-03. Империя - Поезд на Ленинград (4:47)
-04. Рома Жуков - Я люблю вас, Девочки (4:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DC166CDB0E7D622F49DC82AE4F1B5060CB25FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976905   (967710) от 19.01.2016
-
-VA - Divas of Dance, Vol. 4 (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcotic Thrust - I Like It (3:06)
-02. Katrina - Sunshine (4:30)
-03. Soul Sistas - I'm Watching You (4:52)
-04. Clueless feat.Donna - Last Dance (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 1:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968D4A651CE9BE801FC5645E7E800C6039167888
 ```
 
 

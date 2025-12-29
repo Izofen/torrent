@@ -1,3 +1,273 @@
+###  Публикация: 1284211   (730048) от 20.02.2019
+
+VA - Traveling All Time: Downtempo Chill Out (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountains & Rivers - Eternal Heart (Original Mix) 4:51
+02. Saps & Prins - Morgenstrahlen (Original Mix) 4:48
+03. Trik Minder - Managing Time (Original Mix) 5:04
+04. Mantrox - Make It (Original Mix) 5:09(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Lounge, ElectronicaПродолжительность: 03:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A881137F6B463DE3C45B9EC4595B188B949F1DF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284215   (730049) от 20.02.2019
+
+VA - Luxury Lounge Vol.1 (Special Selected Anthems) (2019) [MP3|320 Kbps] <Downtempo, ChillOut, BossaNova>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isabel Morales Rey - Portugal (Original Mix) 4:02
+02. Lazy Hammock - Wavedrops (Soulchill Remix) 3:47
+03. Key Of Dreams - The First Time Ever (Original Mix) 2:55
+04. Jack Jones - American Pie (Original Mix) 2:53(   Читать дальше...   )Жанр: Downtempo, ChillOut, BossaNova, Lounge, ElectronicaПродолжительность: 03:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A01C1505190B84C48A000AA95AE2372118D002C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284224   (730053) от 20.02.2019
+
+VA - Chillout Night (Orange Juice Records) (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AMS - Mo (Original Mix) 6:33
+02. Baldwin Gonzalez - Lia (Chillout Edit) 3:39
+03. Art Doherty - Platinum (Deep Chill Mix) 6:42
+04. Bennie Smith - Big Plan (Windows & Chill Mix) 6:10(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Lounge, ElectronicaПродолжительность: 03:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8ED97142A1D36F2B9540E06A042E2656AEF6CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284293   (730057) от 20.02.2019
+
+Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Enchanter (07:16)
+02. Three Faced Queen (06:08)
+03. Court of Light (05:51)
+04. Jester (06:43)Жанр: TechnoПродолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09595EAAF23BB1687BFA61910186FAD3C52857BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128160   (730077) от 23.04.2017
+
+VA - Big House Beats - Audio Luxury Remixes (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeppirate feat. Vilia - Love (Audio Luxury Remix) 05:40
+02. Stereopie - L.U. (Audio Luxury Remix) 06:14
+03. Anturage feat. Leusin - Moth (Audio Luxury Remix) 06:52
+04. Sergey Silvertone - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E69C63B38DB2E0E60FB372D9A5E83D9FD08693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284208   (730087) от 20.02.2019
+
+VA - Colorful Downbeats Vol . 2 (2019) [MP3|320 Kbps] <Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GMO - Journey into Sound (7:24)
+02. Zen Baboon - Full Moon (Nibana Remix) (9:22)
+03. Kill The Geek - High and Low Places (5:48)
+04. Koan - Dazed (6:56)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75DCE6CBE1224ECEB6322A72D546F7E4D09D333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284151   (730093) от 20.02.2019
+
+VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
+02. Dreamy - Scar (Radio Cut) 04:04
+03. George Harrold - Ayuhuasca (Radio Cut) 03:46
+04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284159   (730094) от 20.02.2019
+
+VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Weo - Lazy Weekend (Soty & Seven24 Remix) 06:20
+02. Moussa Clarke - Astra Aurora (Nio March Remix) 05:08
+03. ZANIO - Will (I-Vision Remix) 08:11
+04. Sunlight Project - Back To Me Somehow (Kana 'Back 2 The 80s' Remix) 06:27(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA452B5E6402697CCC70C725628383E0467D8DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284157   (730098) от 20.02.2019
+
+VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Rimsky feat. Diana Leah - One Last Time (Vadim Bonkrashkov Extended Remix) 05:46
+02. Roman Messer - Lost (Ruslan Radriges Extended Remix) 05:16
+03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 05:31
+04. Jordy Eley - Cosmic Colors (Original Mix) 04:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127683   (730443) от 22.04.2017
+
+VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Foxt - Pulsar (Original Mix)  7:05
+02.  Leoo Eco - Flying Away (Original Mix)  6:24
+03.  Platunoff - Global Connection (Phase Difference Remix)  6:28
+04.  Yearzwalker - The Night (Original Mix)  4:59(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8C285D13CA62CBDA5E4E065F7D28F291956BC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127690   (730600) от 22.04.2017
 
 VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progressive House>
@@ -423,276 +693,6 @@ Maduk - Never Give Up (2016) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2E9C912617A0047C9D94E95BF05068BA0D46A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127392   (731842) от 21.04.2017
-
-Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Spider (feat. Lightnin Hopkins)
-02. Step Two (feat. Lilja Bloom)
-03. Soul Fever Blues (feat. Muddy Waters)
-04. Everything of My Haert(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F8021EB31E8550E0AD8C782BC852C928A294F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127360   (731848) от 21.04.2017
-
-VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha 9 - The Night Is Ours (2:51)
-02. Joonas Hahmo & K-System - Ymana (2:39)
-03. Alexandre Bergheau - Summer's Gone (Yoel Lewis Remix) (2:04)
-04. Fatum - Draco (3:33)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 04:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0696A004EF69C8114A2C7713F5F38942B60C6674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283786   (731948) от 18.02.2019
-
-VA - Cleopatra Records presents: Industrial Music For Fitness (2009) [MP3|320 Kbps] <Industrial, Aggrotech, EBM>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Unit - Corroded Decay
-02. Razed In Black - A Drug Against War
-03. Burning Retna - Why
-04. Pitbull Daycare - You Make Me Feel So Dead (As Heard In Saw)(   Читать дальше...   )Жанр: Industrial, Aggrotech, EBMПродолжительность: 03:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BE9FA2029D4063AEC3AFAED1DEAF2032DD478C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283759   (732046) от 18.02.2019
-
-Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarre Love Triangle (02:48)
-02. Sorry for Laughing (03:11)
-03. Wishing (If I Had a Photograph of You) (02:43)
-04. Shack Up (03:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127473   (732065) от 21.04.2017
-
-Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narkopop 1 (04:52)
-02. Narkopop 2 (11:22)
-03. Narkopop 3 (04:24)
-04. Narkopop 4 (04:10)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E1B611106CD51248DED93E0AA18C185A790C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127375   (732074) от 21.04.2017
-
-Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone - Leap Of Faith (7:01)
-02. Solarstone - Eclipse (6:02)
-03. Solarstone with Rabbii - Untitled Love (5:20)
-04. Solarstone with Alex Karweit - Choosing His Angels (4:41)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FBDE641C7923422E120DFB69F970ED713129AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127415   (732075) от 21.04.2017
-
-00.db (John 00 Fleming & The Digital Blonde) - Heaven & Hell (2009) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 00.db - Magna (2:17)
-02. 00.db - Indigo (9:48)
-03. 00.db - Lantra (Album Version) (8:41)
-04. 00.db - Ark (Album Version) (7:28)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, AmbientПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91BB5C4A127F7E1E2472F728DF51D7DC7E6D277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283886   (732141) от 18.02.2019
-
-Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beetlejuice (Original Mix)
-02.Wendle (Original Mix)
-03.Birch (Original Mix)
-04.Utterly Butterly (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B63E9E73F9C545FAFB3E0CF7F0380A2113EA6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283888   (732144) от 18.02.2019
-
-autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Electronic, Dark Jazz>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulterior Motives (2:10)
-02. A Torture By Hope (3:11)
-03. Apathic Fingertips (3:07)
-04. Blueberry Eyes (3:23)(   Читать дальше...   )Производство: floe - FLOE009Жанр: Dark Ambient, Electronic, Dark JazzПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127410   (732163) от 21.04.2017
-
-VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ToShuk - Amentia (Original Mix) (6:55)
-02. Andrei Pavlov - Elysium (Original Mix) (7:08)
-03. Hesham Watany - Twisted Thoughts (Original Mix) (5:59)
-04. Gabriel Volt - Night Mode (Original Mix) (7:07)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 05:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3794ECACF701D8F2D317562A5A0FBC878ED500E8
 ```
 
 

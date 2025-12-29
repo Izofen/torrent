@@ -1,3 +1,165 @@
+###  Публикация: 1128981   (724366) от 27.04.2017
+
+VA - 100-ка популярных весенних хитов на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Лекс - Кроме Нас 3:29
+002. Vikki - Помолчим 3:16
+003. Гена Селезнев - Ливни 3:13
+004. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B6BCA8A50C7C511147E0314C8B104029CDC190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128904   (724368) от 27.04.2017
+
+VA - Козырная песня. Версия № 10 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леонид Телешев - Не Моя Ты 3:38
+002. Сергей Матвеев - Зеркала 3:41
+003. Алексей Плотников - Я Вернулся Москва 3:37
+004. Александр Вестов - Миллион Облаков 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A2BADDB1718E1018AE7B42C8E174FE65DA8DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128819   (724370) от 27.04.2017
+
+VA - Deep House Collection Vol.118 (2017) [MP3|256-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - Mase - My Inner Voices (Original Mix) 6:52
+002. ACAY - Tu Alma  (Original mix) 5:59
+003. Acidbro - Flex (Original Mix) 5:25
+004. Aiway - AE  (Original mix) 4:57(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECEBEF169C3A3F4219966AFB71D5E3D5CDB1678B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023537   (724401) от 05.06.2016
+
+VA - Vocal Chillstep Selected Works [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kozoro Feat. Noctilucent - Curious (Miro Remix) [04:16]
+02. Xov - Paradise [03:41]
+03. Kiings Feat. Christine Hoberg - You Can't See Me [04:08]
+04. London Grammar - Strong (Manila Killa Remix) [03:40](   Читать дальше...   )Жанр: ChillstepПродолжительность: 02:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10AD23D2E1AD2710E8ADA36411AC939935EC655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023298   (724405) от 05.06.2016
+
+Second Breath - Unknown Bands Vol.9 (2016) [MP3|123-320 кб/с] <Alt.Metal / Alt.Rock / Modern Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essential End - Sacrifice
+02. Civil Drone - Brain Pillow
+03. Untold Salem - S.D.L.
+04. The Lost Poets - Danny Electro(   Читать дальше...   )Жанр: Alt.Metal / Alt.Rock / Modern Hard RockПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41585D6E90AC08147DE4FAF33789097CCA29E60E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023447   (724407) от 05.06.2016
+
+VA - Going Deeper: Lounge Erotic Tantra Affair and Sexy Chill Out Kamasutra Intimacy Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art of Chill - One Day - Boys of Noize Mix
+02. Bilitis - Air - Love 2 Lounge Mix
+03. Smooth Rebel - Turn Out the Light - Secret Love Mix
+04. Soul Diver - Deeper than Deep - Pure Chill Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75731371067AC2ADE00680D15D8A4353FCAC2073
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023527   (724409) от 05.06.2016
 
 VA - Traxsource Top 100 April - May (2016) [MP3|320 кб/с] <Club, House, Minimal, Soulful, Indie Dance, Nu Disco>
@@ -529,168 +691,6 @@ VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B87701B3E6E977C77CC694792955D249D1DB0DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285015   (724774) от 24.02.2019
-
-VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Interfacer - Truck
-002. Kid Massive - Hideway
-003. Luca Beni - Always That Boogie
-004. Ilias Takahamovic - Shuck(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 08:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C971D7FED5C4C29FE66303B9AD3CBDD80F10AEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284939   (724785) от 24.02.2019
-
-VA - Mystica Depth (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724785.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Makia Blue - Voyage To Farland
-002. G.B. Beckers - Klangschwaden
-003. Earth Connect - My Kind Of Disco
-004. Flower Bath - Index Plan (Feat. Aka Carpenter)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F51F7B2BB7DBC516EF627E7E6574D40EA7F6F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128865   (724826) от 27.04.2017
-
-VA - Музыкальный подарок на Europa Plus. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Шаумаров - Психопаты 3:23
-002. Антон Зацепин - Убежала 3:46
-003. Диана Громова - Не Хочется 2:58
-004. Александр Шоуа - Москва-Абхазия 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E5BCD7921F6DB3C32322C42A7B56CF1582F760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128872   (724828) от 27.04.2017
-
-VA - Зажигай вместе с Europa Plus (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Шабашов - У Красивых Глаз 4:11
-002. Владимир Винс - Зажигаю Любовь 4:05
-003. Андрей Леницкий Feat. Chillvoice - Крылья 4:08
-004. Мария Миа - Я Буду 2:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D639A9E64ABA5928BC8C66C54F6CAFF04FE187C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128886   (724829) от 27.04.2017
-
-VA - Положительный заряд Hit FM. Выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Абдулкарим Каримов - Бухгалтер 3:41
-002. Аполлинария - Околдована 3:00
-003. Alex Belak - Невыносимая 2:58
-004. Стас Костюшкин - Бабушка 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880C6EC6249BD925BF07F78697EC69C686AB3DCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129007   (724830) от 27.04.2017
-
-VA - LUXEmusic - Dance Super Chart Vol.115 (2017) [MP3|320 Kbps] <Club House, Dance, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alekseev vs Modernator - Пьяное Солнце (Denis Denisoff Mash Up)  4:44
-02. Alle Farben - Bad Ideas (Denis First & Reznikov Radio Remix)  2:31
-03. Artik & Asti - Неделимы (Denis First Radio Remix)  3:00
-04. Artik & Asti - Номер 1 (DJ Tarantino & DJ Dyxanin Remix)  4:09(   Читать дальше...   )Жанр: Club House, Dance, Deep HouseПродолжительность: 03:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CD8D05BB49376F810F55A9D24F1DBFAE3620F4
 ```
 
 

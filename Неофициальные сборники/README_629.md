@@ -1,3 +1,165 @@
+###  Публикация: 981953   (950171) от 02.02.2016
+
+VA - Sunday Privilege, Vol. 5 (25 Luxury Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vario Molante - Opportunamente - Original Mix (05:10)
+02. Seven Suite - July in Paris - Original Mix (04:24)
+03. Himalaya - Incred Part - Original Mix (02:45)
+04. White Groove - Transito - Original Mix (05:31)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826254247D995C5783775C6ADF17571CD474B213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981975   (950175) от 02.02.2016
+
+VA - Lounge Teasers (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.T. Project - Yagan [02:11]
+02. Lana Lupercio - Thin Ice [03:23]
+03. Daki 2000 - Helios [05:29]
+04. Laquanda Linderman - For Tina [04:19](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D01E05090197D37E8D33FF3F32AC8D2E03F2611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089404   (950381) от 04.01.2017
+
+Amure - Unknown (2017) [MP3|320 Kbps] <Enigmatic, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  First Contact [00:06:40]
+02.  I Can Close My Eyes [00:05:33]
+03.  Mysterious Voices [00:08:14]
+04.  Water Park [00:05:26](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C916B7FB690C362D87B658BA606964008DB552B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088782   (950556) от 04.01.2017
+
+VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950556.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stevie Wonder Feat. Ariana Grande - Faith 2:41
+002. Sia - Never Give Up 3:42
+003. John Legend - Surefire 4:03
+004. Tommy Trash - Lover 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089526   (950561) от 04.01.2017
+
+VA - Acoustic Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah Dorman - Hurts
+02. Ginnie - Secret Love Song
+03. Landa - Can't Feel My Face
+04. Karizma Duo - Video Games(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159324C00D3F4B9314990FEF25BF0515EDF14F3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089423   (950598) от 04.01.2017
+
+VA - Orbital - Best275z (1992 - 2016) [MP3|320 Kbps] <Electronic, Techno, Downtempo, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Technologicque Park 05:44
+02 Beached ( feat. Angelo Badalamenti) 03:38
+03 The Saint 04:33
+04 Funny Break (One Is Enough) 04:56(   Читать дальше...   )Жанр: Electronic, Techno, Downtempo, ExperimentalПродолжительность: 05:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D09C92831A7BA8DAFACA89F8B3592E897DBFB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089722   (950640) от 04.01.2017
 
 VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -534,168 +696,6 @@ VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DAAC3FFEBF00BBD9E1D68D333E544379F599CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089357   (951932) от 03.01.2017
-
-VA - Empire Records - Chill Out 7 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aatlas - Make Love (Lovejet & Bonnie Rabson Remix)
-02. Alex Dee Gladenko - Attraction (Original Mix)
-03. Paul Rays - Moon (Ciro Parcheri & Vincenzo Lanzara Remix)
-04. J. Lisk Feat. Jessi D - Champagne(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99D06CC7B3D0556D5E733EC39727D8E9FE0AFA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089305   (951945) от 03.01.2017
-
-VA - Noire Flawless Deep House (2017) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juan M - Lost Beach 6:53
-002. Jaques Le Noir - Mabui 5:23
-003. Jack Jonaz - Every Morning 6:22
-004. Roberta Gato - Wipe Down 4:41(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5BE36F71C4536D16439F388F9AE4635E15ABC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361944   (952240) от 21.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 21.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Billie Eilish - Everything I Wanted (4:05)
-2.Carla Morrison - Disfruto (Audioiko Remix) (3:15)
-3.The Weeknd - Blinding Lights (3:21)
-4.Anthony Keyrouz - Love Yourself (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96FB5A960A359CDB82956F915DE252DB6B387F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981414   (952536) от 31.01.2016
-
-VA - Зайцев нет. Январский топ 100 (2016) [MP3|256 - 320 кб/с] <Pop, Dance, Rap, R&B, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952536.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Воробьев - Сумасшедшая (02:57)
-002. Ost Up (Остап) - Всё равно моя (03:46)
-003. Егор Крид - Будильник (03:25)
-004. Аполлинария - Лучший из лучших (03:16)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, RockПродолжительность: 06:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05C5ABE66FDCE44C5CCC01368A62D139867161B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981291   (952542) от 31.01.2016
-
-VA - Pussy Brats - Vintage American Adult Film Soundtrack Music (2013) [MP3|~245 кб/с (V0)] <Electronic, Jazz-Funk, Disco, Synth, Adult Soundtrack>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Bennett - Ergon (From "Box Ball" 1977) (1:35)
-02. Brian Bennett & Alan Hawkshaw - Wallop (From "Barbara Broadcast" 1977) (3:31)
-03. Brian Bennett - Rocking Horse (From "Babyface" 1977) (3:30)
-04. Duncan Lamont - The Fuzz (From "The Opening Of Misty Beethoven" 1975) (2:48)(   Читать дальше...   )Жанр: Electronic, Jazz-Funk, Disco, Synth, Adult SoundtrackПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3713EB37AB99AC285795B1FD65A27CC40A95CB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981131   (952680) от 31.01.2016
-
-VA - Наша Музыка (Лучшее 2014 - 2015) [MP3|256 кб/с] <Поп, Рок, Рэп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шекспир - Повесть (Single 2015) (03:52)
-02. Exister - C. F. B. D (04:07)
-03. Eyes To See - Quest For Ideal (05:54)
-04. The Irbis - Посмотри! (04:22)(   Читать дальше...   )Жанр: Поп, Рок, РэпПродолжительность: 05:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B68A95656A14D2B8F3D0E22B514E2E08274428
 ```
 
 

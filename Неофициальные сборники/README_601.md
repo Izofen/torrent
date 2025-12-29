@@ -1,3 +1,165 @@
+###  Публикация: 1099511   (905428) от 01.02.2017
+
+VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Redgi - Можешь 3:04
+002. Jolya Pi - Не Играем 2:34
+003. Даша Данилова - Останься В Прошлом 4:15
+004. Роза Мажонц - Мадонна 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAA87F4ED03977F718A61D71742CA66CA7CBC17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099505   (905432) от 01.02.2017
+
+VA - Полный отрыв. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905432.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tori Kelly - Don't You Worry 'bout A Thing 4:02
+002. Olisha - Не Трави 3:53
+003. Тина Кароль - Lost In The Rain 3:18
+004. Регина Тодоренко - Не Обижу 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA34C75592B45C28AE89D356E6460157D505B757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099379   (905436) от 01.02.2017
+
+VA - Finding Around Blessing (Energy Tech Trance) 001 (2017) [MP3|320 Kbps] <Trance, Harmonic, Stadium Trance, Melodic, Energy, Tech-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vadim Spark & Dennis Graft - Spells (Attila Syah Remix)  6:23
+02.  Fabio XB & Marell feat. Christina Novelli - Can't Let Go (LTN Remix)  5:42
+03.  Aurora Night vs Iversoon & Alex Daf - Osiris (Original Mix)  6:51
+04.  Damian Wasse - United States (Original Mix)  6:52(   Читать дальше...   )Жанр: Trance, Harmonic, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265C5E092DB4A884E106099793E470318BA4FC96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099491   (905438) от 01.02.2017
+
+VA - Танцевальная зима. Снежная сотка. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Шоуа - Как Жаль 4:02
+002. Егор Крид - Мало Так Мало 3:07
+003. Adlernebel - The Forgotten Trail 8:39
+004. Junge - Chasing Your Shadow 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54A33826F6FEE82B4D98A827385C16F0D7DE986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368994   (905576) от 22.03.2020
+
+VA - Progressive Electro: EDM Party (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_905576.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ben Tyler - Everytime
+002. Mste - Raster Flash
+003. Rigel - Singularity Spike
+004. Katrin Souza - A Dark Forest(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73D92C67E107AAFDC2D26285D850D45A2F844B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369083   (905580) от 22.03.2020
+
+VA - Beatport Tech House: Electro Sound Pack #35 (2020) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sala - Siouxsie
+002. Chris Knipp - Baldhead
+003. Gianni B Goode - My Desire (Techno Mix)
+004. Jan Darsel - Dark Butterfly(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 11:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2D397455E54035994B8050B608592C0D88C197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368954   (905648) от 22.03.2020
 
 VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -539,168 +701,6 @@ VA - Empire Garage And U.S.House (2011 - 2013) [MP3|191-320 кб/с] <House, Fun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C8E2C5886C9F5B36C7999A59687C988070F2D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991503   (906551) от 28.02.2016
-
-VA - Avantgarde Chillout Vol 3 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflex Artists - A Timbre Touch (Slow Down Mix) [05:35]
-02. Joxephad - The Piano for Annapaola [05:35]
-03. Arkadash - Up in the Trees (Beatizer Remix) [04:16]
-04. Soulful-Cafe - Giani Sent His Donkey [02:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87B2EA6BB59D14180B2EB80D779271ACB7B7CC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991495   (906558) от 28.02.2016
-
-VA - Avantgarde Chillout Vol 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pasqualle - Symbiose - Higher Mix [02:51]
-02. Masa - Cosmic Chant [06:09]
-03. Ellabi - Skyflute [06:07]
-04. DJ Kadarka - Promise Me - Chillout Remix [06:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2755CB8AB8E8A03D2E7DDB83A2DA5B91FF70DE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991474   (906566) от 28.02.2016
-
-VA - Sexy House (Cool Rhythms) (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Factor 7 - The Latest News (Sunrise Avenue Mix)
-02. Tribaphonic - Reception (Pacific Groove Mix)
-03. Love Funky - Lesson of Funky Deep (John Cambridge Mix)
-04. Gaetan Rivers - Movements Deep (Houzy Express Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E66D694B989368F6693C467A61C21267DAEA829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099148   (906788) от 31.01.2017
-
-VA - Зайцев.Нет: Лучшие Новинки Января (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hardwell - Party Till The Daylight  3:11
-02.  Юлианна Караулова - Разбитая Любовь (DJ Pitkin Remix)  3:06
-03.  Nelly Furtado - Cold Hard Truth  2:54
-04.  Ed Sheeran - Shape of You  3:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4568D4033522407D46298400975EEA4E3D36A2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099104   (906853) от 31.01.2017
-
-VA - Top Hits (2017) [MP3|217-273 Kbps] <Tropical, Nu Disco, Indie Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rag 'N' Bone - Human 03:19
-02. The Chainsmokers Feat. Hasley - Closer 04:05
-03. Gnash Feat. Olivia O' Brien - I Hate U, I Love U 03:47
-04. J - Ax & Fedez Feat. Stash & Levante - Assenzio 04:10(   Читать дальше...   )Жанр: Tropical, Nu Disco, Indie DanceПродолжительность: 02:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7E7F53532267D7C4D7F9D7CC22DAEC53CC2BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491904   (906906) от 27.08.2021
-
-VA - Новички в попсе Vol 10 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЛИЛА - Иначе не усну (prod. by Romasev) (2:30)
-02. ermakov - вали! (1:56)
-03. NAiTA - Что же мы наделали (3:18)
-04. Nick Rouze, Magic Flowers - Твоя вина (2:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E27337B9AF7FC2B14047DCDEF662DF47311944B
 ```
 
 

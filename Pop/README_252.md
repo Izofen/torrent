@@ -1,3 +1,111 @@
+###  Публикация: 1287205   (705358) от 06.03.2019
+
+VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kc & The Sunshine Band - Keep It Comin' Love (4:30)
+02. Montana - I Love Music (4:35)
+03. The Braxtons - The Boss (5:57)
+04. Randy Crawford - Wishing On A Star (4:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 2:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401428   (705484) от 12.08.2020
+
+Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (05:18)
+02. Stop The Rain In The Night (03:34)
+03. Love Is Just A Word (03:18)
+04. Time For Love (Super Action Mix) (05:20)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026188   (705876) от 14.06.2016
+
+Шоколад - Первый альбом (2004) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Для тебя сегодня я пою
+02. Забудь, прости, прощай
+03. Натали
+04. Елена(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9430F1C8809DBB7D4A1DADD2CE9DF1676FE4909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220327   (705996) от 18.04.2018
+
+My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Indigo
+02. Crash and Burn
+03. Out of the Darkness
+04. Indian Summer(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00811D942443650C6CEEBFFAC51C01BD8D507176
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026181   (706040) от 14.06.2016
 
 Roxette - Sleeping In My Car (1994) Single [FLAC|Lossless|tracks] <Pop Rock>
@@ -454,6 +562,54 @@ magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209465   (709266) от 12.06.2010
+
+Наталья Ветлицкая - Дискография  (1993-2004) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 10:52:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209561   (709269) от 12.06.2010
+
+Дмитрий Маликов - Коллекция альбомов (1993-2009) [MP3|320 kbps]<POP>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 16:16:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401494   (709394) от 10.08.2020
 
 VA - Happy Acoustic Covers Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -531,166 +687,6 @@ VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5073A8FA54CBFB3ADE4C1163CF9C97687F63487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219978   (709860) от 16.04.2018
-
-Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приятное редкое германское диско со звуковыми элементами панфлейты.01. Start The Fire (4:13)
-02. Pandora's Box (4:11)
-03. Magic Music (4:26)
-04. Pantomime (3:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7741E0AD0235178E9B26E1139A36986B6E703828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025470   (709930) от 12.06.2016
-
-Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chase (8:25)
-02. Love's Theme (5:33)
-03. (Theme from) Midnight Express (4:39)
-04. Istanbul Blues (3:22)(   Читать дальше...   )Жанр: Electronic, Disco, SoundtrackПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286CBBF8A7B6F7B7133DC96D64CE9FD116F9385E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219958   (709950) от 16.04.2018
-
-VA - Radio Italia Spring (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Non mi avete fatto niente - Ermal Meta & Fabrizio Moro
-02 Nessuno vuole essere Robin - Cesare Cremonini
-03 Da sola / In the night (feat. Tommaso Paradiso e Elisa) - Takagi & Ketra(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD47C2485C4850F61B8D27FBEC1382CFB681BAE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025459   (710024) от 12.06.2016
-
-Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Divorcio (04:00)
-02.  Corazon de papel (03:58)
-03.  Criollo soy (03:56)
-04.  Qui ganaste (03:02)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D12523B90CABF2A577D0FE300BC9C3163DB7946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025461   (710034) от 12.06.2016
-
-Giorgio and Chris - Loves In You, Loves In Me (1978) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's In You, Love's In Me (3:35)
-02. Keep It Together (3:26)
-03. I Can't Wait (9:35)
-04. Love Now, Hurt Later (6:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4492FE88A2780A2C13B4165F3E250316E45F8EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025699   (710098) от 12.06.2016
-
-Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up    [03:12]
-02. Fightin' Over MeЖанр: Pop, R'n'BПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
 ```
 
 

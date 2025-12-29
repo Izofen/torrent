@@ -1,3 +1,168 @@
+###  Публикация: 1613951   (1039099) от 20.02.2023
+
+Steve Hughes - 3 Albums (2022-2023) [MP3|320 Kbps] <Neo Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - More Channelings - Book One
+2022 - More Channelings - Book Two
+2023 - Visions of the Star Water CavesЖанр: Neo Progressive RockПродолжительность: 3 CD, 02:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C935C203A662032F848512504EB1555D91D73E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439978   (1039338) от 15.01.2021
+
+Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Scene (02:35)
+ 02. Mountains (07:29)
+ 03. Captive To The Moon (14:16)
+ 04. Nobody Watches The Sunrise (05:22)(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Jazz RockПродолжительность: 01:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED364FB7408390D9B0C939C097F880AE10DC6BCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613457   (1039579) от 18.02.2023
+
+Shocking Blue - The Blue Box (2017) 13CD (2017) [MP3|320 Kbps] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Not There
+02. You Really Got Me
+03. Shocking You!
+04. Radar Love(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 08:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89AB100327BCC27C1F4D7432A836586936BCDA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439799   (1039596) от 14.01.2021
+
+Crack The Sky - Tribes (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribes (04:37)
+ 02. Another Civil War (05:22)
+ 03. Dear Leaders (05:02)
+ 04. Blowing Up Detroit (04:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8F8569BB61847106347DF3DB5EB8C429E45FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439621   (1039605) от 14.01.2021
+
+Osi - Free (2006) Deluxe Edition, Remastered, 2021 [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sure You Will (03:46)
+ 02. Free (03:23)
+ 03. Go (04:16)
+ 04. All Gone Now (05:15)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121FCB355BC5D35D9B6E73D5409CCEB4EE324458
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257759   (1039676) от 13.01.2021
+
+The Black Keys - Discography (2002 - 2010) [MP3|320 kbps]<Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busted [02:33]
+02. Do the Rump [02:37]
+03. I'll Be Your Man [02:20]
+04. Countdown [02:38](   Читать дальше...   )01. Everlasting Light [03:23]
+02. Next Girl [03:18]
+03. Tighten Up [03:31]
+04. Howlin' For You [03:11](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D5DFD7ACD1A34BEECA53F6C4C3A534FFBDF87D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439472   (1039945) от 13.01.2021
 
 ProAge - 4. Wymiar (2021) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
@@ -533,168 +698,6 @@ IQ - IQ40 – Forty Years Of Prog Nonsense Archive Collection (2023) 2 CD, [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164FF8C6129C40FEF52CDED426B05D155E02ADAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437737   (1041964) от 05.01.2021
-
-Larkin Poe - Self Made Man (2020) [MP3|320 Kbps] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's A Self Made Man (03:02)
- 02. Holy Ghost Fire (03:23)
- 03. Keep Diggin' (03:13)
- 04. Back Down South (03:55)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DE1531FB1FF6F0D7AA5944E35FB0B3BB03EE48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437508   (1042051) от 05.01.2021
-
-Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquest (05:01)
- 02. Mission Control (03:51)
- 03. Out the Window (05:58)
- 04. Player 2 (04:10)(   Читать дальше...   )Жанр: Jam Rock, FusionПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10573416B41453A1187A8DCF8D63ED9FFFB25F18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437596   (1042055) от 05.01.2021
-
-Dorian Wilde - I Am Ready For Love (2020) [MP3|320 Kbps] <Progressive Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Ready For Love (03:48)
- 02. You Are Not So Far (02:31)
- 03. My Picture (04:19)
- 04. Mask (08:11)(   Читать дальше...   )Жанр: Progressive Rock, InstrumentalПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6591E6A979C96632074FC4C1225A8E72BFEBBFA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437528   (1042057) от 05.01.2021
-
-Adam Nitti - The World Is Loud (2021) [MP3|320 Kbps] <Progressive Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Is Loud (05:21)
- 02. Zombies (04:42)
- 03. The Locust (05:24)
- 04. Broken Dreams (04:56)(   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9EF4CAF004B63D5051B08F740188115079ED76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437197   (1042243) от 04.01.2021
-
-The Groundhogs - Split (1971) 50th Anniversary Edition, Reissue, 2020, Fire Records [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Split Pt. 1 (2003 Remastered Version) (04:30)
- 02 - Split Pt. 2 (2003 Remastered Version) (05:15)
- 03 - Split Pt. 3 (2003 Remastered Version) (04:31)
- 04 - Split Pt. 4 (2003 Remastered Version) (05:44)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FD65A00A6D98D943F8BBE1357F7647CC97D4C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437186   (1042556) от 03.01.2021
-
-Magick Brother & Mystic Sister - Magick Brother & Mystic Sister (2020) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia (04:57)
- 02. Waterforms (04:06)
- 03. The First Light (02:24)
- 04. Yogui Tea (05:16)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE262906B61D96CCBE2801F3527803F1A5844E55
 ```
 
 

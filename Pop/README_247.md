@@ -1,3 +1,90 @@
+###  Публикация: 505670   (689471) от 05.06.2012
+
+Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can’t Get You Out Of My Head
+02. Spinning Around
+03. I Should Be So Lucky
+04. Love At First Sight
+05. In Your Eyes
+06. Kids (with Robbie Williams)
+07. Better The Devil You Know
+08. All The Lovers
+09. Give Me Just A Little More Time
+10. Celebration(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288996   (689937) от 14.03.2019
+
+Blue System - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry Little Sarah (Maxi Version)
+02. My Bed Is Too Big
+03. Laila (Maxi Version)
+04. Under My Skin (Radio Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C2340244DC339E3D7EA4D15BA2C11ED73FEFDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289170   (690050) от 14.03.2019
+
+Леонид Агутин - 50 (2018) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я тебя не вижу
+02. Самба (feat. Willie Key)
+03. Две минуты жизни
+04. Она не вернётся(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5D02E15C992EA67CE6C6900F3AAEB2D971FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289163   (690063) от 14.03.2019
 
 Анжелика Варум - На Паузу (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -611,84 +698,6 @@ VA - La Dolce Vita! Italian Cool…From Rome To The Amalfi Coast (2015) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E214A384F893AE8D58C3E416BBE07BA41757E8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221577   (693085) от 25.04.2018
-
-Charisma - Out Of Time (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Fantasy, Fantasy Theme (8:08)
-02. Heaven Is Just One Night Away, Heavenly Night (8:07)
-03. Just Walk In My Shoes, Walkin' (8:05)
-04. Out Of Time, Time Is Running Out (8:12)Жанр: Electronic, DiscoПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB6282488F5448C025F2F9340D55CD0CC9B4250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133761   (693247) от 13.05.2017
-
-White Sea - Tropical Odds (2017) [FLAC|Lossless|tracks] <Indie Pop, Dream Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodline
-02. Arcadia
-03. Yesterday
-04. Stay Young, Get Stoned(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, SynthpopПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68F4419AFBAC93E7A2B103A52D649A12123112D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333712   (693296) от 07.05.2011
-
-Sade - The Ultimate Collection (2CD) (2011) [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFA6B6F342C6C8966DAC57A423E7AAA164EAB43
 ```
 
 

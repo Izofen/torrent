@@ -1,3 +1,191 @@
+###  Публикация: 1290117   (682076) от 18.03.2019
+
+øjeRum (ojeRum) - Nattesne (Eilean 85) (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Neofolk>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	I 	(4:45)
+02. 	II 	(2:42)
+03. 	III 	(4:42)
+04. 	IV 	(2:19)(   Читать дальше...   )Жанр: Electronic, Ambient, NeofolkПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCEA44D23036558E181C79D0EDD3F07492CCFE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289983   (682077) от 18.03.2019
+
+VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka J Master; Carlo M - El Numerado (Radio Mix)
+02. The Maximum - La Fuerza (Extended Mix)
+03. Alain Deejay - La Isla (feat. Flores Del Sol)
+04. Luka J Master - Conmigo (feat. Mairon Rodriguez & Xent) (Carlo M Extended)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEDF086105CE94AEA4B7BC14EF481BE11C65C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290019   (682086) от 18.03.2019
+
+VA - Cr2 Records Presents Miami Underground (2 CD) (2019) [MP3|320 Kbps] <House, Tech House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Roger That (UK) - How Does It Feel (Extended Mix) (07:02)
+02. Piem - You Better (Original Mix) (08:08)
+03. Julie McDermott - Don't Go (Ejeca Remix) (06:22)(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1860032621BD2149B9F1F5F4DDE1D9729F59B89A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290011   (682089) от 18.03.2019
+
+VA - Simma Black Presents Miami 2019 (2 CD) (2019) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Endor - Metronome (Original Mix) (04:49)
+02. Leon Benesty, Benny Royal & Shermanology - I Can't Take (Original Mix) (05:49)
+03. Javi Bora, Iban Montoro & Jazzman Wax - Go To Miami (Original Mix) (06:35)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76B3E07B218E66AC6FD0BD67BBE6C5F79FBEF6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028612   (682119) от 26.06.2016
+
+Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perplexagon Part 1 (2:03)
+02.Perplexagon Part 2 (5:21)
+03.Perplexagon Part 3 (5:27)
+04.Perplexagon Part 4 (5:26)(   Читать дальше...   )Жанр: Electronic, Ambient, SpacesynthПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B23BA1908A7511BBC0649721960F2F9B55D68A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028764   (682134) от 26.06.2016
+
+VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bliss - Sleep Will Come 05:39
+02.Afterlife- Speck Of Gold 05:31
+03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
+04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290085   (682158) от 18.03.2019
+
+Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dyscamupia (Forward) (12:41)
+ 02. Dyscamupia (Paused) (05:44)
+ 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289981   (682160) от 18.03.2019
 
 VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
@@ -509,194 +697,6 @@ VA - Discover Trance 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F4C1BAFB1489D6A2374FFD7874B8BC9E4D8F84E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289743   (684332) от 17.03.2019
-
-VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kayat - Nordwind (Touchstone Remix) 8:22
-02. Matteo Marini - I Want To Believe (Original Mix) 7:58
-03. Kessler - Blue Velvet (Original Mix) 7:23
-04. Andy Viva - This Is My Life (Radio Edit) 3:34(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 01:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A6927FFF2D84EC5966702B5A6856971C125FA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289747   (684336) от 17.03.2019
-
-VA - Miami 2019 (2019) [MP3|320 Kbps] <Tech House, Deep Tech, House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emery Warman - People Keep On (Original Mix)
-02. Sergio Parrado & Chinonegro - La Siesta (Original Mix)
-03. Sami Wentz - Shade Of Black (Original Mix)
-04. Melanie Ribbe - Get It Right (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep Tech, House, TechnoПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264741AE40F2BB335ED563E08F5900F1DFBC661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029213   (684410) от 25.06.2016
-
-VA - Ibiza Underground 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesse Rose & Weiss - Oh, Like This, Ok (original mix) (5:28)
-02. Sven Vath - Robot (Kolsch remix) (9:16)
-03. Noir - Bataille (original mix) (7:37)
-04. Riva Starr - Dippina Side (Joseph Capriati remix) (6:56)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 09:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47295E10E52CCB584C3BFE3DFC07E2BC1BC8D685
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029024   (684427) от 25.06.2016
-
-Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etoile (4:50)
-02. Belafia (5:42)
-03. Essarai (5:50)
-04. Belafia - Etoile (5:07)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414C1E0F6182671287F598AAD42335B7DE974D1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029062   (684540) от 25.06.2016
-
-Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Robot (Rich Lane remix) (07:38)
-02. Sad Robot (D-Nox & Beckers remix) (08:24)
-03. Sad Robot (Alejo Gonzalez & Max Blade remix) (07:32)Жанр: Deep House, Tech HouseПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A62F6D2892F7B105E4FE71CDF653E6089087CDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029158   (684543) от 25.06.2016
-
-VA - Lounge Radio Deluxe, Vol. 1 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars Over Foy - Until We Meet Again in Heaven (Vechigen Chillout Remix) (5:35)
-02. Dr. J. James & Jamie Duvel - Follow Your Heart (Ambient Mix) (5:28)
-03. Lisaya feat. Guido Staps - Falling (Roan Portman Chillout Mix) (5:22)
-04. Jamie Duvel - Ballroom (Piano Room Mix) (4:54)(   Читать дальше...   )Производство: Mountain ViewЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87249DCF4A4617C92D7E22BAB9A14EEC43AD67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135038   (684978) от 17.05.2017
-
-VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <House, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bes & Meret - Abendsonne (Sax Sunset Mix)  4:18
-02.  Rust Blossom - In The Sun  4:06
-03.  Patrick De Giorgi - You Go (Radio Edit)  3:41
-04.  Victory Girl - Deep Tech 1  5:19(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 02:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
 ```
 
 

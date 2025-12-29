@@ -1,3 +1,162 @@
+###  Публикация: 982765   (946658) от 04.02.2016
+
+Elton John - Wonderful Crazy Night (2016) Deluxe Edition  [MP3|320 кб/с] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Crazy Night
+ 02. In The Name Of You
+ 03. Claw Hammer
+ 04. Blue Wonderful(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54F8E0A103E0B3C0FD7A84B8BD740CDD8AF3E0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 173697   (948748) от 08.02.2010
+
+Creedence Clearwater Revival - (Collected) (2008) [MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 03:16:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362078   (951011) от 22.02.2020
+
+Beat City Tubeworks - Top Rock (2020) [MP3|320 Kbps] <Rock'n'Roll, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roadrunner (03:45)
+02. Succubus (02:56)
+03. Ivory Wave (03:45)
+04. Fading to Grey (04:01)(   Читать дальше...   )Жанр: Rock'n'Roll, 70'sПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DDE6FA12E2C6B45B32D156B6FBA462EF295DAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981716   (951302) от 01.02.2016
+
+Chris Rea - Still So Far To Go...The Best Of (2009) 2CD [MP3|140~234 кб/с (V2)] <Rock, Pop, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 2
+01. The Road to Hell (Part 2) 04:33
+02. Auberge 04:43
+03. Winter Song 04:38(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95A94B30A6AA0FE66EDCAC5737BE729574891C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361997   (952447) от 21.02.2020
+
+Alpha To Omega - A Life (1976) Reissue CD, 1997, Black Rills Records [MP3|320 Kbps] <Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha (6:11)
+02. Easygoing Childhood (1:10)
+03. The Grey City (5:38)
+04. The First Day At School (4:34)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1192BFF30ADF43BD9D869432A429A3B4EFE6F96D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981090   (952607) от 31.01.2016
+
+VA - Ultimate Rock - 4CDs of great rock music (2015) [MP3|320 кб/с] <Hard Rock, Metal, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952607.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 CD - 17 tracks - 01:16:52
+2 CD - 18 tracks - 01:05:50
+3 CD - 19 tracks - 01:17:39
+4 CD - 18 tracks - 01:03:28Жанр: Hard Rock, Metal, Classic Rock, Other Rock, BluesПродолжительность: 04:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33966FB8D866EDE5E5357A44643CBD02A60EE00A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981129   (953047) от 31.01.2016
 
 TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
@@ -542,169 +701,6 @@ Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0111693442E5210166B927CB4E3FC4E442A814A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741850   (982261) от 04.01.2014
-
-Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982261.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:21) 1. Prelude
-(4:42) 2. Searching For An Angel
-(4:37) 3. Conflict
-(6:35) 4. Cross Across My Heart(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD28F8E36848CF1862BB3F06E9BE2EFE99E4F59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165532   (982660) от 10.01.2010
-
-Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Rock, Alternative, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodnight Moon (4:05)
-02. Scrub (5:51)
-03. My Boy Lollypop (02:30)Жанр: Indie, Rock, Alternative, Pop-RockПродолжительность: 00:12:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355424   (983448) от 26.01.2020
-
-David Knopfler - Last Train Leaving (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Ballad of Little Blackie [3:15]
- 02 - I Gave My Heart [3:50]
- 03 - Glory Be [4:03]
- 04 - All the Fun of the Fair [4:21](   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4055956256CD1CD9356535A02E88AEFEE13A5261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355523   (983451) от 26.01.2020
-
-David Knopfler - Heartlands (2019) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983451.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The Midnight Shaker [5:34]
- 2 - Easter Rising [3:26]
- 3 - Heartlands [3:38]
- 4 - Washington Decides [4:37](   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6797454ADC88C6459A7DA58333A88FDA35655059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613454   (984424) от 03.02.2013
-
-Ataraxia - Adolescence Of An Ancient (1986) [MP3|320 кб/с]<Rok>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984424.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adolescence Of An Ancient Warrior (08:05)
-2. Gabble (05:05)
-3. A Low (07:19)
-4. Value Counting (03:21)
-4. Plug Corde II (04:08)
-5. Against The Wind (13:22)Жанр: RokПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982F4E8AFA3E976163BFD8C12306C7F71AFABE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354791   (987014) от 23.01.2020
-
-Mono Inc. - The Book of Fire (2020) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987014.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Book Of Fire
-2. Louder Than Hell
-3. Warriors
-4. Shining Light(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E057F498BF02227808B53C10FFD0B1D466CCD65
 ```
 
 

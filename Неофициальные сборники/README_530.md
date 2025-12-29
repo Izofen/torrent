@@ -1,3 +1,165 @@
+###  Публикация: 1273721   (799411) от 03.01.2019
+
+VA - Infinite Moment (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Das Butterschnitzel - Alarmclock
+002. OTR - Bliss (feat. Ashley Leone)
+003. Andrea Castello - Stint
+004. Neotropica - Orchidaceae(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C46FEC0F7B3CBFF178EBED3C86F47D2A57C4AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121692   (799596) от 03.04.2017
+
+VA - Music For Your Car Vol.2 (2017) [MP3|320 Kbps] <Hand Up, Hardcore, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Pulsedriver - Keep On Reaching (Hard Dance Mix)  5:03
+002.  Scooter - Friends (Alari Remix)  6:02
+003.  DJ Paffendorf - Dream & Dance (Max R. 2017 Radio Edit)  3:16
+004.  Jens O - On And On (Extended Mix)  4:24(   Читать дальше...   )Жанр: Hand Up, Hardcore, Dance, ClubПродолжительность: 07:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE65E0DE173DBE97AAD9990B9995BF4BE8FFD5B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121859   (799623) от 03.04.2017
+
+VA - Italo Disco Hits Vol.12 (2017) [MP3|320 Kbps] <Disco, Italo-Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cliff Wedge - Touch Me (Radio Edit)  3:23
+02.  Boris Zhivago - Deep In My Heart (Radio Vintage Mix)  4:57
+03.  TQ - Let The Night Remain Forever (Extended Version)  7:56
+04.  Amaya - Sensation (Extended Version)  4:40(   Читать дальше...   )Жанр: Disco, Italo-Disco, DanceПродолжительность: 05:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C986B19F3483C70503177D70F669E6010DCFCEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121855   (799645) от 03.04.2017
+
+Ольга Пирагс - Лучшие песни (2008) [MP3|224-320 Kbps] <Pop, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спасибо, музыка, тебе
+02. Дождевые кольца
+03. Два стрижа
+04. Старый рояль (feat. Игорь Скляр)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 04:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A2AAE49A1ABC73C7B18407F7F31C6569728D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121727   (799649) от 03.04.2017
+
+VA - Beatport Top 100 Trance March (2017) [MP3|192-320 Kbps] <Trance, Progressive Trance, Uplifting Trance,Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robert Nickson - Heliopause (Original Mix). 07:20
+002. Cold Blue - Once In Time (Original Mix). 07:10
+003. Fady & Mina - Akemi (Extended Mix). 08:22
+004. Sam Jones - Good Love (Original Mix). 07:16(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance,Vocal TranceПродолжительность: 11:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6272F33BB2FA5604D3D47E22D26ECC1A54605B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121665   (799667) от 03.04.2017
+
+VA - Spring Party European EDM (2017) [MP3|320 Kbps] <Electro, Dance, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Optim - Fervor (Original Mix)
+002. Simon W - Cradle
+003. Tech Duo - Few Hearts But Techno
+004. Victor Bergh - Vaed(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 10:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17784CF401E06FFFE97F10C5297ABA6144F936B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121570   (799681) от 03.04.2017
 
 VA - Beatport Trance  Pack (03.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
@@ -533,168 +695,6 @@ VA - Music News vol.5 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371103D19F7C2B9C026019251C82ACE6D617D8D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385068   (800203) от 23.05.2020
-
-VA - Beatport Future House: Electro Sound Pack #97 (2020) [MP3|320 Kbps] <Electro House, Tech House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Futur-E - Eccentric Orchestra
-002. Yuki Tosaya - Voices From Tokyo
-003. Deepshader - Departe
-004. Leonard Marcucci - Day Off (Party Mix)(   Читать дальше...   )Жанр: Electro House, Tech House, ProgressiveПродолжительность: 09:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CA32CD804F30804901C9A26FC650CF2C8EFC1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384992   (800206) от 23.05.2020
-
-VA - 100 Greatest Male Voices (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Heroes
-02. Stevie Wonder - Sir Duke
-03. Prince - Purple Rain
-04. Michael Jackson - Human Nature(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FE85F591762B636F187307EB0ED313D3AF8C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199809   (800213) от 17.01.2018
-
-VA - Romantic Mood Smooth Compilation (2017) [MP3|320 Kbps] <Smooth Jazz, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabrielle Chiararo - So Nice
-002. Matteo Brancaleoni - Winter Wonderlan
-003. Smooth Jazz Sax Instrumentals - Smooth Piano
-004. Terrace Martin - Velvet Portraits(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 06:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C81E719921C2B6970227440149AC6DBE60517E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199311   (800223) от 17.01.2018
-
-VA - Chillout Time (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florent Campana  -  Golden Hour  2:54
-02.  Arrojas  -  Over The Past Year  5:24
-03.  Rosarossa  -  Get Free (Soul Beats Mix)  3:33
-04.  Guggenz  -  Break Even (Original Mix)  3:47(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA9E85F117CCB66962B254879A1BD9974806273
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121343   (800239) от 02.04.2017
-
-VA - Русское Радио - Лучшие Хиты Март (2017) [MP3|320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Френды и Саша Спилберг - Буду всегда с тобой  4:11
-02.  Денис Майданов - Что оставит ветер  4:17
-03.  Мот и Ани Лорак - Сопрано  3:30
-04.  Родион Газманов - Парами  3:29(   Читать дальше...   )Жанр: ПопПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C711450288E4F172B00933EC54715D75317C825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385001   (800271) от 23.05.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 22.05.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doja Cat - Say So 3:58
-02. The Weeknd - Blinding Lights 3:22
-03. SAINt JHN - Roses (Imanbek Remix) 2:56
-04. Little Big - UNO 2:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89685F36F1E6F59919AF536E349F5F76E12FA122
 ```
 
 

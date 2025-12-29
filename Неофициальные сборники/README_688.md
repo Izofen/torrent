@@ -1,3 +1,165 @@
+###  Публикация: 1602851   (1045909) от 07.01.2023
+
+VA - German Top 100 Single Charts 06.01.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta & Bebe Rexha - I'm Good (Blue) (2:55)
+002. Peter Fox - Zukunft Pink (feat. Inez) (3:50)
+003. Nina Chuba - Wildberry Lillet (2:11)
+004. Sam Smith & Kim Petras - Unholy (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F531E14233EC355BC0BE22AADC3703A2E6DD5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601973   (1045995) от 06.01.2023
+
+VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bb Chung King & the Buddaheads - Still the Rain
+02. Bb Chung King & the Buddaheads - Hear it From You
+03. Bleu Jackson - Some Never Learn
+04. The Buddaheads - Big Time Baby(   Читать дальше...   )Жанр: Blues & RockПродолжительность: 02:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77403EBBEEC2B079A90E3A6A9B3AD8BDD9B7D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601290   (1046323) от 02.01.2023
+
+Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hole in My Soul
+02. I'll Be the One
+03. My Oh My
+04. Pressure Under Fire(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144118943C4C4F825BD296639DADE54C234DE032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839418   (1046666) от 30.11.2025
+
+Валерий Кипелов - Voice Of Rock - Compilation (1985-2024) [MP3|320 Kbps] <Heavy metal, Hard rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жить Вопреки ❂ Жить Вопреки 2011
+02. Вавилон ❂ Вавилон EP 2004
+03. Тореро ❂ Путь Наверх Live 2003
+04. Огненная Дуга ❂ Часы Судного Дня EP 2021(   Читать дальше...   )Жанр: Heavy metal, Hard rockПродолжительность: 10:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451024278C6593B5FFA516A5D9DB67650EA874D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839600   (1046719) от 29.11.2025
+
+VA - ЕвроХит Топ 40 Europa Plus 28.11.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HUNTRX, EJAE, AUDREY NUNA, Rei Ami, KPop Demon Hunters Cast - Golden (3:14)
+02. Ravyn Lenae - Love Me Not (3:33)
+03. Sombr - 12 to 12 (4:03)
+04. Sabrina Carpenter - Tears (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB21FB8104F840561A8184670FACCC9A84F0D1E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839842   (1046746) от 01.12.2025
+
+VA - Pop Radiomania (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Lion's - 1M80 Minimum (02:58)
+ 002. Niexshadow - All I Got Was Goodbye (02:21)
+ 003. Kimbai - Contre Moi (02:38)
+ 004. Ren Avisse - Hot Tea (02:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F3B91085863E96BD3BFA98431328602F475757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839782   (1046781) от 30.11.2025
 
 VA - Record Super Chart 29.11.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -533,168 +695,6 @@ VA - #009 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BEB64337ACE2227CE9FF6E1E75E570990A6EBC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840942   (1047690) от 08.12.2025
-
-VA - #008 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walter Trout - Artificial (4:23)
-02.  Sugaray Rayford - How The Other Half Lives (2:54)
-03.  Whiskey Myers - Midnight Woman (4:12)
-04.  Albert Castiglia - Can’t Be A Prophet (3:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41573C795AD7CADB076D6190185B06B15D7736B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840941   (1047691) от 08.12.2025
-
-VA - #007 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John Fogerty - Long As I Can See The Light (John's Version) (3:32)
-02.  Rory Block - High Heel Sneakers (3:39)
-03.  Eric Gales - Something Inside Of Me (5:31)
-04.  Emma Wilson - Good To The Last Drop (4:53)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DB47B72AB61EED599026AEAA13C2491410D1AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841040   (1047741) от 08.12.2025
-
-VA - Music News For Forum vol.151 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047741.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elvira T - Всё решено (Index-1 Remix) (02:34)
- 002. 5sta Family - Снова вместе (Index-1 Remix) (02:41)
- 003. ACHE - Монстр (02:17)
- 004. Akamas - Be There With You (01:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB758DD851E0E9FCB628FD12CBC605AAE848A0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841223   (1047845) от 09.12.2025
-
-VA - About Something Good (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akmalov - Only You (04:54)
- 002. Butch U - Enemies (03:47)
- 003. Dj Jedy - Midnight Mirage (02:46)
- 004. DndmDavvi - Te Fuiste (03:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077009C7B9DB8BF00CDEBD028791E88395DB1DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841569   (1048067) от 12.12.2025
-
-VA - Christmas hammond organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Tappen - Silent Night [02:16]
-02. Gwen Stefani - Jingle Bells [02:58]
-03. Leigh Harline - When You Wish Upon [04:13]
-04. Studio Bandet - Jingle Bells [02:58](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 02:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0060D5DAF2F8DBF557A14483C4844287549E37E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841735   (1048223) от 12.12.2025
-
-VA - No name compilation part 21 Instrumental, Other (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - Tuesday
-02 - Dj Aurm - Woman in Love
-03 - Smtve - Tears Fall
-04 - Aurora Night - In Memory(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AA58CBCBFAB7CF5CE18D7784270E934E72368C
 ```
 
 

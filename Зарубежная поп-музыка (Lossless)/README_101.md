@@ -1,3 +1,57 @@
+###  Публикация: 1610065   (1042899) от 05.02.2023
+
+Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One (Live at The Royal Albert Hall) [00:03:00]
+02. Take Me Back (Live at The Royal Albert Hall) [00:04:20]
+03. This Time (Live at The Royal Albert Hall) [00:03:23]
+04. I'm Ready (Live At The Royal Albert Hall) [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144F9DAB9A630E425CB4C96F34D8A20E82D2A6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609612   (1043144) от 04.02.2023
+
+VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Girls on Film (2010 Remaster) (3:32)
+02. James Blunt - You're Beautiful (3:29)
+03. Bruno Mars - Just the Way You Are (3:40)
+04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F06A75D6A00FE3944E9F6679753C97B53215F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609367   (1043226) от 03.02.2023
 
 Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>

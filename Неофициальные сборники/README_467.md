@@ -1,3 +1,165 @@
+###  Публикация: 1398834   (734651) от 28.07.2020
+
+VA - 100 Greatest Driving Songs (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Go Your Own Way (2018 Remaster) (03:39)
+02. Chris Rea - The Road to Hell, Pt. II (04:32)
+03. Jackson Browne - Running on Empty (04:58)
+04. Eagles - Take It Easy (2013 Remaster) (03:31)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECDD03AE28BBB6A2CA8CD1BF3B7C3F49A9F3BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528215   (734941) от 01.02.2022
+
+Группа Парад - Раз, Два, Три! (1989) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкий альбом забытой группы из 80-90хх. Самиздат.01. Девчонка, слёзы не лей - 4:30
+02. Ночь без правил - 2:59
+03. Паренёк - 3:52
+04. Потанцуй-ка со мной - 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7F0D2F30C5E657C0195C8D8864F1719F525864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398702   (735220) от 27.07.2020
+
+VA - Beatport Chillout: Electro Sound Pack #133 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735220.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Man Drake - Trinity Soft
+002. Sealovers - Wild Huntress
+003. Mirko Firzlaff - Nostalgia (Original Mix)
+004. Albedo 067 - Sigh(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302B430447DCDCC2D8403DAE8713908EB6F1725D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398731   (735225) от 27.07.2020
+
+VA - Deep House NME New Collection (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Marshall - Phased Reasoning
+02. Don Wolf - Particular Enviromnent
+03. Cristian Viviano - Astral Connection
+04. Angela Mont Clair - The Right Time(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 05:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF29CFDCCECD6FC6AF578972EC6D7E9F9E728C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398714   (735247) от 27.07.2020
+
+VA - Beatport Trance: Electro Sound Pack #137 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Relais - Over Vanity
+002. California Sunshine - Sababa Time
+003. Structural Mind Engine - Eternalix
+004. Tromo - The Dreamer(   Читать дальше...   )Жанр: TranceПродолжительность: 10:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9431EB46FF21F3F7E65792D9C38507E8498AFDCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398736   (735254) от 27.07.2020
+
+VA - Morphine Bride (2020) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alluvion - Preemptive Ascension
+002. Daniel Gren - Opening B
+003. Stages In Faith - Out Of Turn
+004. Hawkwind - Flesh Fondue(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 13:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039C3E06CBC7AD0FC50A0AFCE7EE5A88D85D28D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528087   (735279) от 31.01.2022
 
 VA - Свежаки Зимы Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -545,168 +707,6 @@ DJ P@F - Made In ZP City (2011) [MP3|256 кб/с]<Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C06BBB7F977290E858C85296822247504D2D3702
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527712   (736339) от 29.01.2022
-
-VA - My Sexy Blues (2022) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ayo - Maybe (Ayo Blues) (03:28)
-02. Coco Montoya - It's My Own Tears (remastered) (06:00)
-03. Louisiana Red - Driftin' (05:45)
-04. J.J. Cale - Cloudy Day (05:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 06:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1FF41CE4628809785107CF1676EBB9E856DC59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527614   (736373) от 29.01.2022
-
-VA - Rap NNM 2022 [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nutcase22 - Captain (3:34)
-02. Juice WRLD - Burn (3:37)
-03. Travi$ Scott - ESCAPE PLAN (2:29)
-04. Macklemore, Windser - Next Year (2:53)(   Читать дальше...   )Жанр: RapПродолжительность: 03:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25337FFE4969D601E25D2216A0895D18A64368D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527637   (736387) от 29.01.2022
-
-VA - ЕвроХит Топ 40 Europa Plus 28.01.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Nas X & Jack Harlow - Industry Baby (3:32)
-02. Calum Scott & Lost Frequencies - Where Are You Now (2:28)
-03. Masked Wolf & Tom Walker - Something Beautiful (3:07)
-04. Ed Sheeran - Bad Habits (3:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E937A87D7CAEDDE63AE9F6512614EA3D038D3CF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527684   (736390) от 29.01.2022
-
-Дуэт Вибрация - Compilation (2022) [MP3|320 Kbps] <New Classical, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соло на двоих
-02. Сердце пустыни
-03. Ночная музыка
-04. Ностальгия(   Читать дальше...   )Жанр: New Classical, InstrumentalПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08F50BD28BE29EB73B79FC21E3012FC3EF6038E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527485   (736395) от 29.01.2022
-
-VA - Beautiful Smooth Jazz (2022) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас, без разницы какую роль играет в этом мире, верит в любовь. Кто-то уже нашёл своё счастье, а кто-то в поисках своей второй половинки верит и ждёт чуда! И оно непременно найдет каждого из Вас. Цените каждый момент, проведенный с любимыми! Говорит нам музыка с треков сборника "Beautiful Smooth Jazz"!001. Lisa Cat-Berro - Waiting For You
-002. 22° Halo Aka Lea Maria Fries - Ulysse
-003. Fourplay - 101 Eastbound
-004. Ronny Jordan - Mystic Voyage(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3C3FC8082BA4E1885BFDF88F12AC681634142A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527493   (736403) от 29.01.2022
-
-VA - New Electronic World: Neon Megamix (2022) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "New Electronic World" полна ослепительных и захватывающих мелодий из эпических приключений и духа фантастического мира синематографа, смешанного со звуковыми эффектами трейлера в современном гибридном стиле. Если Вам нравиться музыка из фильмов со сценами героизма и духом приключений, эта подборка для Вас.001. Dimi Mechero - The Balconist
-002. Reinhard Vanbergen - Rythm Ace Band
-003. Benjamin B. - Repeat After Me
-004. Robert Babicz - Gatekeeper(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 12:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9A6D2BE9FC14C25002983FF24D42F8103F33E8
 ```
 
 

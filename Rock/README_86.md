@@ -1,3 +1,165 @@
+###  Публикация: 1107022   (870061) от 21.02.2017
+
+Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870061.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jay
+2. Theme From The Movie Manhole
+3. ?Come Again? Toucan
+4. It's Only Music(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EF34211315C1A96867A69321437385E246D6D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496612   (871226) от 18.09.2021
+
+Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Tinkertrain
+02. I Don't Want to Change the World
+03. Mama, I'm Coming Home
+04. Desire(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EF5CE72BEA3916A0A65D28CF9A11E3117631E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300979   (872232) от 26.02.2011
+
+Tom Waits - 35 Albums (1973-2009) [MP3|320 Kbps] <Blues, Jazz, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tom Waits (полное имя Thomas Alan Waits; 7 декабря 1949 года) - американский певец и автор песен, композитор, актёр. Обладает своеобразным хрипловатым голосом, описанным критиком Дэниэлом Дачхолзом так: «Он словно вымочен в бочке с бурбоном, его будто оставили в коптильне на несколько месяцев, а затем, когда достали, проехались по нему».Список альбомов:
+1973 - Closing Time
+1974 - The Heart Of Saturday Night
+1975 - Nighthawks at the Diner(   Читать дальше...   )Жанр: Blues, Jazz, Experimental RockПродолжительность: 39:39:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374503   (872683) от 10.04.2020
+
+Скрябін - Best (Сovers & Remixes) (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872683.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я сховаю тебе (Нова версія)
+2. Місця щасливих людей (FDR & CJ Mars Edit)
+3. Шампанськi очi (Pianoбой Cover)
+4. Випускний (CJ Mars Old Disco Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D1FB8296F9049153468EAC62542415D3100A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496224   (872722) от 17.09.2021
+
+Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <Score>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7CBD94EECA77EB0B1D5ECDD6CD816FD7DEB484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496465   (872847) от 17.09.2021
+
+VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oasis - Wonderwall (Remastered) 4:19
+02. Pulp - Common People 5:50
+03. Oasis - Live Forever 4:37
+04. Blur - Song 2 (2012 Remaster) 2:01(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9541DF8E091CA8DA6EE2D36BF626F1A04BF08DBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374585   (872981) от 10.04.2020
 
 Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
@@ -542,174 +704,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186000   (883649) от 24.03.2010
-
-Cinderella - Best ballads (2001) [MP3|320 kbps]<Hard-rock / Glam-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Cold Winter (5:24)
-02. Dead Man's Road (6:38)
-03. Bad Seamstress Blues / Fallin' Apart At The Seams (5:20)
-04. Hard To Find The Words (5:45)
-05. Don't Know What You Got (Till It's Gone) (5:54)
-06. Heartbreak Station (4:28)
-07. Still Climbing (5:22)
-08. Night Songs (4:03)
-09. The Road's Still Long (6:08)
-10. Winds Of Change (5:34)(   Читать дальше...   )Жанр: Hard-rock / Glam-rockПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372376   (885470) от 03.04.2020
-
-VA - NOW Rock Icons (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885470.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aerosmith - Rag Doll (Album Version) (4:24)
-2.Cream - I Feel Free (2:51)
-3.Thin Lizzy - Chinatown (Album Version) (4:41)
-4.Dire Straits - On Every Street (Album Version) (5:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6799E85C52AFBFF163A9BFF6BA985DBBEFFF0FDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103608   (885920) от 12.02.2017
-
-Knight Area - Heaven and Beyond (2017) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken (7:06)
-02. Dreamworld (5:14)
-03. The Reaper (7:11)
-04. Box Of Toys (3:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB940D784A6765308845856A3EF89DD94A907EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494875   (886116) от 09.09.2021
-
-Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Obliterati (02:17)
- 02 - Natalia (06:17)
- 03 - Relaxation Music For Sharks (Featuring Feeding Frenzy) (04:36)
- 04 - Wingbeats (05:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CEB187E1E966CB43969A9CA5ABB5C9DAAD1FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995210   (886212) от 10.03.2016
-
-VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Presley – Jailhouse Rock
-02. The Yardbirds – For your Love
-03. The Rolling Stones – Honky Tonk Women
-04. The Rolling Stones – (I Can’t Get No) Satisfaction(   Читать дальше...   )Жанр: Rock, MashupПродолжительность: 00:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961EA22123F766D38BE196ADE3CDC41972D4FBF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372134   (887262) от 02.04.2020
-
-Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подих Змія (03:21)
-02. Паранормальні (04:00)
-03. Ворожіння (03:42)
-04. Сонце Небо (03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E467E237054429E279B4153BC7C08E1CA058BA1
 ```
 
 

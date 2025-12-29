@@ -1,3 +1,165 @@
+###  Публикация: 973167   (980684) от 07.01.2016
+
+VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Т9 - Ода Нашей Любви
+2. A-Sides Feat. Vanessa Freeman - This Is Your Time
+3. Nicki Minaj Feat. Drake, Lil' Wayne & Chris Brown - Only
+4. Stone & Van Linden - Sky (Horizon Mix) (feat. Nicole Tyler)(   Читать дальше...   )Жанр: Pop, Dance, Electro House, Progressive HouseПродолжительность: 05:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3940C955C2B8EFF0AB273651606858EF6E261F43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972746   (980692) от 07.01.2016
+
+VA - 20 Soundtrack Hits of the ‘90s (2015) [MP3|320 кб/с] <Disco, Jazz, Pop, Rock, Soundtracks>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natalie Cole - Unforgetable (Duet with Nat 'King' Cole) (03:30)
+02. London Beat - I've Been Thinking About You (03:27)
+03. Enigma - Sadness (04:21)
+04. Lenny Kravitz - It Ain't Over 'Til It's Over (04:04)(   Читать дальше...   )Производство: C.E.D. EntertainmentЖанр: Disco, Jazz, Pop, Rock, SoundtracksПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C80FBB06C31B5A2E4EE746C35E0F55FB709DB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972974   (980695) от 07.01.2016
+
+VA - Бомба Года. Шансон (2015) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Куренков - Для Тебя
+002. Иван Кучин - Колесница
+003. Дмитрий Фомин - Достало
+004. Алена Герасимова (Макаровна) - Мать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02F0769B51D02F0312B7DCCE079707819D16008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972815   (980697) от 07.01.2016
+
+VA - Попсовая VIP тусовка (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даша Суворова - Останусь
+002. Мурад Байкаев - Черно-Белое
+003. Alex Kafer & Lera - Никогда
+004. Bridge - Временно Твоя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642C97315054B5BC9B614BA445B953898B44B44D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355725   (980760) от 28.01.2020
+
+VA - Where the Blues live (2020) 2CD [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dalannah Gail Bowen - Looking back
+02. Aretha Franklin - Honest I Do
+03. Danny Bryant's RedeyeBand - Girl from the North Country
+04. Blues Ball - Her Memory(   Читать дальше...   )Жанр: BluesПродолжительность: 08:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972846   (980784) от 07.01.2016
+
+Мария Распутина - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с] <Поп, Шансон, Интервью>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980784.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я родилась в Сибири
+2. Жёлтые листья
+3. Живи, страна
+4. Ты упал с Луны(   Читать дальше...   )Жанр: Поп, Шансон, ИнтервьюПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976665CB6341ADA660F27D89B450C4A474C42601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355760   (980808) от 28.01.2020
 
 VA - Полтинник самых - самых (2020) [MP3|320 Kbps] <Pop, Dance, RnB>
@@ -563,168 +725,6 @@ VA - Лучшие танцевальные шлягеры 50х-60-х, [4 CD] (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A389A6C90DFCDFAF293DBDABAC932592897917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971860   (982901) от 05.01.2016
-
-VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с] <Dance, Club House, Electro House, Drum & Bass, Trap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982901.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Disciples - How Deep Is Your Love (Extende [05:57]
-002. Major Lazer feat. MO & DJ Snake - Lean On [02:27]
-003. Martin Solveig - +1 [05:09]
-004. Galantis - Runaway (U & I) [03:45](   Читать дальше...   )Жанр: Dance, Club House, Electro House, Drum & Bass, TrapПродолжительность: 09:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F32955194F0E1E81012128936AF9B286A1F88F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355387   (983134) от 26.01.2020
-
-VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-02. The Black Eyed Peas & J Balvin - RITMO (Vadim Adamov & Hardphol Remix) 2:38
-03. Dua Lipa - Don't Start Now (Sergey Raf & ARROY Remix) 3:00
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1B15E552DD7BAD5B8C349D4D2EB817AEEFD8AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972091   (983284) от 05.01.2016
-
-VA - Winter Music (2016) [MP3|320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983284.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Robin Schulz - Sugar (feat. Francesco Yates)
-2. Anna Naklab - Supergirl (feat. Alle Farben & YOUNOTUS) (DJ Antonio Remix)
-3. Елена Темникова - Наверно (feat. Natan)
-4. Feder - Blind (feat. Emmi) (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE55FBCB743B72B89F514621791612602FF2CB90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972211   (983422) от 05.01.2016
-
-VA - Royalty - Free Nu School Deep & Garage (2015) [MP3|223-320 кб/с] <House, Soulful, Nu Disco, Funky, Indie Dance, UK Jackin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Tort - Bad Habits 06:54
-002. Dopp - Bahija (Original) 07:24
-003. Discorocks & Nakia - Moving On Up (Alaya & Gallo Remix) 06:22
-004. C.K - S Jam 07:21(   Читать дальше...   )Жанр: House, Soulful, Nu Disco, Funky, Indie Dance, UK JackinПродолжительность: 12:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB33E4A0C275CFC9F270B29ABF1EEA522C5A67F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972283   (983432) от 05.01.2016
-
-VA - After Workout Chillout Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Chilly Vanilly [05:52]
-02. Psytrotune - Fall in the Darkness - Chillout Mix [05:47]
-03. Eroc - Wolkenreise 2k11 - Part of the Art Remix Edit [04:40]
-04. Blueye - Autumn Leaves - Chillout Mix [05:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD90D06B9EA5C977778E7B2C08F77CA9C3BB6A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972218   (983437) от 05.01.2016
-
-VA - Classical Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claude Debussy - Deux Arabesques : No. 1 Andante con moto [03:59]
-02. Felix Mendelssohn - Songs Without Words, Op. 62: No. 6 in A Major, "Spring Song": Andante grazioso [02:32]
-03. Philip Glass - Glass: The Hours - Arr. Michael Riesman - Morning Passages [06:11]
-04. Frйdйric Chopin - 24 Prйludes, Op. 28 : 15. in D Flat Major "Raindrop" [05:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5707FDC97A9773CB5E3769A19798C67123B8BD22
 ```
 
 

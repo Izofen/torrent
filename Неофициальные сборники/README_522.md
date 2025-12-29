@@ -1,3 +1,165 @@
+###  Публикация: 1274263   (794123) от 06.01.2019
+
+VA - Громкие новинки месяца Vol.20 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faruk Sabanci & MARUV - For You 2:39
+02. Richard Grey & Lissat - Jump 5:02
+03. Paffendorf feat. Sydney-7 - It's Going Down (Edit) 2:28
+04. Jens - Any Other Way 3:10(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF0AD71D2ADAB6B0220C694187574393EE4D66E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274182   (794126) от 06.01.2019
+
+VA - Deep House Vibes: Absolut Hot (2019) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794126.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nailon Gray - Body And Soul (Session & Deep Mix)
+002. Demax - Galantis (Original Mix)
+003. Renga Weh - Running Rabbit
+004. Volker Rain - Belly Dance (Human Waves Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B3D1219B7AA5BEEA2078D4DBF79328933B0122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274254   (794130) от 06.01.2019
+
+VA - Billboard Hot 100 Singles Chart 05.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - thank u, next
+002. Halsey - Without Me
+003. Mariah Carey - All I Want for Christmas Is You
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25507347C1594BD337C16F848B3E780BC925F111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274223   (794132) от 06.01.2019
+
+VA - Record Super Chart 568 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Gaulin  -  Moonlight
+04.  Merk & Kremont - Sushi(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B1561B2BDC170DEC49DE42B236FBAAE37CA4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274255   (794166) от 06.01.2019
+
+VA - Puff Puff Bass: Full Version DJ Hybrid (2019) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Conrad Subs - Drift Out
+002. A-Sides - Mercury
+003. Data 3 - Fractil
+004. Derrick & Tonika - Fata Morgana(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FA76C4B72AE652E4AB486568311CFC9EAED49F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122458   (794211) от 05.04.2017
+
+VA - Beatport Top 100 Deep House March (2017) [MP3|320 Kbps] <Deep House, Tech House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794211.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brigado Crew, Crisstiano - Zulu (Original Mix) 08:11
+002. Kidnap Kid, Lane 8 - Aba (Extended Mix) 07:02
+003. Kellerkind, Sven - Shakti Pan (Original Mix) 06:46
+004. Definition - Pretend To Fly (Original Mix) 06:54(   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 12:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E7CD44526E653CDDA1D1217A915C8286F00C03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122090   (794253) от 05.04.2017
 
 VA - Топ 100 Зайцев.нет Март (2017) [MP3|192-320 Kbps] <Pop>
@@ -530,168 +692,6 @@ VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1914DA0B31C0AE2F29D5194D26ABF24CC3A606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012235   (794795) от 30.04.2016
-
-VA - The 90s Sweet Chart (2016) [MP3|320 кб/с] <Dance, Euro, Disco, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rozalla - Everybody's Free (To Feel Good) 03:32
-02. Crystal Waters - 100% Pure Love 03:08
-03. Faithless - Take The Long Way Home 04:05
-04. Kid Frost - La Raza 03:27(   Читать дальше...   )Жанр: Dance, Euro, Disco, Pop, RockПродолжительность: 05:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A965FFA5FA23801FB13E03DE52E508E48C77FFB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200778   (794828) от 22.01.2018
-
-VA - Зайцев.Нет: Лучшие Новинки Января (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jay Rock feat. Kendrick Lamar, Future & James Blake  -  King's Dead  3:50
-02.  MGMT  -  Hand It Over  4:13
-03.  Troye Sivan  -  My My My  3:25
-04.  Hailee Steinfeld  -  Capital Letters  3:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1FE136D752CB17DEBC82867B480E4DAE286E81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509466   (794835) от 12.11.2021
-
-VA - Music News vol.147 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794835.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Haart feat. Arut - Раздетая (02:40)
- 002. Adventure Club & Codeko feat. Sarah De Warren - Never Surrender (04:06)
- 003. Agunda - Обману Раз (02:07)
- 004. Alan Walker feat. Winona Oak - World We Used To Know (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7437182D0515BD7EA8F78A68EBC4FF631ABC4E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012285   (794874) от 30.04.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 004 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Dow -  Wave After Wave (Kheiro & Medi Remix)  6:42
-02. Tranzlift Ft. Imperfect Hope -  Para Siempre (BTSR100 Anthem) (Original Mix)  8:14
-03. Simon Lee And Alvin -  Xcelerate (Extended Mix)  5:24
-04. Liuck And Neev Kennedy -  Let This Go (Extended Mix)  6:13(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655FC764998AA74AB83C417FAB8D51676180D2EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274075   (794984) от 05.01.2019
-
-VA - Anthology Of Blues (Vol. 01) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steve Fister - Deeper Than The Blues
-002. Southern Gentlemen - Exotic Dancer Blues
-003. Pat Travers - Look Me Up
-004. Tony Joe White - Gumbo John(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A9F90AAA19E6384992176E29F814161C9971C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274038   (795036) от 05.01.2019
-
-VA - Independent Pop Rock (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dystopia - Living For Summer
-002. Róisín Murphy - Jacuzzi Rollercoaster
-003. David Kitt - Like Lightning
-004. Foster The People - Pay The Man(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991CC872FA1592706C4264A3D65A1EAA743CBF3E
 ```
 
 

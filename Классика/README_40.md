@@ -1,3 +1,192 @@
+###  Публикация: 1002305   (848604) от 31.03.2016
+
+Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seguidilla - Carmen (Bizet)  4:40
+02.  Chanson - Carmen (Bizet)  4:44
+03.  Habanera - Carmen (Bizet)  4:41
+04.  Flower Duet - Lakme (Delibes)  5:06(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66244D046611927183743C95808B4D4AD3BB8797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002315   (848608) от 31.03.2016
+
+Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Charles Gounod - Sanctus  5:39
+02.  Charles Gounod - Repentir (O Divine Redeemer)  6:34
+03.  Ugjis Praulinjsh - Dievaines  6:25
+04.  Pietro Mascagni - Regina coeli laetare  5:56(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65968525AFAFE447E341A7BBE839179E4BDD3E59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002208   (848680) от 31.03.2016
+
+Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chi sa, chi sa, quai sia - KV 582  3:23
+02.  La Clemenza di Tito, KV 621: 1. Akt, Nr. 2 - Deh, se piacer mi vuoi  5:59
+03.  Basta, vincesti... Ah, non lasciarmi, no - KV 486a  6:30
+04.  La finta giardiniera, KV 196: 3. Akt - Va pure ad altri  3:37(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB65A6EAA79C2A4AF0A5CDF3B47F1F3CBB93ADE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002204   (848681) от 31.03.2016
+
+Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chapi - Al pensar (Las hijas del Zebedeo)  4:56
+02.  Massenet - Werther ... Werther ...qui m'aurait dit (Werther)  7:15
+03.  Offenbach - C'est  l'amour, l'amour vainqueur! (Les Contes d'Hoffmann)  3:50
+04.  Rossini - Nacqui all'affanno (La Cenerentola)  7:35(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745596E62A72E57EBF1E935D801C2CF55B9F314D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002188   (848685) от 31.03.2016
+
+Elina Garanca - Arie Favorite (2002) [APE|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfgang Amadeus Mozart:
+01.  Non so Piu cosa Son  2:51
+02.  Voi Che Sapete  2:54
+03.  Den per questo Instante  6:22(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165CE16FFF09D8933B6E522B048DD0656B73E689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002195   (848686) от 31.03.2016
+
+Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  L'ai-je bien entendu? ... O mon Fernand! (Donizetti)  8:25
+02.  Mon coeur s'ouvre a ta voix (Saint-Saens)  6:15
+03.  Da, chas nastal! ... Prostite vi, kholmi, polya rodniye (Tchaikowsky)  6:26
+04.  Ou suis-je? ... O ma lyre immortelle (Gounod. Sapho)  7:55(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7CF47D7BAE46FE71733C85656EBE5E9D3F88C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002064   (848696) от 31.03.2016
+
+Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gaitas  3:37
+02.  Zangarilleja  1:59
+03.  "A del arrebol luciente" (Juan Hidalgo)  3:36
+04.  Fandango  2:53(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDB5015A2F400A127C891FFD98855B86F0B6A41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002349   (848784) от 31.03.2016
 
 Storgards, Helsinki Philharmonic Orchestra - Korngold: Much Ado About Nothing & Sinfonietta (2012) 2 CD [FLAC|Lossless|tracks] <Classical>
@@ -503,195 +692,6 @@ Sextet for strings in D, Op. 10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2419C4DF915F48EE5CA4DEE4E5B9E42B2C7E0D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000545   (855337) от 27.03.2016
-
-Edvard Grieg - Piano Concerto & Lyric Pieces (Javier Perianes, BBC Symphony Orchestra, Sakari Oramo) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto in A minor, Op.16
-01. I. Allegro molto moderato (13:41)
-02. II. Adagio (6:47)
-03. III. Allegro moderato molto e marcato (10:22)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DC0F41731795F7D7C2D99E734A4D4AC1285426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001066   (855344) от 27.03.2016
-
-Ludovico Einaudi - Taranta Project (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introductio ad Regnum Tarantulae [04:20]
-02. Taranta [04:21]
-03. Fimmene [04:17]
-04. Nazzu Nazzu [05:35](   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C7C9546A5849C32C49418F94BC5D330962BAC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001132   (855410) от 27.03.2016
-
-Liszt Ferenc Chamber Orchestra - Vivaldi: Lute Concertos & Trios (1978) LP [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855410.jpg" />
-</div>
-
-
-###  Подробнее
-
-D-dur Concerto Lantra, Vonoszenekarra Es Csembalora. F. XII.No.15
-01. I. Allegro giusto   03:55
-02. II. Largo    05:02
-03. III. Allegro    02:17Жанр: Classical, BaroqueПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A077B6E4E1C45B4B932E949DEAB3D907CC00E64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000881   (855412) от 27.03.2016
-
-Gershwin - I Got Rhythm, Concerto in F, Rhapsody 2, Preludes, Cuban Overture (Haas, De Waart, Inbal) (2006) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I Got Rhythm, variations for piano and orhestra
-Piano Concerto in F major
-02 (1) Allegro
-03 (2) Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC7C8BE97AC7233DB27BE04A133D1BF642A468C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001200   (855413) от 27.03.2016
-
-David & Igor Oistrakh - Bach: Violinkonzerte (BWV 1041/42/43), Vivaldi: Concerto Grosso (Op.3 Nr.8) 1962 [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for violin, strings & continuo No. 1 in A minor, BWV 1041
-01. I. Allegro moderato    04:05
-02. II. Andante    07:31
-03. III. Allegro assai    04:05Жанр: Classical, ConcertoПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2D07D3C63B1C2D48BF8C6464740CAC32483622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001017   (855415) от 27.03.2016
-
-Victor Merzhanov - Scriabin (12 Etudes op. 8), Rachmaninov (Piano concerto No.3) 1997 [FLAC|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alexander Scriabin 12 Etudes op. 8
-01. C sharp major   01:49
-02. F sharp minor   02:15
-03. B minor   01:58(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97577AA26C15DC3FC9A48A727A5CEA061A9A9815
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000841   (855416) от 27.03.2016
-
-Ivan Moravec, Josef Vlach - Mozart: Piano Concertos K. 449, 488, 503 (1998) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 14 in E flat major, K. 449 
-01. Allegro vivace   08:34
-02. II. Andantino   07:52
-03. III. Allegro ma non troppo   05:42Жанр: Classical, ConcertoПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC8F557EEE1E80138A93FE60957EE0C0DAAFA22
 ```
 
 

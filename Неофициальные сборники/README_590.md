@@ -1,3 +1,164 @@
+###  Публикация: 994409   (891460) от 07.03.2016
+
+VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192 кб/с-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимур Родригез - Я Верю В Твою Любовь.mp3
+002. Лобода - Революция (Radio Version).mp3
+003. Тамерлан и АленаЖанр: PopПродолжительность: 06:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994381   (891534) от 07.03.2016
+
+VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Somebody That I Used to
+02. Alice Lamb - Use Somebody
+03. Meg Birch - Say You Love Me
+04. Thom Cooper - Next to Me(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994284   (891552) от 07.03.2016
+
+VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Tognoni - Lost Our Blues In The City Of Rome
+002. B.J. Sharp - Never Felt No Blues
+003. Coco Montoya - Never Seen You Cry This Way Before
+004. H2O - Use Your Voice(   Читать дальше...   )Жанр: Rock Blues, RetroПродолжительность: 07:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA42630A22A93A61BDE4CBF114B34FACD4DED31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994097   (891566) от 07.03.2016
+
+VA - Top 100 Electronic Dance Music and Rave Festival Chart Hits (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crop - Be For You  .mp3
+002. Fx Machine - Plastic Brain .mp3
+003. Enzymes - Don't Stay Away (Psy Bass Glitch Hop Remix) .mp3
+004. Celldweller, Digital Tribe, Bleep - Under My Feet (Digital Tribe & Bleep Remix) .mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 11:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E32AFB5272C1479C7F9587B26A8EAA5EB89C778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994193   (891568) от 07.03.2016
+
+VA - TOP 100 Deep House (February) (2016) [MP3|320 кб/с] <Deep House,Club House, House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5prite - King Of The Street (Original Mix)
+02. A Way - You Just You (4U Remix)
+03. Acaddamy, Kris Kiss - Have It All (The Beatangers Remix)
+04. Andrew Nelson - Relativity (Original Mix)(   Читать дальше...   )Жанр: Deep House,Club House, House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 10:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E22E03440144FDCD312FBB29D8669A25DD3A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994198   (891570) от 07.03.2016
+
+VA - TOP 100 Club Tracks (February) (2016) [MP3|96-320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - Cruel Summer (Yogi Nando Remix)
+02. Ace Of Base Feat Offer Nissim & Maya - All That She Wants (D-VIBE Mashup)
+03. Adele - Hello (DJ Zhukovsky Mix)
+04. Alex Kafer & Lera - Ты не верь слезам (Шура Cover 2016)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 07:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A9FA0D1666A06585051600D7E8D9058EC9B877
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371213   (891579) от 30.03.2020
 
 Deep Forest - 100% Deep Forest (2020) [MP3|320 Kbps] <Alternative, Enigmatic, New Age>
@@ -533,168 +694,6 @@ VA - Beatport Bassline: Electro Sound Pack #41 (2020) [MP3|320 Kbps] <D&B, Bassl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B6E5DF584A76CE9BE660A40B4FA3D1625E1151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493949   (892170) от 05.09.2021
-
-VA - Music News vol.129 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ronna Riva - Stories (03:14)
- 002. Шамиля - Что Ты Знаешь (03:30)
- 003. Alexandra Stan feat. Nervo - Come Into My World (Rawdolff Remix) (02:35)
- 004. Ali Bakgor feat. Dlay - Lightning Bolt (02:54)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE68330269080476F725664CFFB5741B51D5804
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761545   (892195) от 02.03.2014
-
-VA - Alterportal HITS 14 Vol. 65 - January (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skindred - Open Eyed
-02. Punch Cabbie - Vultures (Left Alone)
-03. Sidilarsen - Matiere Première
-04. Any Given Day - Dead Forever(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94F4C4947C7DE745DBDBD83EE3AD3B91ADFE6CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102178   (892335) от 08.02.2017
-
-VA - TOP Non-Stop: Hip-Hop 1995-2015 (2015) [MP3|128-320 Kbps] <Rap, R&B, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Real - Smoke N Mirrors featuring Bo Roc (4:55)
-02. Mobb Deep - Extortion Feat. Method Man (3:32)
-03. Timbaland & Magoo Feat. Missy Elliott - Cop That Shit (3:33)
-04. Method Man & Redman - I'm Dope Nigga (4:11)(   Читать дальше...   )Жанр: Rap, R&B, Hip-HopПродолжительность: 06:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7CF228BABEB2CA18435BECFC903527107EC6EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101859   (892630) от 08.02.2017
-
-VA - Hard Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blackfoot - Need My Ride 3:36
-002. Bon Jovi - Come On Up To Our House 4:36
-003. Boneyard Dog - Mother Lode 4:23
-004. Broken Secret - With You 4:26(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 07:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BB9E0DB90A09CFCB30C050DC2EB7659F882BC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101829   (892664) от 08.02.2017
-
-VA - Alternative Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Doors Down - Believe It 3:22
-002. 3 Doors Down - Pieces Of Me 3:38
-003. 3 Pill Morning - Never Look Back 3:22
-004. 12 Stones - Bulletproof 3:06(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 09:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8556F0770298E76553AC793545FA20C594BC047C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869242   (892731) от 14.02.2015
-
-VA - Лучшие песни о Любви в День Святого Валентина! (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Вместе Мы
-02. All Давай!!! feat. Mika - Это любовь
-03. Andre TAY (Андрей Тайшин) - Тебя люблю
-04. Archi - О Боже, как ты красива(   Читать дальше...   )Жанр: Поп, шансонПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CB5399E83CF3663B7C2BA96BAFE251FD2C4797
 ```
 
 

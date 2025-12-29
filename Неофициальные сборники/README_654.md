@@ -1,3 +1,165 @@
+###  Публикация: 1350018   (1003798) от 04.01.2020
+
+VA - German Top 100 Single Charts 03.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. The Weeknd - Blinding Lights
+03. Apache 207 - Roller
+04. Gzuz - Vor der Tr(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B448D4EEC051244B4CC19DCD5847327B5CCE88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487120   (1004003) от 03.08.2021
+
+VA - Свежаки Лета Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Антон Девяткин - Camry (3:44)
+02. Artik Asti - Фурия (DJ Prezzplay Radio Edit) (3:30)
+03. Lucky Laura - Party Non Stop (D. Anuchin Radio Edit) (2:45)
+04. Dj Slon - Джимми Джимми (Dj Prezzplay Radio Edit) (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F7C734FAADFAE33CAEBE4A8194E2B9102F83DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487072   (1004055) от 03.08.2021
+
+VA - The Melancholy Blues (2021) [MP3|320 Kbps] <Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Delta Moon - House Of Dolls
+002. Paul Gillings - I Dont Know When Im Beaten
+003. John Lee Hooker - Amazing Grace
+004. Lynn August - The Lords Gonna Fix It(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7EA03FA732CB3294E80AFB40BB2E31EC02A1CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487070   (1004056) от 03.08.2021
+
+VA - The Classic Blues (2021) [MP3|320 Kbps] <Blues, Classic, Retro Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004056.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. John Lee Hooker - Drifting Blues
+002. T-Bone Walker - Blues For Marili
+003. Jan James - Where You Gonna Run To
+004. Alastair Greene - No Longer Amused(   Читать дальше...   )Жанр: Blues, Classic, Retro BluesПродолжительность: 09:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D360DD9C055B5478D91C647A2BEB032DC7D7CB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487074   (1004136) от 03.08.2021
+
+VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004136.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Blackstorm - Crystal Skies
+02. Evolving Suns Audio - Outside The Box(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487073   (1004153) от 03.08.2021
+
+VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynamite MC - It's Just What Lovers Do
+002. Amplify - Omg
+003. Brusten - In Motion
+004. Fushara - The Rave(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349556   (1004222) от 02.01.2020
 
 Amure - Euphoria (2020) [MP3|320 Kbps] <New age, Enigmatic>
@@ -533,168 +695,6 @@ VA - Beatport Drum And Bass: Sound Pack #324 (2021) [MP3|320 Kbps] <D&B, Basslin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266356C1AB132ED2C367E30B48725EDA41DA7587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486533   (1004599) от 01.08.2021
-
-VA - Beatport Electro House. Sound Pack #323 (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004599.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Quenum - Dune
-002. M.Ono - A Bolt Of Love
-003. Terranova - Cosmochord
-004. Mateo & Matos - Deep Afro Roots(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A3B5E7285E565EF0F172E35F61EE592EE0485C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486540   (1004601) от 01.08.2021
-
-VA - Beatport Hardstyle: Sound Pack #326 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro Core>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Killshot - #Ammabea$t
-002. Scott Attrill - Beats N Bass
-003. Mark Holiday - Forgiving
-004. Neophyte - Masterpiece(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Electro CoreПродолжительность: 08:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C010464456324308159799E4D90F80A8848C1931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486536   (1004602) от 01.08.2021
-
-VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lenny Dee - Thunderdome Go Boom
-002. Mike Efex - The Fallen
-003. Sharkey - The Warning
-004. Leighton Smith - Diagnostic(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D66BA767AA010A49832A955FAD71DF63AE0ACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486521   (1004604) от 01.08.2021
-
-VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rugrats, Cosmic Illusion - Successful Digits
-002. Psykoveda - Equilibrium Point
-003. Magic Mizrahi - Existence
-004. Need One - Under The Shadow(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524409   (1004698) от 31.07.2021
-
-VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizness Band - Там, где руины превращаются в нас (02:32)
-02. Дочки-Матери - Я не верю (02:24)
-03. Hot Toys - Я смотрю на них (03:01)
-04. Серцевий напад - Кордони гетто (02:50)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C1A8A86690E2DD87073DD649DDD3FFD8697542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513185   (1004715) от 31.07.2021
-
-VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska, Reggy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel Boys Quartet - The Final Countdown
-02. Norther - The Final Countdown
-03. Skam - The Final Countdown (original mix)
-04. Boney Nem - The Final Countdown(   Читать дальше...   )Жанр: Rock, Metal, Ska, ReggyПродолжительность: 01:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD082E143ABB2D261E0DDC60066E66DD6A041E5
 ```
 
 

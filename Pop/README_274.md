@@ -1,3 +1,411 @@
+###  Публикация: 1212682   (775035) от 13.03.2018
+
+VA - 90s Dance Hits Vol.1 (2018) [MP3|320 Kbps] <Eurodance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Haddaway  -  What Is Love (7' Mix)  4:30
+02.  Technotronic  -  Pump Up The Jam (Radio Edit)  3:37
+03.  Gigi D'Agostino  -  La Passion (New Radio Cut)  3:02
+04.  Eiffel 65  -  Blue (Da Ba Dee) (DJ Ponte Ice Pop Radio)  4:44(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 02:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7691CC16A6F504F67C13EB79F3C5B6DBA6DB0635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212697   (775037) от 13.03.2018
+
+VA - #Dance 2018: Club & Dance News Vol.4 (2018) [MP3|320 Kbps] <Dance, Pop, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Derulo – Tip Toe (feat. French Montana) (03:07)
+02. Martin Garrix & David Guetta – So Far Away (Bad Decisions Remix) (04:06)
+03. Lea – Leiser (03:26)
+04. Nico Santos – Rooftop (03:14)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 02:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DBF8D4170D190D939BC1B275B9EB4799AAA0F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277579   (775090) от 22.01.2019
+
+Подиум - Любовь зла (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На прокат
+02. Любовь зла
+03. Непогода
+04. Качели(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CBC3980F28BDAAA042649A4FDBDA5554025FFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277540   (775102) от 22.01.2019
+
+Milica Pavlovic - Zauvek (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hej Zeno
+02. Da Me Volis
+03. Zauvek
+04. Tako Mi I Treba(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330DE547F7C1A758DB266F18199EC3ACB2A55DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277588   (775156) от 22.01.2019
+
+Dave Thomas Junior - Echo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If Things Had Gone Our Way
+02 - Double Down
+03 - Let Me Down Easy
+04 - When Does It Get Easier(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7FEB72B2B698B86934D09589D4174B26656304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212614   (775183) от 13.03.2018
+
+VA - Indie Dance and Nu Disco Tales (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Feindrehstar – Dirty Stomping 04:29
+2. Jewmanji – Clearing Crews 06:35
+3. Marian – For You 04:08
+4. Omar Gharbi – Lost In Aegean (Stan Kolev remix) 06:51(   Читать дальше...   )Жанр: Nu Disco, Indie DanceПродолжительность: 02:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DE1A41C25E160719AD89F7271670E36C1CD4E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212815   (775187) от 13.03.2018
+
+Boris Zhivago - Collection (2013, 2014, 2018) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Life (7:22)
+02. Rainy Day (6:29)
+03. In A World Of Fantasy (8:59)
+04. In The Streets Of Moscow (6:43)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 03:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2107246E2E6ED5867EC7BC9E550A2FCE090E09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015037   (775401) от 09.05.2016
+
+VA - EDM Megamix (2016) [MP3|320 кб/с] <Dance, Eurodance, Club House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - EDM Megamix 2016 DJ Mix (XL Version)
+02. DJ Mix - EDM Megamix 2016 DJ Mix (Xxxl Version)
+03. Clubaccess - Danza (Radio Version)
+04. Clubcontrol - House Arrest (Radio Version)(   Читать дальше...   )Жанр: Dance, Eurodance, Club HouseПродолжительность: 04:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CD974309B0B5ED1820E3FA16E8A07FD744B6F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014816   (775603) от 09.05.2016
+
+2 Brothers On The 4th Floor - The Very Best Of (2016) 25th Anniversary Edition, 2CD [MP3|320 кб/с] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Can't Help Myself (Extended Intro Version) (04:31)
+02 Turn Da Music Up (Radio Version) (04:39)
+03 Never Alone (Euro Radio Mix) (04:13)
+04 Dreams (Will Come Alive) (04:24)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 02:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2308F92021100B93A5392016AA1C91A89DCBBFC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015105   (775723) от 09.05.2016
+
+Roni Griffith - Roni Griffith (1982) [MP3|320 кб/с] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рони Гриффит - Диско хай-Энерджи исполнительница, а также модель и фотограф из Блумингтона, штат Индиана.
+Этот дебютный альбом был спродюсирован  Бобби Орландо (Bobby Orlando). Переиздан на CD в 1994 г. в США.01. Love Is The Drug   (4:55)
+02. (The Best Part Of) Breakin' Up   (5:42)
+03. That's Rock And Roll   (3:18)
+04. Desire   (3:54)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F74D1AA5CFC267A697CA74CEB4121F47EA7ED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014937   (775726) от 09.05.2016
+
+Sparks - 2 Compilations (2012) 4CD [MP3|320 кб/с] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775726.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эти два сборника группы вошли композиции, созданные во время совместной работы с Джорджио Мородером с 1979 по 1984 гг., а так-же их ремиксы.
+Выпущено: Европа, 2012 Repertoire Records.
+Состав: Братья Рон и Рассел Маэл из Лос-Анджелеса, США. Sparks образовались в 1969г. и выступали до недавнего времени.01. Tryouts For The Human Race (Extended Version)   (7:59)
+02. Beat The Clock (Extended Version)   (6:35)
+03. La Dolce Vita (Extended Version)   (5:59)
+04. The Number One Song In Heaven (Extended Version)   (8:34)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 03:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F644B3CC0269B2820BE869E83F64B5F6AC1EED4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015022   (775729) от 09.05.2016
+
+Montana Orchestra - Heavy Vibes (1983) [MP3|320 кб/с] <Disco, Funk, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Vibes
+02. Ride Like The Wind
+03. Who Needs Enemies (With A Friend Like You)
+04. Another Star(   Читать дальше...   )Жанр: Disco, Funk, InstrumentalПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62F67E79B339181F835AE16EED37B96041911C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212633   (775747) от 12.03.2018
+
+New Paradise - 6 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский студийный диско-проект, созданный Leo Carrier. Изначальное название было просто "Paradise", со вторым альбомом появились как "Paradise Birds" и лишь с третьим альбомом стали неизменно выходить как "New Paradise". В составе присутствовали три вокалистки. Проект незаслуженно прошел мимо многих стран.Список альбомов:
+1977 - Back To America (Paradise)
+1978 - I Am A Song  Paradise (Paradise Birds)
+1979 - New Paradise (1)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A1244F6336326CD95B5BFAB962633C80226BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212629   (775776) от 12.03.2018
+
+Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Em diras adeu
+02. Vai Vai Vai
+03. Els ocells
+04. 21(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014965   (775811) от 09.05.2016
+
+Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop, Synth-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Name Of Money
+02. Time Out
+03. Wild Horses
+04. Young Lover(   Читать дальше...   )Жанр: Pop, Synth-Pop, ElectronicПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014912   (775839) от 09.05.2016
 
 Nicole - Mit Dir Vielleicht (1994) [FLAC|Lossless|image + .cue] <Pop, Schlager>
@@ -290,413 +698,6 @@ Steve Bender - We've Gotta Get Out Of This Place (1978) [MP3|320 кб/с] <Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46501A60856AE45CA701820E795FD057705E3E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014104   (776816) от 06.05.2016
-
-Giorgio Moroder - Schlagermoroder, Vol. 1-2 (1965-1976) 4CD (2013) [MP3|320 кб/с] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раннее, малоизвестное творчество начинающего мастера Giorgio Moroder на четырех CD. Собрано и выпущено совместно в UK & Europe.01. Bla Bla Diddly   (2:25)
-02. How Much Longer Must I Wait   (2:41)
-03. Stop   (2:33)
-04. Believe In Me   (2:30)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 04:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC9E3EB7C8F163DDCD8DFF6100EFC86BBADEF7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211892   (776865) от 09.03.2018
-
-VA - Time For A Kiss (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Kiss (2:25)
-02. Tony Bennett - Kiss You (2:57)
-03. Billie Holiday - Prelude To A Kiss (5:38 )
-04. Vic Damone - We Kiss In A Shadow (4:01)(   Читать дальше...   )Жанр: Pop, OldiesПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FF659C03A2B188AB3063693781D240932D0ABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211957   (776901) от 09.03.2018
-
-Girls Aloud - Tangled Up (2007) Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n Bass, Synth-Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776901.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01. Call The Shots 3:45
-02. Close To Love 3:53
-03. Sexy! No No No... 3:18
-04. Girl Overboard 4:11(   Читать дальше...   )Жанр: Pop, Drum n Bass, Synth-Pop, Euro HouseПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7BE478C19B63FD55928DA76BA90A688F07CC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211953   (776902) от 09.03.2018
-
-Girls Aloud - Chemistry (2005) Polydor, Christmas Edition [MP3|320 Kbps] <Pop, Electro, Synth-Pop, Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776902.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01. I Wish It Could Be Christmas Everyday 4:01
-02. I Wanna Kiss You So (Christmas In A Nutshell) 3:36
-03. Jingle Bell Rock 1:57
-04. Not Tonight Santa 2:42(   Читать дальше...   )Жанр: Pop, Electro, Synth-Pop, Ballad, DiscoПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DA99A6BE88F74768609CB6130BEF72FE34C604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211934   (776907) от 09.03.2018
-
-Girls Aloud - What Will The Neighbours Say? (2004) Polydor [MP3|320 Kbps] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776907.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girls Aloud» - очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars».
-
-Самая младшая из девчонок, Надин (   Читать дальше...   )01. The Show 3:38
-02. Love Machine 3:27
-03. I'll Stand By You 3:45
-04. Jump 3:41(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A11E1419EA5F160F56703C993629A2200F565D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211636   (777153) от 08.03.2018
-
-Андрей Губин - Всегда с тобой (2002) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танцы
-02. Будь со мной
-03. Я всегда с тобой
-04. Крошка(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0033FD476F947C64EDCA8E557F0A8092A4E1A0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211449   (777205) от 08.03.2018
-
-группа Запад - Холод в моей душе… (1999) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не остановить
-02. Холод в моей душе
-03. Может быть стать нам ближе?
-04. Пустой вокзал(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5D7EDB90733F59F5A369132252DC3FBC51D798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211370   (777207) от 08.03.2018
-
-VA - Disco: Classic Singles (2018) [MP3|320 Kbps] <Disco, RnB, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kc & The Sunshine Band - (Shake Shake Shake) Shake Your Booty 3:06
-02. The Trammps - Disco Inferno 3:34
-03. Chic - My Feet Keep Dancing (7" Version) 3:44
-04. The Spinners - Are You Ready For Love (Single Version) 3:44(   Читать дальше...   )Жанр: Disco, RnB, PopПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4293B75D34AB5D38A005F85D250BCF2B9BA5368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211508   (777235) от 08.03.2018
-
-Venus Rising - Live On Venus (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance (5:11)
-02. Can't Get Enough (4:06)
-03. You Got Me Goin' (4:41)
-04. So Wonderful, So Beautiful (3:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C30ECC9813AC51E28FA3EEBB2A50176768A6F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211367   (777238) от 08.03.2018
-
-VA - NOW That's What I Call Running (2018) [MP3|320 Kbps] <New Wave, Britpop, Dance Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777238.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-  1. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
-  2. Camila Cabello feat. Young Thug - Havana
-  3. J. Balvin & Willy William - Mi Gente(   Читать дальше...   )Жанр: New Wave, Britpop, Dance Pop, DiscoПродолжительность: 03:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99AA54C903F857FA6C58338C33296E5B1B1075C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211382   (777239) от 08.03.2018
-
-VA - NOW That's What I Call Remix (2018) [MP3|~281-292 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777239.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Rag'n'Bone Man - Human (Rudimental Remix)
-2. Bruno Mars - That's What I Like (PARTYNEXTDOOR Remix)
-3. Justin Bieber & BloodPop feat. Julia Michaels - Friends (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759116999EF0291011AC3EF93D81A12F04222AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211682   (777242) от 08.03.2018
-
-Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Last Forever (8:26)
-02. Do As I Do (10:21)
-03. It Ain't No Big Thing (6:45)
-04. Mr. Blindman (5:14)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211692   (777244) от 08.03.2018
-
-VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iggy Azalea Ft, Quavo - Savior
-02. James Bay - Wild Love
-03. Blocboy JB Ft, Drake - Look Alive
-04. The Chainsmokers - Sick Boy(   Читать дальше...   )Жанр: Indie, Folk, Neo Soul, Dancehall, ElectropopПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211376   (777268) от 08.03.2018
-
-VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777268.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ofenbach & Nick Waterhouse - Katchi (Ofenbach Vs. Nick Waterhouse)
-02. Betta Lemme - bambola
-03. Lost Frequencies & Zonderling - Crazy(   Читать дальше...   )Жанр: Dance, Pop, Euro HouseПродолжительность: 2:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276D39E91EF550AA1FD450FD4BE075764CF48138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211543   (777270) от 08.03.2018
-
-Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777270.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01 Sound Of The Underground 3:41
-02 No Good Advice 3:48
-03 Some Kind Of Miracle 3:09
-04 All I Need (All I Don't) 3:40(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4239AFB788C344C715F59068ED1FDD2B19CA94
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1527712   (736339) от 29.01.2022
+
+VA - My Sexy Blues (2022) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ayo - Maybe (Ayo Blues) (03:28)
+02. Coco Montoya - It's My Own Tears (remastered) (06:00)
+03. Louisiana Red - Driftin' (05:45)
+04. J.J. Cale - Cloudy Day (05:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 06:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1FF41CE4628809785107CF1676EBB9E856DC59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527614   (736373) от 29.01.2022
+
+VA - Rap NNM 2022 [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nutcase22 - Captain (3:34)
+02. Juice WRLD - Burn (3:37)
+03. Travi$ Scott - ESCAPE PLAN (2:29)
+04. Macklemore, Windser - Next Year (2:53)(   Читать дальше...   )Жанр: RapПродолжительность: 03:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25337FFE4969D601E25D2216A0895D18A64368D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527637   (736387) от 29.01.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 28.01.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X & Jack Harlow - Industry Baby (3:32)
+02. Calum Scott & Lost Frequencies - Where Are You Now (2:28)
+03. Masked Wolf & Tom Walker - Something Beautiful (3:07)
+04. Ed Sheeran - Bad Habits (3:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E937A87D7CAEDDE63AE9F6512614EA3D038D3CF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527684   (736390) от 29.01.2022
+
+Дуэт Вибрация - Compilation (2022) [MP3|320 Kbps] <New Classical, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соло на двоих
+02. Сердце пустыни
+03. Ночная музыка
+04. Ностальгия(   Читать дальше...   )Жанр: New Classical, InstrumentalПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08F50BD28BE29EB73B79FC21E3012FC3EF6038E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527485   (736395) от 29.01.2022
+
+VA - Beautiful Smooth Jazz (2022) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас, без разницы какую роль играет в этом мире, верит в любовь. Кто-то уже нашёл своё счастье, а кто-то в поисках своей второй половинки верит и ждёт чуда! И оно непременно найдет каждого из Вас. Цените каждый момент, проведенный с любимыми! Говорит нам музыка с треков сборника "Beautiful Smooth Jazz"!001. Lisa Cat-Berro - Waiting For You
+002. 22° Halo Aka Lea Maria Fries - Ulysse
+003. Fourplay - 101 Eastbound
+004. Ronny Jordan - Mystic Voyage(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3C3FC8082BA4E1885BFDF88F12AC681634142A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527493   (736403) от 29.01.2022
+
+VA - New Electronic World: Neon Megamix (2022) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника "New Electronic World" полна ослепительных и захватывающих мелодий из эпических приключений и духа фантастического мира синематографа, смешанного со звуковыми эффектами трейлера в современном гибридном стиле. Если Вам нравиться музыка из фильмов со сценами героизма и духом приключений, эта подборка для Вас.001. Dimi Mechero - The Balconist
+002. Reinhard Vanbergen - Rythm Ace Band
+003. Benjamin B. - Repeat After Me
+004. Robert Babicz - Gatekeeper(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 12:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9A6D2BE9FC14C25002983FF24D42F8103F33E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527640   (736409) от 29.01.2022
 
 VA - Music News vol.162 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -533,168 +695,6 @@ VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5DD3A64E29F95F419EC6F7562863E270B49BEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526733   (738089) от 25.01.2022
-
-VA - Зима на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John Feat. Dua Lipa - Cold Heart (Amice Remix) (4:15)
-02. Люся Чеботина - СОЛНЦЕ МОНАКО (2:40)
-03. The Weeknd - Take My Breath (3:40)
-04. Дима Билан, Мари Краймбрери - Ты не моя пара (2:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1033542F59ABE9EAA9566183F52531F9588C7DF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526205   (738123) от 25.01.2022
-
-VA - Music For You vol. 22 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738123.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Accept - The Undertaker (05:38)
- 002. Accept - Too Mean To Die (04:21)
- 003. Acid Mammoth - Ivory Towers (06:18)
- 004. ADS - Nights Wolf (05:22)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 08:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C469DC038F31DA64BAC1DCC81A7DE5808306C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526455   (738124) от 25.01.2022
-
-VA - Bedroom  Jams (2022) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SZA - Good Days (5:39)
-02. H.E.R. - We Made It (5:16)
-03. Syd - Fast Car (4:43)
-04. Alex Isley - At Your Best (You Are Love) (4:42)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 02:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A09845BC60B22433C9E43C134A017DBAC87B3A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526515   (738127) от 25.01.2022
-
-Evgene Ikonnikov - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dog & Cat
-02. Antonina (Eurodance 90's)
-03. What Happened To You ( Piano - Pan Flute Disco Version )
-04. In 100 Years (New Version)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 07:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517CD0875D78E48EC4BCA8D072F57966E678DCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526737   (738143) от 25.01.2022
-
-VA - RADAR Global (2022) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zoe Wees - Hold Me Like You Used To - Piano Version (3:14)
-002. Griff - One Night (2:54)
-003. Keir - Say Love (3:31)
-004. S10 - Adem Je In (3:52)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 05:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF8016291CDCFF99A85CE1F994881AF3BB062A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526246   (738145) от 25.01.2022
-
-VA - Beatport Trance: Sound Pack #398 (2022) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете свежее Progressive House вдохновение? Считайте, что вы его нашли. Beatport представляет новый 398-й релиз , наполненный свежими Progressive House мелодиями, которые сейчас вновь популярны.001. Ferry Corsten - Brute
-002. Ferry Tayle & Dan Stone - Resilience
-003. GRUENHEIDE - HUFFLEPUFF
-004. Stoneface & Terminal - Azimuth(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6A1C07631B3EB202E3338188F73DE3A0BFB322
 ```
 
 

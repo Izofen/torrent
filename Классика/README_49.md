@@ -1,3 +1,195 @@
+###  Публикация: 984702   (938597) от 09.02.2016
+
+Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanze mit mir in den morgen (Tango 32 BPM) (2:54)
+02. Hemelsblauw (Rumba 25 BPM) (3:28)
+03. Help Yourself (Samba 50 BPM) (2:46)
+04. You Are My Sunshine (Quickstep 50 BPM) (2:34)(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AAC15412C21ED54877DB4A1EBC0EE520156870
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984116   (940059) от 08.02.2016
+
+Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nel Buio (1:22)
+2. Time Has Changed (6:05)
+3. Migrants (3:57)
+4. Shadow Land, Pt. 1 (3:56)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CD989538229046C68A5C9B8215575BBAA540C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091907   (941199) от 10.01.2017
+
+Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.1 Prélude (Presto) [00:00:50]
+02. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.2 Molto vivace [00:02:05]
+03. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.3 Paysage (Poco adagio) [00:05:20]
+04. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.4 Mazeppa (Presto) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 174728   (943318) от 12.02.2010
+
+Giacinto Scelsi - 35 albums (1997-2010) [MP3|320 кб/с]<Contemporary Classical, Avant-garde, Experimental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 12 Preludi - Preludio n. 1 (0:48)
+2. 12 Preludi - Preludio n. 2 (3:07)
+3. 12 Preludi - Preludio n. 3 (1:07)
+4. 12 Preludi - Preludio n. 4 (2:19)
+5. 12 Preludi - Preludio n. 4 (1:13)
+6. 12 Preludi - Preludio n. 6 (0:45)
+7. 12 Preludi - Preludio n. 7 (1:41)
+8. 12 Preludi - Preludio n. 8 (0:55)
+9. 12 Preludi - Preludio n. 9 (1:25)
+10. 12 Preludi - Preludio n. 10 (0:46)(   Читать дальше...   )Жанр: Contemporary Classical, Avant-garde, ExperimentalПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983517   (943613) от 06.02.2016
+
+Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy, Entremont, Power Biggs) [FLAC|Lossless|Track+.cue] <Классическая музыка, Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no. 3 in C major, op. 78 "Organ"
+01 -1a- Adagio
+02 -1b- Allegro moderato
+03 -1c- Poco adagio(   Читать дальше...   )Жанр: Классическая музыка, Classical, Romanticism, SymphonyПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5ADADC77874E07BB8589A8390EB8F7C09822EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091112   (944393) от 08.01.2017
+
+Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattinata (Leoncavallo)
+02. Libiamo,libiamo (Verdi)
+03. La danza (Rossini)
+04. O sole mio (Capua)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF94C9CCC49D17AEC61C178F416A3DFB5C5F1D8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625310   (945651) от 04.03.2013
+
+W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus Musicus Wien & Arnold Schoenberg Chor (1998) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC59A871D18D728803622414B55D6B4BCA000808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090830   (945700) от 07.01.2017
 
 Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984) [FLAC|Lossless|tracks+.cue] <Classical>
@@ -508,198 +700,6 @@ Izar Melting Pot Ensemble - The Melting Pot (2015) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D32E33741F743415EA73E8F8B28E88251297E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856416   (957505) от 05.01.2015
-
-VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957505.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Новогодних праздников, потянуло на классику. Почти 20 лет назад фирма NAXOS, известная своими выпусками классической музыки, выпустила этот бокс-сет из 3 дисков.
-Высокие ценители классики, конечно будут ворчать, что мол классика в такой популяризации не нуждается, а я вот придерживаюсь мнения, что собранные вместе шедевры мировых классиков смогут привить вкус (   Читать дальше...   )CD2:
-01. Wolfgang Amadeus Mozart - Ouveryr till 'Figaros brollop'  (4:04)
-02. Giacomo Puccini - Sa kall ni ar om handen ur 'Boheme' (Che gelida manina)  (4:30)
-03. Giacomo Puccini - En vacker dag ur 'Madame Butterfly' (Un bel di vedremo)  (4:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E74FAF62182E3124557A4C124F6F4BBC9F8665D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154210   (960618) от 25.01.2016
-
-VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот Box-Set из 6 CD представляет собой всесторонний обзор музыки барокко и может служить прекрасным "пособием" для тех, кто хотел бы узнать больше о стиле барокко. Здесь представлены лучшие произведения Баха, Генделя, Пёрселла, Вивальди, Скарлатти, Пахельбеля, Телемана, Боккерини и других композиторов... в исполнении Андрэ Морис, Арлин Оджер, Кристи Вильямс, (   Читать дальше...   )CD 1: ENGLAND AND THE BAROQUE
-CD 2: THE BEST OF ITALIAN BAROQUE
-CD 3: TREASURES OF THE MEDITERRANEAN BAROQUE
-CD 4: THE GLORY OF THE FRENCH BAROQUE(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:41:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265060   (960859) от 20.01.2014
-
-VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3|320 kbps] <Vocal, Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник мелодий и песен на тему "Новогодняя ночь" от Ридерз Дайджест.ТИХАЯ НОЧЬ
-01. Silent Night
-02. В лесу родилась елочка
-03. Lo, How a Rose E're Blooming(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 04:30:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 75291   (961903) от 24.01.2016
-
-VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cue]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD1: The great waltzes
-CD2: The romantic piano
-CD3: Mighty choruses(   Читать дальше...   )Жанр: ClassicПродолжительность: 09:00:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978058   (961955) от 24.01.2016
-
-Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in C minor, Triple Concerto (2011) [FLAC|Lossles|tracks + .cue] Classical, Classicism
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Trio in C minor, op. 1 no. 3
-01 (1) Allegro con brio
-02 (2) Andante cantabile con variazioni
-03 (3) Menuetto. Quasi allegro(   Читать дальше...   )Жанр: Классическая музыка, Classical, Classicism, Chamber, Concerto, TrioПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3AD6E670BE05B840C22E54EC106E18E6BDE562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978951   (962094) от 24.01.2016
-
-Stravinsky - The Rite Of Spring / Mahler - Symphony No.1 (2014) [FLAC 2.0|48.0/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композитор: Igor Stravinsky,  Gustav Mahler
-Дирижер: Zubin Mehta
-Оркестр / Ансамбль: Australian World OrchestraThe Rite Of Spring
-01. The Rite of Spring: Part 1, "The Adoration of the Earth" (16:43)
-02. The Rite of Spring: Part 2, "The Sacrifice" (18:54)
-Symphony No.1(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:37 - 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169715   (962396) от 28.01.2010
-
-Трио Сергея Жилина - П.И.Чайковский In Jazz - Времена Года (2005) [MP3|320 kbps]<Classical crossover, Jazz>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962396.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Декабрь	07:01
-2. У камелька	05:17
-3. Баркарола	11:05
-4. Осенняя песнь	07:47(   Читать дальше...   )Жанр: Classical crossover, JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 

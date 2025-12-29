@@ -1,3 +1,30 @@
+###  Публикация: 1539118   (659044) от 24.03.2022
+
+VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Believer
+02. Machine Gun Kelly - bloody valentine
+03. Jimmy Eat World - The Middle
+04. Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F9CEE17C28A393CB2FBAA69F975D67494C4618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139865   (659205) от 03.06.2017
 
 Montana - A Dance Fantasy Inspired By Close Encounters Of The Third Kind (1978) [MP3|320 Kbps] <Electronic, Disco>
@@ -668,30 +695,6 @@ Dogs Of War - Dogs Of War (1977) LP [MP3|320 Kbps] <Electronic, Space-Rock, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F6EAFF09F2DF9F472852851CBA71942D9CF06B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340427   (664607) от 22.05.2011
-
-Твой День (Виктор Попов) - Мама (1990) [MP3|256 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EEF0A4EFF98E62340C39FB594977AE46375BA4
 ```
 
 

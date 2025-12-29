@@ -1,3 +1,165 @@
+###  Публикация: 1458142   (1024034) от 28.03.2021
+
+The Dirty Mojo Blues Band - It Is What It Is (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Blues [00:04:37]
+02. Dirty Dog [00:02:47]
+03. Missin You [00:04:04]
+04. Pb and Jam [00:04:38](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E165652BCBBEA11C5BDAF10DDE72183B9F4917
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457908   (1024040) от 28.03.2021
+
+The Quill - Earthrise (2021) [MP3|320 Kbps] <Stoner Rock, Heavy Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hallucinate [00:04:12]
+02 - Keep On Moving [00:03:23]
+03 - Dwarf Planet [00:07:18]
+04 - Left Brain Blues [00:03:58](   Читать дальше...   )Жанр: Stoner Rock, Heavy Blues RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB41118E9136F208A07C0677AA8372CA063B8C27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457889   (1024041) от 28.03.2021
+
+Damon Fowler - Alafia Moon (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave It Alone [00:04:59]
+02. I've Been Low [00:04:16]
+03. Alafia Moon [00:04:34]
+04. Make The Best Of Your Time [00:05:40](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF65ACC486064D23A6462D13DB6F7736133473B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458144   (1024042) от 28.03.2021
+
+Gaelle Buswel - Your Journey (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Journey [00:03:29]
+02. Last Day [00:03:45]
+03. All You Gotta Do [00:03:51]
+04. Razor's Edge [00:04:52](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B2A8E6B6DB2A78D90BF2FBC42CDB618A68C0F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458162   (1024081) от 28.03.2021
+
+Trettioariga Kriget - Till horisisonten (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:00:49]
+02 - In Memoriam [00:07:38]
+03 - Tidigt [00:04:35]
+04 - Staden [00:06:38](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAF5EAA6B8BED64A035DE6BEA30FC08769AAA1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457531   (1024431) от 26.03.2021
+
+dArtagnan - Feuer & Flamme (2021) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024431.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. C'est la vie
+2. Feuer & Flamme
+3. Farewell
+4. Feste feiern(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBD95A321264A0E4E91EA48CB271F593D10D33A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457330   (1024635) от 25.03.2021
 
 Нервы - Неизданное 2010-2012 (2021) [MP3|320 Kbps] <Rock>
@@ -533,168 +695,6 @@ Benjamin Orr - The Lace (1986) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C8C6B534582BE23DDE77B13F004C176B295C529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453002   (1027245) от 09.03.2021
-
-Van-Zant - Van-Zant (1985) Reissue, 1997, Unidisc [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Sensation (03:46)
-02. She's Out with a Gun (03:40)
-03. I'm a Fighter (04:38)
-04. You've Got to Believe in Love (03:53)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893D3666DCA9FCA42EE42DE45D8CD3A07F485143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453087   (1027250) от 09.03.2021
-
-Utopia Press - Utopia Press (2021) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10000 Worries (05:32)
- 02. Took The Wrong Way (03:39)
- 03. Yesterdays News (05:18)
- 04. Just Another Day (04:01)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFB687D81EEF2A1ED7DB346211031454068202F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452862   (1027399) от 08.03.2021
-
-Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expedition To The Barrier Peaks [00:04:22]
-02. The Labyrinth Of Evermore [00:01:40]
-03. We're The Vegepygmies [00:03:36]
-04. Robot Police [00:04:09](   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865DB29F1EA005F7F0C40D37755DCEC4067048E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452490   (1027712) от 06.03.2021
-
-Святослав Вакарчук - Оранжерея (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027712.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Оберіг
-2. Лиш для нас
-3. Без причини
-4. Знову(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1ADAF65A2FD8F2480D4E6C79094C76361A9DB34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452303   (1027726) от 06.03.2021
-
-Marillion - With Friends At St.David's (2021) [MP3|320 Kbps] <Neo-Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaza (Live) (18:54)
- 02. Beyond You (Live) (06:31)
- 03. Seasons End (Live) (10:56)
- 04. Estonia (Live) (08:37)(   Читать дальше...   )Жанр: Neo-Progressive RockПродолжительность: 02:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D40A526180922A1C43611F30F3A23EBC04BFF5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451954   (1027939) от 05.03.2021
-
-Ken Hensley - My Book Of Answers (2021) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost (My Guardian) (04:44)
- 02. Right Here, Right Now (04:06)
- 03. The Cold Sacrifice (04:08)
- 04. The Silent Scream (03:19)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208D58C72220BD58A260CF9C224D4A4F9CF783C0
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1473187   (1013842) от 28.05.2021
+
+Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Haze (3:39)
+ 02. Hi (ft. Wu-Tang Clan) (2:51)
+ 03. Just Want to Be Liked (3:01)
+ 04. Unbelievable (3:31)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6E424E6D6B59EC943C69CBFA7DD5A2F96D1425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472686   (1014202) от 26.05.2021
+
+My Brothers And I - Love Is (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unrealistic Expectations (00:03:36)
+02. Own The Night (00:03:29)
+03. Long Distance (00:03:14)
+04. Look At You (00:02:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D9A07B8FD111866CCE23EBA053B6B706133EEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472106   (1014527) от 24.05.2021
 
 VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -642,60 +696,6 @@ VA - Acoustic Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD84DAB67A50A6DAFC2684AF3BDAC742979336D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457948   (1023762) от 29.03.2021
-
-Thomas Anders - Cosmic (2021) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Pop, Eurodisco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Rider [00:03:53]
-02. Undercover Lover [00:03:41]
-03. Ready For Romance [00:03:49]
-04. Je Ne Sais Pas [00:03:21](   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D166024055D91ED8BE0C5712AC89A2B32BA44D90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458157   (1024066) от 28.03.2021
-
-VA - 50s 60s and 70s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Take Me Home, Country Roads (Acoustic) (03:21)
-02. John Burnsby - I Saw Her Standing There (Acoustic) (02:58)
-03. Shannon & Keast - Sixteen Tons (Acoustic) (02:39)
-04. Logan York - I Heard It Through the Grapevine (Acoustic) (03:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E13035781BE95A2C5CE395FD4FAE0EC441CA14F
 ```
 
 

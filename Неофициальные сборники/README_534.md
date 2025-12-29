@@ -1,3 +1,165 @@
+###  Публикация: 1505334   (802866) от 28.10.2021
+
+VA - Synth of Waves 3 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castroe - Chase Arrival (Gertrudda Edit) (8:58)
+02. 2DCAT - On My Own (3:38)
+03. Runaway Droid - Dance (3:29)
+04. A-Reis - Hyperdrive (4:13)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18004B4D53A73D45BE844D65A5756FAFF123726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505350   (802927) от 28.10.2021
+
+VA - Synth of Waves 6 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demesys - Cocktails & Dreams & Tropical Haze (Gertrudda Edit) (7:53)
+02. Backfrom84 - Lost Summer Love (4:33)
+03. The Midnight - Nighthawks (Gertrudda Summer Mix) (8:17)
+04. Stan DuClare - Newtown Mall (3:14)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672A101E572290C756393D72DFC1F224A44A618D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505344   (802938) от 28.10.2021
+
+VA - Synth of Waves 5 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Mortal - Hex Machina (Gertrudda Edit) (5:08)
+02. Alex Boychuk - Escape (5:13)
+03. Michael Cassette - My Name Is Michael Cassette (Extended Mix) (5:28)
+04. FM Attack - Cinematic (4:37)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC8FDC4B660251228ECCDB7A0CE7D034AF2D783
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198962   (802943) от 14.01.2018
+
+VA - Hamid Production - The Best Of 2017 [MP3|192-320 Kbps] <Pop, Dance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Arash & Mohombi - Se Fue
+002 Anca Pop - Ederlezi
+003 Katy Perry - Roulette
+004 Mozhdah - Boro(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 05:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE5E69BC62E0C3175C35107340CF293796F2B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505548   (802950) от 28.10.2021
+
+VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Fury - Fair Enough
+002. Al Storm - Flashbacks
+003. Rob Iyf & Al Storm - Bitter, Sweet
+004. Korsakoff - Ready To Go(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120118   (803354) от 30.03.2017
+
+VA - Опасные Связи 20: Сборник Русского Шансона (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803354.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анатолий Полотно - Непогода
+002. Виктор Гурченко - Ча-Ча-Ча Синьор
+003. Виктор Северный - Роза Ветров
+004. Сергей Матвеев - Скатертью Зима(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88101C349647FA2B1B41EEFAE51450FF510F13F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120162   (803449) от 30.03.2017
 
 VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
@@ -534,168 +696,6 @@ VA - Future Trance Energy 001 April TOP (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C316CB817E021F6C2546283D7CCF222C769730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198895   (804414) от 13.01.2018
-
-VA - Back to the Terry's Café 1997-2014 - That's What I Call Soulful Deep House Music [Compiled by Firstlast] (2018) [MP3|320 Kbps] <Deep House, Tech House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klatsch - Do You Feel Alright [5:29]
-02. Pure Science - Oohaah [3:10]
-03. Toka - Tropika (Fred Everything Mix) [5:23]
-04. Ronin - Monk Sea [3:55](   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 04:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31387AFD0DE4A464B4AEB374765FA70528E2CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198740   (804420) от 13.01.2018
-
-VA - Melodic Techno Tom V (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hammer  -  Rails  6:00
-02.  Nils Hoffmann  -  Storms  5:13
-03.  Marcelo Paladini  -  Flying Bubble (Nicolas Rada Remix)  8:04
-04.  Aguizi & Fahim  -  Anova (Alfonso Muchacho Remix)  8:36(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C697CCDC218B190F8772B79E66CB129FE1F199F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198771   (804500) от 13.01.2018
-
-VA - Hits Cocktail vol.15 (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Nikita Ferra Ft. Tony B - For You (Original Mix)
-02. Hazel & CJ Stone - Beautiful (Hazel RMX)
-03. 3LAU - Star Crossed (CraZy M0NKeYs Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E549D31B7FEC144F09CF3D3721678F80EABD9EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198927   (804501) от 13.01.2018
-
-VA - The Official UK Top 40 Singles Chart 12.01.2018 [MP3|248-320 Kbps] <Electropop, Alternative, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran – Perfect 4:23
-02. Eminem – River (Feat. Ed Sheeran) 3:41
-03. Rita Ora – Anywhere 3:35
-04. Ramz – Barking 3:21(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A15BEDD743F02043046396F23A847E5D5C2690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198844   (804507) от 13.01.2018
-
-VA - Symphony GOA: Sunstate Pure Compilation (2017) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804507.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tim Bourne - Sages Of Sivana (Original Mix) [8:18]
-002. Electit - Music Is The Universal Language [8:38]
-003. Perfectone - Shanti Dancer [8:24]
-004. Knock Out - Fascinating Place (Intro) (Original Mix) [2:30](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37132A36BC4FA9F967DEB67B5C91B6D7038A52BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198884   (804510) от 13.01.2018
-
-VA - The Best Of Trance 64 (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tranceye & Sam Laxton  -  Hornet (Original Mix)  6:31
-02.  Sean Mathews  -  Rise Again (Extended Mix)  6:40
-03.  PARITY  -  Illusion (Extended Mix)  5:24
-04.  Alan Morris & La Antonia  -  Nowhere Left To Hide (Dub)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E01EADF618DEDC7AA1F2ADE534D761AA0E5468E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 631940   (919386) от 20.03.2013
+
+VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
+
+1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
+2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863597   (920051) от 29.01.2015
+
+Bjork - Vulnicura (2015) [FLAC|Web-Dl|Lossless]<Pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stonemilker
+ 02. Lionsong
+ 03. History of Touches
+ 04. Black Lake(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD69BDC72D64BEC42CBD2E43AA038ED7A17E8824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988415   (920553) от 20.02.2016
 
 Sade - The Best Of Sade (1994) Compilation [FLAC|Lossless|image + .cue] <Pop, Soul>
@@ -657,60 +711,6 @@ I Break Horses - Chiaroscuro (2014) [FLAC|Lossless]<Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B8A180A5C9602188C8426D2E0FB998337D9274F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093880   (932272) от 16.01.2017
-
-Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
-02. Heart Of The Sun
-03. Billy's Line
-04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985864   (932522) от 13.02.2016
-
-Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Love You (03:15)
-02. As Long as We're in Love (03:01)
-03. Breathe (03:07)
-04. She Knows Me (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
 ```
 
 

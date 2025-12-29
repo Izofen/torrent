@@ -1,3 +1,138 @@
+###  Публикация: 1286990   (707336) от 05.03.2019
+
+VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707336.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Invasiohm - Dark Connection (Original Mix)
+002. Black Fly - Hari Om
+003. Bumbling Loons - Mirage (Original Mix)
+004. Bunker Jack - Lunatic Time(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EF1508554800F9E265F199FD095C5ABAC87690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287023   (707357) от 05.03.2019
+
+VA - Beach Sound: The Velvet Jungle (2019) [MP3|320 Kbps] <Drum And Bass, Jungle, Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fishy - Enchanted
+002. Invadhertz - Deep In The Jungle
+003. Sappo - Survival
+004. Calibre - Zee Tone(   Читать дальше...   )Жанр: Drum And Bass, Jungle, BassПродолжительность: 07:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC6EE2D0A03EE71623AAC48F5040C4C4A2D6B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025811   (707724) от 13.06.2016
+
+VA - Бездна хитов DFM   (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flux Pavilion Feat. Tom Cane - Feels Good
+002. Толя Famous & Сергей Пичугин - Заведи Мой Пульс
+003. Ronan Keating - Let Me Love You
+004. Илага - От Края До Края(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056B3934DD83D559BA4337D87FC369EFCDBACB83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025967   (707739) от 13.06.2016
+
+VA - DFM Top 30 (10.06.2016) [MP3|112-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva Simons feat. Sidney Samson - Bludfire (3:10)
+02. Max - I'll come back for you (DFM Edit) (2:32)
+03. The Chainsmokers feat. Daya - Don't Let Me Down (W&W Remix) (3:16)
+04. Alan Walker - Faded (DFM mix) (2:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A054E6AAB32FA45208EEB5A3F39CE2D213B21F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025805   (707760) от 13.06.2016
+
+VA - Зайцев.нет Летний муз-отрыв №2 (2016) [MP3|160-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707760.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love
+002. Альбина - Не со мной
+003. Ханна - Омар Хайям
+004. Fifth Harmony - Worth It (feat. Kid Ink)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271F526036B67B60E1BCFEA25663119DBBCBD12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853298   (707787) от 17.04.2018
 
 VA - EUROMANIA (2014) 13CD [MP3|320 Kbps<Eurodance>
@@ -560,141 +695,6 @@ VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5E8BAB39A0380809A66F7774454BD0EC747524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131197   (708786) от 05.05.2017
-
-VA - Workout Mix vol.8 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Julian The Angel - Hands Up (Original Mix)
-02 - СС Music Factory & FTampa - Everybody Dance Now Ricky (DJ Vadim Adamov Mash Up)
-03 - David Guetta vs twoloud & Qulinez - Love Is Gone (Max Maikon Mash-Up)
-04 - Alex Gaudino - Destination (Vasiliy Francesco & Sergey Pirs Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998CC83D8408BA9C10D391FCAB293150680AD19B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131284   (708791) от 05.05.2017
-
-VA - Шальной шансон в дорогу выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708791.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Смирнов & Компания - Разлука 3:45
-002. Рома Рязанский - Это Было Давно 4:05
-003. Валерий Курас - Мамины Подружки 4:01
-004. Виталий Теринг - В Осколках Зеркал 4:03(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32008E6889467D00323E198B054D739AFFF2C05B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401567   (708814) от 10.08.2020
-
-VA - Жара 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doja Cat - Freak (4:44)
-002. Светлана Лобода Feat. Pharaoh - Boom Boom (3:44)
-003. Jony - Ты беспощадна (4:03)
-004. Pascal Letoublon - Friendships (Original Mix) (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210B778F927C99D6CE1BF84F2870F3C2189FCEC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533041   (708878) от 22.02.2022
-
-Almunia - Compilation (2022) [MP3|320 Kbps] <Space Age / Balearic / Nu Disco>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xeni
-02. Travel (Instrumental)
-03. L & G Psychedelic
-04. Ode To Mom(   Читать дальше...   )Жанр: Space Age / Balearic / Nu DiscoПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A69353739592B7B2FD797AD225147991FD7F76A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131328   (708892) от 05.05.2017
-
-VA - Dance Shape Workout Hits (2017) [MP3|320 Kbps] <Moombahton, Trap, Twerk, Bigroom, Electropop, Reggae, G-Funk>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timmy Trumpet And Qulinez - Satellites (Rockabeat Short Edit) 02:29
-02. Calvin Harris Ft. Young Thug Pharrell Williams And Ariana Grande - Heatstroke (Dj Rukus Intro Edit) (Clean) 03:38
-03. Judah And The Lion - Suit And Jacket (Radio Edit) 03:42
-04. Heroburst X Migos - T-Shirt (Benzi X Chuwe Edit) (Clean) 02:23(   Читать дальше...   )Жанр: Moombahton, Trap, Twerk, Bigroom, Electropop, Reggae, G-FunkПродолжительность: 04:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F231A569CAD809E84BEB994F9911108EAE5B5B2
 ```
 
 

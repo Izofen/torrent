@@ -1,3 +1,489 @@
+###  Публикация: 1278809   (768467) от 26.01.2019
+
+Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Hour Story (12:16)
+02. Imbalance (04:14)
+03. Conditional Futures (04:02)
+04. Floating City (03:38)(   Читать дальше...   )Жанр: Contemporary Classical, Instrumental, CelloПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278546   (768468) от 26.01.2019
+
+The Shadows - The Best Of The Shadows (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock, Rock-n-Roll>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowmix
+02. I Just Called To Say I Love You
+03. Apache
+04. Riders In The Sky(   Читать дальше...   )Жанр: Pop Rock, Rock-n-RollПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE60287C4E440B65FFFB29D26E80B1F9DE75BD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278581   (768471) от 26.01.2019
+
+Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Dreams [04:28]
+02. Century [03:07]
+03. Galaxy Falling [03:55]
+04. Tell the World [03:09](   Читать дальше...   )Жанр: Soundtrack, Instrumental, ScoreПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CB0DDFDA3391577FF3D201D9EC3BF6D40C800F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278574   (768475) от 26.01.2019
+
+Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across the Universe [03:13]
+02. Stellarium [03:37]
+03. Gauntlet [03:29]
+04. Beyond the Horizon [02:45](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8C9F7B278BF9B9B8CFFBA7EC6A30FA2684A565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278573   (768478) от 26.01.2019
+
+Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake [02:33]
+02. In the Dark Rise [02:29]
+03. Vortex [02:05]
+04. Eternity [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125287   (768590) от 14.04.2017
+
+VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/с]<Soundtrack, Hip-Hop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Thug, 2 Chainz, Wiz Khalifa & PnB Rock - Gang Up (03:52)
+02. Lil Uzi Vert, Quavo & Travis Scott - Go Off (03:38)
+03. G-Eazy & Kehlan - Good Life (03:46)
+04. PnB Rock, Kodak Black & A Boogie Wit da Hoodie - Horses (04:09)(   Читать дальше...   )Жанр: Soundtrack, Hip-HopПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125286   (768654) от 14.04.2017
+
+VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Hip-Hop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Thug, 2 Chainz, Wiz Khalifa & PnB Rock - Gang Up (03:52)
+02. Lil Uzi Vert, Quavo & Travis Scott - Go Off (03:38)
+03. G-Eazy & Kehlan - Good Life (03:46)
+04. PnB Rock, Kodak Black & A Boogie Wit da Hoodie - Horses (04:09)(   Читать дальше...   )Жанр: Soundtrack, Hip-HopПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907020AECF82FCB1184DA0D968CE46F776DC0065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124894   (768748) от 14.04.2017
+
+bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starlight (Live)
+02 - There's No Other Name (Live)
+03 - Extravagant (Live)
+04 - Breathe (Spontaneous)Жанр: Christians, worshipПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9DB40AAB982B00BF26AF48A5B1FBEB59BA3A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125154   (768807) от 14.04.2017
+
+Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetness 07:27
+02. Into the empty sky 05:21
+03. Arohanui - Call me with the Light of Love 05:45
+04. Offering to the Waves 07:12(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7938F3F90826419A0DB66B0546AC04965E4E3783
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125272   (768808) от 14.04.2017
+
+Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unlocked (3:48)
+02 - Airshow (3:35)
+03 - New Tricks (2:31)
+04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392124   (769371) от 25.06.2020
+
+Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-psychedelia, World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Class (04:47)
+02. Time (You And I) (05:42)
+03. Connaissais De Face (04:21)
+04. Father Bird, Mother Bird (03:05)(   Читать дальше...   )Жанр: Reggae, Funk, Neo-psychedelia, WorldПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016565   (769637) от 15.05.2016
+
+Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Breeze     05:05
+02. Upon the Water     05:20
+03. Carefree     05:22
+04. Offering of Love     06:08(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1284F39925C436E563572C3528F3B21F060B6A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778903   (769755) от 24.06.2020
+
+David Arkenstone - Frontier (2000) [FLAC|Lossless]<New Age, Soundtrack>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Theme (2:01)
+02. Rogers' Rangers (2:32)
+03. Indian Attack (5:28)
+04. Tippecanoe (2:51)(   Читать дальше...   )Жанр: New Age, SoundtrackПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9864AEA8E9F58AC5908A4A09BF54246066DB032C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779960   (770202) от 23.04.2014
+
+VA - The Best Tango Album In The World...Ever! (2014) [FLAC|Lossless]<Tango>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florindo Sassone & His Traditional Orchestra -  Caminito  (2:37)
+02.  Carlos Garcia & His Orchestra -  Mi Buenos Aires Querido  (2:51)
+03.   Iyri Pashali -  Espuma de Champagne   (3:26)
+04.  Alfredo De Angelis & His Orchestra -  El Choclo  (2:31)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEB06B77EACB9D3C90FF79F6667BB93662B9556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016626   (770336) от 14.05.2016
+
+Greg Maroney - Quiet Piano Improvisations, Vol. 1 (2016) [MP3|320 кб/с] <Instrumental, New Age, Piano solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterfall
+02. Spirit Within
+03. Cathedral
+04. Quiet Reverie(   Читать дальше...   )Жанр: Instrumental, New Age, Piano soloПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BD5E3BA7B6297D3F46A1761F931A979B86849C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277195   (771707) от 25.01.2019
+
+James Last - My Favourites. Die Schonsten Pop-Titel Aus Den Jahren 1989-1993 (1993) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Living Years
+02. (Everything I Do) I Do It For You
+03. Sacrifice
+04. Careless Whisper(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCECBF6388BD2C1E176B87F34AD981C7CA0F9BF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213037   (771743) от 16.03.2018
+
+VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Classical, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The King And I Medely: Getting To Know You/I Whistle A Happy Tune/I Have Dreamed/Shall We Dance? (7:50)
+2. As If We Never Said Goodbye/With One Look From Sunset Boulevard (4:14)
+3. How Are Things in Glocca Morra? From Finian's Rainbow (3:45)
+4. I'm Still Here From Follies (2:54)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543E41273136D37CE89EB1051B979B8DAFA6EAC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213070   (771762) от 16.03.2018
+
+The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Private Investigations
+02.Samba Pa Ti
+03.Apache
+04.Telstar(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B37C8E006F961F5DB95495170191317664D732F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278533   (771835) от 25.01.2019
 
 Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|tracks + .cue] <Modern Classical, Score, Post Rock, Minimal, Ambient>
@@ -209,492 +695,6 @@ Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124843   (773390) от 13.04.2017
-
-Ewan Dobson - 12 String Guitar (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic guitar, Fingerstyle, Folk>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Potion (3:08)
-02. Disk Read Error (4:21)
-03. Dancing With Her (3:17)
-04. Doctor Pepper Jam (3:50)(   Читать дальше...   )Жанр: Acoustic guitar, Fingerstyle, FolkПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8F764B1727710D99652C8EF3D7C33D6C7E0F71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124926   (773395) от 13.04.2017
-
-Kenio Fuke - Relaxing Melodies of Nature (2011) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for Kiara (4:41)
- 02. Summer's Love (4:59)
- 03. Espheras (4:29)
- 04. Infinite Love (4:50)(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C338FA7B906E7A434A63C15EF93B529C084779E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125006   (773447) от 13.04.2017
-
-David Wright & Carys - Prophecy (2017) [MP3|320 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watching for Nephele
-02. Serinus Rising
-03. Night Tide
-04. Diving Skywards(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D744E7F1FAF8D367331B897C3E40C9309DA0BF4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015656   (774168) от 11.05.2016
-
-Gyuto Monks of Tibet - Chants: The Spirit of Tibet (2013) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend Of The Yogi    05:25
-02. Bodihicitta    05:23
-03. Taya Ta    04:00
-04. Another World    04:01(   Читать дальше...   )Жанр: World, Ethnic, New AgeПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8436180CB7363EB38CA343039615CE231D3C424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277568   (774230) от 23.01.2019
-
-Salvador Candel - Gently (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Light of the Moon (3:05)
-02. Song for a Memory (5:30)
-03. By Your Side (4:34)
-04. Equinox (5:16)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C435ABFD8DB28EA154FC46AA2905F4FF66A36241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015721   (774273) от 11.05.2016
-
-Sverre Knut Johansen - Earth From Above (2016) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Skymood) (01:55)
- 02. Flying Birds (06:41)
- 03. Lost (05:01)
- 04. Awakening (05:59)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CDDCF7591AD8EFE5CF46248E59B41BBA9147B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212310   (774298) от 14.03.2018
-
-VA - Relaxation Collection 1 - Mirror Pond (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Light (05:04)
-02. The Sound of Still Water (04:02)
-03. The Silence of Knowing (04:32)
-04. My Life (05:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D286382D4177725F8497F7D5011DE499D711037E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212311   (774299) от 14.03.2018
-
-VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sailing Away-Govi
-02. Pastel Footprints-Thierry David
-03. Cry for Love-Omar Akram
-04. Don Juan-Johannes Linstead(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37553E1FD91D672DC0C2B7F49066A7317F3A15E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659765   (774419) от 23.05.2013
-
-VA - Лучшие песни из кинофильмов (2003 - 2004) 4 CD [APE|Lossless|image+.cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть фильмы, которые можно смотреть десятки раз и все равно не будет скучно. Это, конечно, лучшие советские фильмы. Многим из них уже пятьдесят, шестьдесят лет, но они не потеряли своей актуальности. Великие режиссеры создавали настоящие шедевры, великие актеры показывали на экране гениальных персонажей. Сегодня тоже снимают кино, но оно не то, что было раньше. У (   Читать дальше...   )01. Увертюра (т/ф 'Шерлок Холмс и Доктор Ватсон') (2:08)
-02. Непогода (т/ф 'Мэри Поппинс, до свидания') (3:12)
-03. Городские цветы (к/ф 'Куда он денется') (4:15)
-04. Цветные сны  (т/ф 'Мэри Поппинс, до свидания') (3:49)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74431FCDB11F843342DD7C28255AA024EE6A2E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212862   (774460) от 14.03.2018
-
-Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:10)
-02. Zero-X (04:00)
-03. Fading From View (01:33)
-04. Respire (03:49)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8AD5F41AA5170AE70B97351FEFABD1A11133A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015473   (774982) от 10.05.2016
-
-Gandalf - All is One - One is All (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Prelude - The Secret Inside
-02.	From The Depth Of The Earth
-03.	Starshine Of Ever
-04.	Interlude - One Thought(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9C92ADE8B4EF4A6A2789414F9C6BA61F074A4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015474   (774993) от 10.05.2016
-
-Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 кб/с] <New Age, Soundtracks, Easy Listening>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odyssey
-02. After Rainfall
-03. Petroglyphs
-04. Ancient Pathways(   Читать дальше...   )Жанр: New Age, Soundtracks, Easy ListeningПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1D24220F9A14D0965EE90F20BE447F13DD35CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276960   (775010) от 22.01.2019
-
-VA - Yoga Music Session 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Matterhorn (Original Mix) 4:06
-02. Prana Tones - Eastern Zen (Original Mix) 3:15
-03. La Estacion Del Mar - Punta Begona (Original Mix) 3:37
-04. Velvet Dreamer - Mystic Traveller (Eskadet Remix) 6:03(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AF19D141AF6890D6748D1E2D9C78343DAEDF5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015192   (775601) от 09.05.2016
-
-The Hero Guitar Maniacs - 50 Acoustic Guitar Classics (2014) [MP3|320 кб/с] <Acoustic,Guitar,Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Billy Jean (03:08)
-02.  Viking Man (03:19)
-03.  Barcelona (02:56)
-04.  Albatross (03:04)(   Читать дальше...   )Жанр: Acoustic, Guitar, InstrumentalПродолжительность: 02:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C5B7496A57C406C08B8506051488B3D2B264FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015053   (775763) от 09.05.2016
-
-The Nexion-Project - Voices Of The Ascension (2011) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn    02:15
-02. Passing Time    02:08
-03. The Second World    03:09
-04. Fly Away    03:14(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3873207E47D494DC66DBEE1CFEAC6E619848C24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212313   (775791) от 12.03.2018
-
-John Camacho - Morning Calm (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyful Moment
-02. Silent Water
-03. Blowing Wind
-04. Sunshine On You(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B3CA52A755D04A87F892961F1F6BC521A82E03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212250   (776058) от 11.03.2018
-
-Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Present (4:08)
- 02. Falling (3:37)
- 03. Spring Waltz (2:47)
- 04. Maybe (3:48)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520F9F2C0B847C9A4ECCBEF14DA7DDD4BE8A22D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014691   (776071) от 08.05.2016
-
-Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry For Me, Argentina 4:46
-02. Yesterday 5:37
-03. Hotel California 6:23
-04. My Heart Will Go On 4:38(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9B6A022C545626D44FEABDD86C421148B8B75
 ```
 
 

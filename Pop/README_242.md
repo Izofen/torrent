@@ -1,3 +1,30 @@
+###  Публикация: 1291359   (670690) от 24.03.2019
+
+Александр Солодуха - Сотни километров до любви (2005) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сахар
+02. Здравствуй, чужая милая
+03. Сотни километров до любви
+04. Песня души(   Читать дальше...   )Жанр: РорПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC47C4F0B4029E759BB7BEB9CB95C92B37F7782C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291291   (670694) от 24.03.2019
 
 !distain - Farewell To The Past (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
@@ -430,6 +457,33 @@ magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337654   (673957) от 16.05.2011
+
+Сергей Пенкин - Duets (Дуэты) (2011) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_673957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как жаль / Дуэт с Лолитой
+02. Я больше не хочу тебя терять / Дуэт с Ириной Аллегровой
+03. Любовь настала / Дуэт с Розой Рымбаевой
+04. Половинка / Дуэт с Ани Лорак(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290991   (674196) от 22.03.2019
 
 Юлианна Караулова - Быть сильными (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -639,60 +693,6 @@ VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030414   (674568) от 30.06.2016
-
-VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
-02. Joan Osborne - Saint Teresa
-03. Elton John - I Guess That's What They Call It The Blues
-04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136495   (674623) от 22.05.2017
-
-Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674623.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Amor (3:20)
-2. Nathalie (3:54)
-3. Pobre Diablo (2:54)
-4. To All The Girls I've Loved Before (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
 ```
 
 

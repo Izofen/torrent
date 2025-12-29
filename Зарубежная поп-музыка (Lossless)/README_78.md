@@ -1,3 +1,57 @@
+###  Публикация: 1114657   (831980) от 15.03.2017
+
+VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ike & Tina Turner - Please, Please, Please [06:57]
+02. Jerry Thomas - Feel So Good [03:22]
+03. Vanetta Fields - The Love Of My Man [04:01]
+04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114344   (832156) от 15.03.2017
+
+Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Up On Your Health
+02. Do Harm
+03. Small Towns
+04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501761   (833543) от 11.10.2021
 
 VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
@@ -639,60 +693,6 @@ CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378582   (844802) от 26.04.2020
-
-Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tu te laisses aller
-02 Les deux guitares
-03 J’ai perdu la tete
-04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002972   (845197) от 02.04.2016
-
-SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troubles Deep
-02. All Gone
-03. All You Need
-04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
 ```
 
 

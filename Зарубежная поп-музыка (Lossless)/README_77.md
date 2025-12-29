@@ -1,3 +1,57 @@
+###  Публикация: 1503564   (819487) от 19.10.2021
+
+Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss a Thing (3:57)
+03. Real Groove (3:15)
+04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BAEA3A1F28F4B5F5817E86CA29DC5849B44B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503572   (819495) от 19.10.2021
+
+VA - Gentle and Calm Instrumental Covers: 14 Beautifully Relaxing Instrumental Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yann Nyman - I Will Survive (Arr. for Piano) (03:06)
+02. Jonah Paris - Both Sides, Now (Arr. for Saxophone and Piano) (04:19)
+03. Max Arnald - Suburbia (Arr. for Piano) (03:55)
+04. Chris Mercer - Rocket Man (Arr. for Guitar) (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EC818846CF1F3B96C8062EDAB1FA5EF8DCE8F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503563   (819693) от 19.10.2021
 
 Kylie Minogue - DISCO (2020) [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
@@ -637,60 +691,6 @@ Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114657   (831980) от 15.03.2017
-
-VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ike & Tina Turner - Please, Please, Please [06:57]
-02. Jerry Thomas - Feel So Good [03:22]
-03. Vanetta Fields - The Love Of My Man [04:01]
-04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114344   (832156) от 15.03.2017
-
-Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Up On Your Health
-02. Do Harm
-03. Small Towns
-04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
 ```
 
 

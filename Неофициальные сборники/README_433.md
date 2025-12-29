@@ -1,3 +1,138 @@
+###  Публикация: 1133591   (691414) от 14.05.2017
+
+VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mr. President - 4 On The Floor 3:17
+002. Dj Bobo - Amazing Life 4:01
+003. E-Type - Angels Crying 3:51
+004. The Free - Dance The Night Away 3:51(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95C818E67826C4D7DA65E5016F8E89D1AABB4CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133954   (691422) от 14.05.2017
+
+VA - Душевный сборник Русского радио выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анжелика Султанова - Омут 4:36
+002. 2 Маши - Звезды 3:23
+003. Без Пароля - Киты 4:36
+004. Ira Smith - Мир В Тебе 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929526899DBEA9073E558D762FA1AF83AD3EF71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221679   (691457) от 26.04.2018
+
+VA - Best Vocal Trance 2018 vol.3 [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix)
+02. Akcess & Venetica - So Are You The One (Venetica Remix)
+03. Kaimo K & Jess Morgan - In A Whisper - (Extended Mix)
+04. 4 Strings & Fenna Day - Everybody's Gotta Learn Sometime (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57860BFFEBB15CB3CAAE59A061855E6D9FC112E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133911   (691473) от 14.05.2017
+
+VA - One Love Reggae: Soul Collection (2017) [MP3|250-320 Kbps] <Reggae, Lyric>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jah Cure Feat. Gyptian - More Thanks For 4:09
+002. Capleton - Caan Tan Yah 3:46
+003. Martha Pasch - La Revolution (Kingston Jam Mix) 3:51
+004. Anthony B - Change 3:57(   Читать дальше...   )Жанр: Reggae, LyricПродолжительность: 06:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E83FB51AA0017C4740A8780EEED535A3F9B6E99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133589   (691480) от 14.05.2017
+
+VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shanghai - Ballerina 3:22
+002. Creative Connection - Dont You Go Away 5:32
+003. Tony Caso - Motorcycle Madeness 5:28
+004. Torrevado - Living in the Shuttle 5:08(   Читать дальше...   )Жанр: Disco, Pop, Italo DiscoПродолжительность: 08:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD813C1E4270ED6C1454D024B504725E8FE8C98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133958   (691485) от 14.05.2017
 
 VA - Драйвовый молодежный весенний музон выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -564,138 +699,6 @@ VA - Chilling with Endless Nights (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86AF8EE77138F89E792808B4E40CA3EDC7ECE543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221542   (693177) от 25.04.2018
-
-VA - 125 Keep World DJ Loaded (2018) [MP3|256-320 Kbps] <Progressive, Future House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Finesse F. Cardi B (Mr. Collipark Remix) - Intro/Clean 4:25
-02. Tujamo & Sidney Samson - Riverside (Reloaded) (Dirty) (Short Edit) 2:17
-03. Dillon Francis - We The Funk (Sh8k Remix) 2:58
-04. Demar Jackson - Retawded F. Gucci Mane - Intro/Clean 4:03(   Читать дальше...   )Жанр: Progressive, Future House, ElectroПродолжительность: 07:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BE422766167CF3CCFEFBD9B8A17E542E26FD72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221532   (693180) от 25.04.2018
-
-VA - Night Dreamer: Chill Deep House (2018) [MP3|320 Kbps] <Deep House, Chill House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693180.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix)
-002. Natural Soul - Get Ready (Phisicall Lover Mix)
-003. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
-004. K Tonique - Give At To Me (Ibiza Night Mix)(   Читать дальше...   )Жанр: Deep House, Chill House, Electro HouseПродолжительность: 08:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CA7BDBE327D0F6CF7143647760EA071DA753D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221562   (693183) от 25.04.2018
-
-VA - DNA Injection: Techno Party (2018) [MP3|192-320 Kbps] <Techno, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693183.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске творится настоящая гипно бионическая магия. Быстрые биты и размеренно плывущая по синусоиде мелодия обрастает дополнительными гармониями и красками, и с каждой минутой прибавляется десятки дополнительных звуков, которые к пятой или шестой минуте унесут ваше сознание в умиротворенное и отстранённое пространство.01. NagoviciN - My Beloved Wife! (Original Mix)
-02. Frequency Fifty - A'Dora
-03. Joven Misterio - Shakerz Nights (Original mix)
-04. Robben Cepeda - Tribal Shades (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 05:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BC624160FB35CE6FD3B762088E9404C0768A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221529   (693185) от 25.04.2018
-
-VA - German Top 50 Party Schlager Charts (23.04.2018) (2018) [MP3|266-320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Helene Fischer - Nur mit Dir
-03. Ben Zucker - Was fur eine geile Zeit
-04. Beatrice Egli - Herz an(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FCDB3C386B762512E9464C10370E0EBD88416D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333284   (693313) от 07.05.2011
-
-VA - Самые Лучшие Хиты Радио Maximum Часть 1 (2011) [MP3|256 kbps]<Рок, Поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рок, ПопПродолжительность: 06:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4397AAC1271739DD12517A65CB9ED2D812BC1D1F
 ```
 
 

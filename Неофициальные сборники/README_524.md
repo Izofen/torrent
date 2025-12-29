@@ -1,3 +1,165 @@
+###  Публикация: 1200532   (795594) от 21.01.2018
+
+VA - Music For Your Car Vol.6 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kylie Minogue  -  Dancing  2:59
+02.  Tujamo & Sidney Samson  -  Riverside (Extended Mix)  3:54
+03.  Rudimental feat Jess Glynne vs. Macklemore & Dan Caplen  -  These Days  3:31
+04.  Tritonal & SJ  -  Calabasas  3:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87419A93528808F9682E8FDE65F40724F7C1EC35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011940   (795625) от 29.04.2016
+
+VA - Ibiza 2015. Massive Energy Flux. Vol.2 (2015) [MP3|249-320 кб/с] <Techno-House, Techno, House,>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincent Thomas - Wake Up Darling  09:37
+02. Tom Novy - Flashlights (Brad Wilder remix)  07:37
+03. Deniz Kabu - They Know My Face (original mix)  06:19
+04. Jaques Le Noir - The Glass  05:26(   Читать дальше...   )Жанр: Techno-House, Techno, House,Продолжительность: 03:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A8B5DF1EF3038ABB52973F8AE49DF11B7E84E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011969   (795626) от 29.04.2016
+
+VA - Dancify Dance & Club Music (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mydca -  Do You Feel My Love (Radio Edit)  3:23
+02. Discomaus -  Running (Fit for Sound Edit)  3:16
+03. California Sun -  Touch the Sky (Mydca Radio Remix)  3:28
+04. Eddy Chrome -  Feel It in Your Soul (Vocal Edit)  3:32(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF090F3DBCAFB3FEE4F0E62C2B89BAB9DA25447F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011961   (795627) от 29.04.2016
+
+VA - Daydreamer The Trance Party (2016) [MP3|320 кб/с] <Trance, Melodic, Emotional, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonid Gnip - Night Storm (Original Mix) 07:12
+02. Ledo - Morning Light 06:49
+03. Omniks And Eufonica - Adelia 07:46
+04. Alvaro Santis - Caronte 07:25(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Vocal Trance, Uplifting TranceПродолжительность: 09:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF2358DBB230F8E09BB3D8DEDFFD66C2F766D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011944   (795629) от 29.04.2016
+
+VA - Universe Trance Uplifting Mix April (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795629.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ian van Dahl - Try (Onova feat. Alphazone Bootleg remix)
+002. Denis Kenzo & Sveta B. - Let Me Go (Radio Edit)
+003. Lee Osborne feat. Roxanne Emery - Safe In The Sky (Original Mix)
+004. Muska - Tea (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 13:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAE82D3E845E3EC2C2C533F987EDC6B402D0AAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011133   (795635) от 29.04.2016
+
+VA - Massive Groove EDM Kits (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Digital Militia & Vanze ft. Tyler Fiore -  You Found Me (Original Mix)  4:15
+002. Mario Valley -  Don't (Radio Edit)  3:56
+003. Pixel Palmera -  ButtSoda (Original Mix)  3:32
+004. Reyko And John Meets Solid Rave -  Industry (Radio Edit)  3:22(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C0075D7FAC9A3F4313731A8D63BD31AD1F28B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200538   (795645) от 21.01.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0005 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -533,168 +695,6 @@ VA - Romantic evening (2020) [MP3|320 Kbps] <Rock, Electro, Techno House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F428AA5D7F852CD319235A5BB9708647D05ECBCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385770   (795910) от 27.05.2020
-
-VA - The Road to Punk Rock (2020) [MP3|320 Kbps] <Rock, Rock & Roll, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Urinals - I'm a Bug (1:12)
-2. Jack Starr - Born Bad (1:20)
-3. Ramones - Judy Is a Punk - 2016 Remaster (1:32)
-4. David Peel and The Lower East Side - Up Against the Wall (1:44)(   Читать дальше...   )Жанр: Rock, Rock & Roll, OtherПродолжительность: 05:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C25481874467DA3540C6AC6ADCA40B6A753E7D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385783   (795914) от 27.05.2020
-
-VA - Music News vol.9 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andreea Balan - Am Crezut In Basme (03:36)
- 02. ANIKV feat. Saluki - Меня Не Будет (Alex Shik Remix) (03:04)
- 03. Bramsito feat. Niska - Criminel (03:17)
- 04. Burak Cilt - She Said (Sharapov Remix) (02:46)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42858BC6F514B2A2698ED07BFCDE90C0C372906
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386097   (795918) от 27.05.2020
-
-VA - Women of Pop (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Charli XCX - enemy (3:43)
-2. Lady GaGa - Rain On Me (3:02)
-3. Dua Lipa - Break My Heart (3:41)
-4. Sia - Together (3:25)(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 03:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE86B2F472C55CF8D84E5A14FCBBC1D86207D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386124   (795919) от 27.05.2020
-
-VA - House of love (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Marvin Gaye - Let's Get It On (4:52)
-2. Etta James - I Just Want To Make Love To You (3:08)
-3. Grover Washington, Jr. - Just the Two of Us (7:23)
-4. Lee Fields & The Expressions - It Rains Love (3:55)(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 03:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2D0032E1641FB6BA9D707F52C0B858C03598A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386078   (795920) от 27.05.2020
-
-VA - Sad Songs Sing-along (2020) [MP3|320 Kbps] <Pop, Rock, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Billie Eilish - when the party's over (3:16)
-2. Sam Smith - How Will I Know (3:52)
-3. Rihanna - Stay (4:00)
-4. Bruno Mars - When I Was Your Man (3:33)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 04:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552E2A1F51FAE451D65490F931C26934DCAD8C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385870   (795926) от 27.05.2020
-
-VA - Acoustic Soul (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sinead Harnett - Be the One (acoustic) (2:24)
-2. Tété - The Sorrow Song (Acoustique) (3:43)
-3. Jessie Reyez - INTRUDERS (3:05)
-4. Black Pumas - Colors (Acoustic) (5:23)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59B5C6BE04724D12125743066102D3474573FD2
 ```
 
 

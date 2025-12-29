@@ -1,3 +1,165 @@
+###  Публикация: 1198895   (804414) от 13.01.2018
+
+VA - Back to the Terry's Café 1997-2014 - That's What I Call Soulful Deep House Music [Compiled by Firstlast] (2018) [MP3|320 Kbps] <Deep House, Tech House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klatsch - Do You Feel Alright [5:29]
+02. Pure Science - Oohaah [3:10]
+03. Toka - Tropika (Fred Everything Mix) [5:23]
+04. Ronin - Monk Sea [3:55](   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 04:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31387AFD0DE4A464B4AEB374765FA70528E2CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198740   (804420) от 13.01.2018
+
+VA - Melodic Techno Tom V (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Melodic Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hammer  -  Rails  6:00
+02.  Nils Hoffmann  -  Storms  5:13
+03.  Marcelo Paladini  -  Flying Bubble (Nicolas Rada Remix)  8:04
+04.  Aguizi & Fahim  -  Anova (Alfonso Muchacho Remix)  8:36(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C697CCDC218B190F8772B79E66CB129FE1F199F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198771   (804500) от 13.01.2018
+
+VA - Hits Cocktail vol.15 (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Nikita Ferra Ft. Tony B - For You (Original Mix)
+02. Hazel & CJ Stone - Beautiful (Hazel RMX)
+03. 3LAU - Star Crossed (CraZy M0NKeYs Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E549D31B7FEC144F09CF3D3721678F80EABD9EFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198927   (804501) от 13.01.2018
+
+VA - The Official UK Top 40 Singles Chart 12.01.2018 [MP3|248-320 Kbps] <Electropop, Alternative, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Perfect 4:23
+02. Eminem – River (Feat. Ed Sheeran) 3:41
+03. Rita Ora – Anywhere 3:35
+04. Ramz – Barking 3:21(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A15BEDD743F02043046396F23A847E5D5C2690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198844   (804507) от 13.01.2018
+
+VA - Symphony GOA: Sunstate Pure Compilation (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804507.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tim Bourne - Sages Of Sivana (Original Mix) [8:18]
+002. Electit - Music Is The Universal Language [8:38]
+003. Perfectone - Shanti Dancer [8:24]
+004. Knock Out - Fascinating Place (Intro) (Original Mix) [2:30](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37132A36BC4FA9F967DEB67B5C91B6D7038A52BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198884   (804510) от 13.01.2018
+
+VA - The Best Of Trance 64 (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tranceye & Sam Laxton  -  Hornet (Original Mix)  6:31
+02.  Sean Mathews  -  Rise Again (Extended Mix)  6:40
+03.  PARITY  -  Illusion (Extended Mix)  5:24
+04.  Alan Morris & La Antonia  -  Nowhere Left To Hide (Dub)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E01EADF618DEDC7AA1F2ADE534D761AA0E5468E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119849   (804571) от 29.03.2017
 
 VA - Лучшие хитовые Ретро Ремиксы от LORDEGRAF vol. 2 (2017) [MP3|320 Kbps] <Retro Remix>
@@ -533,174 +695,6 @@ VA - Chilltrap Vol.10 (Russian Version) (Compiled by ZeByte) (2018) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA7D36D554F7B7B59BD2F6E35FBB30C5518A633A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199359   (806741) от 08.05.2010
-
-VA - Лучшие Хиты Радио MAXIMUM (2010) [MP3|128 kbps]<Poк>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806741.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Глеб Самойлоff & The Matrixx - Никто не выжил
-002. Natalie Imbruglia - Scars
-003. Truffele и Лена Кауфман - Танцуй
-004. Delphic - Doubt
-005. Хаки - Любовь в кармане
-006. Robbie Williams - Morning Sun
-007. Radio ЧаЧа - Влюбленный металлист
-008. General Fiasco - Ever So Shy
-009. Светотень - ССГМ
-010. Hadouken - Mic Check(   Читать дальше...   )Жанр: PoкПродолжительность: 12:06:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119367   (806830) от 28.03.2017
-
-VA - Deep House Collection Vol. 114 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806830.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 1WayTKT feat. Nytasha Nicole - Dancing in the Rain  (Original Mix) 3:46
-002. Aberton - Just Dance (Original Mix) 6:45
-003. Andrey Exx, Elis M. Feeling feat. Mary Irene - Rapture  (Dim2Play & Techcrasher Remix) 6:24
-004. Alex Dee Gladenko - Attraction (Original Mix) 8:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7A68AEEC6A741E4A158E021CA8CBA27235672E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009640   (807024) от 22.04.2016
-
-VA - Дискотека 2016 Dance Club Vol. 151 (2016) [MP3|320 кб/с] <House, Electro House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akcent feat. Andrei Vitan - Maria Maria 03:05
-002. Mario Joy - California (Radio Edit) 03:13
-003. Macbass & Reden - Rubric (Original Mix) 05:35
-004. The Moonsters feat. Ruth Calixta & Gemeni - I Just Wanna He-Man 02:48(   Читать дальше...   )Жанр: House, Electro House, TranceПродолжительность: 12:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD3BF22867E9CB3AA596DAC9F26A76EB0358CE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119335   (807105) от 28.03.2017
-
-Non-Stop Vodka Dance - 6 альбомов (1996-1997) [MP3|256-320 Kbps] <Шансон, пародия>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non-Stop Vodka Dance part 1 (one)
-02. Non-Stop Vodka Dance part 2 (two)
-03. Non-Stop Vodka Dance part 3 (three)
-04. Non-Stop Vodka Dance part 4 (four)Жанр: Шансон, пародияПродолжительность: 04:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DD10C9C536BF44D445AD546018274FEDBE292A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884065   (807328) от 03.04.2015
-
-VA - In Da Club Vol.82 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hoyaa - Android (Original Mix)
-002. Umek & Beltek - Army Of Two (Jay Lumen Main Stage Remix)
-003. Markus Schulz & Dennis Sheperd - Go! (Original Mix)
-004. Luke Bond feat. Emel - Amaze (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Classic TranceПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F707CFD3E298F2C04B20878CFBF5DFD6AF6B50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119361   (807335) от 28.03.2017
-
-VA - Любимые песни шансона. Часть № 4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807335.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Лещев - Единое Целое 3:46
-002. Бумеr - Именем Республики 3:46
-003. Руслан Уфимский - Прощай Молодость 3:14
-004. Лариса Гордьера - Потревожила 3:46(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8E1E0C8656BE5EBD86BCC14C57057A3140185F
 ```
 
 

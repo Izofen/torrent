@@ -1,3 +1,165 @@
+###  Публикация: 1281219   (753372) от 07.02.2019
+
+VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753372.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jão - Vou Morrer Sozinho
+002. Dj Omega - Can't Wait
+003. Nicki Minaj & Murda Beatz - Fefe
+004. Four Of Diamonds - Stupid Things(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739C0CE94B8B0069B54280129282570A75AAA845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018705   (753810) от 21.05.2016
+
+VA - Дискотечный хит-парад №12 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимати feat. L'One - Я Хочу Тебя
+002. Стас Михайлов - Я Буду С Тобой
+003. Mozgi - Бармен
+004. НеАнгелы - Я Так Скучаю(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D787F0406FE3676D54ED95FFA6E9A2BA0EF215E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018777   (753891) от 21.05.2016
+
+VA - 100 пудовый хит 50х50 №2 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5sta Family - Метко
+002. Pitbull Feat. Gente De Zona - Piensas
+003. Ани Лорак - Медленно
+004. Gold Fields - Hold Me(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272E891BE88FCCBB38E416EA3066FADA6B614A4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018747   (753893) от 21.05.2016
+
+VA - Discoteka 2016 Dance Club Vol.152 (2016) [MP3|320 кб/с] <House, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobina & May, Britt Scheffer - Born Again 4:17
+002. DJ Smash - Feel The Summer 3:20
+003. Calvin Harris - This Is What You Came For (feat. Rihanna) 3:42
+004. Markus Schulz feat. Adina Butar - You And I 4:36(   Читать дальше...   )Жанр: House, Trance, Club, DanceПродолжительность: 12:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B6DF3926DDC6FB538796EE53E0E85E7D97E0E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018675   (753943) от 21.05.2016
+
+VA - Sleep Deep Piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Amadeus Mozart - Sonata no8 rondo allegro D major
+02. Johann Sebastian Bach - Goldberg Variations BWV988 Aria
+03. Richard Strauss - The Blue Danube
+04. Wolfgang Amadeus Mozart - Sonata No. 11 A major (Alla Turca) , KV 331(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDB23DB4D314EB651AE623F656216D435FCCB8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018641   (753955) от 21.05.2016
+
+VA - Acoustic Cafe: Relaxing and Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Munros - Homeward Bound - Cafe Mix
+02. The MacDonald Bros - When You Say Nothing at All
+03. Julienne Taylor - Turn out the Light - Cafe Mix
+04. The MacDonald Bros - Fields of Gold(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C336CD846FCA9202674A81917169E04FD70FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018600   (754007) от 21.05.2016
 
 VA - Dance Size Forever Moonlight (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -530,168 +692,6 @@ VA - Guitar Collection 4 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F4C3B2B22C9B3E59D80FAA12F2312E14FA4C00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395167   (755576) от 10.07.2020
-
-VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. C.K.B. Magnetophon - Hello Phobos Hello Deimos
-002. Sol Oosel - In Allegiance To The Unknowable
-003. Jeb Ash - More Towards You
-004. Mauro Rawn - Soundtrack(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 10:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAB96AD80FBB721DD61034C6D01E54CDECB5A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395168   (755580) от 10.07.2020
-
-VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claborg - Twenty Four
-02. Jack Le Funk - Get Funky
-03. Eliezer - Crown Zero
-04. Paul Older - A Boo Kee Moon(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 06:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79D14E1C63B3EBC1062053685D6B9E10E512707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018501   (755675) от 20.05.2016
-
-VA - Passion Dance Hit 90's (2016) [MP3|314~320 кб/с] <Techno, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Masterboy - I Got To Give It Up 6:01
-002. Leila K. - Murderer 3:11
-003. Heath Hunter - Revolution In Paradise (Boom Box Mix) 4:35
-004. Captain Hollywood - Over And Over 3:45(   Читать дальше...   )Жанр: Techno, Pop, DanceПродолжительность: 06:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4B05C8FDF62090BB46BAC61E53065BBA6B4810
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018359   (755678) от 20.05.2016
-
-VA - Радио Шансон. Союз The best (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755678.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Папа Радж - Мадам Постойте
-002. Виктор Королёв - Три Часа
-003. Сибирь - На Канарах И На Кипре
-004. Стас Притчин - Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EF8F8222A67424546DE792BF91D7695F913FA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018295   (755683) от 20.05.2016
-
-VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludovico Einaudi - Ora
-02. Luke Woodapple - The Awakening - Piano Solo
-03. Roland Orzabal - Mad World
-04. Max Richter - H in New England(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018342   (755685) от 20.05.2016
-
-VA - Русский Популярный Хит Формат (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Темникова - Ревность
-002. Блокбастер - Девушка-Печаль
-003. N.A.O.M.I. (Наоми) - Надо Бы
-004. Tiger Family - Доза Витамина(   Читать дальше...   )Жанр: PopПродолжительность: 11:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FA99678CC1FF0B716E0B6A59F9A0A45FFED797
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1132380   (701250) от 09.05.2017
+
+VA - Midnight In Blue: Original House Mix (2017) [MP3|320 Kbps] <House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alternative Kasual - Snatch 5:25
+002. Balearic Kings - Vamos a Bailar (Club Mix) 5:29
+003. ANDREA 2K - Chain Of Fools (2k17 remix) 3:54
+004. Anton Liss - Keep on Loving feat. Veselina Popova (Original Club Mix) 6:40(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 08:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F06030E7AD3FEB4F70DC21FFC0D72B273B3D030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132407   (701252) от 09.05.2017
+
+VA - Grotesque Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701252.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Moor & Somna - Look Back (Original Mix) 6:00
+002. Ronski Speed & Ana Criado - A Sign (Chris Metcalfe Remix) 6:22
+003. Giuseppe Ottaviani, Christian Burns - Brightheart (Extended Mix) 6:09
+004. Tribune - Everything About You (Cold Rush Remix) 5:34(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 13:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EE738DB1E4DB70240874C897591AA5E98D0BB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132387   (701259) от 09.05.2017
+
+VA - Весенний молодежный хитовичок. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701259.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mozgi - Мощь Сила 3:16
+002. G-Nise & Dj Настя Крайнова - Вдвоем 3:16
+003. Елена Есенина - Больше Не Враги 3:57
+004. Сиран Агасаров - Для Тебя 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C04F19754D0479D7222CEA1540BCD9DDEDE4C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026705   (701436) от 16.06.2016
+
+VA - Record Russian Mix (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юра Шатунов - Белые Розы (DJ Tarantino ReFresh) 5:08
+02. Чичерина - Ту-Лу-Ла (DJ Shtopor Remix) 5:13
+03. Aнастасия Новикова - Танцами (DJ Denis Rublev & TPaul Sax) 5:05
+04. Ханна - Мама, я влюбилась (Leo Burn Remix) 4:51(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FA6D0ADBA220944A24FCD7E62C37883FCCDFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402487   (701580) от 14.08.2020
+
+VA - не Громкие новинки недели 78 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archeenews - Лимузин (1:53)
+02. Buga - Изгибы Твоего Тела (1:54)
+03. Swaggy - Не Лечи Меня (2:19)
+04. Mull3 - В Саду (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6464FE51E2ACCA7E63BE370CA76B42A1DDC82B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287380   (701882) от 08.03.2019
 
 VA - Record Super Chart 576 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -559,141 +694,6 @@ VA - Радио Энерджи ТОП 30 Май (2017) [MP3|320 Kbps] <Pop, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250C0B9CAE4149E79E3085BA8903329CB0E2036B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132354   (702732) от 08.05.2017
-
-Afric Simone - Daya-Du-Da (2017)(Compilation) 2CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramaya
-02. Sympathy
-03. Daya-Du-Da
-04. Barracuda(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68A8614FD9ECEC6F9FDE7C31DF3E0A43344E255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132052   (702742) от 08.05.2017
-
-VA - Beatport Top 100 Downloads April (2017) [MP3|320 Kbps] <House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. CamelPhat - Hangin Out With Charlie (Original Mix) 6:22
-002. Tiesto, Sevenn - BOOM (Extended Mix) 3:54
-003. Dennis Cruz - Mad (Original Mix) 6:35
-004. Pastaboys & Osunlade - Deep Musique (Rampa Remix) 8:01(   Читать дальше...   )Жанр: House, Deep House, Electro HouseПродолжительность: 10:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FCE78B8F44377D3FB74E45F0C493F194F487E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132017   (702743) от 08.05.2017
-
-VA - Весна От Зайцев Нет (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Грибы - Копы (Vincent  Diaz Remix) 4:10
-002. Интонация (In2nation) - Танцуй 4:26
-003. A-Dessa - Всё Ровно 3:22
-004. Lx24 - Кайф (Dj Jan Steen Official Remix)(Radio Edit ) 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00A608B863D2F64BD0559C1410491093DE04147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132064   (702746) от 08.05.2017
-
-VA - Beatport Top 100 House April (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. George Kranz, Claptone - The Drums (Din Daa Daa) (Original Mix) 6:51
-002. Sasha feat. Polica - Out Of Time (Patrice Baumel Mix) 8:28
-003. Gorillaz, Jehnny Beth - We Got The Power (feat. Jehnny Beth) (Claptone Remix) 6:05
-004. Quim Manuel O Espirito Santo - Senhor Doutor (Adam Port Edit) 7:33(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 11:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3867D83C6C2A2C5EC8BC6C0329B3FA627A724EF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132278   (702747) от 08.05.2017
-
-VA - Russian Disco Compilation (2017) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Дюна - Привет с большого бодуна  2:24
-02.  Hi-Fi - Не дано  3:36
-03.  Андрей Губин - Зима-холода  3:52
-04.  Лариса Черникова - Ты не приходи  3:57(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0835749078CEDCF5FBC7E75B26042FC8AF7C5813
 ```
 
 

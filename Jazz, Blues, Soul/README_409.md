@@ -1,3 +1,162 @@
+###  Публикация: 1030616   (672406) от 01.07.2016
+
+The Cheaters - Train to Wilderness (2008) [FLAC|Lossless|image + .cue] <British Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Hip GirlЖанр: British Blues-RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB56D61031C945045F0D042F5CB8DCD0328A4BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030762   (672409) от 01.07.2016
+
+Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Lossless|tracks + .cue] <Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chiapas [08:30]
+ 02.Theme From 'Love Story' [06:11]
+ 03.The Peanut Vendor [09:01]
+ 04.Rhapsody In Blue [07:14](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DCD5E33993263FF76CC03D9C606CC890DD9229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290967   (672455) от 23.03.2019
+
+Halie Loren - From The Wild Sky (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roots (3:00)
+02. How to Dismantle a Life (3:16)
+03. Wild Birds (4:15)
+04. Paper Man (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D8D1605E737AAC247AD20C3C8C34408760A654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291129   (672471) от 23.03.2019
+
+Jim McNeely & Frankfurt Radio Bigband - Barefoot Dances And Other Visions (2017) Planet Arts [FLAC|Lossless|tracks + .cue] <Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob's Here [9:59]
+02. Black Snow [10:19]
+03. Barefoot Dances [6:46]
+04. A Glimmer of Hope [7:59](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFBC37E79B432D8BF15CF33B61B8C415B104A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136404   (672764) от 23.05.2017
+
+Barry White - Barry White's Greatest Hits (1975) Remaster, 1988, Casablanca [FLAC|Lossless|image + .cue] <Downtempo, Soul, Disco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Am I Gonna Do With You (3:31)
+02. You're The First, The Last, My Everything (4:33)
+03. Can't Get Enough Of Your Love, Babe (4:29)
+04. Honey Please, Can't Ya See (3:11)(   Читать дальше...   )Жанр: Downtempo, Soul, DiscoПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81C1E02171B8A1A5C28E8632557A06F812EBB8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136411   (672776) от 23.05.2017
+
+Dexter Gordon - Ballads (1978) 1995, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darn That Dream [07:33]
+02. Don't Explain [06:07]
+03. I'm A Fool To Want You [06:46]
+04. Ernie's Tune [04:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE270448FB959422DEF2B900BF887121F2364C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536687   (672894) от 13.03.2022
 
 The Bob Dorough Quartet - An Excursion Through "Oliver!": Songs From The Hit Show (1954) 2009, Classic Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Piano Jazz>
@@ -533,168 +692,6 @@ Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC9D80DFE5B621D48E7793B0BF8FA4969A73134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136392   (673335) от 23.05.2017
-
-Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673335.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues in Orbit:
-01. Three J's Blues [02:55]
-02. Smada [02:39]
-03. Pie Eye's Blues [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5463CDE0AE49ED2BDF09778EA21859DE31E9C59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136403   (673336) от 23.05.2017
-
-Gerry Mulligan - Midas Touch: Live in Berlin (1995) 2003, Concord Records [FLAC|Lossless|image + .cue] <West Coast Jazz , Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Back of the Barn [11:03]
-02. Intro & Comments by Gerry Mulligan [00:47]
-03. Wallflower [07:45]
-04. Midas Lives [10:08](   Читать дальше...   )Жанр: West Coast Jazz , CoolПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D258A2D34570969F826191DD739E27B8069856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136671   (673338) от 23.05.2017
-
-Duke Ellington - S.R.O. (1956, 1961, 1966) 1989, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. Medley: I Got It Bad and That Ain't Good/Things Ain't What They Used to Be [08:49]
-03. West Indian Pancake [04:36]
-04. Medley: Black and Tan Fantasy/Creole Love Call/The Mooche [09:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7392AE4D504ABCD4F69109F27DE86CC9227868D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136640   (673339) от 23.05.2017
-
-Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonk [02:50]
-02. Drawing Room Blues [03:42]
-03. Frankie and Johnny [02:40]
-04. Jumpin' Room Only [02:38](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD454DCDDEAB3B3352D7FB27B26721AF9731D663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136380   (673340) от 23.05.2017
-
-Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [01:11]
-02. Addi [03:20]
-03. Things Ain't What They Used to Be [03:33]
-04. Hello Dolly [03:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E6631CD3BBB1BD440EB66C71ADECCA5EB7A715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136376   (673341) от 23.05.2017
-
-Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [00:56]
-02. Johnny Come Lately [03:34]
-03. Swamp Goo [04:52]
-04. Knob Hill [07:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625845012DDB367F8D5D2972EC7F47C368D0809A
 ```
 
 

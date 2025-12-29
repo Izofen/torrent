@@ -1,3 +1,165 @@
+###  Публикация: 1363054   (945016) от 26.02.2020
+
+VA - Shazam Хит-парад Russia Top 100 Февраль (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Weeknd - Blinding Lights 3:22
+002. Artik & Asti - Девочка танцуй 4:22
+003. Тайпан x Agunda - Луна не знает пути 2:11
+004. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B030B15F4AA8895EDB5E29A9EF57E5E95005CF44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090903   (945029) от 08.01.2017
+
+VA - Ultimate Party Colors January (2017) [MP3|320 Kbps] <Future House, Progressive, Tropical, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Klingle - Colors Back (Marcus Santoro Remix)  3:28
+02.  D4L - Laffy Taffy (Mister Gray Remix)  3:52
+03.  DJ Snake - Let Me Love You (Don Diable Remix)  4:25
+04.  Matt Fax - Swench & Last Touch & Halv (Last Touch) (Extended Mix)  7:07(   Читать дальше...   )Жанр: Future House, Progressive, Tropical, Bassline, ElectroПродолжительность: 04:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A23F0C101FEC991ED5565124D86337E4B518A41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090960   (945070) от 08.01.2017
+
+VA - Enormous Digital Reading House (2017) [MP3|320 Kbps] <House, Tech House, Funky, Tropical, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren & Lyrica Anderson - Gotta Be Love (Arston Remix)  3:54
+02.  Pep & Rash vs. Lucas ft. Steve - Enigma (Extended Mix)  3:54
+03.  Quintino & Joey Dale Ft. Channii Monroe - Lights Out (Extended Mix)  3:38
+04.  twoloud - My Remedy (Official Untold Festival Anthem) (Radio Edit)  3:43(   Читать дальше...   )Жанр: House, Tech House, Funky, Tropical, ClubПродолжительность: 04:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285A493DD3E07A558193CEBC9357F23C99270D4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363023   (945187) от 26.02.2020
+
+VA - GNO: New Disco Funk (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curses - Back For More
+02. Juan Di Lago - It's Over (Extended Mix)
+03. Danky Cigale & Sydney-7 - Boom Boom
+04. Modern Boots - You're My Night, You're My Day(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 04:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D683000D7D1350A8B1D3B68A36E600E3ACD72A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982994   (945237) от 05.02.2016
+
+VA - Power Metal Ballads 21 (2016) [MP3|224 кб/с] <Ballads, Heavy, Sympho, Glam, Prog, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arrayan Path-The Poet Aftermath
+002. Burning Point-Was it Me
+003. Eyefear-Wasting Away (Alone)
+004. Gasoline Stars-All I Want Is You(   Читать дальше...   )Жанр: Ballads, Heavy, Sympho, Glam, Prog, Power MetalПродолжительность: 07:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F191B630B14E2178AE30BF47379CAD9CA5A8FDAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363099   (945259) от 26.02.2020
+
+VA - Disco At Chiken (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delia Renee - You're Gonna Want Me Back
+02. Lasser Drakar - Socialism Feat. Tara Delong
+03. Jkriv - Vertigo (Yuksek Remix)
+04. C. Da Afro - Rokit (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 07:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDF5D9A491100F55464F31F8BD17A6E3098D6F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983101   (945264) от 05.02.2016
 
 VA - Blues Forever vol.21 - vol.24 (2015) [MP3|320 кб/с] <Blues>
@@ -542,168 +704,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA4B7677FCC60DC8F13E7E7DC5478B7EE5534AB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982531   (946587) от 04.02.2016
-
-Nazareth - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Animals 1989 (03:57)
-02. Let Me Be Your Leader 1981 (03:51)
-03. Where Are You Now 1983 (03:55)
-04. Big Dog's Gonna Howl 2011 (03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC8724D2D4B0FBF94314AB48FE279F41D4DF5FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982537   (946597) от 04.02.2016
-
-David Bowie - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Art Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazarus 2016 (06:23)
-02. The Hearts Filthy Lesson (Good Karma Mix By Tim Simenon) 1995 (05:01)
-03. Ashes To Ashes 1980 (04:26)
-04. Let's Dance 1983 (07:38)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0556330202FC2E0782ECC129BFA939795008E568
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982602   (946708) от 04.02.2016
-
-VA - Blues Forever vol.17 - vol.20 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Doiron - Slippin' Back Into The Dip
-02. B.B.Chung King - When The Blues Catch Up With You
-03. Kenny Lee - Country Boy
-04. Jim Capaldi - Living On The Outside(   Читать дальше...   )Жанр: BluesПродолжительность: 05:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D6BF6F747838201620605AD0841885A4EA38C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982648   (946727) от 04.02.2016
-
-VA - Новая Русская Дискотека (2016) [MP3|205 - 320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анонс - С Новым Годом Обезьяны (03:52)
-02. Кирилл Филамешин - Белый снег (prod.ABS-DIGITAL ) (03:11)
-03. Aркадиас - Cоленый дождь (04:06)
-04. Арвид - Ты позови меня (03:48)(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E3C578905E77E0137F92797CBD7AE21CF7BF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751487   (946840) от 30.01.2014
-
-VA - Lounge At The Seashore 4 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aperitif Quartet - Another Drink
-002. Soleil Fisher - Daydreaming - Chill Mix
-003. Enigmatic - Jardin D' Hiver
-004. KZ Groove - Turchese(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3D5061BC28260523AAEFA6D18E265613A1C5F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982428   (946896) от 04.02.2016
-
-VA - House Nation Volume 1 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mat Zo - Lucid Dreams (The M Machine Remix) (05:24)
-02. Herve feat. Seasfire - Lose Control (Taiki & Nulight Remix) (04:23)
-03. Gareth Emery feat. Krewella - Lights Thunder (Darren Styles Remix) (05:06)
-04. Naughty Boy feat. Sam Smith - La La La (Kaos Remix) (03:55)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C82A0C6F9297AB3E6097AD18D65C68841A8E89
 ```
 
 

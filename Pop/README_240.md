@@ -1,3 +1,27 @@
+###  Публикация: 340427   (664607) от 22.05.2011
+
+Твой День (Виктор Попов) - Мама (1990) [MP3|256 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EEF0A4EFF98E62340C39FB594977AE46375BA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512105   (664812) от 18.06.2012
 
 Laura Branigan - The Platinum Collection (2006) [MP3|320 кб/с]<Pop>
@@ -674,33 +698,6 @@ Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291572   (668671) от 25.03.2019
-
-VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit, Jess Glynne - Rather Be (feat. Jess Glynne)
-02. Birdy - Keeping Your Head Up (Don Diablo Remix; Radio Edit)
-03. Rudimental, John Newman - Feel the Love (feat. John Newman)
-04. Flo Rida - Good Feeling(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0ED605D4D049C9FE2871DB5BC9F0476B019328A
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1001593   (852296) от 29.03.2016
+
+VA - 100 Fragments Of The Sun: Progressive Trance Compilation (2016) [MP3|320 кб/с] <Electro, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852296.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Klingle - Epilogue (Radio Mix)
+002. Gopar - Brighter Than Light (David Surok Remix)
+003. Mailman - Dream About Love ( Luca De Maas Remix)
+004. Armin Van Buuren Pres Gaia - Status Excessu D (Original Mix)(   Читать дальше...   )Жанр: Electro, Progressive TranceПродолжительность: 09:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A94703408A82CB0C481240F6D5C3ED564FC4AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001508   (852299) от 29.03.2016
+
+VA - Sunrise Lovers Vol.4 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Pearce - Rocket Man
+02. Jessica Hathaway - Like a Virgin
+03. James Walden - Europa
+04. Lounge Surfers - Holding Back the Years(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8A89296AF166D73BE2FD5C24CE527381984EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648542   (852961) от 25.04.2013
+
+VA - Рок в Авто (vol. 11) (2013) [MP3|320 кб/с]<Power Metal, Alternative Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of Seasons - Bubonic Waltz
+ 02. Visions Of Atlantis - Machinage
+ 03. Casus Belli - Mirror Out Of Time
+ 04. Sonata Arctica - Victoria's Secret(   Читать дальше...   )Жанр: Power Metal, Alternative Metal, Heavy MetalПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF6AFBA484256CF36DA2D4F99D0BE38DDEA8F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377161   (853138) от 21.04.2020
+
+Accept - 100% Accept (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balls to the Wall
+02. London Leatherboys
+03. Fight It Back (Album Version)
+04. Head Over Heels(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48202C769CCE8BF394AC1B658B0AC3487DF0B05D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377289   (853150) от 21.04.2020
+
+Judas Priest - 100% Judas Priest (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hellion
+02. Electric Eye
+03. Metal Meltdown
+04. Freewheel Burning(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C73479D3145D8822A3396162785179BA2FC949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377028   (853151) от 21.04.2020
+
+Axel Rudi Pell - 100% Axel Rudi Pell (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clown Is Dead
+02. The Crusaders of Doom
+03. The Line
+04. Mistreated (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF17345EBF6DD384E78AD81DED383FF38C2A618E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377083   (853154) от 21.04.2020
 
 Whitesnake - 100% Whitesnake (2020) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -532,165 +694,6 @@ VA - 90's Mixtape (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Disco, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB7F4C2BF65506A786D01BA270515F68B770FB41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498727   (854182) от 28.09.2021
-
-VA - Kiss FM Top 40 (21.09) (2021) [MP3|320 Kbps] <Pop, Dance, Disco, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Sarah Reeves - Tell Me Why (Extended Mix)
-02. Benassi Bros feat Sandy - Illusion (YARS Remix)
-03. Monastetiq & Starving Yet Full - Call On You (Extended Mix)
-04. Minelli - Rampampam (Vadim Adamov & Hardphol Remix)(   Читать дальше...   )Жанр: Pop, Dance, Disco, SynthpopПродолжительность: 03:29:43 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7D304135D26CEA676D9D9EA04DF75EE109D343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647879   (854226) от 24.04.2013
-
-VA - Eurovision Song Contest. Malmo 2013 (2013) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498771   (854291) от 28.09.2021
-
-VA - Music News vol.136 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mira & Javid - Sene Ne (03:33)
- 002. Alex Mica - Ven Atras (03:10)
- 003. AliB - Она Ушла (02:13)
- 004. Alishka feat. Rufo - Чёрный BMW (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459D5E1693CCF5098B17A3FE9149279F1FBC0A3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498593   (854399) от 28.09.2021
-
-VA - Fall Trends (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Gun Kelly - papercuts
-02. Taylor Swift - Lover
-03. The Lorax Singers - Let It Grow
-04. Florence + The Machine - Dog Days Are Over(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CADF05A63C74A47E3AF7D8C080BA91B8FDE41D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498605   (854405) от 28.09.2021
-
-VA - Pop Giganten Deutsche Poeten #2 (2CD) (2021) [MP3|320 Kbps] <Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854405.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Sarah Connor - Vincent
-02. Mark Forster - Ubermorgen
-03. Namika - Je ne parle pas francais (Beatgees Remix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 02:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CFE8D91E9D92211CD6F79E7F01DC4BECBD68BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498588   (854407) от 28.09.2021
-
-VA - Best Of Drum & Bass (2021) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nero - Promises
-02. Chase & Status Feat. Liam Bailey - Blind Faith
-03. Sub Focus Feat. Alpines - Tidal Wave
-04. Wilkinson & Becky Hill - Afterglow(   Читать дальше...   )Жанр: Drum & Bass, Drumfunk, SoulfulПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD61DBF1064CB1655AB9F00DC6316A7089E08385
 ```
 
 

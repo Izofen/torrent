@@ -1,3 +1,165 @@
+###  Публикация: 1273836   (798572) от 04.01.2019
+
+VA - Deep House Collection vol.194 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Sides Of Soul - Until You're Drunk (Original Mix)
+002. 84Bit - Vratice Se Rhodes  (Mirko & Meek Remix
+003. A. Rassevich - The Red Space  (Original Mix)
+004. Adam Rusi - EX (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 13:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87972462C7D25FE5C354B1E7A7F71CC37E0B790C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273834   (798574) от 04.01.2019
+
+VA - Deep House Collection Vol.193 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798574.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. al l bo - Vampired! (Hopeful Peace Remix)
+002. Alex Nothlich - Just That (Original Mix)
+003. Ally - Drug Talk (Original Mix)
+004. Alpha K & Joahn Dashi - When It Rains (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 13:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2445C73467CCA8F9DD6AA97ED46D319862C6F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273877   (798664) от 04.01.2019
+
+Creedence Clearwater Revival - Travelin' Band (2019) 2CD, Compilation [MP3|320 Kbps] <Folk Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fortunate Son
+02. I Put a Spell on You
+03. Cotton Fields
+04. Tearin' Up The Country(   Читать дальше...   )Жанр: Folk Rock, Classic RockПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE35585094BC1583FFD7B37011428B9A87A877C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273883   (798703) от 04.01.2019
+
+VA - До весны не будить... (2019) [MP3|320 Kbps] <Instrumental, Piano, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Richter, Yuki Numata Resnick, Ben Russell - Dream 3
+02. Matyas Bacso - Daydream
+03. Mathias Rehfeldt - Tundra
+04. Evgeny Grinko - Cold Morning(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F00F968F101917522F531E3F3F579ABF5ECDD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122653   (798795) от 05.04.2017
+
+VA - Lotus Blossom New Age Original Mix (2017) [MP3|320 Kbps] <New Age, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798795.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Midori - Faery Lore
+002. Ani Yun Wiya - Children Of The Earth
+003. Mark Eliyahu - Journey (Mehmet Gulec Remix)
+004. Calming Water Consort - Sleep Better(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 08:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E79F0556276ED96D85D2F78CAC41FC4DACFC52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122532   (798805) от 05.04.2017
+
+VA - Moon Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798805.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zac Harmon - Drowning in Hollywood
+002. Groovy Waters - Sugar
+003. Al Johnson - Carnival Time
+004. Banda Do Sul - Freed from Desire(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E0A4CAEC9BA6726D6DB1B19C0AC74F30392DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122444   (798833) от 05.04.2017
 
 VA - Sound Color: Popular Dance Music (2017) [MP3|256 Kbps] <Pop>
@@ -533,168 +695,6 @@ Vol. 1 - Barrow Wake:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273721   (799411) от 03.01.2019
-
-VA - Infinite Moment (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Das Butterschnitzel - Alarmclock
-002. OTR - Bliss (feat. Ashley Leone)
-003. Andrea Castello - Stint
-004. Neotropica - Orchidaceae(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C46FEC0F7B3CBFF178EBED3C86F47D2A57C4AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121692   (799596) от 03.04.2017
-
-VA - Music For Your Car Vol.2 (2017) [MP3|320 Kbps] <Hand Up, Hardcore, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Pulsedriver - Keep On Reaching (Hard Dance Mix)  5:03
-002.  Scooter - Friends (Alari Remix)  6:02
-003.  DJ Paffendorf - Dream & Dance (Max R. 2017 Radio Edit)  3:16
-004.  Jens O - On And On (Extended Mix)  4:24(   Читать дальше...   )Жанр: Hand Up, Hardcore, Dance, ClubПродолжительность: 07:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE65E0DE173DBE97AAD9990B9995BF4BE8FFD5B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121859   (799623) от 03.04.2017
-
-VA - Italo Disco Hits Vol.12 (2017) [MP3|320 Kbps] <Disco, Italo-Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cliff Wedge - Touch Me (Radio Edit)  3:23
-02.  Boris Zhivago - Deep In My Heart (Radio Vintage Mix)  4:57
-03.  TQ - Let The Night Remain Forever (Extended Version)  7:56
-04.  Amaya - Sensation (Extended Version)  4:40(   Читать дальше...   )Жанр: Disco, Italo-Disco, DanceПродолжительность: 05:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C986B19F3483C70503177D70F669E6010DCFCEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121855   (799645) от 03.04.2017
-
-Ольга Пирагс - Лучшие песни (2008) [MP3|224-320 Kbps] <Pop, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спасибо, музыка, тебе
-02. Дождевые кольца
-03. Два стрижа
-04. Старый рояль (feat. Игорь Скляр)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 04:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A2AAE49A1ABC73C7B18407F7F31C6569728D4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121727   (799649) от 03.04.2017
-
-VA - Beatport Top 100 Trance March (2017) [MP3|192-320 Kbps] <Trance, Progressive Trance, Uplifting Trance,Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robert Nickson - Heliopause (Original Mix). 07:20
-002. Cold Blue - Once In Time (Original Mix). 07:10
-003. Fady & Mina - Akemi (Extended Mix). 08:22
-004. Sam Jones - Good Love (Original Mix). 07:16(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance,Vocal TranceПродолжительность: 11:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6272F33BB2FA5604D3D47E22D26ECC1A54605B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121665   (799667) от 03.04.2017
-
-VA - Spring Party European EDM (2017) [MP3|320 Kbps] <Electro, Dance, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gary Optim - Fervor (Original Mix)
-002. Simon W - Cradle
-003. Tech Duo - Few Hearts But Techno
-004. Victor Bergh - Vaed(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 10:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17784CF401E06FFFE97F10C5297ABA6144F936B9
 ```
 
 

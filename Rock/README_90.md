@@ -1,3 +1,165 @@
+###  Публикация: 1489249   (927069) от 15.08.2021
+
+The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. West Hills
+2. Quiet Town
+3. Terrible Thing
+4. Cody(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EB63A7E973EE37A9B3101C9EE9266ECEE5823B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365961   (927262) от 09.03.2020
+
+VA - Fetenhits Rock Classics-Best of (2020) 3CD, Box Set [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927262.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Queen - Another One Bites The Dust 3:35
+02. Yes - Owner Of A Lonely Heart (Remastered 2003) 4:28
+03. Ram Jam - Black Betty 3:58(   Читать дальше...   )Жанр: RockПродолжительность: 04:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B264CE42813CBD8FE614432DBEE68F016D6653C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365859   (927404) от 09.03.2020
+
+10-я Октава - 3 Альбома (2017-2020) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:56]
+02. Карандаши [00:03:02]
+03. Тела [00:03:35]
+03. Тела [00:03:24](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F78B666A9AF584F37E0592C7A7B7351FCAC717D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094840   (927680) от 19.01.2017
+
+RPWL - 2 альбома (2015-2016) Live [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daybreak, Pt. I (8:33)
+02. Work (4:23)
+03. Afternoon (5:17)
+04. Doing It (3:43)(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E82E5FAA4FEF09300A3FB6E89512E16579D25D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094763   (927784) от 19.01.2017
+
+Katalina Gonzalez - Sin Paradigmas (2017) [MP3|320 Kbps] <Rock: Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nebuloso
+02. Confusion
+03. Senda Cosmica
+04. Leve(   Читать дальше...   )Жанр: Rock: Instrumental RockПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C70A02C73E3DFBE3EF72DD75AFB00B44E35583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094517   (929385) от 18.01.2017
+
+Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coolin'
+2. Best Woman, Best Friend
+3. Live Your Love A Lie
+4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 177533   (930375) от 21.02.2010
 
 Sigur Ros - Discography (39 albums) (1997-2010) [MP3|320 kbps]<Post-Rock, Ambient, Shoegaze, Experimental>
@@ -544,165 +706,6 @@ Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A4BBC11AE6468450E068F7E37DEE8AED6E20892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982765   (946658) от 04.02.2016
-
-Elton John - Wonderful Crazy Night (2016) Deluxe Edition  [MP3|320 кб/с] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Crazy Night
- 02. In The Name Of You
- 03. Claw Hammer
- 04. Blue Wonderful(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54F8E0A103E0B3C0FD7A84B8BD740CDD8AF3E0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 173697   (948748) от 08.02.2010
-
-Creedence Clearwater Revival - (Collected) (2008) [MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 03:16:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362078   (951011) от 22.02.2020
-
-Beat City Tubeworks - Top Rock (2020) [MP3|320 Kbps] <Rock'n'Roll, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roadrunner (03:45)
-02. Succubus (02:56)
-03. Ivory Wave (03:45)
-04. Fading to Grey (04:01)(   Читать дальше...   )Жанр: Rock'n'Roll, 70'sПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DDE6FA12E2C6B45B32D156B6FBA462EF295DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981716   (951302) от 01.02.2016
-
-Chris Rea - Still So Far To Go...The Best Of (2009) 2CD [MP3|140~234 кб/с (V2)] <Rock, Pop, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 2
-01. The Road to Hell (Part 2) 04:33
-02. Auberge 04:43
-03. Winter Song 04:38(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95A94B30A6AA0FE66EDCAC5737BE729574891C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361997   (952447) от 21.02.2020
-
-Alpha To Omega - A Life (1976) Reissue CD, 1997, Black Rills Records [MP3|320 Kbps] <Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha (6:11)
-02. Easygoing Childhood (1:10)
-03. The Grey City (5:38)
-04. The First Day At School (4:34)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1192BFF30ADF43BD9D869432A429A3B4EFE6F96D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981090   (952607) от 31.01.2016
-
-VA - Ultimate Rock - 4CDs of great rock music (2015) [MP3|320 кб/с] <Hard Rock, Metal, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952607.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 CD - 17 tracks - 01:16:52
-2 CD - 18 tracks - 01:05:50
-3 CD - 19 tracks - 01:17:39
-4 CD - 18 tracks - 01:03:28Жанр: Hard Rock, Metal, Classic Rock, Other Rock, BluesПродолжительность: 04:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33966FB8D866EDE5E5357A44643CBD02A60EE00A
 ```
 
 

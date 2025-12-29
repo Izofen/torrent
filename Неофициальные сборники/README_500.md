@@ -1,3 +1,165 @@
+###  Публикация: 1013122   (777607) от 04.05.2016
+
+VA - Радио Шансон. Легендарные хиты №1 (2016) [MP3|219-232 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777607.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. М.Круг - Владимирский централ
+002. В.Коротин - Девчонка из Кургана
+003. И.Кучин - Человек в телогрейке
+004. Г.Кричевский - Мой номер 245(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456C9ABC7FA83E380D6CB2E9033D94E5063DFDA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013147   (777610) от 04.05.2016
+
+VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rita Ora - Poison
+002. Джиган - Ахумилительная Туса
+003. Dushia & Bel-Mondo - Change Me
+004. Filous Feat. James Hersey - How Hard I Try(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92B21201696E2EFE9375C962F2B62CA93535698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013349   (777613) от 04.05.2016
+
+VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rozalla -  Everybody's Free (To Feel Good)  3:33
+02. Crystal Waters -  100% Pure Love  3:08
+03. Faithless -  Take The Long Way Home  4:06
+04. Elton John -  Can You Feel The Love Tonight  3:59(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA310B9A2EEFC59D6388D58314E056A8D756CA4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013179   (777619) от 04.05.2016
+
+VA - Зажигательный молодежный музыкайф на Europa Plus - 4 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kat Deluna Feat. Jeremih - What A Night
+002. Элемент - Музыка
+003. Milena - One Two Three
+004. Катя Нова & Dee Flack - Я Буду С Тобой(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4C66608D90228DF2F0377F696ACF30F4DD5C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013181   (777620) от 04.05.2016
+
+VA - Euro Best Hits N7 Top 100 (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X Ambassadors - Renegades
+02. The Chainsmokers feat. Rozes - Roses
+03. Zara Larsson - Lush Life
+04. Yall feat. Gabriela Richardson - Hundred Miles(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77CE850A7C74EC9E04DBD3A99AC5FD4F61A0D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013604   (777624) от 04.05.2016
+
+VA - TOP 100 Deep House (April) (2016) [MP3|24-320 кб/с] <House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriatique - Soul Valley (Original Mix)
+02. Alok & Fractal System feat. Bea Jourdan - Don't Ya (Lodeek Remix)
+03. Alok & Fractal System feat. Bea Jourdan - Dont Ya (MichaelBM & Minow Remix)
+04. Andre Queiroz - The Temple (Original Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 11:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD6C7596FC4642283AF25E4B48AC6CF494E56BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013344   (777630) от 04.05.2016
 
 VA - Гуляй Душа. Хит-Парад (2016) [MP3|256 кб/с] <Шансон>
@@ -532,168 +694,6 @@ VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79E6DCFD737F854D79A6B683BEA372697F6847DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012760   (778328) от 02.05.2016
-
-VA - Русское радио. Веселой Пасхи! (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Агонь - Я Буду Любить Тебя
-002. Винтаж - Немного Рекламы
-003. Виталий Козловский - Отпускаю На
-004. Aisha - Сильно Сильно(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DABD94A0BD08B5D0E5E4B3C50C02A02280DE4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012857   (778331) от 02.05.2016
-
-VA - Супер Auto-Hit Новинки (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778331.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zion & Lennox - Embriagame
- 002. Катя Нова & Dee Flack - Я Буду С Тобой
-003. Joyce Edwards - Обжигая Крылья
-004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A36745D01FB574D04F49E877790852F5C2089A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012346   (778338) от 02.05.2016
-
-VA - Mega Hits Euro Top N7 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milena - One Two Three
-02. Remady & Manu-L - Another Day In Paradise
-03. Sak Noel & Luka Caro & Ruben Rider - Pinga
-04. The Avener & Kadebostany - Castle In The Snow(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE3A5C8AA1D061DFA563DB062E212464992B47F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012401   (778339) от 02.05.2016
-
-Никола Питерский - Каторжанин (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каторжанин
-02. Склонен к побегу
-03. Мы с малолетки
-04. Конвой(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3915594C51F3563BDD9FB11DC95800B1DF2A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012934   (778340) от 02.05.2016
-
-VA - Superior Lounge Vol.2: 25 Premium Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaser — Deep Waves — Original Mix
-02. Trinity — Starnight — Original Mix
-03. Ida Malstroem — So Hot — Original Mix
-04. Modern Lounge Heroes — A Journey — Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B3478122BB146B7178BB68C99979172C749FC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012751   (778344) от 02.05.2016
-
-VA - Горячая весенняя дискотека (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyosha - Капли
-02. Инь - Ян - Рассвет (DJ Noiz Remix)
-03. Вера Брежнева - Номер 1
-04. Подиум - Любовь Зла(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6955A42476395DB9BBBF4F0FBB89EA64AC17D1
 ```
 
 

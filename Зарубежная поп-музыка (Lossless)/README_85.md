@@ -1,3 +1,55 @@
+###  Публикация: 1370671   (893513) от 29.03.2020
+
+Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxbow (02:53)
+02. Can’t Do Much (03:44)
+03. Fire (03:37)
+04. Lilacs (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E9A020C13D9E040C9A66405F23B217A47C56C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493739   (893680) от 04.09.2021
+
+ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You [00:05:10]
+02. Don't Shut Me Down [00:03:58]Жанр: PopПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739353961066D076F51F7C12B318E8F65B675C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493796   (893855) от 04.09.2021
 
 Smokey - Alice, Who The F*** Is Alice (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover>
@@ -654,60 +706,6 @@ Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098845   (908872) от 30.01.2017
-
-Tomita Lab - Shipahead (2010) [FLAC|Lossless|tracks + .cue] <JPop, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Taint (3:01)
-02. Pedro, Shouboushi to Sensuifu (feat. Motoharu Sano) (4:52)
-03. Shipahead (0:45)
-04. Yasoukyoku (feat. Hitomitoi) (5:46)(   Читать дальше...   )Жанр: JPop, JazzПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4819E755A27C0F182C0211C74FD7F856DB25E1DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098284   (908876) от 30.01.2017
-
-Unspoken - Follow Through (2016) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Christian, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Higher  (03:28) 
-02|  The Cure  (03:29) 
-03|  Open the Clouds  (03:10) 
-04|  Miracle  (03:12) (   Читать дальше...   )Жанр: Christian, Pop, RockПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F37CE9119F0DC7C595007D164570515795D7DB
 ```
 
 

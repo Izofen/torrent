@@ -1,3 +1,165 @@
+###  Публикация: 983503   (943727) от 06.02.2016
+
+VA - Yet Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knight Crawler - World Of Make Believe [00:04:21]
+02. Oxygen - Anything For You [00:03:43]
+03. Shining Line - Strong Enough [00:05:16]
+04. Metropolis - Walk Through The Fire [00:03:54](   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6B49C65FCDA6B507A233EBA8E0F655FC69A675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983436   (943734) от 06.02.2016
+
+VA - Драйвовый жаркий музон (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Базиль - Ищи Другого
+02. Zara Larsson - Lush Life
+03. T - Pain - Coming Home
+04. Олеся Астапова & Jahroom - Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5A1499F28F5FDFD8CA2494DC77763F036DB2D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983373   (943735) от 06.02.2016
+
+VA - 100% Рок Billboard (2016) [MP3|320 кб/с] <Pop, Pop-Rock, Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Muse – Mercy
+2. Panic! At the Disco – Hallelujah
+3. Iamx – Happiness
+4. Apostol Feat. Mc Davi & Swed - Deal the final blow(   Читать дальше...   )Жанр: Pop, Pop-Rock, Electro, DanceПродолжительность: 01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2F14ABE63971DD7A6C40401EA08106F3D7E386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983366   (943742) от 06.02.2016
+
+VA - Dance Зарубежка.Top 150 (2016) [MP3|256-320 кб/с] <Club, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eurythmics - Sweet Dreams (DJ Vengerov Remix)
+002. Misha Pioner feat Annet - Addicted (Serge Devant Cover) (Original Mix)
+003. Panjabi MC - Mundian To Bach Ke (DJ Bandit Remix)
+004. D.Matrosov - Like That(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 10:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79CA87E632F21DD9CB555D6DCD28F85C6201251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363292   (943759) от 27.02.2020
+
+VA - Breathe Fire: Beach Dance Classics Radio (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bramd - Home (Dance Radio Edit)
+002. Chris Burke - Freak
+003. Stuart Mcniven - 3rd Inferno
+004. Louder - Leo In Space(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 07:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB34A93A4A348ECCD79BC01D5A28888DD9788CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363287   (943765) от 27.02.2020
+
+VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943765.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nick Henley - Progression
+002. Ruddek - Boring Talk (Extended Mix)
+003. Plurthlings - On Shrooms
+004. Mi Ni - Power Of You(   Читать дальше...   )Жанр: Dance, Club, Techno, HouseПродолжительность: 08:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5A24A5F257FA83DDC6CB4D80EA7030BFAABBC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983565   (943866) от 06.02.2016
 
 VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, Chillout>
@@ -544,168 +706,6 @@ VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C69485C0823B74EBB00AEE3109FD73A3A354AA47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363054   (945016) от 26.02.2020
-
-VA - Shazam Хит-парад Russia Top 100 Февраль (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Weeknd - Blinding Lights 3:22
-002. Artik & Asti - Девочка танцуй 4:22
-003. Тайпан x Agunda - Луна не знает пути 2:11
-004. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B030B15F4AA8895EDB5E29A9EF57E5E95005CF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090903   (945029) от 08.01.2017
-
-VA - Ultimate Party Colors January (2017) [MP3|320 Kbps] <Future House, Progressive, Tropical, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Klingle - Colors Back (Marcus Santoro Remix)  3:28
-02.  D4L - Laffy Taffy (Mister Gray Remix)  3:52
-03.  DJ Snake - Let Me Love You (Don Diable Remix)  4:25
-04.  Matt Fax - Swench & Last Touch & Halv (Last Touch) (Extended Mix)  7:07(   Читать дальше...   )Жанр: Future House, Progressive, Tropical, Bassline, ElectroПродолжительность: 04:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A23F0C101FEC991ED5565124D86337E4B518A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090960   (945070) от 08.01.2017
-
-VA - Enormous Digital Reading House (2017) [MP3|320 Kbps] <House, Tech House, Funky, Tropical, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren & Lyrica Anderson - Gotta Be Love (Arston Remix)  3:54
-02.  Pep & Rash vs. Lucas ft. Steve - Enigma (Extended Mix)  3:54
-03.  Quintino & Joey Dale Ft. Channii Monroe - Lights Out (Extended Mix)  3:38
-04.  twoloud - My Remedy (Official Untold Festival Anthem) (Radio Edit)  3:43(   Читать дальше...   )Жанр: House, Tech House, Funky, Tropical, ClubПродолжительность: 04:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285A493DD3E07A558193CEBC9357F23C99270D4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363023   (945187) от 26.02.2020
-
-VA - GNO: New Disco Funk (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curses - Back For More
-02. Juan Di Lago - It's Over (Extended Mix)
-03. Danky Cigale & Sydney-7 - Boom Boom
-04. Modern Boots - You're My Night, You're My Day(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 04:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D683000D7D1350A8B1D3B68A36E600E3ACD72A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982994   (945237) от 05.02.2016
-
-VA - Power Metal Ballads 21 (2016) [MP3|224 кб/с] <Ballads, Heavy, Sympho, Glam, Prog, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945237.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arrayan Path-The Poet Aftermath
-002. Burning Point-Was it Me
-003. Eyefear-Wasting Away (Alone)
-004. Gasoline Stars-All I Want Is You(   Читать дальше...   )Жанр: Ballads, Heavy, Sympho, Glam, Prog, Power MetalПродолжительность: 07:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F191B630B14E2178AE30BF47379CAD9CA5A8FDAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363099   (945259) от 26.02.2020
-
-VA - Disco At Chiken (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delia Renee - You're Gonna Want Me Back
-02. Lasser Drakar - Socialism Feat. Tara Delong
-03. Jkriv - Vertigo (Yuksek Remix)
-04. C. Da Afro - Rokit (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 07:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDF5D9A491100F55464F31F8BD17A6E3098D6F2
 ```
 
 

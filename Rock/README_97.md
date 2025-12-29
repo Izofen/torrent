@@ -1,3 +1,165 @@
+###  Публикация: 1453002   (1027245) от 09.03.2021
+
+Van-Zant - Van-Zant (1985) Reissue, 1997, Unidisc [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Sensation (03:46)
+02. She's Out with a Gun (03:40)
+03. I'm a Fighter (04:38)
+04. You've Got to Believe in Love (03:53)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893D3666DCA9FCA42EE42DE45D8CD3A07F485143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453087   (1027250) от 09.03.2021
+
+Utopia Press - Utopia Press (2021) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10000 Worries (05:32)
+ 02. Took The Wrong Way (03:39)
+ 03. Yesterdays News (05:18)
+ 04. Just Another Day (04:01)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFB687D81EEF2A1ED7DB346211031454068202F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452862   (1027399) от 08.03.2021
+
+Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expedition To The Barrier Peaks [00:04:22]
+02. The Labyrinth Of Evermore [00:01:40]
+03. We're The Vegepygmies [00:03:36]
+04. Robot Police [00:04:09](   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865DB29F1EA005F7F0C40D37755DCEC4067048E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452490   (1027712) от 06.03.2021
+
+Святослав Вакарчук - Оранжерея (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027712.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Оберіг
+2. Лиш для нас
+3. Без причини
+4. Знову(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1ADAF65A2FD8F2480D4E6C79094C76361A9DB34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452303   (1027726) от 06.03.2021
+
+Marillion - With Friends At St.David's (2021) [MP3|320 Kbps] <Neo-Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaza (Live) (18:54)
+ 02. Beyond You (Live) (06:31)
+ 03. Seasons End (Live) (10:56)
+ 04. Estonia (Live) (08:37)(   Читать дальше...   )Жанр: Neo-Progressive RockПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D40A526180922A1C43611F30F3A23EBC04BFF5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451954   (1027939) от 05.03.2021
+
+Ken Hensley - My Book Of Answers (2021) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost (My Guardian) (04:44)
+ 02. Right Here, Right Now (04:06)
+ 03. The Cold Sacrifice (04:08)
+ 04. The Silent Scream (03:19)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208D58C72220BD58A260CF9C224D4A4F9CF783C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452035   (1027956) от 05.03.2021
 
 Santiano - Sea Shanty – Wellerman (2021) [MP3|320 Kbps] <Folk Rock>
@@ -533,168 +695,6 @@ Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Cros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61FC73B05DE939A71F9919265BC324353EECDA17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446191   (1032988) от 08.02.2021
-
-The Rolling Stones - Love (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Hear You Sigh (Remastered)
-02. Loving Cup
-03. Tops (Remastered)
-04. Beast Of Burden (Remastered)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C3ED2AE938FA27FBD0ED5B9E426038E1074833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619114   (1033009) от 16.03.2023
-
-RPWL - Crime Scene (2023) [MP3|320 Kbps] <Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victim Of Desire [00:08:16]
-02. Red Rose [00:05:34]
-03. A Cold Spring Day In ґ22 [00:04:20]
-04. Life In A Cage [00:06:11](   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2114D2E06C445CFEF69757DAFD52A9519EAFF50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619265   (1033205) от 15.03.2023
-
-The Michael Wynn Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Rock, Funk / Soul, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of The Night (3:42)
-02. Don't Need Nobody (3:20)
-03. Shine On (4:58)
-04. Let Your Guitar Cry (4:00)(   Читать дальше...   )Жанр: Rock, Funk / Soul, Hard RockПродолжительность: 01:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FEB21B092DA4BFF085A0FF6E7C37D7594B58F4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618944   (1033683) от 13.03.2023
-
-Topas - Topas (1980) LP [MP3|320 Kbps] <Electronic, Krautrock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane (4:18)
-02. From Coast To Coast (4:32)
-03. Days Of Summer (4:47)
-04. Hello And Goodbye (4:40)(   Читать дальше...   )Жанр: Electronic, Krautrock, Classic RockПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA54C8AC17F15757145F4A28B4525E27A1B8706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445069   (1033754) от 05.02.2021
-
-Transatlantic - The Absolute Universe: Forevermore (2021) Extended Version, 2xCD [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033754.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Overture (08:12)
- 02. Heart Like a Whirlwind (05:11)
- 03. Higher Than the Morning (05:30)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A95D8684D16A0E7B53EB8770835DAE28BBF799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444813   (1034234) от 03.02.2021
-
-Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AZ1M (04:15)
- 02. The Fish (03:57)
- 03. Phantom Scimitar (05:49)
- 04. The Fountain Of Enkidu (07:25)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43851A760CD4E9F019A1F4EED61A196C5B2E07F
 ```
 
 

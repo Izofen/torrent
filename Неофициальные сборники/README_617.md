@@ -1,3 +1,172 @@
+###  Публикация: 577999   (929644) от 14.03.2013
+
+Plexus (39 releases)(2011-2013) [MP3|320 кб/с]<Electronic, Ambient, Trance, Chill Out, Neo Classic, Downtempo, Psy Chill, Lounge, Enigmatic, Ethno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eguana - Intro (1:44)
+02. Eguana - Dawning (4:08)
+03. Eguana - The Elbowrooms of Cosmos (9:17)
+04. Eguana - The Ruin of the Galaxy (3:36)
+05. Eguana - Steaming (3:49)
+06. Eguana - Hidden Dreams (3:55)
+07. Eguana - Epilepsy (4:01)
+08. Eguana - Celestial Shepherd (3:50)
+09. Eguana - Insomnia (5:06)
+10. Eguana - My Dreams (4:25)Жанр: Ambient ~ Chill Out ~ DowntempoПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365406   (929881) от 07.03.2020
+
+VA - Свежий Русский Хит от ALEXnROCK часть 1 (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю прекрасную половину человечества С наступающим женским днём! Всё что делаем мы мужчины, всё для вас и ради вас. Вы наше вдохновение и стимул для новых вершин! Всем любви и удачи!
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2020 год.01. Михаил Бублик — Дует Ветер
+02. Эдуард Хуснутдинов — Красавица Востока
+03. Красавцы Love Radio — Рандеву (D. Anuchin Radio Edit)
+04. Ани Лорак & Миша Марвин — Ухожу(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F063500391A65111EBDC199267A37738303AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093485   (930001) от 17.01.2017
+
+VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смысловые Галлюцинации - Зверь 2
+02. Крематорий - Супермаркет
+03. Би-2 - Лайки
+04. Lumen - Голоса мира(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094096   (930128) от 17.01.2017
+
+VA - Deep House Collection Vol.104 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930128.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Acid Eyes,A. Rassevich - I'm Moving (A. Rassevich Remix) 5:37
+002. Aiiso - Your Love Is an Echo (Original Mix) 5:32
+003. Alex Cruz feat. Gabbi Lieve - Sweet Child (Original Mix) 4:46
+004. Alok & Fractall Ft. Bea Jourdan - Don't Ya (Natema & Kary Remix) 7:08(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80F3BF89FD89AA6219E4EA1C929A65A80E27016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094141   (930145) от 17.01.2017
+
+VA - Pop-Rock Ballad: Love Stories (2017) [MP3|239~320 Kbps] <Pop, Rock, Lyric>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Chris De Burgh - Confession  3:01
+002.  Yello - Dark Side  4:17
+003.  Rae Sremmurd Feat. Gucci Mane - Black Beatles  4:52
+004.  Sia - Big Girls Cry  3:31(   Читать дальше...   )Жанр: Pop, Rock, LyricПродолжительность: 08:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E76588012B6774574894B39886C9574A36ADEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986380   (930237) от 14.02.2016
+
+VA - Молодежная 100-ка. Сборник популярной музыки (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Светлана Лобода - А Может К Черту Любовь 03:34
+02. Denis Kenzo & Sarah Lynn - Ashes 03:53
+03. Виктория Ланевская - Начать С Нуля 03:32
+04. Ольга Горбачева - Самый Лучший День 04:01(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B1634F16D5D5E31DAF3B3C919E83736AEA29FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094072   (930248) от 17.01.2017
 
 VA - Record Russian Mix Top 100 January (2017) [MP3|320 Kbps] <Club House, Pop-Dance, Electro House>
@@ -533,168 +702,6 @@ VA - Рок впрок 5 (2016) [MP3|320 kbps] <Рок, Поп-Рок>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093794   (932265) от 16.01.2017
-
-VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
-02.  David Gravell - Battlefront (Extended Mix)  5:23
-03.  Heatbeat - Aerys (Mark Sherry Remix)  3:35
-04.  Tycoos - We Will Meet Again (Original Mix)  5:55(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 06:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3562A11B9E04A2F66D9FD936B8C5D8D08FED9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986282   (932318) от 13.02.2016
-
-VA - Без баб и водки. Русский блатной сборник (2016) [MP3|256-320 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932318.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бутырка - Без баб и водки
-002. Алексей Ром - Над Темной Водой
-003. Гр. Наш Город - Телефонный Разговор Обамы И Путина
-004. Андрей Андреев - Ночь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B12F6638D3D07950BD723DABBBE00923D5EB0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093818   (932374) от 16.01.2017
-
-VA - Record Super Chart #470 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clean Bandit feat Sean Paul & Anne Marie - Rockabye (Denis First Remix)  4:08
-02.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-03.  KSHMR & B3nte & Badjack - The Spook Returns  3:10
-04.  Alan Walker - Alone (DJ Amice Remix)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1B51DE9D53731270AE0AC26521E8F28FAAF3D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094001   (932428) от 16.01.2017
-
-VA - Автозвук. Отборный зимний хит (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferreck Dawn - Mad Love 3:34
-002. Анна Добрыднева - Ты Свет 3:37
-003. Cazzette - Static 3:27
-004. Роза Мажонц - Мадонна 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B44016543692EC354035C77E74B309420AEDC2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093978   (932434) от 16.01.2017
-
-VA - 100 пудовые зимние хиты на Europa Plus. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932434.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bruno Mars - Chunky 3:07
-002. Stas Prime Feat. Mary Pen - Подари Мне Любовь 3:25
-003. Rae Sremmurd - Black Beatles 4:52
-004. Александр Прокофьев - Над Морем 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411BC1834EAA644F1894156846DC26DB05F1470D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093999   (932437) от 16.01.2017
-
-VA - Дискотека зимних дорог. Русские хиты. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анастасия Спиридонова & Dj Fenix - Родина Моя 3:13
-002. Елена Темникова - Счастье 3:18
-003. Kosmos - Давай Навсегда 3:18
-004. Shami Feat. Арни Saveolla - Танцуем 5:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9543AD56AB31D7714066EB8DE2550E5E7BB1C6C
 ```
 
 

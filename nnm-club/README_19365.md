@@ -1,663 +1,687 @@
-###  Публикация: 1200949   (794972) от 22.01.2018
+###  Публикация: 1123685   (785950) от 10.04.2017
 
-Газета | Дача №2 (98) (январь 2018) [PDF]
+VA - Melodic Vocal Lounge Vol.1: Chill Out Summer Session (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Журналы
->>Домоводство (журналы)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794972.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Газета "Дача" - верный ассистент для садоводов и огородников. Все ответы на основные вопросы дачников и садоводов Вы просто отыщите на страничках издания. Своими секретами больших урожаев, советами и фуррорами делятся огородники со стажем Воспользуйтесь их опытом и таковым образом Вы убережете высадки от почти всех напастей. На страничках журнальчика - (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+01.  Chilhouette - All I Wanna Be  4:12
+02.  Debora Vilchez - The Words You Said (Smooth Vocal Flair Mix)  5:23
+03.  Major Pete - Just Three Words (Vocal Mix)  4:35
+04.  Dimentia - You Don't Know (Vision Of Love Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E2DEEFC5B6DEAC4A2D74C212F7EE5F5B1030F3D
+magnet:?xt=urn:btih:A0DC9B98EB6EC8D5F2B327B7CA1C54A7065BF2F9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200955   (794973) от 22.01.2018
+###  Публикация: 1123970   (785951) от 10.04.2017
 
-Журнал | Цветок №2 (332) (январь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B44C2E46CD93A7A60B32918AE275AEEF83689B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200765   (794974) от 22.01.2018
-
-Walking Papers - WP2 (2018) [MP3|320 Kbps] <Rock>
+Brian Setzer - Rockabilly Riot! All Original (2014) [FLAC|Lossless|image + .cue] <Rockabilly, Rock & Roll>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794974.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Luck Pushed Back (03:54)
-02. Death On The Lips (04:29)
-03. Red & White (05:47)
-04. Somebody Else (03:42)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:33
+01. Let's Shake  (03:29) 
+02. Rockabilly Blues  (03:43) 
+03. Vinyl Records  (03:22) 
+04. Lemme Slide  (02:04) (   Читать дальше...   )Жанр: Rockabilly, Rock & RollПродолжительность: 00:39:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F42B24F14256E7EEF14676C8876E7263B01F88C
+magnet:?xt=urn:btih:7DD1D91810C67F0B7212987030A079A8010725ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200975   (794975) от 22.01.2018
+###  Публикация: 1123821   (785952) от 10.04.2017
 
-Signus - Black Hole (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash-O-Disc (7:09)
-02. James Bond Jet Set (10:52)
-03. Tarzan Disco King (10:01)
-04. Me And... My Super Friends (9:54)Жанр: Electronic, DiscoПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8208F8B0E9CF661D8DC7A56D0122E2F7E9BE8811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200735   (794976) от 22.01.2018
-
-Lunar Testing Lab - Discography 11 Releases (2008-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Downtempo, Experimental>
+VA - Best Of Chillout 100 Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
 
 >>Electronic
->>IDM (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fur - Black Castles (Lunar Testing Lab Remix) (04:30)
- 02. Specta Ciera - UFO Landing (Electromodule Remix) (04:39)
- 03. Lunar Testing Lab - MK Naomi (04:45)
- 04. Lunar Testing Lab - Mock Orange (LTL Remix) (04:37)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Ambient/IDMПродолжительность: 02:00:16
+001.  Matthias Reis - Dark Places (Outro)  0:51
+002.  Roben Bucks - Wilderness  2:13
+003.  Heso - Peaceful  5:45
+004.  Emanuela Visentin - Hotelplan (Chillout Mix)  3:53(   Читать дальше...   )Жанр: Downtempo, Chillout, BalearicПродолжительность: 08:14:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24CD1CBF3F74D7E7768694F6FFC4246759FCC778
+magnet:?xt=urn:btih:7E02A13BC6E649509364D980384BEAF8821FA165
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200726   (794977) от 22.01.2018
+###  Публикация: 1124273   (785953) от 10.04.2017
 
-VA - Euro Disco: The Lost Legends Vol. 13 (2017) [MP3|320 Kbps] <Euro-Disco>
+Журнал | Профиль №13 (994) (апрель 2017) [PDF]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794977.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David - Broken Dreams (3:29)
-02. Aventura - Di Mi Quando (4:56)
-03. Bino E I Banditi - Italia, Italia (5:28)
-04. Damian Davey - I'm A Man (6:11)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:41
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой-аналитическийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B3BB634AA7F5279D36D447F29387166B45536B9
+magnet:?xt=urn:btih:0675B18C486C073A2CB3D2895BE8242373A0AFBF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200783   (794978) от 22.01.2018
+###  Публикация: 1123887   (785954) от 10.04.2017
 
-Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
+VA - All Night Grooves Tokyo Vol.4 (Lounge Music At Its Finest) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Trance
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Damian Wasse - Colours Of The World (Intro Mix)
-02. Damian Wasse & Specific Slice - The Legend Of All Times (Original Mix)
-03. Damian Wasse - Memories (Original Mix)
-04. Damian Wasse - Battle For The Light (Classical Solution)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:02
+01.  Florito - Miss Saigon  4:30
+02.  Project Weekend Sound - Some Kind Of Way  4:57
+03.  Roberto Sol - Burn  4:11
+04.  Mood Pitcher - The Peacock Song  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F067E3B641A74D695E7657C92178CF2D3110DEF
+magnet:?xt=urn:btih:1B7CA6C3D5A0017B43140DC4B0D784730A5E8A76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200654   (794979) от 22.01.2018
+###  Публикация: 1124126   (785955) от 10.04.2017
 
-VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
+Wire - Silver/Lead (2017) [FLAC|Lossless|tracks + .cue] <Post-Punk>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Roman Messer  -  Forever (Extended Mix)  5:48
-02.  Cyril Ryaz  -  Dark Side (Extended Mix)  6:40
-03.  NoMosk  -  Black Light (feat. Maria Milewska) (Extended Mix)  5:57
-04.  R3dub  -  Red Sun (Extended Mix)  6:07(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:37:21
+01. Playing Harp For The Fishes
+02. Short Elevated Period
+03. Diamonds in Cups
+04. Forever & A Day(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:36:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF2C817D279CA90006DF33108BFE60052D364FE1
+magnet:?xt=urn:btih:D94D41D16E415510F5131EBE4DEA39E1B765F3BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274124   (794980) от 05.01.2019
+###  Публикация: 1124248   (785956) от 10.04.2017
 
-3D модели - Mercedes-Benz GLK [MAX, 3DS, C4D, FBX]
+Network Speed Monitor 2.0.12 [En]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки Mercedes-Benz (не удалось найти оф-сайт)Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
+Network Speed Monitor - скорость сети в строке меню
+Network Speed Monitor - очень простая утилита для отображения текущей скорости сети в строке состояния, в том числе загруки/выгрузки (download/upload).
+
+Когда ваш компьютер подключается к сети, вы можете увидеть текущую скорость сети с помощью Network Speed Monitor. Network Speed Monitor удобное приложением для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F03163200D123DA4409F5F20C1105A5BEE7F601B
+magnet:?xt=urn:btih:32AF23CC3515CF406622A81221D51C6DD99DD10D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273959   (794981) от 05.01.2019
+###  Публикация: 1124197   (785957) от 10.04.2017
 
-Рамки - С Рождеством Христовым! [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойный PSD, рамки С Рождеством Христовым! Формат А4 для удобной печати и для вашего творчества.Формат: PSDРазрешение файлов: 3508х2480-2480x3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5232B2BE9FA7D5774AA6EA42331BEF56F2BC5ABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274120   (794982) от 05.01.2019
-
-Mystery Case Files 17: Rewind / За семью печатями 17: Вспять (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные сообщения поступают из заброшенного отеля Victory. Прибыв на место, Вы обнаруживаете знакомых Вам по предыдущим делам людей, пойманных во временную ловушку! Узнайте, где они находятся, а также кто, и зачем вмешался в их прошлое. Успеете ли Вы исправить линию времени в каждом из случаев? Узнайте ответы прямо сейчас!Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE28AAAF8F66C4CEA98BE594FE7F5C830E61EE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274104   (794983) от 05.01.2019
-
-Hidden Expedition 16: The Golden Secrets / Секретная экспедиция 16: Золотой секрет (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штаб-квартира H.E.L.P. прерывает ваш горнолыжный отпуск с важным заданием: отправиться в Женеву, чтобы приобрести древний артефакт, который возможно содержит информацию о происхождении H.E.L.P. Но это будет нелегко. Вы должны стать победителем торгов на аукционе с высокими ставками. У H.E.L.P. конечно есть деньги! К сожалению, Вы не единственные, кто заинтересовался (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480304905AE810AAB5DF67E0EC6D0F001796CBA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274075   (794984) от 05.01.2019
-
-VA - Anthology Of Blues (Vol. 01) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
+VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
 
 >>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794984.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Steve Fister - Deeper Than The Blues
-002. Southern Gentlemen - Exotic Dancer Blues
-003. Pat Travers - Look Me Up
-004. Tony Joe White - Gumbo John(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:58:34
+01.  Eva Elekktra - Brain Cells Cycle (West Coast Beach Mix)  5:28
+02.  Don Gorda Project - Dedicado  5:21
+03.  Tony Donner - And You Know It's True  5:46
+04.  Eric Norman & Mighty Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 05:56:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A9F90AAA19E6384992176E29F814161C9971C0
+magnet:?xt=urn:btih:07B614E018B3041A6DC6F429C15FC63BD22DB696
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274069   (794985) от 05.01.2019
+###  Публикация: 1124270   (785958) от 10.04.2017
 
-Sweet - The Rainbow - Live In The UK 1973 (2018) [MP3|320 Kbps] <Glam Rock, Rock>
+VA - Melodic Deep House Essentials Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mario Chris - Beach  4:06
+02.  Deist - Go For More  4:49
+03.  Endless Heaven - Girls Just Want To Have Fun (Extended Version)  3:58
+04.  Marcus Brodowski - Like This (David Boenick Remix)  5:07(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEC0E95C9800D6A96CC7D8B27A8012EC50B0109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123866   (785959) от 10.04.2017
+
+Использование специальных полимеров позволит создавать более плотные схемы на кристаллах полупроводниковых чипов
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_785959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи из Массачусетского технологического института разработали новую технологию, позволяющую создавать меньшие и более плотные электронные схемы на поверхности кристаллов полупроводниковых чипов, что, в свою очередь, позволит "сломать препятствия", стоящие на пути сохранения закона Гордона Мура. В этой технологии используется слой самособирающегося (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124203   (785960) от 10.04.2017
+
+VA - Music For Peaceful Sleep (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785960.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  351 Lake Shore Drive - Black Coffee  5:23
+002.  Lazy Hammock - Naked Being  4:42
+003.  Javier Orlando - Deep In My Corazon (Martin Trevis Remix)  5:16
+004.  Velvet Dreamer - Night Raindrops  5:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9807ED91E1723E8A1086424D3C8B6FDB589D1E02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124346   (785961) от 10.04.2017
+
+Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Stripper (Intro)
-02. Hell Raiser
-03. Burning / Someone Else Will
-04. Rock’n Roll Disgrace(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 01:12:56
+01. Hey Rock And Roll
+02. Bony Maronie
+03. Johnny Remember Me
+04. Temptation(   Читать дальше...   )Жанр: Rock & Roll, GlamПродолжительность: 00:40:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895A628A98B9656383DABA9F0A24B25AD06664B5
+magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274032   (794986) от 05.01.2019
+###  Публикация: 1123745   (785962) от 10.04.2017
 
-Пираньи 2: Нерест / Piranha Part Two: The Spawning (1981) BDRip [H.264/720p]
+VA - Ibiza's Finest - Lounge Vol.4 (Finest Lounge From The Island Of Love) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794986.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На одном из островов Карибского моря внутри затонувшего судна найдена пара мертвецов. Инструктор по подводному плаванью местного курорта Энн Кимбруг вместе с одним из отдыхающих Тайлером Шерманом проникают в морг с целью выяснить причину смерти одного из аквалангистов, который был другом её сына. Там они обнаруживают, что тела объедены в нескольких местах.
-Тогда (   Читать дальше...   )Производство: США, Италия, Нидерланды / Brouwersgracht Investments, Chako Film CompanyЖанр: Ужасы, ТриллерРежиссер: Джеймс Кэмерон, Овидио Г. Ассонитис, Миллер ДрэйкАктеры: Тришиа О`Нил, Стиви Марачек, Лэнс Хенриксен, Рики Полл Голдин, Тед Рикерт, Лесли Грейвз, Кэрол Дэвис, Конни Лунн Хедден, Арни Росс, Трэйси БергПеревод: Авторский (одноголосый закадровый) Андрей ГавриловСубтитры: английскиеПродолжительность: 01:34:39
+01.  Chris Le Blanc - Flor De Vida  5:05
+02.  Roberto Sol - Miles Beyond  4:37
+03.  Florito - Loungery  4:35
+04.  Chin Chiller - Moussique Au Chocolat  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B51929024E341AE03EE1F04B285D473E717C2C6
+magnet:?xt=urn:btih:AC160F5923237F7B758B5E9A9881C824E2EC03DF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274006   (794987) от 05.01.2019
+###  Публикация: 1124133   (785963) от 10.04.2017
 
-Wise Registry Cleaner Pro 10.1.4.672 RePack (& portable) by elchupacabra [Multi/Ru]
+Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Night  (02:50) 
+02. But On The Other Hand  (04:06) 
+03. Peace Of Mind  (02:54) 
+04. Let The Good Times Roll  (02:50) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA4DC15530231ADD486FF78EF3C43E0B3DE663C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124324   (785964) от 10.04.2017
+
+VA - Ultimate Chill Out: 01 The Best Downtempo Tracks and Mixes (2017) [MP3|320 Kbps] <Chill Out, Downtempo, Balearic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keyzero 1 - Blue
+02. The "K" - Break Pants
+03. Cyclopedia - Heaven
+04. Sandstorm - In The Waiting Line(   Читать дальше...   )Жанр: Chill Out, Downtempo, BalearicПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9283B26F87FE61427374D3FA8581480FDA5EEDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124284   (785965) от 10.04.2017
+
+Газета | Наша Дача №3 (632) (2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785965.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Наша Дача» - газета является официальным печатным Союза садоводов России. Газета затрагивает все области, так или иначе связанные с садоводством, огородничеством, ландшафтным дизайном и здоровьем человека. Постоянные рубрики издания: Дачные советы, Огород без хлопот, Цветы у дома, Наш сад, Домашнему мастеру, Домашние питомцы, Здоровье дачника, Кулинарные шедевры, (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89510FDBB86EF68B7F07331EF8B43D3B5342C39D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124232   (785966) от 10.04.2017
+
+1Blocker - Block ads, tracking scripts, anything 1.3 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794987.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
+1Blocker - блокировка рекламы
+Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23.03.2017Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DB4E7ADA44949F000D3F97A6495CA0C2A818064
+magnet:?xt=urn:btih:E9671D5067FAC3DF970EA6ACF29EE0C9A984119E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274171   (794988) от 05.01.2019
+###  Публикация: 1123859   (785967) от 10.04.2017
 
-К.К. Ким (ред.) | Средства электрических измерений и их поверка (2018) [PDF]
+VA - New York Night Tales: The Best Of Urban Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Научная и техническая литература
->>Учебники
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемое учебное пособие предназначено по своему содержанию для всех, кто желает познакомиться с принципами действия средств электрических измерений и их поверкой. Авторы имели при этом в виду обучающихся в высших учебных заведениях, но и практических работников электротехники, занятых в лабораториях, на электрических подстанциях, электрическом транспорте и т. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
+01.  Dragonfly - Downtime In Battery Park  3:29
+02.  The Great Calm - Scraping The Sky  4:50
+03.  Skye Dream - Above Strawberry Fields  4:38
+04.  Henry Kent - Lost On Broadway  6:14(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B32ADF88FC871E6BCE621B458DBDFCAF6959AD5
+magnet:?xt=urn:btih:6FC16CAB1DFBE42B37F8246EA6531DCE99070385
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274126   (794989) от 05.01.2019
+###  Публикация: 1124252   (785968) от 10.04.2017
 
-Wise Memory Optimizer 3.6.4.108 RePack (& Portable) by elchupacabra [Multi/Ru]
+NetWorker - Advanced Network Information App 3.0.0 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794989.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатная утилита для освобождения оперативной памяти, увеличения скорости и улучшения производительности ПК. Позволяет высвободить и настроить оперативную память, занятую бесполезными приложениями. Проста в использовании, подходит как новичкам, так и экспертам.Язык интерфейса: Русский, Английский, Украинский, Белорусский
+NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
+
+ NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DE28D0940B1DE88528EE7D5049A3228D1A81C7D
+magnet:?xt=urn:btih:373987B412F20B787C04F061E2098AB066A1BAB6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274065   (794990) от 05.01.2019
+###  Публикация: 1123571   (785969) от 10.04.2017
 
-ВИА «Волга-Волга» - Суши за репост (2018) [MP3|320 Kbps] <Rock, SKA>
+VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance, Club>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Увертюра (01:34)
-02. Волжский рок-н-ролл (03:01)
-03. Гваделупа (03:20)
-04. Ой, лю-ли (03:24)(   Читать дальше...   )Жанр: Rock, SKAПродолжительность: 00:49:34
+01.  Chrizz Morisson - U Got 2 Let The House (Radio Mix)  3:22
+02.  Rinaldo Montezz - Inside Your Heart (Radio Mix) (feat. Kelly Page)  3:32
+03.  Lightwarrior - Ooh Yes! 2k17 (Ray NR Remix)  3:04
+04.  Linda Rocco vs. Andy Stead - You Make Me Feel Good (Dolls Mix)  4:28(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:37:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:077FA7B228E91FD30B8645555D8E1FDDA1306579
+magnet:?xt=urn:btih:AB2BA0EB6C532021251C5E7D1C494B9A1ACCFB62
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273864   (794991) от 05.01.2019
+###  Публикация: 1124141   (785970) от 10.04.2017
 
-Галина Гончарова | Азъ есмь Софья. Крылья Руси (2018) [MP3]
+The Naughty Blokes - We Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <British Blues>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мало выиграть войну, надо не проиграть мир. А враги не унимаются. Поднимает голову старый противник – Швеция, плетет интриги французский король, бунтует Польша… И разыгрываются многоходовые комбинации, и в ход идут запрещенные приемы, и на кон ставится память о себе и историческая правда. Но у царевны Софьи нет выбора. А есть знания и желание идти вперед. И еще ей (   Читать дальше...   )Жанр: Историческое фэнтези, ПопаданцыПродолжительность: 17:58:06
+01. Heart Attack  (03:40) 
+02. Move You  (03:29) 
+03. Tenderly Loved Woman  (05:31) 
+04. Constantly  (04:01) (   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA4A923209CF16B08AD8948DA807C36FD5D38B58
+magnet:?xt=urn:btih:291F2C75DEF980DF5948A79C93715E75D4D8C6AD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274074   (794992) от 05.01.2019
+###  Публикация: 1123500   (785971) от 10.04.2017
 
-Brave Browser 0.58.18 Portable by Cento8 [Ru/En]
+VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin Van Buuren & Garibay - I Need You (feat. Olaf Blackwood) (Club Mix)  3:17
+02.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Remix)  3:29
+03.  W&W - Whatcha Need  2:27
+04.  Borgeous & TyDi - Over The Edge (Jay Hardway Remix) (feat. Dia)  3:20(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B686205DADF26BB37D78696FC82E72B9F31742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124082   (785972) от 10.04.2017
+
+VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Ruland - Dreamer (Extended Mix)  6:24
+02.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
+03.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
+04.  Sounds Of Summer - In My Head (Oh You) (Dub Mix)  6:45(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124219   (785973) от 10.04.2017
+
+VA - Tropical House Vol.2 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Ribeira – La Luna (Gypsetter Mix)
+02. Massimo Vanoni – Flash (Radio Edit)
+03. Davide Mazzara – Cassablanca Rhythm
+04. Ante Perry & Moonbootica – Hold On(   Читать дальше...   )Жанр: HouseПродолжительность: 06:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3339A1173414867369F284D5370FF34DD3FE614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124231   (785974) от 10.04.2017
+
+Bumpr 1.1.6 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794992.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
+Это невероятно просто, но невероятно мощно.
+Bumpr - это удобное и красивое приложение для Mac, которое позволяет вам выбирать, где открывать ссылки. Каждый раз, когда вы нажимаете ссылку на веб-страницу, появляется компактное элегантное меню, которое позволяет вам выбрать, с каким браузером следует открывать эту ссылку. Bumpr также работает с почтовыми ссылками. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2017Разработчик: Scott OstlerПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCFCA3A6FBED546FE545168716EE08C28D029540
+magnet:?xt=urn:btih:C466B48506FE2D9B125255D12680A08596D3C591
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274175   (794993) от 05.01.2019
+###  Публикация: 1123883   (785975) от 10.04.2017
 
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Канада — Финляндия (02.01.2019) HDTVRip [H.264/720p-LQ]
+VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Спорт и активный отдых
->>Хоккей
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-03 января 2019, четверг. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Канада — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:40
+01.  Konsiglio - Oleico  5:05
+02.  Davide Leonardo - Beginning The Journey  5:55
+03.  Marcus Koch - Isolde  4:05
+04.  Denis Rusnak - Welcome From The Holiday City  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:410BE55C46D88030ED3581B1BF021E870E93B983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274181   (794994) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. США — Чехия (02.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794994.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-США — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAA5CA1F63178871522FC739E03E6F2D541ABE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274170   (794995) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Швеция — Швейцария (02.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794995.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 00:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Швеция — Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BA0427258E1DAA8A668FBB71CAF297D0E078A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274122   (794996) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. США — Финляндия (2018) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 06:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-США — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11F129D94B86D27A291498A686886538A2D7BB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274134   (794997) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019 (U-20). 1/2 финала. Россия — США (05.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794997.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 января 2018 г., стадион «Роджерс-арена» (Ванкувер, Канада)
-1/2 финала. Россия — СШАТелекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C648E25832F99FB991B143917E0662CB2CC09C
+magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
 ```
 
 

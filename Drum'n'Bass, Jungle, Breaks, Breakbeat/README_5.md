@@ -1,3 +1,30 @@
+###  Публикация: 1367684   (915551) от 16.03.2020
+
+VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legal - Holding Back [04:19]
+02. BK - Sleeper Cell [04:30]
+03. Jake Robertz - Guest List [04:37]
+04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367002   (918967) от 14.03.2020
 
 VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
@@ -669,33 +696,6 @@ magnet:?xt=urn:btih:93242A01970D97ABAF8A65878221E8588A671A02
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31E4CB72C436BAF06CAB7F78115B589678F8508B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613069   (1039806) от 17.02.2023
-
-Skrillex - Quest For Fire (2023) [MP3|320 Kbps] <Dubstep, Trap, Dance, UK Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave Me Like This (feat. Bobby Raps)
-02. RATATA (feat. Missy Elliott & Mr. Oizo)
-03. Tears (feat. Joker & Sleepnet)
-04. Rumble (feat. Fred again.. & Flowdan)(   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D939AC4BEFC7905942E182437DB307C4EE75751B
 ```
 
 

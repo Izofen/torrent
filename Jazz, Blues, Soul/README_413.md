@@ -1,3 +1,273 @@
+###  Публикация: 1135462   (679376) от 20.05.2017
+
+Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dream (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart in Hand [08:20]
+02. Ilimba [09:53]
+03. The Dreamer Is The Dream [08:19]
+04. Memory And Desire [07:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6ABCC508A37E31C7558CCA89ED682B9C006D7B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135696   (679424) от 20.05.2017
+
+Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Ellington's Introduction [00:28]
+02. I Wonder Why [03:03]
+03. Goin' Up [03:46]
+04. Announcer and Ellington Introduction [00:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210B95CECCAA97CB1C2BD50FC0D0B07451442FCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135476   (679505) от 20.05.2017
+
+Duke Ellington and His Great Vocalists: Best of the Big Bands (1930-e - 1950-e) 1995, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (feat. Ivie Anderson) [03:12]
+02. St. Louis Blues (feat. Bing Crosby) [04:33]
+03. I Can't Give You Anything But Love (feat. Ethel Waters) [03:13]
+04. Diga Diga Do (feat. The Mills Brothers) [03:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5B9F444E23DF5A4286942BE1327B404E8D3513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135587   (679507) от 20.05.2017
+
+Duke Ellington - Original Jazz Classics Collection (1997) OJC [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin American Sunshine [06:58]
+02. C-Jam Blues [05:13]
+03. Caravan [06:12]
+04. Paris Blues [03:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA00BB5156C8B3837B9C30DB3578AF490C7AE0A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135578   (679511) от 20.05.2017
+
+Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [03:00]
+02. Star Dust [02:30]
+03. One O'Clock Jump [05:16]
+04. Stormy Weather [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5441C457FA8921AD172D7D088A531DBF5F39A6AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135583   (679512) от 20.05.2017
+
+Duke Ellington - This Is Jazz (1927 - 1959) 1996, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-O [03:06]
+02. In a Sentimental Mood [03:17]
+03. Stompy Jones [02:41]
+04. Prelude to a Kiss [02:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2748E8A4B90A2261E86BD6A00E7950F3088508D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135463   (679513) от 20.05.2017
+
+Stanley Silverman - Duke Ellington's Timon of Athens (1993) Varese Sarabande [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: Black and Tan Fantasy [03:01]
+02. Timon's Theme [02:48]
+03. First Banquet [01:33]
+04. Toasts [00:58](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01ABD30B0969B72F95410F92B0AF6298D4F2C5D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135217   (679515) от 20.05.2017
+
+Duke Ellington - Great Original Performances 1927-1934 (1986) BBC [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jubilee Stomp [02:39]
+02. The Blues with a Feelin' [03:19]
+03. Hop Head [03:00]
+04. What Can a Poor Fellow Do? [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4647E05FBC91318EB1951D840EE5A0B00D84A8AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135564   (679517) от 20.05.2017
+
+Duke Ellington - Figure Charismatique (1962 - 1972) 1996, Warner [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portrait of Louis Armstrong [03:07]
+02. Minnie the Moocher [02:48]
+03. Salome [03:45]
+04. Caravan [06:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8481C737372CB29AAED885D4519DB1DA0C824271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135690   (679519) от 20.05.2017
+
+Duke Ellington - Jazzworks (1953 - 1960) 1998, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [08:25]
+02. Mood Indigo [03:07]
+03. C Jam Blues [04:53]
+04. Prelude to a Kiss [04:44](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B9A9473DC24CA9A9F4D4A64A811FFF86482161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135699   (679523) от 20.05.2017
 
 Duke Ellington - Cornell University (1948) 2CD, 1995, Jazz Heritage [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -323,6 +593,33 @@ magnet:?xt=urn:btih:F78C5C98398674F23829FDCA3A9D048DB98315BF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 212016   (681249) от 27.06.2010
+
+The Hoochie Coochie Men & Jon Lord - Danger White Men Dancing (2007) [FLAC|Lossless]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_681249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blues Just Got Sadder (3:34)
+02. Gotta Find Me Some Fire (3:57)
+03. Twisted System (4:15)
+04. Over & Over (8:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289754   (681880) от 18.03.2019
 
 Joe Louis Walker, Bruce Katz, Giles Robson - Journeys To The Heart Of The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
@@ -399,303 +696,6 @@ Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEFD0364DC11914C821D6CBD0D3EFF37ED0B2FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289677   (682088) от 18.03.2019
-
-Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snippet 1
-02. If I Could Ever
-03. What Good Is Your Love
-04. Snippet 2(   Читать дальше...   )Жанр: SoulПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0778CE02BA1611F0F5F55E563CCF1410505F9BA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029195   (682135) от 26.06.2016
-
-Grant Green & Baby Face Willette - Trio/Quartet: Complete Recordings (1961) 2CD, 2014, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682135.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Miss Ann's Tempo [05:43]
-02.Lullaby Of The Leaves [07:45]
-03.Blues For Willarene [07:11](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF951CCD6E25E67A98C9C43742836D62145C267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290027   (682159) от 18.03.2019
-
-Janet Seidel - The Art of Lounge 3 (2005) Musictronic Lounge [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonglow [3:40]
-02. If They Asked Me I Could Write a Book [2:16]
-03. Always [4:01]
-04. Midnight Sun [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2D53273D3E2E77C749ED0386F0C8E15755E508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290032   (682161) от 18.03.2019
-
-Ninna Milner - Songs For Sentient Beings (2016) WiMi [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Be Your Favorite Song [3:44]
-02. Back to Wellington [3:45]
-03. Wednesday in October [4:34]
-04. Dear Humans [6:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3A1B1D292710DC623B3C5D3037A326FB09F600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290025   (682162) от 18.03.2019
-
-Janet Seidel - Little Jazz Bird (1990, 1992) 1994, La Brava Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September in the Rain [2:29]
-02. 42nd Street [3:12]
-03. Embraceable You [4:00]
-04. Skylark [4:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1BFF2AA6FA8357DDC730F9355F70D562F35B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289766   (682163) от 18.03.2019
-
-Ray Brown - Something For Lester (1977) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ojos de Rojo [5:16]
-02. Slippery [7:27]
-03. Something in Common [4:49]
-04. Love Walked In [5:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49372CEDC20189EE668E27D0FA9AE6DFEAC748B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290030   (682165) от 18.03.2019
-
-Janet Seidel - The Way You Wear Your Hat (1998) 2CD, La Brava Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682165.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lazy River [4:04]
-02. Pick Yourself Up [3:00]
-03. My One and Only Love [6:55](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2712B92BC963173576BC300EE19CC611BCAB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289773   (682166) от 18.03.2019
-
-Dizzy Gillespie - Four Classic Albums (1954 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682166.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dizzy's Blues [11:53]
-02. School Days [5:40]
-03. Dizzy Speaks [0:48](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FA44F40511FAC1607EC5335C93FC1F5B6DFB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289767   (682167) от 18.03.2019
-
-Ray Brown - Ultimate Ray Brown Selected by Christian McBride (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solo for Unaccompanied Bass [2:32]
-02. Tricotism [3:57]
-03. Tangerine [3:20]
-04. Much in Common [3:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5089168AEBDBE6499A5FE9A2E37619763551D831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029390   (682345) от 26.06.2016
-
-The Rippingtons feat. Russ Freeman - True Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Tales
-02. Sundance
-03. Flamenco Beach
-04. My Promise To You (feat. Jeffrey Osborne)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A2F35765189B144BB2093D18D18810E5DB277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029123   (682352) от 26.06.2016
-
-VA - Sexy, Smooth & Seductive: Intimate Jazz Fantasies (2016) [MP3|320 кб/с] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Stirling - Deep Tangier (3:26)
-02. Steve Lucas - After Hours (3:19)
-03. Steve Lucas - Funky Lady (3:23)
-04. Michael McGregor - Trickflavour (3:04)(   Читать дальше...   )Производство: Nightingale MusicЖанр: Jazz, LoungeПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A9CE8CE7E6DA2D5B20A5C9CF6B58993819FBB6
 ```
 
 

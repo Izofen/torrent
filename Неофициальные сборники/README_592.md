@@ -1,3 +1,165 @@
+###  Публикация: 1370930   (893290) от 29.03.2020
+
+Karunesh - 100% Karunesh (2020) [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon
+02. Lyria
+03. Moola Mantra
+04. Oasis(   Читать дальше...   )Жанр: Enigmatic, New age, EthnicПродолжительность: 02:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FDE234BF5B477C1DB52FD16D8DC2F4B84657E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993819   (893305) от 06.03.2016
+
+VA - 100 Самых красивых песен (2016) [MP3|320 кб/с] <Pop , R&B , Disco , Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Connells - '74-'75
+02. Groove Coverage - God Is A Girl
+03. Sophie Ellis-Bextor - Wrong Side Of The Sun
+04. Shania Twain - Ka-Ching(   Читать дальше...   )Жанр: Pop, R&B, Disco, RockПродолжительность: 06:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DC02B6D6BFE9DA1611E459FF2A9B8A0233B6A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370987   (893314) от 29.03.2020
+
+Oliver Shanti - 100% Oliver Shanti (2020) [MP3|320 Kbps] <New age, Enigmatic, Ethnic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water - Four Circles Of Life
+02. Well Balanced
+03. Journey To Shambala
+04. Tocar Para Sarakali(   Читать дальше...   )Жанр: New age, Enigmatic, EthnicПродолжительность: 03:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6B4DE925803229180B110DE2037F5E56C41F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493755   (893396) от 04.09.2021
+
+VA - Русское Радио. Лучшее '2021 (04.09.2021) (2021) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893396.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3-ий Январь - Питер-Москва
+002. Alina Artts, Slider & Magnit - Белые цветы
+003. Amri - Звезда Тик-Ток
+004. Anna Sedokova - Не люби его(   Читать дальше...   )Жанр: ПопПродолжительность: 09:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C916A67248489A19A6C628BFF386BA00962E26F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993908   (893520) от 06.03.2016
+
+VA - Самые Популярные Хиты Радиостанций (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Егор Крид - Я Останусь
+02. Rihanna - Work ft. Drake
+03. Полина Гагарина - Не Пара
+04. Rihanna - Kiss It Better(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AA05C4ACCBB5104E4A79B4F62F4A5D0CFDCBB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370844   (893548) от 29.03.2020
+
+VA - German Top 100 Single Charts 27.03.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Dardan x Monet192 - H <3 T E L
+03. Topic - Breaking Me (feat. A7S)
+04. SAINt JHN - Roses(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE5F7DBC14335CC5CE935D6A4B8029F414AD2D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493496   (893675) от 04.09.2021
 
 VA - Shazam & Apple Music Chart (Россия Топ 100 Август) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -533,165 +695,6 @@ Spring Party - Hits For Your Car N3 (2016) [MP3| 191-320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB88CE725F88A437FACC987831A00B45409069D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993893   (894259) от 06.03.2016
-
-VA - Sweet and Sexy: 20 Amazing Lounge Anthems Vol.1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurice Sanders - Someone Calls
-02. The Beach Hotel - Nothing True
-03. Mediterranean Soul - I Gasp for You
-04. Chill Ars Project - Attached to Life - International Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65BCEEEB13B5EE68779ACEC8262AE17E6C248F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993679   (894285) от 06.03.2016
-
-VA - Deep House Flavour Vol 7 (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Chris - Who's Got Your Love Tonight (feat. Eleonora La Luna)
-02. Escadia - Far Cry
-03. Jaques Le Noir - Better Believe
-04. Marcelo Wallace - Breath(   Читать дальше...   )Жанр: HouseПродолжительность: 04:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BCE5405EC05AB7C42F40B5E661BABB1C117D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294888   (894491) от 14.02.2011
-
-VA - Русский Автозвук (2011) [MP3|256 kbps]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_894491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 05:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A744C244A858AC95FEE7408BC53276CBE17BC41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101519   (894543) от 07.02.2017
-
-VA - Душевная музыка на радио Шансон. Сборник №10 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Широков - Голубые Города 3:34
-002. Александр Блик - Телогрейка 3:18
-003. Milen - Вишенка На Торте 3:34
-004. Владимир Курский - Колода 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E6FD1648512EB81B02401063C361A8447F9122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370531   (894586) от 28.03.2020
-
-VA - Качай и слушай Vol 6 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Soda - Pullin up (1:55)
-2.Dava - Малая (2:08)
-3.ТАЙПАН , Agunda - Луна не знает пути (2:11)
-4.Doja Cat - Boss Bitch (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152D276967707CA06289225FAE770706E78384DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101567   (894668) от 07.02.2017
-
-VA - LUXEmusic proжект - The Russian Project (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House, Future House, House Music>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eya - Море (Ivan Spell Remix) 04:27
-002. Мот feat. Миша Марвин - А может (Eldar Stuff & Biki Remix) 05:06
-003. Кристина Си - Космос (Reznikov & Denis First Remix) 05:12
-004. Moт - Капкан (Anton Ishutin Remix) 05:58(   Читать дальше...   )Жанр: Club House, Deep House, Electro House, Future House, House MusicПродолжительность: 26:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBF1AB9029CE16461CCA90CBAFCBFD87E2800B1
 ```
 
 

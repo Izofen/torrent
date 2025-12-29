@@ -1,3 +1,165 @@
+###  Публикация: 1096682   (917797) от 25.01.2017
+
+VA - Отрывайся с лучшими хитами. Версия № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jess Glynne - Take Me Home 4:26
+002. Максим Куст - Не Меняй Меня 3:55
+003. Артем Пивоваров - Стереосистема 3:44
+004. Татьяна Маргай - Обними 4:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9AEF88D0BAC0D9C671DCB78C06BBE51432DA69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366500   (918223) от 14.03.2020
+
+VA - B машину ремиксы Vol. 3 (2020) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Harrison - I've Got My Mind Set On You (Yastreb Radio Edit Remix)
+02. Звонкий - Ностальжи (Radiostadia Remix)
+03. To-Ma - Бессонница (Remix)
+04. Rasa - Пчеловод (Glazur & Struzhkin Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4C5CE0D73D460C131A83DDC8A152C5EFBB863F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366700   (918513) от 14.03.2020
+
+VA - The Collection 30 Years Ago From Ovvod7 (1986) (60 CD) (2020) [MP3|192-320 Kbps] <Italo-disco, electronic, rock, pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стиль итало-диско, пользовавшийся большой популярностью на протяжении практически всех 80-х годов, является одним из самых удивительных феноменов в истории мировой популярной культуры. В отличие от многих других, зачастую более поздних направлений поп-музыки, уже успевших кануть в Лету, исполнители итало-диско до сих пор популярны и любимы.Многие считают 1983 год (   Читать дальше...   )01. C.C. Catch - I Can Lose My Heart Tonight ( 12'' Version 1986 )
+02. Modern Talking - Brother Louie ( 1986 )
+03. Bad Boys Blue - I Wanna Hear Your Heartbeat ( Sunday Girl ) ( 1986 )
+04. Laid Back - C.C. Cool ( 1986 )(   Читать дальше...   )Жанр: Italo-disco, electronic, rock, popПродолжительность: 89:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A0FA026492F96B32CEADCFFB48123F3B3A030F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096528   (918524) от 24.01.2017
+
+VA - Discoteka 2017 Dance Club. The Party Continues (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ofenbach - Be Mine (Amice Remix)  3:23
+02.  NERVO & Timmy Trumpet - Anywhere You Go (Diego Power Remix)  5:38
+03.  Alan Walker - Alone (Extended Mix)  3:55
+04.  Filterkat - Don't You Wanna (Fabron Remix)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B3DB3884F8E6CBAC8B06FF60BFC88475BAAE0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366972   (918630) от 14.03.2020
+
+VA - Hits of My Soul Vol. 55 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918630.jpg" />
+</div>
+
+
+###  Подробнее
+
+|07:30| 01. Damian Wasse - Memories Of Love (Adriz Remix)
+|07:56| 02. Killswitch & Kelly Jay - Carpe Diem (Original Mix)
+|06:57| 03. Roman Messer feat. Christina Novelli - Frozen (Alex M.O.R.P.H. Remix)
+|06:19| 04. Aelyn - New Day (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 23:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C39BE9E4A486A26C96FB7685CAA53840200C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988704   (918678) от 21.02.2016
+
+VA - Диско 80 от Виталия 72 часть 1 (1981-1989) [MP3|204-320 кб/с] <Italo-Disco, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Only You (06:50)
+02. Eddy Huntington - Physical Attraction (05:02)
+03. Bad Boys Blue - A World Without You (Michelle) (Remix) (06:21)
+04. Mike Mareen - Love Spy (Night Mix) (08:43)(   Читать дальше...   )Жанр: Italo-Disco, DiscoПродолжительность: 06:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396356DAE2AEB929D9B42D8A3D65988798D72ED6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988768   (918679) от 21.02.2016
 
 VA - Диско 80 от Виталия 72 часть 2 (1983-1988) [MP3|203-320 кб/с] <Italo-Disco, Disco>
@@ -539,174 +701,6 @@ VA - Дискотека 2017 Dance Club Vol. 160 от NNNB (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8059EFA37C59E5F133DC59124EBB7F0F9BD8F9A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631624   (920261) от 20.03.2013
-
-VA - Creative Electro Box 3 (2013) [MP3|320 кб/с]<House, Electro, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 3PPL - HeadBanger
-2. Alisiya - Напрасно Ждать
-3. Baauer - Harlem Shake (Dave Silcox Remix)
-4. Beta - Madness
-5. Boo feat. Reece Low - Guardian
-6. Calabria feat. Rob Estell - Space (Club Mix)
-7. Candy Sandy - X Side
-8. Carnage feat. Borgore - Incredible
-9. Crookers - A Go Go
-10. Crookers - Giga(   Читать дальше...   )Жанр: House, Electro, Electro HouseПродолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBE8136934966E7938B5D2BA9631D70FA2EB1AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289052   (920352) от 30.01.2011
-
-VA - Крутые 90е (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18735D413B51B0FA4218069D39310A5536B9D62D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988458   (920401) от 20.02.2016
-
-VA - Легенды Ретро FM. Лучшее. Зарубежный Выпуск (2016) [MP3|320 кб/с] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maywood - Pasadena
-002. Boney M. - Dreadlock Holiday
-003. London Beat - I've Been Thinking About You
-004. Vaya Con Dios - Nah Neh Nah(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 07:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C457FBCAAFEB11C51F7722CCF888442082AF1F71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490058   (920415) от 19.08.2021
-
-VA - 100 Greatest 2000s Love Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - We Belong Together
-02. Alicia Keys - If I Ain't Got You
-03. Jason Mraz - I'm Yours
-04. James Blunt - You're Beautiful(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622FEEF2CFCF22B97CD3E85249F2DF46529056F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490113   (920521) от 19.08.2021
-
-VA - 100 Greatest 2010s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Rae Jepsen - Call Me Maybe
-02. Lady Gaga, Bradley Cooper - Shallow
-03. Adele - When We Were Young
-04. Lady A - Need You Now(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D61F938705092BD6D30C6337A088587119F7D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096137   (920536) от 23.01.2017
-
-VA - Hits of My Soul Vol. 22 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Kid Rock - Bawitdaba (04:25)
-02. Aerosmith - Sweet Emotion (04:34)
-03. Saliva - Superstar (04:09)
-04. Reckless Love - Hot (03:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
 ```
 
 

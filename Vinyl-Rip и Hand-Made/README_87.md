@@ -1,3 +1,30 @@
+###  Публикация: 1284286   (728766) от 21.02.2019
+
+Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] <Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last of a Dyin' Breed (3:52)
+ 02. One Day at a Time (3:46)
+ 03. Homegrown (3:41)
+ 04. Ready to Fly (5:26)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF22B9BEB60AFD89E76E5C081B92F42347F835D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530402   (728929) от 11.02.2022
 
 Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
@@ -660,33 +687,6 @@ A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397404   (740451) от 20.07.2020
-
-VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740451.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ryan Simmons - Lucky Guy
-A2 Commodores - Nighshift
-A3 Bachman-Turner Overdrive - My Sugaree
-A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
 ```
 
 

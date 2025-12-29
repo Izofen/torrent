@@ -1,3 +1,165 @@
+###  Публикация: 1093794   (932265) от 16.01.2017
+
+VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
+02.  David Gravell - Battlefront (Extended Mix)  5:23
+03.  Heatbeat - Aerys (Mark Sherry Remix)  3:35
+04.  Tycoos - We Will Meet Again (Original Mix)  5:55(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 06:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3562A11B9E04A2F66D9FD936B8C5D8D08FED9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986282   (932318) от 13.02.2016
+
+VA - Без баб и водки. Русский блатной сборник (2016) [MP3|256-320 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932318.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бутырка - Без баб и водки
+002. Алексей Ром - Над Темной Водой
+003. Гр. Наш Город - Телефонный Разговор Обамы И Путина
+004. Андрей Андреев - Ночь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B12F6638D3D07950BD723DABBBE00923D5EB0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093818   (932374) от 16.01.2017
+
+VA - Record Super Chart #470 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clean Bandit feat Sean Paul & Anne Marie - Rockabye (Denis First Remix)  4:08
+02.  Грибы - Копы (Vincent & Diaz Remix)  4:10
+03.  KSHMR & B3nte & Badjack - The Spook Returns  3:10
+04.  Alan Walker - Alone (DJ Amice Remix)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1B51DE9D53731270AE0AC26521E8F28FAAF3D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094001   (932428) от 16.01.2017
+
+VA - Автозвук. Отборный зимний хит (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferreck Dawn - Mad Love 3:34
+002. Анна Добрыднева - Ты Свет 3:37
+003. Cazzette - Static 3:27
+004. Роза Мажонц - Мадонна 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B44016543692EC354035C77E74B309420AEDC2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093978   (932434) от 16.01.2017
+
+VA - 100 пудовые зимние хиты на Europa Plus. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932434.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - Chunky 3:07
+002. Stas Prime Feat. Mary Pen - Подари Мне Любовь 3:25
+003. Rae Sremmurd - Black Beatles 4:52
+004. Александр Прокофьев - Над Морем 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411BC1834EAA644F1894156846DC26DB05F1470D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093999   (932437) от 16.01.2017
+
+VA - Дискотека зимних дорог. Русские хиты. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анастасия Спиридонова & Dj Fenix - Родина Моя 3:13
+002. Елена Темникова - Счастье 3:18
+003. Kosmos - Давай Навсегда 3:18
+004. Shami Feat. Арни Saveolla - Танцуем 5:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9543AD56AB31D7714066EB8DE2550E5E7BB1C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093991   (932486) от 16.01.2017
 
 VA - Музыкальные новинки. Only Best Hits. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -533,168 +695,6 @@ VA - Metal & Rock Collection (2016) [MP3|320 кб/с] <Metal, Rock, Hard-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:935429BD9D9FFA735BFA82EABB17B78AF3B8183A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093456   (933955) от 15.01.2017
-
-VA - Empire Records - Blue Line 2 (2017) [MP3|128-320 Kbps] <Dance, Club, Electro House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finchman - Wake Up at Seven Two
-02. Fly Project, Andra - Butterfly (Extended Version)
-03. Inventive Sound ft. Rares Joshua - Come To Me (Radio Edit)
-04. Arcade 82 & FDF (Italy) - Far Away (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F88A4D6C0BE51EB7A1D8C3385F0F1AA2FBF1F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985779   (933987) от 12.02.2016
-
-VA - Лучшие хиты года. Часть 4 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933987.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kaiser Chiefs - Falling Awake
-002. Базиль - Ищи Другого
-003. Lawson - We Are Kings
-004. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0452E06AAD6D2DF391C46123FC2DF4EB6290B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985797   (933993) от 12.02.2016
-
-VA - Медлячок в машину. Зарубежная версия 1 (Из треков 2014) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933993.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Richard Marx - Inside
-002. Patrick Fiori - Demain
-003. Alex Lloyd - Last Bell
-004. Danny Fernandes - Breathe Again(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F705D643A70EBFE2DEB194454F08EAF4562636C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093528   (934013) от 15.01.2017
-
-VA - Empire Records: Trance 2 (2017) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bakun - Out Of Control (Phetros Remix)  6:01
-02.  Pirate Jams - Sweets From Heaven (Jolyon Petch's Late Night Mix)  5:06
-03.  Dainpeace - It's Not Too Late (Radio Edit)  2:42
-04.  Sam Feldt - What About The Love (Extended Mix)  4:14(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8E7C752FEE6E9EDE07DA1E0979E1CD30EBB482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985378   (934084) от 12.02.2016
-
-VA - Deep Flover Dance (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934084.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sanil Fenice - Before Dawn - Vocal Mix 06:13
-002. Matthias Freudmann - Metropolis 06:23
-003. Scot & Millfield - It's a Fine Day - Summer Fifteen Remix 05:31
-004. Matthias Freudmann - City Life 07:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508D07C2239D489D29D5C70BC9622CD08C72EF65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984852   (934085) от 12.02.2016
-
-Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве Remaster (2015) [MP3|320 кб/с] <Brit-pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ******
-02 Воздушный шар
-03 Импровизация в синтетическом парке
-04 Говорящий вакуум(   Читать дальше...   )Жанр: Brit-popПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11E170CC6FC87076C7DF9AF308E3E5E63244AA7
 ```
 
 

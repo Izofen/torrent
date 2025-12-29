@@ -106,6 +106,33 @@ magnet:?xt=urn:btih:2F23863D7C7AE5756BFE60A771B728A7C9228814
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177882   (699607) от 07.06.2014
+
+VA - Covert Operations Record Pres: Global Connections vol. 1-6 (2007-2009) [MP3|192-320 kbps] <Intelligent Drum'n'Bass, Atmospheric Drum'n'Base>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_699607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Operon & Lm1 - Lorien(07:01)
+02. JCB - December(08:41)
+03. B.Fuse - Solar Patrol(07:59)
+04. Entharsis - Boundless Wonder(04:18)(   Читать дальше...   )Жанр: Intelligent Drum'n'Bass, Atmospheric Drum'n'BaseПродолжительность: 06:43:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 147117   (709253) от 12.06.2010
 
 The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
@@ -664,33 +691,6 @@ VA - Breaks 4 Humanity Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass, Breaks>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF9BDE6539E238595E6E06B3B892FF4968CDFD93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007789   (819555) от 16.04.2016
-
-VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
-02. Neonlight & Wintermute - Influx (04:59)
-03. Khronos - The Heavy (04:06)
-04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
 ```
 
 

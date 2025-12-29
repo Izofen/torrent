@@ -1,3 +1,111 @@
+###  Публикация: 1132768   (698869) от 10.05.2017
+
+The Korvids - The Korvids (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Faith (03:49)
+02. Spyboy (03:33)
+03. Tender Tyrannies (04:54)
+04. Slouch (04:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D45206540977D2F5786F6AC755E6EB2DEE5E3B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132939   (698870) от 10.05.2017
+
+VA - Space Oddities (2008) CD, Vol. 1 [MP3|320 Kbps] <Electronic, Experimental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roland Bocque - Exotique (2:32)
+02. Jean Pierre Decerf & Gerard Zajd - Reaching The Infinite (3:23)
+03. Alan Shearer - Sons Of The Snake (5:24)
+04. Phil Davies & Christopher Ried - Muscle And Heat (4:00)(   Читать дальше...   )Жанр: Electronic, Experimental, DiscoПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3202F6DD6387E481AD3DA960F3068D8730AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287876   (699376) от 09.03.2019
+
+Dido - Still On My Mind (2019) BMG [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Folk, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Hurricanes (5:17)
+ 02/12. Give You Up (3:22)
+ 03/12. Hell After This (3:28)
+ 04/12. You Don't Need a God (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Folk, DowntempoПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC496B1CBBBB5FB9E51406DD889A224526EB3AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287886   (699631) от 09.03.2019
+
+Demis Roussos - Forever And Ever (2002) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. My Friend the Wind
+02. Lovely Lady of Arcadia
+03. Summerwine(   Читать дальше...   )Жанр: PopПродолжительность: 02:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287962   (699759) от 09.03.2019
 
 VA - So Fresh The Hits Of Summer 2019 + The Best Of 2018 (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:FD4152E0C04EEB19134D5C87D22FA3245535BF74
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6DF6A3F148F324085FFC19254581EC1F5F8571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401692   (701724) от 14.08.2020
-
-VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellie Goulding - How Long Will I Love You (02:28)
-02. Justin Bieber - Purpose (03:30)
-03. Lewis Capaldi - Someone You Loved (03:04)
-04. Shawn Mendes - Mercy (Acoustic Guitar) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D267E3C7C6610B11C17E3DF959C8EDEF0AF8B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287717   (701759) от 08.03.2019
-
-Света - Сердце моё (2009) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не говори
-02. Сердце моё
-03. Рига
-04. Тайна(   Читать дальше...   )Жанр: РорПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5F0295DA43781E07ADD63C1B3EBC2272C8074E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287642   (701760) от 08.03.2019
-
-VA - At Midnight! Disco Club Classics (2019) [MP3|320 Kbps] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T-Connection - At Midnight (5:07)
-02. Chic - Everybody Dance (12" Mix) (8:30)
-03. The Spinners - Are You Ready For Love (Single Version) (3:44)
-04. Norma Jean Wright - Saturday (6:06)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA4A48EDE47C4800A3AAB3488444FA1A0CFB9A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287715   (701868) от 08.03.2019
-
-Ахра - Карие глаза (2006) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карие глаза
-02. Моя любимая
-03. Небо и луна ( New Mix )
-04. Будь моей(   Читать дальше...   )Жанр: РорПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE6989C49C59AC9F5C5F31FADCD85443ABD6DA5
 ```
 
 

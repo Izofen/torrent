@@ -1,3 +1,165 @@
+###  Публикация: 1500388   (840949) от 06.10.2021
+
+VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
+02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
+03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
+04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379246   (840977) от 28.04.2020
+
+VA - не Громкие новинки недели 65 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Дима Билан - Я Тебя Отвоюю (5:21)
+2.Инна Вальтер - А нужны ли вы мне теперь? (4:55)
+3.Александр Шоуа - Дыши (4:26)
+4.Дима Билан - Там За Рекою Лес (4:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0779DD73FE22A838070215A31DFC3C6E599B7418
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003828   (841170) от 04.04.2016
+
+Within Temptation - Angel A Best Of (2016) Compilation [MP3|320 кб/с] <Gothic Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841170.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Deceiver Of Fools
+2.Dark Wings
+3.Jillian (I'd Give My Heart)
+4.Stand My Ground(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 02:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63A3E41B63E8F365F232EDF8FE2CD523ADB69DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112746   (841222) от 09.03.2017
+
+Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Blues (With Harmonica)
+02. Voodoo Chile Blues
+03. Born Under a Bad Sign
+04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112844   (841235) от 09.03.2017
+
+VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Lovers Music Song - Romantic Dinner
+02. Best Piano Bar Ultimate Collection - Piano Bar Restaurant
+03. Riccardo Ascani - Playa Arcobaleno
+04. Romantic Lovers Music Song - Music for Love(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE04426F96834D7594FCB04F087244AB3123DC64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003686   (841378) от 04.04.2016
+
+VA - Tropical Fantasy Reggae Mix April (2016) [MP3|320 кб/с] <Reggae, Jungle>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sizzla - Dem Ago Suffer
+002. Skalette O'Hara - Barbwire
+003. Bazzookas - Haha
+004. Fat Melon Man - Wet Dream(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 09:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060F20E6E654492D2EF922A9282C5242DE9675E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003845   (841689) от 04.04.2016
 
 VA - 100 Пудовый Auto hit 1 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
@@ -521,168 +683,6 @@ VA - Blues Forever vol.45 - vol.48 (2016) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122E8FE5F4D1C8DBEADC56DBB0BD7EC796904796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112298   (843103) от 08.03.2017
-
-John Mayall - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Road
-02. Sunshine
-03. Talk about that
-04. Why Did You Go Last Night(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A89B62D09F8FBBD175268FC8523B05F7F27EE1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003350   (843128) от 03.04.2016
-
-VA - Сделано в СССР (2014) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Владимир Трошин - Подмосковные Вечера
-002 Полад Бюль-Бюль Оглы - Позвони
-003 Виа Орэра и Нани Брегвадзе - Песня О Тбилиси
-004 Муслим Магомаев - Свадьба(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979E7DBA22257BC25D418BFD0F547EC2ECFA6D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003359   (843209) от 03.04.2016
-
-Андрей Миронов - Коллекция нового века (2003) [MP3|314-320 кб/с] <Советская эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Синема, синема (4:03)
-02. Остров невезения (2:11)
-03. Женюсь (3:21)
-04. Песенка о шляпке (2:50)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20016AB395CDD977F53C544019606D8DFE4CF669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002623   (843314) от 03.04.2016
-
-VA - Hits Disco and Pop Dance - Part II (2016) [MP3|256 кб/с] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque - Dance Dance Dance
-02. Solid Base - Set Me Free
-03. Jules - You & Me
-04. Anita Ward - Ring My Bell(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA31B300F4FA6821DE1CEEE6F1AACA239C14C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112005   (843389) от 08.03.2017
-
-VA - Ham!d Production February 2017 (2017) [MP3|192-320 Kbps] <Pop, Deep, Trance, Melbourne>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaliyah & Timbaland - Try Again (Alex Mistery Remix)
-02. Akcent & Amira - Gold
-03. Alex M.O.R.P.H & Woody Van Eyden Feat. Tiff Lacey - Dreamcatcher (Mhammed El Alami Remix Extended)
-04. Alok & Bruno Martini feat. Zeeba - Hear Me Now(   Читать дальше...   )Жанр: Pop, Deep, Trance, MelbourneПродолжительность: 03:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F75DBD5B906FF7CBD323F1D90E92B2833AECEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003598   (843405) от 03.04.2016
-
-VA - Ещё Одна История: Авторская Лирика (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843405.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Николай Шишкин - Кудесница Осень
-002. Сергей Ильин - Любовь Как В Кино
-003. Илья Гусев - Небеса
-004. Сергей Черновской - Мадам(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1895BAC4BEA115050C3114458B2EA29EFCD90309
 ```
 
 

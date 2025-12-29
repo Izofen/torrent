@@ -1,3 +1,192 @@
+###  Публикация: 1028807   (686647) от 24.06.2016
+
+Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [5:22]
+02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [5:08]
+03. Brian Laruso - The Way (Original Mix) [5:38]
+04. Raul Pablo Sanchez - Day Out (Original Mix) [6:53](   Читать дальше...   )Жанр: Deep House, TranceПродолжительность: 06:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534633   (686705) от 06.03.2022
+
+Aivö (Aivo) - Infinite Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Sovietwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Perfect City (4:19)
+02. Apollo-Soyuz (4:03)
+03. Neon Way (3:32)
+04. Out of Control (3:46)(   Читать дальше...   )Жанр: Synthwave, Sovietwave, SpacesynthПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C596A46C0167DEA2D452B59101575F9B491FB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534527   (686707) от 06.03.2022
+
+Tinlicker - Tomorrowland Friendship Mix (2022-02-24) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker - Light Beam
+02. Tinlicker & Helsloot ft. Hero Baldwin - Tell Me
+03. Ben Böhmer & Tinlicker - Voodoo
+04. Tinlicker ft. Nathan Nicholson - Be Here And Now(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB2C775E2C67C5771979343982CBD0635DE6D72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535433   (686709) от 06.03.2022
+
+GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (4:48)
+02. Final Frontier (4:28)
+03. Summer Calm (4:34)
+04. Different Reality (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CE674B2001674E2CD5D44351F9457CC3EF1093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535299   (686711) от 06.03.2022
+
+Afrojack - Tomorrowland Friendship Mix (2022-03-03) [MP3|320 Kbps] <Electro House, Tech House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID w/Drake ft. Lil Durk - Laugh Now Cry Later (Acappella)
+02. VOLAC - Muchacho w/Jack Ü ft. Bunji Garlin & MX Prime - Jungle Bae (Acappella)
+03. Kapuchon - Run And Hide w/Shouse - Love Tonight (Acappella)
+04. Martin Ikin & Biscits & Anelisa Lamola vs. Masked Wolf - Ready 2 Dance vs. Astronaut In The Ocean (Afrojack Live Edit)(   Читать дальше...   )Жанр: Electro House, Tech House, Bass HouseПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9CE56340AD16C55FA45114BAEB27CB18FD5DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535426   (686712) от 06.03.2022
+
+GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmosphere (5:00)
+02. Mysterious (5:38)
+03. Levitation (4:42)
+04. Signal (5:20)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535429   (686716) от 06.03.2022
+
+GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreams of Morpheus (5:10)
+02. Dreamer (5:16)
+03. Bad Signal (5:15)
+04. Mirage (4:39)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534635   (686721) от 06.03.2022
 
 LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
@@ -502,195 +691,6 @@ VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897162   (687629) от 12.05.2015
-
-Amon Tobin - ISAM (2011) [FLAC|Lossless|WEB-DL|24/44.1] <Rhythmic Noise, Field Recording, Electro, Dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journeyman (06:39)
-  02. Piece Of Paper (02:40)
-  03. Goto 10 (04:20)
-  04. Surge (02:05)(   Читать дальше...   )Жанр: Rhythmic Noise, Field Recording, Electro, DubstepПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572D012F0E34E50240E200BC91362D521772776B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289148   (687731) от 15.03.2019
-
-Robert Miles - Dreamland (1996) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One And One (Radio Version) (4:02)
- 02. Children (Eat Me Edit) (4:05)
- 03. Children (Dream Version) (7:06)
- 04. Fable (Message Version) (6:25)(   Читать дальше...   )Жанр: Electronic, Trance, AmbientПродолжительность: 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4059668152553F0B31B927D2A039FD31DC9AE19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289062   (688373) от 15.03.2019
-
-Super8 & Tab - Past, Present & Future (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Super8 & Tab – Helsinki Scorchin' (Mixed) (Super8 & Tab 2019 Remix) (04:13)
-2. Super8 & Tab – Lungs (Mixed) (03:27)
-3. Ferry Corsten – We're Not Going Home (Mixed) (03:26)
-4. Above & Beyond – Flying By Candlelight (Mixed) (Above & Beyond Club Mix) (05:02)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67EC93356EA146235118BB0F637097DFCE01851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289208   (688378) от 15.03.2019
-
-Faderhead - Starchaser (2019) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Darkwave, Industrial>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light My Way (4:50)
- 02. I'm Out Of Control (4:08)
- 03. Get Mad At Your Robot Self (4:27)
- 04. Starchaser (4:25)(   Читать дальше...   )Жанр: EBM, Synthpop, Darkwave, IndustrialПродолжительность: 00:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD88A1ED6EB0FB5A5F02C09B9AEFE8333F90647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288989   (688383) от 15.03.2019
-
-VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Kono - Happiness (Yves St. John Mix) 2:59
-02. Mr. Kay - Angel In The Abyss (Original Mix) 3:16
-03. JTB Project - The Light (Soulful Mix) 3:20
-04. London 54 - The Black Horse (Original Mix) 3:17(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD41A771B208F3F51A5E6082FF15F5D45B2B558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403710   (688465) от 21.08.2020
-
-VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Id - Id (Mixed)
-02. Armin Van Buuren - Hollow (Mixed) (Feat. Be No Rain)
-03. Armin Van Buuren - I Need You To Know (Mixed) (Feat. Ifimay)
-04. Armin Van Buuren - Something Real (Mixed) (Feat. Jordan Shaw)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57223F147ED99FEA301BAAA89CDA07DB94803175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403740   (688555) от 21.08.2020
-
-NINA feat. LAU - Synthian (The Remixes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wire (feat. Kim Wilde) (Ricky Wilde Remix) (4:53)
-02. Unnoticed (Robert Parker Remix) (4:44)
-03. Synthian (Das Mortal Remix) (3:48)
-04. Synthian (Ends 84 Remix) (4:08)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373580909CA627CFE8DED0B5B9667F3CEFA5F95B
 ```
 
 

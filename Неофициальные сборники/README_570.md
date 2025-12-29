@@ -1,3 +1,165 @@
+###  Публикация: 1109229   (859014) от 27.02.2017
+
+VA - The Most Live Rock'n'Roll (2017) [MP3|320 Kbps] <Rock 'n' Roll , Rockabilly>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859014.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Baseballs - The Sign 2:55
+002. Backdraft - Jumpin' Jive 2:58
+003. Ruby Dee and The Snakehandlers - Who You Think I Am 3:26
+004. The Montecristos - Born To Rock 'N' Roll 3:14(   Читать дальше...   )Жанр: Rock 'n' Roll , RockabillyПродолжительность: 03:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC39C4D596610D4AC7548757575D2B542DB9308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109347   (859017) от 27.02.2017
+
+VA - Record Super Chart #476 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Klaas - Riot  4:00
+02.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  4:23
+03.  Ofenbach - Be Mine (Amice Remix)  3:23
+04.  Armin van Buuren & Garibay - I Need You (Filatov & Karas Extended Remix)  4:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4EED70885A63872EA41FFDC4E3D7BF9DDD89A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376672   (859024) от 18.04.2020
+
+VA - The Official UK Top 40 Singles Chart 17.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. SAINt JHN - Roses (Imanbek Remix)
+03. Drake - Toosie Slide
+04. Dua Lipa - Physical(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6587E438C3A45E6A4DB54204415ED14BF6B8F830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000061   (859078) от 25.03.2016
+
+VA - Hits Disco & Pop Dance - Part I (2016) [MP3|256 кб/с] <Pop, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dalida - Tico Tico
+02. Ray Charles - Hit The Road Jack
+03. Los Lobos With A Banperas - Canuon Del Mariachi
+04. Alan Price - Poor People(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B026A61AD6F2A820D93ACFD8E0FE28B6282056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109197   (859094) от 27.02.2017
+
+VA - Space Synth Noise (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859094.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Android - The Hole 2:26
+002. Quixotic - Highway Violence 5:52
+003. Angelo Taylor - Space Synth Noise 1:44
+004. Retroxx - Antogonist 4:56(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 07:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E1AB3958A404455AA61A8A88F4A3A25D28F511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109270   (859095) от 27.02.2017
+
+VA - Лучшая дискотека от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859095.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rozhden - Убегай 3:31
+002. Alesya Kay - Кто Мешает Любить 3:40
+003. Слава Басюл - Ты Меня Ранишь Поцелуями 4:45
+004. Станислав Сорока - Иди За Мной 3:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7550D60D30B489AD07D36BB4AAE054CA09E7C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109251   (859099) от 27.02.2017
 
 VA - Phantom House: Minimal Techno Mix (2017) [MP3|320 Kbps] <Minimal, Techno, Tech House>
@@ -533,168 +695,6 @@ VA - Clubbing Electro House (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7721623A87F8938BA3B51E280D36970D279693AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376131   (859739) от 17.04.2020
-
-VA - Зайцев.нет Лучшие новинки Апреля (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Apashe - Distance (feat. Geoffroy) (3:39)
-2.Armin van Buuren, MaRLo feat. Mila Josef - This I Vow (3:40)
-3.Bahh Tee feat. JONY - Неужели ты моя (3:22)
-4.Becky G - They Ain't Ready (3:30)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BAA8C3906D3AF658AB0A6B9909ADC7AD06EF85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497892   (859783) от 25.09.2021
-
-VA - Drum And Bass Tropical Cocktails (2021) [MP3|320 Kbps] <D&B, Jungle, Electro Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859783.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Cosmic Gift - Space Queen
-002. DJ Kristal - Limits-Moto-Jump
-003. Innvoice - Shape The Future
-004. Jazzinspired - Sophisticated(   Читать дальше...   )Жанр: D&B, Jungle, Electro Bass, DubstepПродолжительность: 11:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D74A93F41F904CCDE2374767E19BC5A344EB142
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376240   (860141) от 17.04.2020
-
-VA - Back to the Seventies - The Best of the 70s (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slade - Look At Last Nite
-02. ZZ Top - Back Door Love Affair
-03. Creedence Clearwater Revival - Down On The Corner
-04. Peter Frampton - Show Me The Way (Live)(   Читать дальше...   )Жанр: Rock, Glam Rock, PopПродолжительность: 11:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA61D5FC222CA63CC4349E3515A0D5D5E84DBCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376391   (860156) от 17.04.2020
-
-Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great American Success Story
-02. Caught in a Dream
-03. Under My Wheels
-04. School's Out(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46706EA4F3AC18FEE84A4A809B7274A849E13CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376438   (860371) от 17.04.2020
-
-VA - Beatport Electro House: Sound Pack #63 (2020) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ics - Recall (Original Mix)
-002. Kalaedo - Tyrian
-003. Nudisco - Pepperjuice
-004. Around Paradise - Deep River (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 11:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CED01F06F528745CDA710098A2707A48D2E1A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376439   (860483) от 17.04.2020
-
-VA - Beatport Vocal House: Sound Pack #66 (2020) [MP3|320 Kbps] <Vocal House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell And Suyano - Go To War
-002. Gregory Esayan - Part Of Me (Original Mix)
-003. Edu & Susie Ledge - In My Memory (Original Mix)
-004. Feel & Alexandra Badoi - We Are One(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 10:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1370EAB3BBE1ABDBABE3BCB2B654857A469EE6DA
 ```
 
 

@@ -1,3 +1,168 @@
+###  Публикация: 608740   (992290) от 27.01.2013
+
+VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ночной Патруль - Ты у меня одна такая (DJ V1t & DJ Johnny Clash Remix)
+ 02 DJ Jim & Extasy Project feat. Timo - Very Good (Radio Mix)
+ 03 Юлия Волкова - Давай Закрутим Землю (Dj Artem Holodin Short Mix)
+ 04 Xonia - Remember (Radio Edit)
+ 05 Dennis Cartier & Mc Sherlock - That Feeling (Radio Edit)
+ 06 Laselva Feat. Angel - Your Life (Video Edit)
+ 07 Данко - Московская ночь (Alex Grand and Glazunov Remix)
+ 08 Aksioma Project - Boom Boom! (Original Mix)
+ 09 Matreshka Gilrs - Медведица (DJ AFFecta & DJ Natasha Baccardi Radio Edit)
+ 10 Danceboy Vs. Cary August - Drive By (Tale. Dutch Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993BD01F5C69AF5A4652FB8CCF7D0B9E124F7A5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609512   (992292) от 27.01.2013
+
+VA-New Age Style - World Lounge 3 (2013) [MP3|320 кб/с]<New age, World, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, World, DowntempoПродолжительность: 05:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5A2E77A3A59B748B05678742C358F57D407FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353201   (992380) от 17.01.2020
+
+VA - Meeting with Love (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Blues>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Duval - Angel Of Mine
+02. Sonny Black - Blues Is King
+03. Ben E King - Stand By Me
+04. Valefim Planet - Come Whit Me(   Читать дальше...   )Жанр: Instrumental, Easy listening, BluesПродолжительность: 04:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E280A3E1DC424A0E04A08503123640A198A57788
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353105   (992571) от 17.01.2020
+
+VA - 100 Greatest Happy Songs (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992571.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rihanna - We Found Love
+002. Clean Bandit - Rather Be (feat. Jess Glynne)
+003. Pharrell Williams - Happy
+004. Electric Light Orchestra - Mr. Blue Sky(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDBA420DBFAAA4A116FBBAE88DB567689D91A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353170   (992627) от 17.01.2020
+
+VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992627.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pindaric Spleen - Millennia
+002. Beautiful Morning - Marga Sol
+003. Señora - Ritmo Casablanca
+004. Dany Cohiba - Carnival Madness(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 09:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353172   (992679) от 17.01.2020
+
+VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992679.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sonic Moon - Funk Flow
+002. Lento Violento - Lost
+003. Mount Palomar - The King's Gambit
+004. Diefaust - Curiosite Coupable(   Читать дальше...   )Жанр: Electronic, EDM, SyntheticПродолжительность: 12:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7B4FE76015EB0ADAB2EFAD0EBCB4591D4186EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353171   (992680) от 17.01.2020
 
 VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
@@ -627,204 +792,6 @@ VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604386   (996454) от 17.01.2013
-
-VA - Свежие Клубные Новинки Клубов Москвы (2013) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_996454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A-Dessa - Fire Реня (DJ Iksiy Remix)
-2. Addicted Craze - Fighting (Justin Corza Meets Greg Blast Remix Edit)
-3. Alexandra Stan - Lemonade (Cahill Radio Edit)
-4. Amelie - Esta Noche (Asher Aluk Remix)
-5. Antillas, Blinders, Jenson Vaughan - Top Of The World (Original Mix)
-6. Anton Pavlovsky feat. Anisa - Без Тебя
-7. B.K. - Sex (DJ Zhukovsky Official Remix)
-8. Bob Sinclar - Groupie (Club Mix)
-9. Danceboy vs. Cary August - Drive By (Tale. Dutch Edit)
-10. DJ Ella feat. Ricky J - Welcome To The Club (Jan Wayne Remix Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEFAE821584D4EBC4695D30C54EAADE2D13C71E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604325   (996455) от 17.01.2013
-
-VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_996455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Кулькова - Я Искала Тебя (02:16)
-02. Сплин - Орбит Без Сахара (02:19)
-03. Мумий Тролль - Утекай (02:22)
-04. Tiana - Новогодняя (02:23)
-05. Dress Code - Новогодний гопачек (02:27)
-06. Татьяна Овсиенко - Новый год! (02:28)
-07. Елена Ваенга - Желаю (02:33)
-08. Евгений Осин - Плачет девушка в автомате (02:35)
-09. Ирина Дубцова feat. DJ Slider - Ешь, Молись, Люби (02:36)
-10. Марина Девятова - Кабы не было зимы (02:36)(   Читать дальше...   )Жанр: PopПродолжительность: 30:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003B956953C7EFD1C3073BD6BEC43210506C9457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604156   (996474) от 17.01.2013
-
-VA-Super Dance Hits DFM (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fidel Wicked - Rock The Disco (Radio Edit)
-02. Deep Zone Project - Made For Loving You (Radio Edit)
-03. Alyssa Reid feat. Snoop Dogg - The Game (Uk Radio Edit)
-04. LaRoxx Project - Boom Boom (Radio Edit)
-05. Eros Ramazzotti - Un Angel Como el Sol Tu Eres
-06. Eric feat. Natalia - Daydreamer (Radio Edit)
-07. 3OH!3 - Youngblood
-08. Edward Maya pres. Mayavin - Friends Forever
-09. DJ Stretch feat. Di Land - I Need You (Radio Edit)
-10. Pink - Try(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610F35C7A6CAAA510DD64876E75A671890547C13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604023   (996493) от 17.01.2013
-
-VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Егор Сесарев - Громчемузыка
- 002. Дилайс - Без Тебя
- 003. Пицца - Город помнит нас
- 004. Стас Борисов - Зима
- 005. Руки Вверх - Счастлив Без Тебя
- 006. Оксана Краски - А девочке хочется
- 007. Пара нормальных feat. Риал Камеди Новый Год
- 008. Т9 - Ты здесь
- 009. Ksenona - Далеко-далеко
- 010. Дима Билан И Ева - Малыш(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD7E4F4EB2B9472E0DFAD5197BC27704256310E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602753   (996624) от 16.01.2013
-
-VA-Golden Romance Collection (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996624.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 03:58:11
-1. Within Temptation (feat. Keith Caputo) - What Have You Done (5:13)
-2. Savage - Don't Cry Tonight (extended) (6:51)
-3. Timbaland (feat. Katy Perry) - If We Hever Meet Again (4:52)
-4. DJ BoBo - Secrets Of Love (3:18)
-5. Adele - Someone Like You (4:47)
-6. Schiller (feat. Heppner) - I Feel You
-7. Adele - Set Fire To The Rain
-8. Morandi - Colors(   Читать дальше...   )Жанр: PopПродолжительность: 06:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBF2B48AEC9A112CB1AD67FA8370C9C9AB30C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603595   (996658) от 16.01.2013
-
-VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иракли - Иракли - Осень (ремикс) (03:10)
-02. Анна Седюкова - Анна Седюкова - Что я наделала (03:21)
-03. Ёлка - Ёлка - Хочу (03:26)
-04. Леонид Агутин & Tomas N'evergreen - Леонид Агутин & Tomas N'evergreen - Ай яй яй (03:29)
-05. Новые Самоцветы - Новые Самоцветы - Помнишь Модерн Токинг (03:42)
-06. Анжелика Агурбаш - Анжелика Агурбаш - До звезды (03:05)
-07. USB & Сергей Жуков - USB & Сергей Жуков - Скажи, зачем (03:49)
-08. Юлия Савичева feat. DJ Feel - Юлия Савичева feat. DJ Feel - Я с тобой (03:39)
-09. Тимур Родригез - Тимур Родригез - Я верю в твою любовь (02:50)
-10. МакSим - МакSим - Это же я (03:03)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C288A75F564FD8A5447F4CB5A2018B54EE5618D2
 ```
 
 

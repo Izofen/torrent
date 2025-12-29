@@ -1,3 +1,30 @@
+###  Публикация: 1007789   (819555) от 16.04.2016
+
+VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
+02. Neonlight & Wintermute - Influx (04:59)
+03. Khronos - The Heavy (04:06)
+04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115518   (826448) от 18.03.2017
 
 The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum & Bass>
@@ -667,33 +694,6 @@ The Qemists - Warrior Sound (2016) [MP3|320 кб/с] <Drum & Bass, Alternative, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E2D164A364869D08D294B2BCD14A177539AF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367684   (915551) от 16.03.2020
-
-VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legal - Holding Back [04:19]
-02. BK - Sleeper Cell [04:30]
-03. Jake Robertz - Guest List [04:37]
-04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
 ```
 
 

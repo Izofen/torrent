@@ -1,3 +1,63 @@
+###  Публикация: 753098   (938585) от 04.02.2014
+
+Dum Dum Girls - Too True (2014) [FLAC|Lossless]<Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Cult of Love   (2:14)
+02.  Evil Blooms   (2:36)
+03.  Rimbaud Eyes   (3:30)
+04.  Are You Okay?   (2:51)
+05.  Too True to Be Good   (3:04)
+06.  In the Wake of You   (2:40)
+07.  Lost Boys and Girls Club   (3:24)
+08.  Little Minx   (2:30)
+09.  Under These Hands   (3:29)
+10.  Trouble Is My Name   (4:02)Жанр: Indie-PopПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A19D62E53DE3701163839F8337C2A1E2719086
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092545   (938869) от 12.01.2017
+
+Ria Mae - Ria Mae (2016) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Alternative Rock, Urban Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wherever We Go (03:05)
+02. Clothes Off (Single Version) (03:23)
+03. Ooh Love (03:25)
+04. If You Don't Love Me (03:32)(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Urban PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE10FBC34F61F31315E79D11C3B6A3653B84C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 860466   (938888) от 17.01.2015
 
 Falco - Golden Hits (1995) [FLAC|Lossless]<Pop-rock>
@@ -654,60 +714,6 @@ Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B70CD9690111269209668D630902EB17CFD5CF55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362353   (949696) от 23.02.2020
-
-Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (Original Mix) (4:12)
-02. Stars (Sky Edit) (4:32)
-03. Stars (Mother Dub) (6:27)
-04. Stars (Search & Destroy Full Vox Mix) (7:35)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C668BA04F6B247AAC5985B827CCAF38CE1D48514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981781   (949827) от 02.02.2016
-
-Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love Within
-02. Only He Can Heal Me
-03. So Real
-04. The Good News(   Читать дальше...   )Жанр: Alternative Dance, Indie Pop, ElectronicПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
 ```
 
 

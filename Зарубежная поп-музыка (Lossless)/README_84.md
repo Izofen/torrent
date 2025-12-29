@@ -1,3 +1,63 @@
+###  Публикация: 1494537   (887739) от 08.09.2021
+
+VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Peaches (03:18)
+02. Sam Smith - Like I Can (02:46)
+03. Kungs - This Girl (Kungs Vs. Cookin' On 3 Burners) (03:15)
+04. Sera - Only Us (03:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0333A89A3C1F1FD9C47E66EDDC29CE1D7544E87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762933   (888692) от 04.03.2014
+
+Lea Michele - Louder (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball (03:35)
+ 02. On My Way (03:45)
+ 03. Burn With You (03:38)
+ 04. Battlefield (04:18)
+ 05. You're Mine (03:38)
+ 06. Thousand Needles (03:24)
+ 07. Louder (03:50)
+ 08. Cue The Rain (03:59)
+ 09. Don't Let Go (03:16)
+ 10. Empty Handed (04:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CF128EE1A6FFFFA951DAE18CBC92EDF825A633
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494363   (888828) от 07.09.2021
 
 VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -663,58 +723,6 @@ Tom Jones - The Definitive Tom Jones (4CD) (2003) [APE|Lossless]<Pop, Rock & Rol
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370671   (893513) от 29.03.2020
-
-Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxbow (02:53)
-02. Can’t Do Much (03:44)
-03. Fire (03:37)
-04. Lilacs (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E9A020C13D9E040C9A66405F23B217A47C56C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493739   (893680) от 04.09.2021
-
-ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You [00:05:10]
-02. Don't Shut Me Down [00:03:58]Жанр: PopПродолжительность: 00:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739353961066D076F51F7C12B318E8F65B675C2B
 ```
 
 

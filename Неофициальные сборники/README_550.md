@@ -1,3 +1,165 @@
+###  Публикация: 774498   (829378) от 06.04.2014
+
+VA - Lounge At The Seashore 8 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mario Gamez - The Cauldron - Original Mix
+002. Alex H & DJ Massymo Tn - Beyond The Blue Horizon (Chill Mix)
+003. Koan - Eagle's Tale
+004. New Edge - Unmade Beds (feat. Iva from White Slaver)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D70503F14D931388F86B1470A661F8EA7C58FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381030   (829511) от 05.05.2020
+
+VA - Mystic Rain: Instrumental Piano (2020) [MP3|320 Kbps] <Instrumental, Piano, Neo Classic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frаnсеsсо Digiliо - I 'll Bе Hоmе
+002. Mj Cоlе - A Visit Tо Lоlitа
+003. Jutbring - Thе Thiеf Bunnу Sосiеtу
+004. Olgа Sсhерs - Nосturnеs(   Читать дальше...   )Жанр: Instrumental, Piano, Neo ClassicПродолжительность: 05 :52 :15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAD02343FFFF89F27D925128FE1EFCA69C9B0EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114983   (829568) от 16.03.2017
+
+VA - Новинки Клубной Музыки от Зайцев.Нет (2017) [MP3|320 Kbps] <House, Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zedd - Stay (ft. Alessia Cara)  3:30
+02.  Tritonal - Strangers (Original Mix)  3:41
+03.  Headhunterz - Landslide  3:41
+04.  Steve Aoki & Louis Tomlinson - Just Hold On  3:19(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 02:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82029DF33F16E74045E5772E9D23A9C1C9D21333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381048   (829661) от 05.05.2020
+
+VA - Beatport Progressive Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_829661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gadboa - Hentai Crush
+002. Mark Khoen & Emma Lock - Nikita Lily
+003. Hakkebutte - Salziger Salamander
+004. Luke Bond Ft. Tyler Graves - Left Of Us(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA0D3D21109175B4DFDD097048868EA34D004B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381051   (829767) от 05.05.2020
+
+VA - Club Friday: Spring Eurodance Mix (2020) [MP3|320 Kbps] <Eurodance, Club Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Dima - Nightwave
+002. Ashanti Khumenati - Tupin
+003. Ray Boyd - Nothing Can Beat It
+004. Dezibel - Nothing You Can Do(   Читать дальше...   )Жанр: Eurodance, Club DanceПродолжительность: 08:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6785AB25367ACE5D8A6845FE0569FAC9664EA25B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381052   (829773) от 05.05.2020
+
+VA - Club Tropicana: Nu Funky Blues And Disco House (2020) [MP3|320 Kbps] <Funky, Nu Disco, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_829773.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eddie Hazel - California Dreamin'
+002. Lucinda Slim - Love Thief
+003. Aretha Franklin - Save Me
+004. Freddie King - Hot Tomato(   Читать дальше...   )Жанр: Funky, Nu Disco, HouseПродолжительность: 07:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AED40027D4B3DF913D1556C0A93F16C85E89413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114913   (829778) от 16.03.2017
 
 J.J. Cale - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -533,168 +695,6 @@ VA - Deep Tech House Session (2020) [MP3|320 Kbps] <Deep, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FACA99C31B790601C084B129C446DB7002EF931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005637   (830907) от 10.04.2016
-
-VA - Alterportal HITS 16 Vol. 91 - March (2016) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love and Death - Lo Lamento
-02. Victor Love - Bitchcraft (feat. KMFDM)
-03. O'Brother - Complicated End Times
-04. Caliban - Inferno(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA5F2E5B19AD40B41EAEC727CC942EF157B36F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005466   (830917) от 10.04.2016
-
-VA - Happy Hardcore Top 20 (2016) [MP3|320 кб/с] <Hardcore, Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Paul - Rainbow In The Sky (DJ Pauls Forze Mix) 02:51
-02. Party Animals - Have You Ever Been Mellow 03:08
-03. Flamman & Abraxas Ft. MC Rem - Good To Go (Radio Mix) 03:35
-04. DJ Paul Elstak - The Promised Land  (Promised Radio Mix) 03:44(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C613C235D4D4A701D0A2ABB8741A3853B480DAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005582   (830918) от 10.04.2016
-
-VA - Second Breath - Unknown Bands Vol.8 (2016) [MP3|64 - 320 кб/с] <Alt.Metal, Alt.Rock, Modern Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember My Name - Away From You (ft. Jose Urquiza)
-02. Ashes of Eagles - Break Away
-03. Fulc - Wasting
-04. Sobrio - Verbos(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA711BAD9A392C756D2EAEDB2D6C890F6D1F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005814   (830919) от 10.04.2016
-
-VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830919.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deep City - Maybe Rice - Deep Fashion Mix
-002. Vladi Strecker - De la Fuente (Springtime Mix)
-003. Area Code 51 - Teldrassil
-004. Cinematic - Brown Sugar (E-Wave Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419A7EA7D70D879C3B5F7DE0D149D848C01702DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005887   (830920) от 10.04.2016
-
-VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krewella - We Go Down (Darren Styles Remix) (05:00)
-02. Nicky Romero - Symphonica (Bare Remix) (03:54)
-03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
-04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005854   (830921) от 10.04.2016
-
-VA - Automatic Express Promo Focus (Promotion) (2016) [MP3|192-320 кб/с]<Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix And Tiesto - The Only Way Is Up (Original Mix) 04:52
-02. John Dahlback - Atlantis (Original Mix) 04:59
-03. Camelphat Feat. A.M.E. - Paradigm (The Cube Guys Remix) 06:14
-04. Jus Jack - Stargazing (Original Mix) 04:38(   Читать дальше...   )Жанр: Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical, Electro-R&B, UK GarageПродолжительность: 12:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8426B10B215AFBD17A72D69EA16D3B2689DEA1
 ```
 
 

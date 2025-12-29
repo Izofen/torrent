@@ -1,3 +1,69 @@
+###  Публикация: 601499   (997997) от 11.01.2013
+
+Ольга Кормухина - За гранью слов (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ангел 3:10
+02. Ночь 3:34
+03. Желтая Дорога 3:47
+04. Плывущее Кафе 4:01
+05. Мне Уже Легко 3:13
+06. Алена 4:01
+07. Прощай 3:45
+08. Будь Со Мной 3:37
+09. Эпилог 3:23
+10. Корабль 3:25Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601463   (998265) от 10.01.2013
+
+Чайф - 25 лет выдержки (2012) [WavPack 2.0 24/192 |image (Vinyl-Rip)]<Blues Rock, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998265.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1
+01. Шаляй-Валяй 2:58
+02. Кот 3:33
+03. Вольный Ветер 3:38
+04. Белая Ворона 3:04
+05. Оранжевое настроение 3:50
+06. Ой-Йо 4:26
+07. Всему Свое Время 3:37
+08. Давай Вернемся 5:29
+09. Поплачь О Нем 5:17Жанр: Blues Rock, AcousticПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601413   (998297) от 10.01.2013
 
 Янка Дягилева - 4 кассеты (1988-1989) [APE 2.0 16/48|image+.cue (MC-Rip)]<Acoustic, Post-Punk>
@@ -637,60 +703,6 @@ A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623730   (1029090) от 03.04.2023
-
-Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Doctor For My Heart (12" Version) 5:18
-A2. Wings Of Love (12" Version) 5:21
-A3. Colder Than Ice (12" Version) 5:38
-A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622220   (1030295) от 28.03.2023
-
-Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
-1998 - The Electric Sleep
-2000 - Celestial Hi-Fi
-2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
 ```
 
 

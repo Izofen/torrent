@@ -1,3 +1,166 @@
+###  Публикация: 741850   (982261) от 04.01.2014
+
+Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982261.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:21) 1. Prelude
+(4:42) 2. Searching For An Angel
+(4:37) 3. Conflict
+(6:35) 4. Cross Across My Heart(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD28F8E36848CF1862BB3F06E9BE2EFE99E4F59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165532   (982660) от 10.01.2010
+
+Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Rock, Alternative, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodnight Moon (4:05)
+02. Scrub (5:51)
+03. My Boy Lollypop (02:30)Жанр: Indie, Rock, Alternative, Pop-RockПродолжительность: 00:12:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355424   (983448) от 26.01.2020
+
+David Knopfler - Last Train Leaving (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Ballad of Little Blackie [3:15]
+ 02 - I Gave My Heart [3:50]
+ 03 - Glory Be [4:03]
+ 04 - All the Fun of the Fair [4:21](   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4055956256CD1CD9356535A02E88AEFEE13A5261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355523   (983451) от 26.01.2020
+
+David Knopfler - Heartlands (2019) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983451.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The Midnight Shaker [5:34]
+ 2 - Easter Rising [3:26]
+ 3 - Heartlands [3:38]
+ 4 - Washington Decides [4:37](   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6797454ADC88C6459A7DA58333A88FDA35655059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613454   (984424) от 03.02.2013
+
+Ataraxia - Adolescence Of An Ancient (1986) [MP3|320 кб/с]<Rok>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984424.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adolescence Of An Ancient Warrior (08:05)
+2. Gabble (05:05)
+3. A Low (07:19)
+4. Value Counting (03:21)
+4. Plug Corde II (04:08)
+5. Against The Wind (13:22)Жанр: RokПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982F4E8AFA3E976163BFD8C12306C7F71AFABE94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354791   (987014) от 23.01.2020
+
+Mono Inc. - The Book of Fire (2020) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987014.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Book Of Fire
+2. Louder Than Hell
+3. Warriors
+4. Shining Light(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E057F498BF02227808B53C10FFD0B1D466CCD65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163253   (988423) от 05.01.2010
 
 Elvis Presley - Elvis Best Hits (2010) [MP3|128 kbps]<Rock-n-Roll>
@@ -599,184 +762,6 @@ Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88087E62DA18AC1946DE09497B3F4AAF517CAA93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601338   (998107) от 11.01.2013
-
-Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998107.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:19] 01. Cockpit - Mission To Rock
-[02:48] 02. Cockpit - At A Loose End
-[03:06] 03. Cockpit - White Flag
-[03:10] 04. Cockpit - Shot In Hell
-[03:38] 05. Cockpit - Gun For HireЖанр: RockПродолжительность: 00:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F82FF72CA92738B7A3A6FFD990BA3AD9605BD4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600995   (998377) от 10.01.2013
-
-Alex  Band - After The Storm (EP) (2012) [MP3|224 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Back (03:44)
-02. Shape Of Your Heart (03:27)
-03. King Of Anything (03:44)
-04. Get Up (03:33)
-05. Right Now (03:17)Жанр: RockПродолжительность: 00:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD124F16CC1F92EA3B8EF83C9D52F1E7048E28B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600775   (998414) от 10.01.2013
-
-Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Away (04:09)
-02. Shadows In The Night (04:31)
-03. Tomorrow (05:04)
-04. Without You (05:11)
-05. Ready To Promise (04:51)
-06. L.I.E.S. (03:30)
-07. Dream Of It All (03:32)
-08. Believe (03:57)
-09. Tell Me (04:05)Жанр: Hard RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AC82F53B7B36C969B9A243D157CDFF1BDC0631
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599258   (999406) от 06.01.2013
-
-Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fall From The Grace Of Love (3:44)
-02.  Girls In Black (3:36)
-03.  Wash Away (4:16)
-04.  I Believe In You (3:56)
-05.  You Don't Have Me (3:45)
-06.  Money (4:09)
-07.  Someday (4:10)
-08.  Heal Me (7:21)
-09.  Over You (4:06)
-10.  Road To Forever (4:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599248   (999433) от 06.01.2013
-
-Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bankrupt (4:32)
-02.  Tied Up (3:44)
-03.  Die Singing (3:23)
-04.  The Guilt (4:52)
-05.  Hello Animosity (4:38)
-06.  Travelers (4:40)
-07.  Live And Let Live (4:10)
-08.  Keep Thinking (5:11)
-09.  All We Need (3:38)
-10.  Uneasy Chair (3:45)(   Читать дальше...   )Жанр: 70's RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B2CD18DA222E8096D87DEFC4B2E9A5F33DF383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598511   (999602) от 05.01.2013
-
-Black Cat Bones - Barbed Wire Sandwich (1969) [MP3|320 kbps]<Heavy Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Blues-RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F980C59C70ECF331B414B776C6B7DC3B3DA88106
 ```
 
 

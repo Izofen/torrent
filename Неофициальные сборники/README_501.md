@@ -1,3 +1,165 @@
+###  Публикация: 1012760   (778328) от 02.05.2016
+
+VA - Русское радио. Веселой Пасхи! (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Агонь - Я Буду Любить Тебя
+002. Винтаж - Немного Рекламы
+003. Виталий Козловский - Отпускаю На
+004. Aisha - Сильно Сильно(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DABD94A0BD08B5D0E5E4B3C50C02A02280DE4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012857   (778331) от 02.05.2016
+
+VA - Супер Auto-Hit Новинки (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778331.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zion & Lennox - Embriagame
+ 002. Катя Нова & Dee Flack - Я Буду С Тобой
+003. Joyce Edwards - Обжигая Крылья
+004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A36745D01FB574D04F49E877790852F5C2089A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012346   (778338) от 02.05.2016
+
+VA - Mega Hits Euro Top N7 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milena - One Two Three
+02. Remady & Manu-L - Another Day In Paradise
+03. Sak Noel & Luka Caro & Ruben Rider - Pinga
+04. The Avener & Kadebostany - Castle In The Snow(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE3A5C8AA1D061DFA563DB062E212464992B47F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012401   (778339) от 02.05.2016
+
+Никола Питерский - Каторжанин (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каторжанин
+02. Склонен к побегу
+03. Мы с малолетки
+04. Конвой(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3915594C51F3563BDD9FB11DC95800B1DF2A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012934   (778340) от 02.05.2016
+
+VA - Superior Lounge Vol.2: 25 Premium Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phaser — Deep Waves — Original Mix
+02. Trinity — Starnight — Original Mix
+03. Ida Malstroem — So Hot — Original Mix
+04. Modern Lounge Heroes — A Journey — Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B3478122BB146B7178BB68C99979172C749FC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012751   (778344) от 02.05.2016
+
+VA - Горячая весенняя дискотека (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alyosha - Капли
+02. Инь - Ян - Рассвет (DJ Noiz Remix)
+03. Вера Брежнева - Номер 1
+04. Подиум - Любовь Зла(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6955A42476395DB9BBBF4F0FBB89EA64AC17D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012470   (778350) от 02.05.2016
 
 VA - Hold on and Chill Out (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -533,168 +695,6 @@ VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6839E31FA89AEDCA49C84BF6D7599D4DFDB8D01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210179   (778885) от 01.03.2018
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol.70 (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  2Маши  -  Босая (DOBRYNIN Remix)  3:06
-002.  Dabro  -  Ты меня ждёшь  3:54
-003.  5sta Family  -  Снова вместе (Andy Light  Ramirez Radio Remix)  2:58
-004.  Deep Purple  -  Smoke On The Water (XM & Alexander Holsten Remix)  3:52(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D991A0D928F0791BE64D32A4F57CD8D940A111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209960   (778968) от 01.03.2018
-
-VA - NRJ Hot 30 от Радио ENERGY 23.02.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MARUV & BOOSIN - Drunk Groove
-02. Post Malone & 21 Savage - Rockstar
-03. Alice Merton - No Roots
-04. Merk & Kremont - Sad Story (Out Of Luck)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C828DB9D6203A9CC6C560299E8C8243073C55F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210027   (779006) от 01.03.2018
-
-VA - German Top 100 Single Charts 02.03.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liam Payne Rita Ora - For You (Fifty Shades Freed)
-002. Bausa - Was du Liebe nennst
-003. Drake - God's Plan
-004. Eminem - River (feat. Ed Sheeran)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6565444CA90B1BE9B82FF55C4D8DB9A02AEDDF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209829   (779082) от 28.02.2018
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.24 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779082.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Spears Feat Will.i.am - Scream & Shout
-002. Girls Aloud - Something New
-003. Винтаж - Свежая вода (ft. ChinKong)
-004. Nelly Furtado - Waiting for the Night(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33FBAC166A69CB3D847555520AB1B12704848DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209918   (779088) от 28.02.2018
-
-VA - Hit Music (весна 2018) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Niall Horan - On The Loose
-002. David Guetta feat. Martin Garrix, Brooks - Like I Do
-003. Антон Беляев - Лететь (OST фильма - Лед)
-004. Sofia Reyes feat. Jason Derulo, De La Ghetto - 1 2 3(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C6EE06702D99D0E0414BAD00364399FC03AC65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209824   (779119) от 28.02.2018
-
-VA - Chill Dance Music (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Doors Down - Here Without You
-002. Alastair Pursloe - 36 Degrees in the Shade
-003. AnatolliMal - Coordinates 06,02,15 (Original Mix)
-004. Autograf feat. Lils - You Might Be (MICA Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2582261E384123B43C858C53DFAB925B4C0A185
 ```
 
 

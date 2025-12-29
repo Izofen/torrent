@@ -1,3 +1,57 @@
+###  Публикация: 1279937   (763524) от 01.02.2019
+
+Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson) (03:32)
+02. Baby (feat. Marina & Luis Fonsi) (03:25)
+03. Solo (feat. Demi Lovato) (03:43)
+04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394477   (763750) от 05.07.2020
+
+The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOMO (05:06)
+02. Angel Of My Life (04:00)
+03. So Did I (04:12)
+04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521711   (764349) от 03.01.2022
 
 VA - Hooked On Number Ones-100 Non Stop Hits (1988) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -641,60 +695,6 @@ Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124373   (773320) от 13.04.2017
-
-Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Diana
-2. Love Me Warm and Tender
-3. Put Your Head on My Shoulder(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277393   (774227) от 23.01.2019
-
-Julio Iglesias - Best Collection vol.3 (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathalie
-02. Momentos
-03. La Paloma
-04. Las Cosas Que Tiene La Vida(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E38D3F4988DE5F5AF4CA0A01EFB6F12F4165A64
 ```
 
 

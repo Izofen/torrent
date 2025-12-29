@@ -1,3 +1,84 @@
+###  Публикация: 1017139   (763133) от 16.05.2016
+
+Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Last Moment (Na Poslední Chvíli)
+A2	Early Evening Blues (Blues Navečer)
+A3	Gold And Diamonds (Zlato A Stříbro)
+A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394384   (763679) от 05.07.2020
+
+Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763679.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Hooray! Hooray! It's A Holi-Holiday
+(Frank Farian, Fred Jay)
+B Ribbons Of Blue
+(Forsey)Жанр: DiscoПродолжительность: 00:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394588   (763680) от 05.07.2020
+
+Gary Moore - White Knuckles (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763680.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Nuclear Attack
+A2 White Knuckles/Rockin' & Rollin
+A3 Run To Your Mama (Live)
+A4 You(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521721   (764174) от 03.01.2022
 
 VA - The Absolute Sound (2018) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
@@ -614,87 +695,6 @@ Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205577   (783152) от 11.02.2018
-
-Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koi No Kisetsu (3:23)
- 02. Yuzuki (2:25)
- 03. Shinjuku Sodachi (2:57)
- 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205785   (783180) от 11.02.2018
-
-10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Dare You (4:14)
-02. Lazy Ways (4:21)
-03. I Wanna Rule the World (3:58)
-04. I'm Mandy, Fly Me (5:22)(   Читать дальше...   )Жанр: Art-Rock, Pop RockПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204978   (783986) от 08.02.2018
-
-Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Everything You Got (4:38)
- 02. Damn Your Eyes (4:34)
- 03. Black Coffee (4:15)
- 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
 ```
 
 

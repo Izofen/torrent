@@ -1,3 +1,165 @@
+###  Публикация: 1006587   (826897) от 12.04.2016
+
+VA - 100 Пудовый Auto hit №2 (2016) [MP3|128-320 кб/с] <Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Неангелы - Ревную
+002 Faydee - Legendary
+003 Ozzy Osbourne - I Just Want You
+004 Toris-Badic-Breathe-Baby-Original-Mix(   Читать дальше...   )Жанр: РорПродолжительность: 05:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BE4FD6BEDAFDAAD17720733DE525FE2F2F7420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006653   (827094) от 12.04.2016
+
+VA - Огонь и лед. Золотые хиты 3 (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Фред - Имя Твое
+02. Слава Исетский Мл. - Все Свое Ношу С Собой
+03. Феликс Луцкий - Волк Одиночка
+04. Смирнов & Компания - Фаэтон Любви(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1570219D1DB3D5BE8F0FA860D99C691C0B7585E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006341   (827166) от 12.04.2016
+
+VA - Trance Collection Vol.41 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4 Strings - Luna (Original Mix) 05:15
+002. 5Beat - Stadium (Original Mix) 06:01
+003. 5Beat feat. Irina Makosh - Legend  (Mehdi Belkadi Remix) 06:01
+004. 5Beat feat. Irina Makosh - Legend (Cyril Ryaz Remix) 07:44(   Читать дальше...   )Жанр: TranceПродолжительность: 11:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FF6A632A998721EB0D5B05C409228A3A15A8FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006441   (827237) от 12.04.2016
+
+Руслана Собиева - Пообещай мне любовь (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пообещай мне любовь
+02. Мечта
+03. Забывай (feat. Зарина Бугаева)
+04. Роман длиною в жизнь (feat. Шамхан Далдаев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A61EEFCC3B3F553D6CF879A791C222F850F4AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006494   (827256) от 12.04.2016
+
+VA - Misha Dance Party Vol.1 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AronChupa - Im an albatraoz 02:47
+02. Bazuka - Sml 03:32
+03. Bazzbusterz - Bomb The Bass 05:07
+04. Dj Antonio Vs. Feder - Goodbye 03:19(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593566D1A65097D2B760BBF983533B1A2B830EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381210   (827355) от 06.05.2020
+
+VA - Remixes 2020 NNM 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827355.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ahmed Shad - Клеймо (3:00)
+2.Aslan & Ars Jam - Дали дали (DJ Prezzplay Radio Edit) (3:14)
+3.Bahh Tee feat. Navai - Не Читайте Переписки (Lavrushkin & Safiter Remix) (3:22)
+4.Burito & Benjamin - Сны Наяву (DJ Sheron & DJ Makeev Radio Edit) (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7984D962C9E9FEAC9252D73AF3E8EC152DF106A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774719   (827588) от 07.04.2014
 
 VA - The Official UK Top 40 Singles Chart (06-04-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
@@ -534,168 +696,6 @@ Dance Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF7736A4DDB822164B59F03B7D2D3AC5C617293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774498   (829378) от 06.04.2014
-
-VA - Lounge At The Seashore 8 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mario Gamez - The Cauldron - Original Mix
-002. Alex H & DJ Massymo Tn - Beyond The Blue Horizon (Chill Mix)
-003. Koan - Eagle's Tale
-004. New Edge - Unmade Beds (feat. Iva from White Slaver)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D70503F14D931388F86B1470A661F8EA7C58FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381030   (829511) от 05.05.2020
-
-VA - Mystic Rain: Instrumental Piano (2020) [MP3|320 Kbps] <Instrumental, Piano, Neo Classic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829511.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frаnсеsсо Digiliо - I 'll Bе Hоmе
-002. Mj Cоlе - A Visit Tо Lоlitа
-003. Jutbring - Thе Thiеf Bunnу Sосiеtу
-004. Olgа Sсhерs - Nосturnеs(   Читать дальше...   )Жанр: Instrumental, Piano, Neo ClassicПродолжительность: 05 :52 :15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAD02343FFFF89F27D925128FE1EFCA69C9B0EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114983   (829568) от 16.03.2017
-
-VA - Новинки Клубной Музыки от Зайцев.Нет (2017) [MP3|320 Kbps] <House, Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zedd - Stay (ft. Alessia Cara)  3:30
-02.  Tritonal - Strangers (Original Mix)  3:41
-03.  Headhunterz - Landslide  3:41
-04.  Steve Aoki & Louis Tomlinson - Just Hold On  3:19(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 02:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82029DF33F16E74045E5772E9D23A9C1C9D21333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381048   (829661) от 05.05.2020
-
-VA - Beatport Progressive Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_829661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gadboa - Hentai Crush
-002. Mark Khoen & Emma Lock - Nikita Lily
-003. Hakkebutte - Salziger Salamander
-004. Luke Bond Ft. Tyler Graves - Left Of Us(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA0D3D21109175B4DFDD097048868EA34D004B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381051   (829767) от 05.05.2020
-
-VA - Club Friday: Spring Eurodance Mix (2020) [MP3|320 Kbps] <Eurodance, Club Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Dima - Nightwave
-002. Ashanti Khumenati - Tupin
-003. Ray Boyd - Nothing Can Beat It
-004. Dezibel - Nothing You Can Do(   Читать дальше...   )Жанр: Eurodance, Club DanceПродолжительность: 08:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6785AB25367ACE5D8A6845FE0569FAC9664EA25B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381052   (829773) от 05.05.2020
-
-VA - Club Tropicana: Nu Funky Blues And Disco House (2020) [MP3|320 Kbps] <Funky, Nu Disco, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_829773.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eddie Hazel - California Dreamin'
-002. Lucinda Slim - Love Thief
-003. Aretha Franklin - Save Me
-004. Freddie King - Hot Tomato(   Читать дальше...   )Жанр: Funky, Nu Disco, HouseПродолжительность: 07:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AED40027D4B3DF913D1556C0A93F16C85E89413
 ```
 
 

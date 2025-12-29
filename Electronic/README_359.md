@@ -1,3 +1,246 @@
+###  Публикация: 1130297   (716418) от 01.05.2017
+
+Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Higher (1:31)
+ 02/10. Merci (2:58)
+ 03/10. What Do You Need (4:00)
+ 04/10. Time to Stay (3:47)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057007   (716571) от 28.02.2019
+
+Zentriert ins Antlitz (E.M.I.T.R, Innovation Reality) - Discography 16 Releases (2003-2019) [FLAC|Lossless|tracks+.cue, tracks] <Industrial, EBM, Ambient, IDM, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re-Dreamer (05:42)
+ 02. Sunlights Falling (07:38)
+ 03. Tearswitcher (04:16)
+ 04. The Teaser (03:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, EBM, Ambient, IDM, Downtempo, Techno, Electro •Продолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391A27F1C8D7AED1852C9C1BE88071C315009C7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130466   (716647) от 01.05.2017
+
+Astral Waves - Genesis (2017) [MP3|320 Kbps] <Experimental Electronic, Downtempo, Tribal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716647.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Believer (feat. Patrick Bernard) 13:06
+2. Ashura II 07:36
+3. Rain of Shooting Stars II 08:39
+4. La Danse du Feu 08:38(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Tribal, Progressive TranceПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6C3AA2BF151CD724A82215632A18EDBBD490D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532048   (716756) от 18.02.2022
+
+Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Deep House, Soulful House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebas Ramis/Tutsi Girl Play House - Body & Soul (Guri Slowdown mix) (05:00)
+02. Jask feat. Jocie - Beautiful (Jask's mix) (07:52)
+03. Peggy Gou - It Makes You Forget (05:20)
+04. Colette/Gettoblaster - Butterflies (Numbers Game remix) (05:20)(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EE2B6CCCA69E472BD16BB93502C6E5F2C7C62C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286042   (716939) от 28.02.2019
+
+VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon & Geert Huinink – The Creation (Intro Mix)(Live)
+02. Astrosphere – Zephyr (Live)
+03. Astrosphere & Re:Locate – Crown Royal (Live)
+04. Driftmoon – Odyssey (Epic Mix) (Live)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AADBEEC58569BE40EE5532374921AE1A75B4D08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285987   (716945) от 28.02.2019
+
+VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofa King – From the Inside (06:28)
+02. Dj Counselling – Mitcham Tuxedo (04:57)
+03. Nineteen96 – How to Love Me (06:37)
+04. Sofa King – Whispers (05:56)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 04:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4A4F3BDFD611AAB3C01DF0874520B540924B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285899   (717064) от 28.02.2019
+
+VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide – Atacama (Original Mix)
+02. Nitrous Oxide & Maria Nayler – The Beauty of the Night (Original Mix)
+03. Nitrous Oxide – Tsukuba (Original Mix)
+04. Nitrous Oxide – Infinity (Secret Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218911   (717518) от 12.04.2018
+
+Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dive (05:20)
+02. The Course Of The Flight (08:25)
+03. Harmony Of Silence (06:32)
+04. Gates of Babylon (06:30)(   Читать дальше...   )Жанр: Psybient, Breaks, DowntempoПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218931   (717665) от 12.04.2018
+
+Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Soundtrack, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Return (03:19)
+ 02. Invincible (01:24)
+ 03. The Fall (02:38)
+ 04. No Way Out (01:26)(   Читать дальше...   )Жанр: Modern Classical, Soundtrack, AmbientПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219068   (717667) от 12.04.2018
 
 VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -446,249 +689,6 @@ VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772595A57310A2AA00E90FBAFA37210BC01A0698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400197   (719015) от 05.08.2020
-
-VA - Time Limit (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System Chaotica - Files [05:10]
-02. Dim Ols - Endless Tunnel [03:08]
-03. Neoid - My Life [06:47]
-04. Quadri - False Life [05:09](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311442AF204B202ED0B5B00BBF44BD4AAE9BE2FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400200   (719018) от 05.08.2020
-
-VA - Minced Meat (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Difo - Dark Carnival [04:01]
-02. Badline - Rave [04:50]
-03. Mortuus - Sentinel [05:19]
-04. Nohzo - Drunken Worm [06:24](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280766DA81F3766B62390A1106F67EA51BF1E059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400210   (719023) от 05.08.2020
-
-VA - Turbo Drive, Vol. 1 (2020) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betamaxx - Integrated Circuitry [04:02]
-02. Le Matos - Overdog [06:29]
-03. Absolute Valentine - She Is A Dancer [04:21]
-04. Das Mortal - The Curse [03:26](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE32D2EE9A2A31427DC64D8A67A6C5DE4436881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400494   (719026) от 05.08.2020
-
-Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arctic (04:55)
- 02. Bord CH (05:28)
- 03. Boue (04:21)
- 04. D667 (05:43)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD537341353905C8B2BE9A80EA20A10ADDDFF0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400423   (719031) от 05.08.2020
-
-Артек Электроника - Не смотри назад (2020) [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М.У.Р. Перестрелка [00:02:58]
-02. Это было навсегда (feat. Гербарий) [00:04:16]
-03. Фестиваль радиоэлектроники [00:03:42]
-04. Земля Грэхема [00:04:08](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0921FB3A953DFCB827ACCD719E1EB01C46F5F21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399978   (719036) от 05.08.2020
-
-VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lukas Grinys - Birds'n'Blues [06:12]
-02. Mizt3r - Close To You [05:31]
-03. Oris de Cueva - Amazon (Delacombe Playa Remix) [09:49]
-04. Lukas Grinys - Papers [06:09](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC1947E3444BDA1BAAD9D9023E11CFEBD561D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285666   (719050) от 27.02.2019
-
-VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tizer - With Got To Stars (Original Mix)
-02. Miroslav Vrlik - Coming Home (Extended Mix)
-03. Andy Kern - Float Away (Original Mix)
-04. Andy Blueman - Beyond The World We Know (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD453FF922FE08308C17C45B45CDB012289B3EB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285662   (719052) от 27.02.2019
-
-VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OzzyXPM - Khaleesi (Continuous Mix Version)
-02. Christian Monique - Take Me (Continuous Mix Version)
-03. Arctic Lake - Limits (Aurosonic Progressive Mix - Continuous Mix Version)
-04. Ataberk Onal - Smyrna (Continuous Mix Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59425295DD5E8BAB4E02CEA6837322C50EBF771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285626   (719060) от 27.02.2019
-
-VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Skitz - Skitzmix 55 (Continuous Mix 1)
-02. Nick Skitz - Skitzmix 55 (Continuous Mix 2)
-03. Nick Skitz - SM55 Megamix
-04. Rocco - Everybody (Rob & Chris Edit)(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 05:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
 ```
 
 

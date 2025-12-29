@@ -1,3 +1,162 @@
+###  Публикация: 1456498   (1024844) от 23.03.2021
+
+VA - Platinum Hits (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guy Sebastian - Before I Go (3:29)
+002. James Bay - Chew On My Heart (3:15)
+003. Miley Cyrus - Midnight Sky (3:43)
+004. Sam Feldt, VIZE, Leony - Far Away From Home (2:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3D5B19C00E4858EAB74D36BE41628292041539
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456632   (1024925) от 23.03.2021
+
+VA - Music News vol.84 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оксана Ковалевская feat. Ad Voca - Помада (03:07)
+ 02. Amin - Harley Quinn (02:48)
+ 03. Aquaneon - Молодость (03:05)
+ 04. Ben Howard - Sorry Kid (04:09)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 02:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15F5CEBAAAF64C7EC469DECB6B8CEE909972D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456407   (1025006) от 22.03.2021
+
+VA - 120 Best Slow Songs For Relax (2021) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если пасмурный день испортил вам настроение, не грустите - сварите ароматный кофе, добавьте бальзам, опуститесь в удобное кресло и окунитесь в волшебство искусства блюза, его глубоких и чувственных мелодий, он поможет вам «воскреснуть» своей задумчивой нежностью, мудростью, позволяя посмотреть внутрь себя. Блюзовые мелодии не стареют, а наоборот, как хорошее вино, (   Читать дальше...   )001. Snowy White - How Was It for YouЖанр: Blues-Rock, Country, BalladПродолжительность: 11:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D896B83950B8D7E7BC21FD6534A75D1F8C856A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456079   (1025067) от 22.03.2021
+
+VA - Baker Street - 100 Classics from the 70's (2021) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025067.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gerry Rafferty - Baker Street [00:06:10]
+002. Chicago - If You Leave Me Now [00:03:55]
+003. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) [00:03:21]
+004. Kate Bush - Wuthering Heights [00:03:25](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA13F4CF92B09BB7FBF5E1052E7241C856431178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456354   (1025109) от 22.03.2021
+
+VA - The Deep Sleep Music (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз "The Deep Sleep Music" несомненно понравиться почитателям атмосферной и спокойной музыки. Судя по названию, под звучание такой музыки удастся хорошо выспаться и отдохнуть. Отличная пластинка, что безукоризненно вписывается в настрой вечернего нуара. Приятного Вам отдыха!001. Lemongrass - Smooth Moments
+002. Marie Therese - Silencio
+003. Mirage Of Deep - From Heaven & Earth
+004. Eskadet & Amethyste - Aurora(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E9650BF9319FE8974A13C3FA65E60F51312030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456357   (1025111) от 22.03.2021
+
+VA - Welcome To Spring (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка поп музыки от европейских исполнителей, завёрнутая в весеннюю обертку солнечного позитива! Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, солнечную погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Little Mix - Break Up Song
+002. Baby Queen - Raw Thoughts
+003. Itzy - Wannabe
+004. Koda Kumi - I'm Lovin'(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172C4F64A7DC3A4EC4BF1F8C149ED58D37CBA12F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456347   (1025116) от 22.03.2021
 
 VA - Best New Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -533,168 +692,6 @@ VA - Soft House Lounge (2021) [MP3|320 Kbps] <Soft House, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01862E29E8BC8618F28779BCCCCE5C0F6B86CD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455081   (1025750) от 18.03.2021
-
-VA - Rock Music 2021 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Stairway to Heaven - Remaster (8:02)
-02. Stonerhead - The Wizard In The Town (7:39)
-03. The Doors - Riders on the Storm (7:14)
-04. Guns N' Roses - Paradise City (6:45)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F944A36BAB03F1822F53B404A6BD91309140E4B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455146   (1025782) от 18.03.2021
-
-VA - Rap Francais (Vol.09) (2021) [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодия, приятное исполнение, интересные тексты и качественная реализация треков 9-го релиза "Rap Francais" сразу полюбятся приверженцам нестандартной музыки. Общее настроение сборника – лёгкое и жизнеутверждающее. Звучание – сочное и яркое, с акцентом на позитив и не лишенное национального колорита.001. Ninho - Lettre À Une Femme
-002. Cobna - Le Verre À Moitié Plein
-003. Gaman Ovide - Sous-Marin
-004. Meteke - Wassup(   Читать дальше...   )Жанр: RapПродолжительность: 08:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665F3526C70B04CE1F00CF320F05D9FA50137F55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455151   (1025826) от 18.03.2021
-
-VA - Beatport Progressive Trance: Sound Pack #257 (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию свежий 257-й выпуск от Beatport с новинками клубной музыки от самых разных ди джеев и композиторов электроники из европы. Эксклюзивные новинки и лучшее из мира Trance музыки уходящего зимнего сезона!001. Slicetunes - Human Space
-002. Andrew Rayel - Carry You Home
-003. Accuface - Twilight Zone
-004. Mercurial Virus - Roseline(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12D5661D7A36D0E0CF6984CDB4783EA3163180E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455145   (1025828) от 18.03.2021
-
-VA - Nocturnal EDM Techno Set (2021) [MP3|320 Kbps] <Club, Dance, Techno, EDM, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простаивая в пробке, ища в автомагнитоле в поисках чего-то путного в клубном эфире, можно услышать один и тот же трек длинною в вечность. В итоге, отчаявшись найти что-то необычное и хотя бы малость, что-то неформатное, приходится выключить это всё и любоваться пейзажами за окнами автомобиля. Однако не отчаивайтесь, музыка сборника "Nocturnal EDM Techno Set" (   Читать дальше...   )001. Rhony - Insade (Rov Remix)
-002. Ricky Cross - Sun
-003. Le Brave - Reborn (Original Mix)
-004. Denis Pewny - Where Did You Go(   Читать дальше...   )Жанр: Club, Dance, Techno, EDM, Tech HouseПродолжительность: 13:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847BB66D4553C8A8C73C57D94F9E5DCC9AD605F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455148   (1025833) от 18.03.2021
-
-VA - Beatport Techno Electronic: Sound Pack #256 (2021) [MP3|320 Kbps] <Techno, Tech House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот за это и любят большинство меломанов техно музыку, именно из за повторяющихся ритмов, которые не очень отвлекают мозг и в то же время держат его в тонусе в отличии от других жанров электронной музыки. Для некоторых это неодушевлённое сочетание повторяющихся звуков, а для кого то стимул к творчеству!001. DJ Lion, Just Julien - Beeast
-002. Adam Hendrickson - My Time Is Yours
-003. Humantronic - Invado
-004. Carlo Ruetz - Purple Sky(   Читать дальше...   )Жанр: Techno, Tech House, ElectronicПродолжительность: 11:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F123034F52A58324D809499E34A8B3E9CE8B8677
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455143   (1025836) от 18.03.2021
-
-VA - Skytop Residency (2021) [MP3|320 Kbps] <Vocal House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и насыщенный солнечным позитивом альбом под названием "Skytop Residency", который хорош по-своему и наверняка приглянется любителям электронной музыки ценящих качество звука. Звуковая палитра альбом действительно богата, что в целом также справедливо относится и к вокалу, который в звуковом ряду иногда выходит и на первый план.001. Timmy Trumpet - Child Of The Devil
-002. Deep Parliament - Every Side
-003. Empathy Test - Monsters
-004. Mario Joy - Ganja(   Читать дальше...   )Жанр: Vocal House, DanceПродолжительность: 08:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A7DB2B96214AD3206A4D7F7B53C509FBA186D
 ```
 
 

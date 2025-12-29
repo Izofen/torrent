@@ -1,3 +1,347 @@
+###  Публикация: 1465854   (1018959) от 27.04.2021
+
+Michael E - Lost in Thought (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (5:49)
+02 . Maybe This Time (feat Ashley Slater & Diego Porchile) (7:00)
+03. Happy Daze (3:42)
+04. Distant Lovers (5:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD1F8228A748FE5D62E657A67C1AB79DADA6F56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465771   (1018979) от 27.04.2021
+
+Kashya - Discography 20 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Soundscape>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is So Much Hope Buried Underneath Tragedy, Its The Same Shade As Concrete (15:15)
+ 02. I Only Get To Hold Her When She's Injured, I Only Get To Kiss Her When She's Sore (08:41)
+ 03. We Can Mend All The Seams That Were Torn During Our Backs Slowly Breaking (07:45)Тип издания: WebЖанр: Ambient, Drone, Soundscape •Продолжительность: 11:25:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73898252DC3AB3853D8A594277380AF83D6DD7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465401   (1019101) от 26.04.2021
+
+Scooter - God Save The Rave (2021) [FLAC|Lossless|tracks + .cue] <Techno, Hardstyle>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:01:24)
+02. One (Always Hardcore) (00:04:15)
+03. The Logical Song (00:04:49)
+04. Bora Bora Bora (00:03:50)(   Читать дальше...   )Жанр: Techno, HardstyleПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EA6F02ADE4E4B05CE4D29906CA557D61D3FE96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956432   (1019114) от 26.04.2021
+
+Anima Mundi - Another World II (1998) Old Europa Cafe [FLAC|Lossless|tracks+.cue]<Industrial, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volcano (02:45)
+ 02. Sacred Ceremony (03:19)
+ 03. Conquest of Paradise (05:04)
+ 04. Late Evening (01:25)(   Читать дальше...   )Жанр: Industrial, AmbientПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B83440637749A4183AB8E2BF53D53D54B9DE86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465570   (1019135) от 26.04.2021
+
+Korolova - Live @ Farsha Cafe Sharm El Sheikh, Egypt (2021-04-23) (2021) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Alar & Korolova ft. Yann Menge - Symphony
+02. Drumstone - Lost River
+03. Monolink - The Prey (Mind Against Remix)
+04. The Kode & Beat Inside - Forgotten Sign(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DF643832BA58C9DA938F44E6C3A8992976E642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465517   (1019155) от 26.04.2021
+
+Giriu Dvasios - Sunkus (2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub, Ambient, Dub Techno>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medis (03:50)
+ 02. Plaukia (03:42)
+ 03. Ziema (04:20)
+ 04. Arti (04:15)(   Читать дальше...   )Жанр: Dub, Ambient, Dub TechnoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39614EBDDCE9F6938F2859D2CA581E157C84BF36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465336   (1019274) от 25.04.2021
+
+Above & Beyond - The Club Instrumentals (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hideaway (Extended Mix) (7:52)
+ 02. Out Of Time (Above & Beyond Extended Club Mix) (6:17)
+ 03. Balearic Balls (Extended Mix) (6:29)
+ 04. Hello (Extended Mix) (6:49)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21DD68AB3ACF392D167DC7BBA2ECE391A8E5F57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176824   (1019279) от 25.04.2021
+
+Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pneuma (Reprise) (07:11)
+ 02. Dans La Lune (06:37)
+ 03. Douce Mollesse (06:23)
+ 04. Aurore Pneumatique (08:29)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal, Techno •Продолжительность: 14:24:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E85AD8A7C685A08FF7FDC48783734BA02F2BB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465304   (1019341) от 25.04.2021
+
+Mychael Danna & Tim Clément (Tim Clement) - The Best Of Danna & Clément (1999) [FLAC|Lossless|image + .cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019341.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Summerland 10:36
+2. Persia 6:47
+3. Aurora Borealis 7:06
+4. Water 2:20(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFC0D74DE30277B85BE34DDC97B2C905124AF1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256828   (1019409) от 24.04.2021
+
+Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange Place Records [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Ambient, Tribal, Rhythmic Noise, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss (05:23)Тип издания: CD, WebЖанр: Industrial, Ambient, Tribal, Rhythmic Noise, Experimental •Продолжительность: 09:15:33 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF065CEC5ECD74065A0BE52DAC0BA465EF596A65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464950   (1019450) от 24.04.2021
+
+Chicane - Everything We Had to Leave Behind (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive TranceПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DC1FE390C17A510DB7FDDEE8D1AC84A74872A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464987   (1019461) от 24.04.2021
+
+VA - Inner Frequencies Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slide, Psiked'eliah - Funkingallo (Original Mix) (07:01)
+02. Saikro - This Is Not A Dream (Original Mix) (06:11)
+03. Kusabi - Whisper From The Deep (Original Mix) (07:33)
+04. Redy, Psiked'eliah - Premonitions (Original Mix) (06:51)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312EBBFF6202304DEE93103CD9837BE9071C56CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464508   (1019794) от 22.04.2021
+
+VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Vega (7:11)
+02. Matej Blanusa - Suomi (5:22)
+03. Beamy - Gawain (4:00)
+04. Charlie North - Patient (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D218834354EFC614D46CBEC252F2B25D39F19FA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464265   (1019966) от 21.04.2021
 
 Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
@@ -344,354 +688,6 @@ Woob | Journeyman | Max & Harvey | w00b - Discography 51 Releases (1994-2021) Bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D485784B79152AB6C9641E1255A83E2A3DA2D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462883   (1020783) от 16.04.2021
-
-Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurum Est Nostrum
-02. God Save the Rave (feat. Harris & Ford)
-03. Never Stop The Show
-04. We Love Hardcore (feat. Dimitri Vegas & Like Mike)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781870D524965C8F90CC7587E3BB1B5FBB28CE83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462878   (1020837) от 16.04.2021
-
-Mike Williams - Live @ Duif' Church, Netherlands (2021-04-09) [MP3|320 Kbps] <Future House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Williams - Get Dirty (Intro Edit)
-02. Kriss Reeve - Techno On My Mind
-03. Mike Williams & Curbi - Take Me There w/Ivan Gough & Feenixpawl ft. Georgi Kay - In My Mind (Acappella)
-04. Throttle ft. LunchMoney Lewis & Aston Merrygold - Money Maker (Mike Williams Remix)(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D813D1B0FA5A3630F51F73D7C3E891746967608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462872   (1020861) от 16.04.2021
-
-Drumstone - AFTR:HRS SESSIONS 04 (2021-04-15) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yubik – The Veil
-02. Malandra Jr. – Ambassador of the Dark Side
-03. Edone – Cramp
-04. Edone – Freedom(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE85F626723170BB9AB00D44C02ABF49BF2CFF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462331   (1021137) от 14.04.2021
-
-VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Dance-Pop, Dubstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaskade, Will K - Flip Reset (03:08)
-02. Slushii - All I Need (03:46)
-03. Vicetone - No Rest (03:29)
-04. Tokyo Machine, Weird Genius, LIGHTS - Last Summer (02:53)(   Читать дальше...   )Жанр: Electro House, Dance-Pop, DubstepПродолжительность: 02:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C9AA524027F772FA639BF01BB08A55E656101F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349010   (1021139) от 14.04.2021
-
-Kiyoko (Synkro & Bering Strait) - Discography 7 Releases (2012-2020) Auxiliary, Samurai Horo [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Glitch, IDM, Drum & Bass, Experiment ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Room Of You (07:02)
- 02. Dakota Ghosts (06:24)
- 03. Lighthouse (04:34)
- 04. Inside Number Nine (06:17)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient/IDM/GlitchПродолжительность: 03:57:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2E1BECEBECB0EFB2B4A61D747B10412C8E9FB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462271   (1021180) от 14.04.2021
-
-Kaon - Blurred (Side A) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient,  Future Garage, Breaks, Abstract>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:44)
- 02. Heroes Always Die Alone (7:13)
- 03. Deranged (6:54)
- 04. Exorcism & Flamethrowers (6:19)(   Читать дальше...   )Жанр: Electronic, Ambient,  Future Garage, Breaks, AbstractПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576F78CC564964C2B04A16EB04F5D1C7D681D2A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462515   (1021187) от 14.04.2021
-
-VA - Первому Покорителю Космоса (To The First Conqueror of Space) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PPK (Pimenov Plus Khramkov) - Zodiac Reload (Mashur X Mad-A Remix) (4:09)
-02. Soulstring - Gagarin (5:50)
-03. Dmitriy Zhavoronkov - Fly (3:26)
-04. ESTRADARADA - Ночь космонавтики - Мантра о счастье свободного человека (7:33)(   Читать дальше...   )Жанр: Electronic, Breakbeat, SynthpopПродолжительность: 02:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A92A9FD955E0805965980A5C9A40BA7C64D0FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462417   (1021192) от 14.04.2021
-
-VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Peter Pearson - Small Hours (Original Mix)
-02 Michael E - Infinite Beauty (Original Mix)
-03 Weber & Weber - Frozen in Time
-04 Marga Sol - Dali Sonuvam (Ambient Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3F13D796D9264EB55D9A4DB5EB26A1C059E9AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462333   (1021225) от 14.04.2021
-
-Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation I (03:40)
- 02. Meditation II (02:27)
- 03. Meditation III (04:04)
- 04. Meditation IV (02:10)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648D63ED79515A2FF6A3C9E8F01A537A5706850E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462482   (1021226) от 14.04.2021
-
-Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Pulse Passage (27:39)
-02. Its All Connected V.2 (10:49)
-03. Escher Sketch (10:16)
-04. SkelZona (20:17)Жанр: AmbientПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705829497CC0C4235922A12812C0FB51C89EA698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462439   (1021227) от 14.04.2021
-
-VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Drone, Experimental, IDM, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: WebЖанр: Ambient, Drone, Experimental, IDM, Techno •Продолжительность: 08:12:04 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D730E19112528F7AD11335601E2D4209DC384C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037383   (1021247) от 13.04.2021
-
-Maps and Diagrams (Maps & Diagrams) - Discography 50 Releases (2002-2021) Handstitched* [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Ambient, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. w48-7 (05:33)
- 02. FstRs (05:30)
- 03. UYoJ (04:14)
- 04. fC_45 (03:08)(   Читать дальше...   )Тип издания: CD, Web , VinylЖанр: Abstract, IDM, Ambient, Glitch, Experimental •Продолжительность: 30:49:27 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE850A2202A39CC4BBB8D91DBD9F86B0CD99770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263653   (1021280) от 13.04.2021
-
-Room of Wires - Discography 8 Releases (2014-2021) Section 27, Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Experimental, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Of People (04:50)
- 02. Alcohole (05:44)
- 03. Euphoricore (05:31)
- 04. Harshlands (05:32)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/IDM/ExperimentalПродолжительность: 03:52:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355DC28C1B15AE8822EE312060B80C290E352986
 ```
 
 

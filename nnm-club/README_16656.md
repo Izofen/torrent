@@ -1,665 +1,683 @@
-###  Публикация: 1223394   (673307) от 05.05.2018
+###  Публикация: 506595   (670454) от 14.06.2012
 
-The Abyssinians - Satta Massagana (1975) Pre-Abbyssinians [MP3|320 Kbps] <Roots Reggae>
+Досье «ODESSA» / The Odessa File (1974) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Миллер - немецкий журналист, выслеживающего бывших нацистов - военных преступников, которые скрываются от возмездия и создали мощную организацию помощи бывшим эсэсовцам под названием ODESSA.Жанр: триллер, драмаРежиссер: Роналд НимАктеры: Джон Войт, Максимилиан Шелл, Мария Шелл, Мэри Тэмм, Дерек Джекоби, Питер Джефри, Клаус Лёвич, Курт Майзель, Ханнес Мессемер, Гарфилд МорганПеревод: Многоголосый закадровыйСубтитры: АнглийскиеПродолжительность: 02:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE616E2C77346FE4641239F3B1A8AF0B7EC43EBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510744   (670457) от 14.06.2012
+
+А.Е. Тарас | Войны Московской Руси с Великим княжеством Литовским и Речью Посполитой в XIV-XVII вв. [2006] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена рассмотрению многочисленных войн Московской Руси с Великим княжеством Литовским и Речью Посполитой, происходивших в течение более чем 300 лет. Попутно описаны некоторые другие вооруженные конфликты: гражданские войны феодального периода, татарские набеги, казацкие восстания. Ныне события тех далеких времен отчасти забыты, отчасти недостаточно изучены, (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A68E26C13034A0CD07B7460D0272DA86B92C1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510409   (670458) от 14.06.2012
+
+Эдит Несбит | Пятеро детей и Оно [2012] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это одна из самых известных книг английской писательницы Эдит Несбит. В песчаном карьере, неподалеку от своего загородного дома, Роберт, Сирил, Джейн, Антея и маленький Ричард находят удивительное существо – песчаную фею Саммиэда… Мечты становятся реальностью. Ребят ждут удивительные приключения.
+Продолжение этой истории читайте в книгах «Феникс и ковёр» и «История (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 6:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1FF3668EC5BF46B2FF3F543FB24E9D602FD5B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030850   (670461) от 02.07.2016
+
+Tom Euler - Fool Me Once (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fool Me Once (4:10)
+02. Can't Shake It (6:16)
+03. Tricky Business (3:07)
+04. Is It Better (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8138926115F805082BCC44F4975E7475111A4BE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030923   (670462) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bellini - Samba De Janeiro ( 1997 )
+02. Bad Boys Blue - Kiss You All Over, Baby ( 1985 )
+03. Fun Fun - Gimme Some Loving ( 1988 )
+04. E-Type - Set The World On Fire ( 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030925   (670463) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Simmons - Lucky Guy ( Radio Version 1984 )
+02. Bronski Beat - Why ( 1985 )
+03. Aquarius - It Feels Like Summer ( Radio Version 1994 )
+04. Charlie - Spacer Woman ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030933   (670464) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Touch - The Fire Of Love ( 1986 )
+02. John Christian - Ebony Eyes ( 1987 )
+03. Key West - Jesahel ( 1988 )
+04. Alphatown - Hot Stuff ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030930   (670465) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Murray - Commedia ( 1991 )
+02. Body Power - Dancing In The Tears ( 1985 )
+03. Radiorama - Yeti ( Remix 1989 )
+04. Mike Hammer - Supersonic Love ( Energy Mix 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030936   (670466) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Emotion - Go Go Yellow Screen ( 1984 )
+02. Blue System - Under My Skin ( 1988 )
+03. C. C. Catch - Heartbreak Hotel ( 1986 )
+04. Bobby Orlando - All People Are The Same ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030771   (670467) от 02.07.2016
+
+One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|tracks] <Alternative, Hard Rock, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Delivered    02:48
+02.  Goldenjaw    05:31
+03.  The Way You See Yourself    03:39
+04.  Far From Dead    05:23(   Читать дальше...   )Жанр: Alternative, Hard Rock, ProgressiveПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B01B53C75DFA23FAB9A6D6C74795EA145100A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030924   (670468) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 37 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy - Cheek To Cheek ( 1986 )
+02. Michael Fortunati - Give Me Up ( 1987 )
+03. David Lyme - I Show You What's Love ( 1986 )
+04. Flirts - Jukebox ( Don't Put Another Dime ) ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404BF378BD630BBF8292A97B77C45153B03229F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030823   (670469) от 02.07.2016
+
+Владимир Двинской - Надо жить (2014) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как-то не верится (4:04)
+02. А до зимы далеко (3:58)
+03. Не плачь апрель (4:18)
+04. Что имеем не храним (3:54)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CEB4D4E2ABCCC19A3FDD1FA3F632C3A23C37D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030934   (670470) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 42 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grant Miller - Wings Of Love ( 1987 )
+02. Illusion - Illusion ( High Fashion Mix 1984 )
+03. Alan Ross - Valentino Mon Amour ( Swedish Remix 1985 )
+04. Bad Boys Blue - I Wanna Hear Your Heartbeat ( Sunday Girl ) ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B49A5AF397EF0ABD4EF7F92D1C813FDB490C81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031060   (670471) от 02.07.2016
+
+VA - Chill out Summer Sounds (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars Over Foy - Until We Meet Again in Heaven - Vechigen Alternative Chillout Remix
+02. The Rex-Factor - Dog Ate My Shoe - Chill Mix
+03. Dr. J. James - Mind Peace - Healing Nature Mix
+04. Jamie Duvel - Gift of Magic(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180FAE8609498683B704E64AC4B5C2C6A7F6420C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031057   (670472) от 02.07.2016
+
+Ben Poole - Let’s Go Upstairs (2012) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hanging in the Balance    05:10
+02.  I'm Gonna Tear Your Playhouse Down    04:08
+03.  It Doesn't Have to Be That Way    03:40
+04.  Let's Go Upstairs    03:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFBEAF3D878A67441A0DF618A53A1CDDAECCAEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030515   (670473) от 02.07.2016
+
+The Rockin Daddies - Rev It (2016) [FLAC|Lossless|tracks] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Run Away    03:31
+02.  Paralyzed    02:49
+03.  Alpo Diablo    03:44
+04.  One and Only    03:00(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6780F6E5685772F4362659294F07451E22C1AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030863   (670474) от 02.07.2016
+
+VA - Uplifting Only Top 15 June (2016) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673307.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дебютный сингл этого вокального трио "Satta Massa Gana", записанный в марте 1969 года в студии "Studio One" известного ямайского продюсера и звукооператора Клемента Додда, сегодня можно считать моделью, которая легла в основу стиля рэггей, а также стилистическим лекалом, по которому выстраивали свое дальнейшее творчество Abyssinians.01. Declartion of Rights 3:30
-02. The Good Lord 3:27
-03. Forward unto Zion 3:48
-04. Know Jah Today 2:58(   Читать дальше...   )Жанр: Roots ReggaeПродолжительность: 01:03:12
+01. Illitheas - Epica (Intro Mix) (06:27)
+02. Kelly Andrew - Timeless (Orchestral Trance Mix) (09:15)
+03. Afternova ft. Amy Lee - Loneliness (Orchestral Trance Mix) (07:43)
+04. Simon O'Shine ft. Eskova - You May Love (Mhammed El Alami Remix) (06:07)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:49:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8D53862E265B50C5445650A7A05371B275D8E8
+magnet:?xt=urn:btih:821AC994F35FE292B17F6F5ED94B7A2D66DBD57A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223578   (673308) от 05.05.2018
+###  Публикация: 1030902   (670475) от 02.07.2016
 
-Pattie Brooks - Love Shook & Our Ms Brooks (2009) 2 Albums (1977, 1978), Reissue CD, Funky Town Grooves [MP3|320 Kbps] <Electronic, Disco>
+Cecilia Engelbrecht Heick - Spring Is A Promise Of Fall (2016) [FLAC|Lossless|image + .cue] <Jazz, Piano, Vocal Jazz>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673308.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Два диско-альбома Pattie Brooks, продюсером которых был не безызвестный Simon Soussan.01. Girl Don't Make Me Wait (10:47)
-02. Love Shook (8:34)
-03. Let's Make Love To The Music (8:46)
-04. Pop Collage Medley - Popcorn, Black Is Black, Na Na Hey Hey Kiss Him Goodbye (9:18)Жанр: Electronic, DiscoПродолжительность: 01:12:20
+1. Spring Is a Promise of Fall
+2. Reprise
+3. There'll Be Another Spring
+4. Never Let My Dreams Come True(   Читать дальше...   )Жанр: Jazz, Piano, Vocal JazzПродолжительность: 00:56:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7AF50E43ED06B54EB1668EC73D59CA9E9623734
+magnet:?xt=urn:btih:E049B01F47C3511BBF6E266F4A241255BF26FA47
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223574   (673309) от 05.05.2018
+###  Публикация: 1030837   (670476) от 02.07.2016
 
-Nimrod - Return to Babylon (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Delta Generators - Hipshakers And Heartbreakers (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Day That I Met You    02:48
+02.  Elephant In The Room    04:23
+03.  Two Headed Snake    02:18
+04.  Feel No Pain    02:47(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75656254CD6E2BF2333E24C15A509CD283806920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030739   (670477) от 02.07.2016
+
+Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Depressive, Post-Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673309.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Night of the Witches 03:57
-02. I Am 03:10
-03. Return to Babylon 01:28
-04. Broken Wings 03:51(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:46
+01. Les Fiancées Sont Froides
+02. La Mer, Les Ruines
+03. Le Soleil Et l'Acier
+04. Kaputt(   Читать дальше...   )Жанр: Depressive, Post-Black MetalПродолжительность: 00:42:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3B45C836868E88887F6671D34B71E851DCBC9C0
+magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 797864   (673318) от 20.06.2014
+###  Публикация: 1030845   (670478) от 02.07.2016
 
-Лео и легенда / La leyenda de la Nahuala (2007) DVD5
+VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673318.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Девятилетний Лео Сан Хуан живет в вечном страхе от историй, которые ему рассказывает его старший брат Нандо. Все эти истории содержат легенду о злой Навалле, которая обитает в старинном заброшенном поместье и которая только и ждет, чтобы завладеть душами невинных детей и получить абсолютную власть как над умершими так и над живыми. Легенда становится реальностью, (   Читать дальше...   )Производство: Мексика / AnimexЖанр: Мультфильм, Фэнтези, СемейныйРежиссер: Рикардо АрнаизПерсонажи: Андре Бустаманте, Хесус Очоа, Рафаэль Инклан, Марта Игареда, Мануэль «Локо» Вальдес, Офелия Медина, Фабрицио Сантини, Пьер Анджело, Луна Архона, Мария Тереза КордейроПеревод: Многоголосый закадровыйПродолжительность: 01:22:45
+01. Flashbaxx - Ampurdan (06:36)
+02. Ingo Herrmann - Mojito (03:55)
+03. Kulyela - Uprising (04:56)
+04. JetTricks - Atama's Ocean (04:04)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE6E36EF1E46F55C3F8C2773CB743529A44B520A
+magnet:?xt=urn:btih:AD8D5E64C01B0C7DC92FDFDDFB856FE7CE57A70B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136694   (673327) от 23.05.2017
+###  Публикация: 1030953   (670479) от 02.07.2016
 
-Smooze 1.1.47 [En]
+Волейбол. Мировая лига 2016.Мужчины. Предварительный этап.Группа С1. 2-й тур. Россия - Польша (18.06.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673327.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smooze одушевляет ваш скролл  и добавляет функциональность к вашей не Apple мыши (прокрутки колеса мыши).
-
-• Отключить ускорение прокрутки в Macos 10,12 Sierra
-• Каждое приложение будет иметь плавный скроллинг(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 мая 2017Разработчик: Start BootstrapПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+18 июня 2016, суббота. 20:10 МСК
+ Первая игровая неделя. 1-й дивизион. Группа С1. 2-й тур
+Стадион:  Янтарный (Калининград, Россия) , 6910 зрителей (99 % при вместимости 7000)
+Судья 1:  Мохаммад Шахмири (Иран)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Аксёнов, Владимир Стецко)Продолжительность: 01:38:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FCD943C8626B7A815D593BFE88E8CC335DB43BA
+magnet:?xt=urn:btih:F75D76494074DB16F05FCBCC7F50736F1634ADA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479745   (673328) от 20.06.2014
+###  Публикация: 1291435   (670480) от 24.03.2019
 
-BBC: Космический челнок. Разведчик горизонта / The Space Shuttle. A Horizon Guide (2010) SATRip
+Представьте себе Дубай / Imagine Dubai (2018) WEBRip [VP9/2160p] [4K, HDR]
 
 >>Документалистика и Телепередачи
->>Космос
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673328.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начиная с самого первого запуска в 1981 году космическая транспортная система "The Space Shuttle" была и остается по сей день самой дорогой и самой амбициозной программой НАСА. Стоимость 1-го запуска - 450 миллионов доларов, 135 полетов, 355 астронавтов и космонавтов, 21152 витка вокруг Земли и почти 873 млн. км. в пути. История Спейс шаттла это история головокружительных взлетов и ошеломляющих падений, потрясших этот мир.Жанр: ДокументальныйРежиссер: Жак ФарнамПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:58:57
+Видео посвященное Дубаю, Его Святейшеству Шейху Мохаммеду ибн Рашиду Аль Мактуму, вице-президенту и премьер-министру ОАЭ, и правительству Дубая. Мы хотим, чтобы мир увидел этот удивительный город, который он построил на основе своего видения, страсти и 50-летнего служения.Производство: ОАЭЖанр: Документальный, видовойРежиссер: Сачин РамдасПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C53F9D6458061EA2336C895DA2F97F7127280683
+magnet:?xt=urn:btih:B739A5BA4F1DBE02FDCCDD2A928863F4F5250CB2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136394   (673329) от 23.05.2017
+###  Публикация: 1291266   (670481) от 24.03.2019
 
-Simon Rattle & City of Birmingham Symphony Orchestra - Ellington: Mainly Black (1986, 1999) 2010, EMI Classics [FLAC|Lossless|tracks + .cue] <Swing, Modern Creative, Third Stream>
+Фергюс Коннолли | Переломный момент: победная стратегия на практике (2019) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673329.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mainly Black: Black, Brown and Beige Suite: Introduction [06:42]
-02. Mainly Black: Black, Brown and Beige Suite: Come Sunday [02:40]
-03. Mainly Black: Black, Brown and Beige Suite: Work Song [07:52]
-04. Mainly Black: Black, Brown and Beige Suite: The Blues (Mauve) [12:31](   Читать дальше...   )Жанр: Swing, Modern Creative, Third StreamПродолжительность: 01:13:27
+Известный мировой тренер Фергюс Коннолли рассказал, как побеждать с помощью анализа игр и тренировок, ориентированных на конкретных спортсменов.
+Благодаря большому опыту работы тренером в футболе, баскетболе, а также с элитными военными подразделениями он создал методику, по которой максимально просто анализировать и улучшать работу как отдельного игрока, так и связки.Жанр: СпортФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABDA92B5860E80E2AB22C4A8FF40898096D4C662
+magnet:?xt=urn:btih:2A1E4E8014A1BB97069C597A65C797A3D59B4137
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 798055   (673330) от 20.06.2014
+###  Публикация: 1291294   (670482) от 24.03.2019
 
-Инферно / Inferno (1999) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдди Ломакс — одинокий воин, утративший веру в себя. Поиски старого друга — одинокого индейца-шамана — приводят его в разрушенный город с адским названием Инферно, где у Эдди много врагов. Полная луна и зов койота помогут ему обрести былую силу и осуществить благородную цель: защитить местных жителей от жестоких банд байкеров и контрабандистов.Производство: США / Davis-FilmsЖанр: Боевик, Драма, МелодрамаРежиссер: Джон Г. ЭвилдсенАктеры: Жан-Клод Ван Дамм, Пэт Морита, Дэнни Трехо, Гэбриэлль Фицпатрик, Ларри Дрэйк, Винсент Скьявелли, Дэвид Фралик, Сайлас Уэйр Митчелл, Джонатан Эвилдсен, Джейми ПресслиПеревод: Двуголосый закадровыйПродолжительность: 01:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5F1D7195DFAC79C6C9AEAF102E7B7DED5FC519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136385   (673331) от 23.05.2017
-
-Duke Ellington - Blue Note Jazz Inspiration (1953 - 1969) 2012, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [03:00]
-02. Flamingo [03:42]
-03. Prelude to a Kiss [03:04]
-04. Just A Sittin' and A Rockin' [03:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7110FF702FBB11310FFE5145FE01E348D9FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136643   (673333) от 23.05.2017
-
-Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade to Sweden [03:23]
-02. The Boy in My Dreams [02:39]
-03. Stoona [03:02]
-04. La De Doody Doo [02:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9D80DFE5B621D48E7793B0BF8FA4969A73134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136709   (673334) от 23.05.2017
-
-TextLab 1.3.3 (134) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673334.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 мая 2017Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: OS X 10.7.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3329370D755A1D8A7F8BD3A8578A47C09F6C0B0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136392   (673335) от 23.05.2017
-
-Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673335.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues in Orbit:
-01. Three J's Blues [02:55]
-02. Smada [02:39]
-03. Pie Eye's Blues [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5463CDE0AE49ED2BDF09778EA21859DE31E9C59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136403   (673336) от 23.05.2017
-
-Gerry Mulligan - Midas Touch: Live in Berlin (1995) 2003, Concord Records [FLAC|Lossless|image + .cue] <West Coast Jazz , Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Back of the Barn [11:03]
-02. Intro & Comments by Gerry Mulligan [00:47]
-03. Wallflower [07:45]
-04. Midas Lives [10:08](   Читать дальше...   )Жанр: West Coast Jazz , CoolПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D258A2D34570969F826191DD739E27B8069856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136590   (673337) от 23.05.2017
-
-VA - Global Trance Festival Vol. 3 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doktor Noize DJ - The Choice of Life (Original Mix) (03:42)
-02. Kritik - Active (Original Mix) (03:47)
-03. Hiding Spirits - Boosting Frequencies (Original Mix) (03:56)
-04. Logiktech - Mr. Shaker (Original Mix) (03:38)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2425D60E55BB4BA021C9EAED8017390A408BB34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136671   (673338) от 23.05.2017
-
-Duke Ellington - S.R.O. (1956, 1961, 1966) 1989, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. Medley: I Got It Bad and That Ain't Good/Things Ain't What They Used to Be [08:49]
-03. West Indian Pancake [04:36]
-04. Medley: Black and Tan Fantasy/Creole Love Call/The Mooche [09:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7392AE4D504ABCD4F69109F27DE86CC9227868D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136640   (673339) от 23.05.2017
-
-Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonk [02:50]
-02. Drawing Room Blues [03:42]
-03. Frankie and Johnny [02:40]
-04. Jumpin' Room Only [02:38](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD454DCDDEAB3B3352D7FB27B26721AF9731D663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136380   (673340) от 23.05.2017
-
-Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [01:11]
-02. Addi [03:20]
-03. Things Ain't What They Used to Be [03:33]
-04. Hello Dolly [03:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E6631CD3BBB1BD440EB66C71ADECCA5EB7A715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136376   (673341) от 23.05.2017
-
-Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [00:56]
-02. Johnny Come Lately [03:34]
-03. Swamp Goo [04:52]
-04. Knob Hill [07:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625845012DDB367F8D5D2972EC7F47C368D0809A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899484   (673364) от 19.05.2015
-
-Mozilla Firefox 38.0.5 beta 3 (x86/x64) [Ru]
+Viber 10.3.0.36 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673364.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBE3C79994C0D49F406A0B978B5D1CFBA3B9FCA4
+magnet:?xt=urn:btih:C97C9E68CA6C7605A286F02D4E3445D8F2330124
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 662610   (673387) от 09.07.2013
+###  Публикация: 1291278   (670483) от 24.03.2019
 
-Совершенный Человек-Паук / Ultimate Spider-Man (2013) WEB-DLRip (2 сезон, 1-13 серии из 26) (Обновляемая)
+Game WideScreener 1.2 [Ru/En]
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673387.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мультсериал основан на одноимённой серии комиксов, повествующих о ещё молодом Человеке-пауке, которому Ник Фьюри предложил пройти тренировочный курс для улучшения собственных навыков. В ходе обучения Человек-паук обзаводится командой из Люка Кейджа, Железного кулака, Новы и Белой тигрицы. В ходе тренировок ему предоставляется собственный мотоцикл (Спайдерцикл). В (   Читать дальше...   )Жанр: мультфильм, фантастика, боевик, приключенияРежиссер: Алекс Сото, Джефф Аллен, Филип ПиньоттиПеревод: Любительский (двухголосый)Субтитры: отсутствуютФормат: AVIПродолжительность: 13 х ~00:22:00
+Замучила ностальгия? Хочется поиграть в старые игры,
+
+но в них отсутствует поддержка современных разрешений экрана? Тогда эта программа для Вас! С помощью данной утилиты Вы сможете легко и быстро исправить данную проблему и наслаждаться Вашей любимой игрой с комфортом для глаз.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8B50FDF2B544D46EA6E773437458EE0EA598C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223582   (673404) от 05.05.2018
-
-Журнал | Моя прекрасная дача №9 (май 2018) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854FD39983E665487E0B25A98E44ACE20A9E71C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223499   (673405) от 05.05.2018
-
-Ю.П. Супруненко | Земля Донская. От Ростова-на-Дону до Азова [Исторический путеводитель] (2016) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Донская земля ведёт своё географическое начало от истоков до подковообразного изгиба уже у морского устья великой русской реки. Звучное имя этой реки в европейской части России удивительно сохранилось с древних времён, и слышалось оно как празднично призывный колокольный звон: Дон... Дон когда-то считался главной рекой на Руси, был кровно связан с её историей и народом. (   Читать дальше...   )Жанр: История. Научно-популярное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05157D865733BCA777DA496D393E2340B216556D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223458   (673406) от 05.05.2018
-
-Текстуры - Creative Market - 15 Authentic Marbled Paper Textures - 1054025 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.
-Автор: Black Label Supply Co.Формат: JPGРазрешение файлов: 5500 x 3800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A069557F4666D93023D5E409D421BA5CC715B92B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223436   (673407) от 05.05.2018
-
-Преступления страсти (2017) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673407.jpg" />
-</div>
-
-
-###  Подробнее
-
-От ран, наносимых любовью, не защищён никто: ни богатые, ни бедные, ни обычные люди, ни знаменитости… В жизни звёзд случались трагедии пострашнее, чем самые буйные фантазии сценаристов. "Оленька, милая моя, любил ли кто тебя, как я", – такие строки адресовал своей бывшей жене цирковой артист Игорь Запашный уже после того, как убил и упаковал в чемодан тело (   Читать дальше...   )Телекомпания: Россия / ООО "ЦЛ КириллицаЖанр: Документальный, Искусство, БиографияСубтитры: Русские, телетекстПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192DF35CD88A8049AC04447854E0DC687DD9E3B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223597   (673408) от 05.05.2018
-
-Журнал | Секреты кухни №5 (129) (май 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3E4A8359BDEA6DA46E061B201165993D47F09E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223642   (673409) от 05.05.2018
-
-Журнал | Дом и Интерьер №5 (май 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный журнал о дизайне "Дом & интерьер" – издание для всех, кому интересны модные тенденции в области создания интерьеров; искусство, антиквариат, шедевры мировой архитектуры.Жанр: Архитектура, строительство, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C661E2D9122A830029E6B52BAE1B4B7D7B6178F2
+magnet:?xt=urn:btih:39588671E991C1BA7FB1A5507C4A9F7817848A0E
 ```
 
 

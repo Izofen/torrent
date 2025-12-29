@@ -268,6 +268,38 @@ magnet:?xt=urn:btih:3AE7D4F94C382879F26269D57EA197CFB6B64535
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514531   (658538) от 23.06.2012
+
+Porcupine Tree - 46 albums (1989-2010) [FLAC|Lossless] <Progressive Rock / Metal, Psychedelic / Space Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658538.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: (00:59:01)
+01. Intro (02:08)
+02. Fear Of A Blank Planet (07:34)
+03. My Ashes (04:46)
+04. Anesthetize (17:20)
+05. Sentimental (05:18)
+06. Way Out Of Here (07:47)
+07. Sleep Together (07:59)
+08. Prodigal (06:05)Жанр: Progressive Rock / Metal, Psychedelic / Space Rock, ExperimentalПродолжительность: 02:16:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225749   (658600) от 17.05.2018
 
 Amorphis - Queen Of Time (2018) [MP3|320 Kbps] <Melodic Death Metal, Progressive Metal>
@@ -314,6 +346,33 @@ Halestorm - 2 Альбома 4 ЕР (2001-2012) [MP3|320 кб/с]<Hard rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EED46BECDE54F414A68A369A8BBE47AF641282C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514215   (658621) от 23.06.2012
+
+Sunn O))) - 21 albums (2000-2011) [FLAC|Lossless] <Drone Doom Metal, Sludge, Drone Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dysnystaxis (... a Chance Meeting with Somnus) (19:02)
+02. Ra at Dawn Part One (Rapture, at Last) (15:01)
+03. Ash on the Tress (The Sudden Ebb of a Diatribe) (17:09)
+04. Ra at Dawn Part Two (Numbed by Her Light) (14:16)2000-2011Жанр: Drone Doom Metal, Sludge, Drone AmbientПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -449,6 +508,39 @@ Kiss - Kissworld: The Best of Kiss (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4853FA6973DFCB0335050AAA139DB3F1833A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514078   (658927) от 23.06.2012
+
+Luca Turilli's Rhapsody - Ascending to Infinity (2012) Limited Edition [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum X (2:26)
+02. Ascending To Infinity (6:15)
+03. Dante's Inferno (4:57)
+04. Excalibur (8:06)
+05. Tormento E Passione (4:52)
+06. Dark Fate Of Atlantis (6:30)
+07. Luna (4:16)
+08. Clash Of The Titans (4:15)
+09. Of Michael The Archangel And Lucifer's Fall (16:02)
+10. March Of Time (Bonus Track) (5:49)Жанр: Symphonic Power MetalПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -608,87 +700,6 @@ George Kollias - Invictus (2015) /Limited Edition/ [FLAC|Lossless]<Technical Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F80102B1D8C6C1F6201498FBCBB09D1B80DD4F73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138147   (659203) от 03.06.2017
-
-Siena Root - A Dream of Lasting Peace (2017) KSL Edition [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets (3:37)
-02. Tales of Independence (3:39)
-03. Sundown (4:20)
-04. The Piper Won't Let You Stay (6:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAF7321F743B4F61F749469FCE973F300F3200E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903007   (659216) от 30.05.2015
-
-Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Win Hands Down
-2. Mess
-3. An Exercise In Debauchery
-4. Muscle Memory(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1DB35B55B0876DD36336F40C25894BF17AB9BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902775   (659218) от 30.05.2015
-
-F5 - OrganiK (2015) [MP3|~245 кб/с (V0)]<Alternative, Pop, Funk, Reggae, Soul, Female Jazz Vocal, Covers>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time
-02. Sun Is Up
-03. Hugs & Kisses
-04. Bam!(   Читать дальше...   )Жанр: Alternative, Pop, Funk, Reggae, Soul, Female Jazz Vocal, CoversПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A30E5501D7466DDE49A70F233D3C7DE8FBF637D
 ```
 
 

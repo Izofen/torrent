@@ -297,6 +297,33 @@ magnet:?xt=urn:btih:4BDD512016814F7437515193BF11FF15E5FA1C8A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670169   (715012) от 19.06.2013
+
+Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_715012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Conversation [02:44]
+ 02. Dry Your Eyes [02:41]
+ 03. If This IsnҴ Real [00:00]
+ 04. Detroit City [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024558   (716026) от 09.06.2016
 
 Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
@@ -670,33 +697,6 @@ VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129621   (720437) от 29.04.2017
-
-Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720437.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bambino
-02. Gondolier
-03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
 ```
 
 

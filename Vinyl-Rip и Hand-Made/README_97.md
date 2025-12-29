@@ -1,3 +1,57 @@
+###  Публикация: 171737   (955211) от 19.02.2020
+
+Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+1. Steamrock Fever (03:41)
+2. We'll Burn The Sky (06:30)
+3. I've Got To Be Free (04:04)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278226   (957828) от 05.01.2011
+
+George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A - My Sweet Lord (04:35)
+Side 2
+B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00:11:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747132   (958184) от 27.01.2016
 
 Deep Purple - The House Of Blue Light (Дом голубого света) (1987) [FLAC 2.0|192/24|traсks|Vinil-Rip]<Hard Rock>
@@ -672,66 +726,6 @@ VA - Кубинская эстрадная оркестровая музыка 6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680927   (985968) от 24.01.2020
-
-Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Static [4:10]
-A2. King For A Day [3:55]
-A3. I Wont Wake Up [3:45]
-A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609963   (986556) от 01.02.2013
-
-BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986556.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Nightflight To Venus [05:51]
-A2. Rasputin [06:08]
-A3. Painter Man [03:19]
-A4. He Was A Steppenwolf [06:56]
-A5. King Of The Road [02:37]
-B1. Rivers Of Babylon [04:22]
-B2. Voodoonight [03:32]
-B3. Brown Girl In The Ring [04:04]
-B4. Never Change Lovers In The Middle Of The Night [05:23]
-B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

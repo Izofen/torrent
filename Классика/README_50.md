@@ -1,3 +1,195 @@
+###  Публикация: 856416   (957505) от 05.01.2015
+
+VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957505.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Новогодних праздников, потянуло на классику. Почти 20 лет назад фирма NAXOS, известная своими выпусками классической музыки, выпустила этот бокс-сет из 3 дисков.
+Высокие ценители классики, конечно будут ворчать, что мол классика в такой популяризации не нуждается, а я вот придерживаюсь мнения, что собранные вместе шедевры мировых классиков смогут привить вкус (   Читать дальше...   )CD2:
+01. Wolfgang Amadeus Mozart - Ouveryr till 'Figaros brollop'  (4:04)
+02. Giacomo Puccini - Sa kall ni ar om handen ur 'Boheme' (Che gelida manina)  (4:30)
+03. Giacomo Puccini - En vacker dag ur 'Madame Butterfly' (Un bel di vedremo)  (4:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E74FAF62182E3124557A4C124F6F4BBC9F8665D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154210   (960618) от 25.01.2016
+
+VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот Box-Set из 6 CD представляет собой всесторонний обзор музыки барокко и может служить прекрасным "пособием" для тех, кто хотел бы узнать больше о стиле барокко. Здесь представлены лучшие произведения Баха, Генделя, Пёрселла, Вивальди, Скарлатти, Пахельбеля, Телемана, Боккерини и других композиторов... в исполнении Андрэ Морис, Арлин Оджер, Кристи Вильямс, (   Читать дальше...   )CD 1: ENGLAND AND THE BAROQUE
+CD 2: THE BEST OF ITALIAN BAROQUE
+CD 3: TREASURES OF THE MEDITERRANEAN BAROQUE
+CD 4: THE GLORY OF THE FRENCH BAROQUE(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:41:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265060   (960859) от 20.01.2014
+
+VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3|320 kbps] <Vocal, Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник мелодий и песен на тему "Новогодняя ночь" от Ридерз Дайджест.ТИХАЯ НОЧЬ
+01. Silent Night
+02. В лесу родилась елочка
+03. Lo, How a Rose E're Blooming(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 04:30:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 75291   (961903) от 24.01.2016
+
+VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cue]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1: The great waltzes
+CD2: The romantic piano
+CD3: Mighty choruses(   Читать дальше...   )Жанр: ClassicПродолжительность: 09:00:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978058   (961955) от 24.01.2016
+
+Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in C minor, Triple Concerto (2011) [FLAC|Lossles|tracks + .cue] Classical, Classicism
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Trio in C minor, op. 1 no. 3
+01 (1) Allegro con brio
+02 (2) Andante cantabile con variazioni
+03 (3) Menuetto. Quasi allegro(   Читать дальше...   )Жанр: Классическая музыка, Classical, Classicism, Chamber, Concerto, TrioПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3AD6E670BE05B840C22E54EC106E18E6BDE562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978951   (962094) от 24.01.2016
+
+Stravinsky - The Rite Of Spring / Mahler - Symphony No.1 (2014) [FLAC 2.0|48.0/24|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композитор: Igor Stravinsky,  Gustav Mahler
+Дирижер: Zubin Mehta
+Оркестр / Ансамбль: Australian World OrchestraThe Rite Of Spring
+01. The Rite of Spring: Part 1, "The Adoration of the Earth" (16:43)
+02. The Rite of Spring: Part 2, "The Sacrifice" (18:54)
+Symphony No.1(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:37 - 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169715   (962396) от 28.01.2010
+
+Трио Сергея Жилина - П.И.Чайковский In Jazz - Времена Года (2005) [MP3|320 kbps]<Classical crossover, Jazz>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Декабрь	07:01
+2. У камелька	05:17
+3. Баркарола	11:05
+4. Осенняя песнь	07:47(   Читать дальше...   )Жанр: Classical crossover, JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 620893   (963851) от 19.02.2013
 
 Pergolesi Giovanni Battista–Stabat Mater: M. Marshall L.V. Terrani C. Abbado London Symphony Orchestra (1985)/1990, Dg Imports/ [WavPack(iso.wv)|Lossless]<Vocal>
@@ -543,213 +735,6 @@ Stile Antico & Fretwork - Tune Thy Musicke to Thy Hart (2012) [FLAC|Lossless]<Sa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA0C122727F82ADB0F00E17B7F15C787808C607C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611441   (977305) от 08.02.2013
-
-Liszt - Complete Tone Poems Vol.1 & Vol.2 (Bernard Haitink & London Philharmonic Orchestra) (1993) 4CD [FLAC|Lossless]<Classical, Romantic Period, Symphony, Tone Poem>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orpheus, symphonic poem for orchestra, S. 98 (LW G9)    (11:09)
-02. Prometheus (I & II), symphonic poem for orchestra, S. 99 (LW G6)   (13:02)
-03. Mazeppa, symphonic poem for orchestra, S. 100 (LW G7)    (16:28)
-04. Festklänge (I & II), symphonic poem for orchestra, S. 101, (LW G10)    (19:44)Жанр: Classical, Romantic Period, Symphony, Tone PoemПродолжительность: 01:07:13
-
-01. Mephisto Waltz, for orchestra No. 1 (Der Tanz in der Dorfschenke; Episoden No. 2), S. 110-2 (LW G16-2) (15:10)
-02. Heroide funebre (I & II), symphonic poem for orchestra, S. 102 (LW G4) (27:03)
-03. Die Ideale, symphonic poem for orchestra, S. 106 (LW G106) (13:54)
-04. Von der Wiege bis zum Grabe (From the Cradle to the Grave), symphonic poem for orchestra, S. 107 (LW A424) (11:06)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615037   (977309) от 08.02.2013
-
-Antonio Lucio Vivaldi- The 37 Bassoon Concertos: English Chamber Orchestra Daniel Smith 5CD (1986-1991) /1996, ASV [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977309.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: ChamberПродолжительность: 01:10:22
-
-CONCERTO No.7 in A minor (RV497)
-1.	Allegro molto	3.20
-2.	Andante molto	3.08
-3.	Allegro	2.34
-CONCERTO No.8 in F (RV485)
-4.	Allegro non molto	4.04
-5.	Andante	2.39
-6.	Allegro molto	2.32(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BBE9871DA5286C112C4EB340FBF0BB80354AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615196   (978417) от 07.02.2013
-
-Светлана Бережная - Орган - музыка релаксации (2002) [FLAC|Lossless]<Classical, Organ>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дж. Каччини - Ave Maria
-02. И. С. Бах - Хоральная прелюдия (Wer nur den lieben Gott lasst walten) BWV 642
-03. И. С. Бах - Пастораль BWV 590 (Часть первая Pastorella)
-04. И. С. Бах - Пастораль BWV 590 (Часть вторая Allemande)
-05. И. С. Бах - Пастораль BWV 590 (Часть третья Aria)
-06. И. С. Бах - Пастораль BWV 590 (Часть четвертая Gigue)
-07. Ф. Куперен - Tierce en Taille из Мессы №1
-08. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Adagio. Vivace)
-09. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Andante)
-10. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Un poco allegro)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE51C57CFAB758F53BF8E2CD409115EDC02519E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166137   (978576) от 13.01.2010
-
-VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|Lossless]<Classical, Фортепьяно>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это превосходная коллекция 100 лучших фортепьянных композиций. Гершвин, Григ, Бах, Бетховен и Моцарт, Мусоргский... - есть что-то для каждого, чтобы насладиться прекрасной музыкой! 100 лучших фортепьянных произведений для любого настроения в исполнении лучших пианистов мира.
-
-         Жанр: Classical -Формат: FLAC (Образ + .CUE)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973602   (978938) от 09.01.2016
-
-Rosetti - Sinfonies - Concerto Köln (Vol.1) (1995) [FLAC|Lossless|image + .cue] <Classical, Classical Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony in G minor, K 1 No 27
-01. Vivace (06:51)
-02. Menuet fresco: Allegretto - Trio - Menuet (03:10)
-03. Andante ma Allegretto (03:23)(   Читать дальше...   )Жанр: Classical, Classical Period, SymphonyПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42842A6B842E324C1E4CE7CCD060EB64CBF49AC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973590   (978946) от 09.01.2016
-
-Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .cue] <Classical, Recitals, Romantic Period, Chamber Music, Nocturne>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturne No. 11 in G minor, Op. 37 - I - Andante sostenuto (05:47)
-02. Nocturne No. 12 in G Major, Op. 37 - II - Andantino (05:57)
-03. Nocturne No. 13 in C minor, Op. 48 - I - Lento (06:45)
-04. Nocturne No. 14 in F sharp minor, Op. 48 - II - Andantino (07:18)(   Читать дальше...   )Жанр: Classical, Recitals, Romantic Period, Chamber Music, NocturneПродолжительность: 01:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614154   (980872) от 05.02.2013
-
-Антонио Вивальди - Времена года (2002) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна
-02. Лето
-03. Осень
-04. Зима
-
-Исполняет Английский камерный оркестр под управлением Леонарда СлаткинаЖанр: ClassicalПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAA694A337D1B89A25A7117524930D11B4155F1
 ```
 
 

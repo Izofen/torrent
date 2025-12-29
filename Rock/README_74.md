@@ -1,3 +1,165 @@
+###  Публикация: 1216204   (753067) от 29.03.2018
+
+Mallet - Dance With The Devil (1982) Luzifer Records, Vinyl Rip [MP3|192 Kbps] <Rock, Melodic Hard Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mallet - немецкая рок-группа, созданная в 1979 году в Висбадене Манфредом Дюнзлом, Петер Вэньке, Стефаном Онхаусом (позднее гитаристом The Crackers ), Ханси Вуттке и Уилмонтом Шульце в качестве школьной группы. Тексты касаются музыки, одиночества в современной городской жизни, компьютерной дисфункции, религии, войны, качества жизни, веселья и любви.01. Move It All Night 3:25
+02. Dance With The Devil (Don't) 4:04
+03. Rock'n'Roll Feeling 2:57
+04. Far Away 6:19(   Читать дальше...   )Жанр: Rock, Melodic Hard Rock, Hard RockПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FC855B1A6FC31B09543ECDFAA899F61FCF5320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280908   (753479) от 07.02.2019
+
+The Veer Union - Decade II: Rock & Acoustic (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Not Alive
+02. Save Yourself
+03. Embrace the Day
+04. City of the Sun(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122C28B6614D49B7A627690BF3057E7F92046884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395598   (753831) от 11.07.2020
+
+Silver Scrolls - Music for Walks (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk One (I - Concrete Visions) (08:00)
+ 02. Walk One (II - Q Scrolls) (05:59)
+ 03. Walk One (III - Internal Owl) (01:10)
+ 04. Walk One (IV - Concrete Reprise) (04:56)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57301838A5BA50D7CDA65E262638B1B8685A7F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215836   (754773) от 28.03.2018
+
+Rick Parfitt (Status Quo) - Over And Out (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twinkletoes
+02. Lonesome Road
+03. Over and Out
+04. When I Was Fallin' in Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33BCCE6C6BF85BE09F389D4BA164F052F474A07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281075   (755085) от 06.02.2019
+
+Тінь Сонця - Зачарований світ (2018) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755085.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:12] 01. Закохані вогні
+[04:10] 02. Останні ночі без тебе
+[03:10] 03. Добрий ангел
+[03:30] 04. В долонях ніч(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701ACA0F2328FF908BB89CF330B7F8288061853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281073   (755090) от 06.02.2019
+
+Тінь Сонця - Буремний край (2016) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755090.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:19] 1 Ромко Живий
+[03:39] 2 Громом І Вогнем
+[04:17] 3 На Відблисках Мого Меча
+[06:14] 4 Промінь Волі(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03769AB9EF6F0704242B1A3884A6B34E2721288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281222   (755293) от 06.02.2019
 
 Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps] <Rock>
@@ -533,168 +695,6 @@ Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0992E5CA4CF909B84C586B17EF0D2C147D58701B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394180   (764582) от 04.07.2020
-
-The Killers - Run For Cover (2020) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Soul’s Warning (04:34)
- 02. Caution (Radio Edit) (03:48)
- 03. Somebody Told Me (03:17)
- 04. Mr. Brightside (Jacques Lu Cont's Thin White Duke Mix) (08:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DE7359FC92F145DC57C58989E2230FB118AB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394145   (764695) от 04.07.2020
-
-Paul Weller - On Sunset (Deluxe) (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror Ball (07:37)
- 02. Baptiste (03:06)
- 03. Old Father Tyme (03:56)
- 04. Village (03:19)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C455A95175C66DF8CAC3721D998769947354A39F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126667   (765425) от 18.04.2017
-
-Табула Раса - Июль (2017) [MP3|320 Kbps] <Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бабочки июля
-02. Письма к звёздам
-03. Молитва
-04. Время как песок(   Читать дальше...   )Жанр: Rock, BritpopПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0911FDA28D8AA6C1B4C779C48A5EF70AF6EA137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393959   (765471) от 03.07.2020
-
-Saris - Beyond the Rainbow (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon (05:11)
- 02. Time Machine (07:09)
- 03. Oblivion (04:01)
- 04. Beyond The Rainbow (11:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DC0C178CB4BBCE9731165E3F9C6DD027535D3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279461   (766124) от 29.01.2019
-
-Apocalypse - Apocalypse (1969) Remastered, 2003, Longhair [MP3|320 Kbps] <Heavy Psych-Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Life Is Your Profession
-2. Let It Die
-3. Patricia
-4. Milkman(   Читать дальше...   )Жанр: Heavy Psych-Prog RockПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B572DD2C7C8483F2F9B4A060ACD50A85D24790A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393892   (766369) от 02.07.2020
-
-Trapt - Shadow Work (2020) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Out Alive (03:30)
- 02. I Want To Want What I Want (03:54)
- 03. Tell Me How You Really Feel (04:10)
- 04. Too Little Too Late (04:04)(   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE80784BF3D348B7279DAD4006A9DEBACD645F7
 ```
 
 

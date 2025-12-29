@@ -1,3 +1,299 @@
+###  Публикация: 878935   (838935) от 17.03.2015
+
+Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Industrial Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Faction 07 (Instrumental)  00:31
+02 - Good L_ck (Yo_'re F_cked) (Instrumental) 03:36
+03 - Just Like You (Instrumental)  05:04
+04 - Faction 09 (Instrumental)  03:21(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9315DA9145B2F1F8D660F55124A795792912D185
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500770   (839702) от 07.10.2021
+
+Asking Alexandria - See What's On The Inside (2021) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-Hardcore, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Alone Again
+03. Faded Out
+04. Never Gonna Learn(   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Hard RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4EDCD0A34F7238B2A161FC574CCB8E4033F7E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112849   (839875) от 10.03.2017
+
+Bush - Black And White Rainbows (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Love (3:31)
+ 02. Peace-S (4:25)
+ 03. Water (3:30)
+ 04. Lost In You (4:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6567CE603F544E37872675A0BD432DE634A7A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112478   (841535) от 09.03.2017
+
+The Shins - Heartworms (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Name For You (3:09)
+02 - Painting a Hole (4:44)
+03 - Cherry Hearts (3:33)
+04 - Fantasy Island (4:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06351D0E768529D6989906FA52BE924B6365B95D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002856   (841868) от 04.04.2016
+
+Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head in the Clouds
+02. Oh I Know
+03. Holding On
+04. Asleep in the Machine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C2268D1ACA1424EF7CD549744F7951A1D44116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378443   (846605) от 25.04.2020
+
+Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Rely On You (03:15)
+02. Mouth To Mouth (04:24)
+03. Take Me (03:10)
+04. Only Love Can Hurt Like This (03:53)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151C2C568BEE749714E80285ECBFD755570640E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499351   (847675) от 02.10.2021
+
+Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Post-HardCore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alerion
+02. Final Episode
+03. A Candlelit Dinner With Inamorta
+04. Nobody Don't Dance No More(   Читать дальше...   )Жанр: Post-HardCore, ElectronicПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678AEC4F30FE0E471EC1088D9E597797006C151D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194003   (848044) от 24.04.2020
+
+Paloma Faith - The Architect (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolution (Feat. Samuel L. Jackson) (01:05)
+02. The Architect (03:25)
+03. Guilty (04:19)
+04. Crybaby (03:54)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, SoulПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF3F8E976BADC5E8CC91855E21A9831EDAA9324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378037   (848350) от 24.04.2020
+
+Paloma Faith ‎ - Fall To Grace (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picking Up The Pieces (04:07)
+02. 30 Minute Love Affair (03:21)
+03. Black & Blue (04:04)
+04. Just Be (04:40)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31789501961586F31106D6F29D4BEBFFE8E1B8CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 12962   (849049) от 01.10.2021
+
+Linkin Park - Minutes to Midnight (2007) [FLAC]
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Wake
+02 Given Up
+03 Leave Out All The Rest
+04 Bleed It Out(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9AE8D105B810083A47A7B6F93728BC4B6572CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001872   (850471) от 30.03.2016
+
+U2 - Staring at the Sun (1997) Single, Japanes Edition [FLAC|Lossless|tracks] <Electronic, Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staring at the Sun    04:38
+02. North and South of the River    04:38
+03. Your Blue Room    05:27Жанр: Electronic, Rock, Alternative Rock, Pop RockПродолжительность: 00:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4615E296867AA4DAC50171C85C032E05F59687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 648878   (851549) от 26.04.2013
 
 Angelfish - Angelfish (1994) [APE|Lossless]<Alternative Rock/Dream Pop>
@@ -418,353 +714,6 @@ The Pretenders - The Pretenders II (1981) [FLAC|Lossless]<New Wave>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768880   (858721) от 21.03.2014
-
-Shaka Ponk - The White Pixel Ape (Smoking Isolate to Keep in Shape) (2014) [FLAC|Lossless]<Rock, Alternative Rock, Electro-Rock, Pop Punk, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky G1rl (3:12)
-02. Wanna Get Free (3:01)
-03. M0nkey On The Wall (2:56)
-04. Scarify (feat. Beat Assailant) (6:51)
-05. Black Listed (5:59)
-06. An Eloquent (4:43)
-07. W0tz Goin'ON (3:39)
-08. Story O' my LF (feat. Beat Assailant) (4:54)
-09. Gimme Guitarrrrra (feat. Dr Madd Vide) (3:06)
-10. Last Alone (3:53)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Electro-Rock, Pop Punk, FusionПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A4FE8B0838095041ED908F3EF143F7720DFD98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304318   (859501) от 05.03.2011
-
-The Offspring - Дискография (1989-2010) [FLAC|Lossless]<Punk Rock/Skate Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Punk Rock/Skate PunkПродолжительность: 00:08:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304811   (859760) от 05.03.2011
-
-Avril Lavigne - Goodbye Lullaby (Japanese Ltd. Ed.) (2011) [FLAC|Lossless]<Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Black Star (1:34)
-02. What The Hell (3:41)
-03. Push (3:01)
-04. Wish You Were Here (3:46)
-05. Smile (3:29)
-06. Stop Standing There (3:27)
-07. I Love You (4:02)
-08. Everybody Hurts (3:42)
-09. Not Enough (4:19)
-10. 4 Real (3:28)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376406   (860494) от 17.04.2020
-
-Sex Pistols - God Save The Queen (2002) Single [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Save The Queen [00:03:20]
-02. God Save The Queen (Neil Barnes & the Sex Pistols dance mix) [00:08:39]
-03. God Save The Queen (Neil Barnes & the Sex Pistols 7' extended mix [00:04:19]Жанр: Punk RockПродолжительность: 00:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72E52DC52EF97C8E04EDC64CD16FF8D852AF626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189302   (862892) от 05.04.2010
-
-Bloodhound Gang - Hefty Fine (2005) [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Strictly for the Tardcore – 0:09
-02. Balls Out (Franks/Jimmy Pop & Stigliano/Lüpüs Thunder) – 4:19
-03. Foxtrot Uniform Charlie Kilo (Franks/Jimmy Pop & Hennegan/Evil Jared) – 2:53
-04. I'm the Least You Could Do – 3:58
-05. Farting with a Walkman On – 3:26
-06. Diarrhea Runs in the Family – 0:24
-07. Ralph Wiggum – 2:52
-08. Something Diabolical (Franks/Jimmy Pop & Dean/DJ Q-Ball)(Featuring Ville Valo) – 5:10
-09. Overheard in a Wawa Parking Lot – 0:04
-10. Pennsylvania – 2:57(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767873   (863740) от 18.03.2014
-
-Foster the People - Supermodel (2014) [FLAC|Lossless]<Alternative Rock, Lo-Fi, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Are You What You Want To Be? (04:30)
- 02. Ask Yourself (04:23)
- 03. Coming Of Age (04:40)
- 04. Nevermind (05:17)
- 05. Pseudologia Fantastica (05:31)
- 06. The Angelic Welcome Of Mr. Jones (00:33)
- 07. Best Friend (04:27)
- 08. A Beginner's Guide To Destroying The Moon (04:39)
- 09. Goats In Trees (05:09)
- 10. The Truth (04:29)(   Читать дальше...   )Жанр: Alternative Rock, Lo-Fi, Indie RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37279C002532502A1A1C2EEC28C38BAA79F461D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767637   (863978) от 18.03.2014
-
-Therapy? - Shameless (2001) [FLAC|Lossless]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Gimme Back My Brain
-2. Dance
-3. This One's For You
-4. I Am The Money
-5. Wicked Man
-6. Theme From Delorean
-7. Joey
-8. Endless Psychology
-9. Alrite
-10. Body Bag Girl(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 0:41:36.35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC32A2A7E91765E5E5661067BB3B910698EBFC80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189203   (864763) от 04.04.2010
-
-Bloodhound Gang - Use Your Fingers (1995) [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Rip Taylor Is God – 1:23 (featuring Rip Taylor)
-2. We Are the Knuckleheads – 2:39
-3. Legend in My Spare Time – 3:05
-4. B.H.G.P.S.A. – 0:22
-5. Mama Say – 2:59
-6. Kids in America – 4:23 (cover of Kim Wilde's 1981 hit)
-7. You're Pretty When I'm Drunk – 3:56
-8. The Evils of Placenta Hustling – 0:19
-9. One Way – 3:05
-10. Shitty Record Offer – 0:58(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766934   (865225) от 17.03.2014
-
-The Pretty Reckless - Going To Hell (2014) Limited Edition [FLAC|Lossless]<Alt.Rock | Post-Grunge | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me Down
-02. Going To Hell
-03. Heaven Knows
-04. House On A Hill
-05. Sweet Things
-06. Dear Sister
-07. Absolution
-08. Blame Me
-09. Burn
-10. Why'd You Bring A Shotgun To The Party(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Rock | Post-Grunge | Female VocalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E565AB3A012B163B932187A07C346F23A586C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645055   (866970) от 17.04.2013
-
-Fall Out Boy - Save Rock And Roll (2013) /Scene/ [FLAC (tracks)|Lossless]<Pop-Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Phoenix
-02. My Songs Know What You Did In The Dark (Light Em Up)
-03. Alone Together
-04. Where Did The Party Go
-05. Just One Yesterday
-06. The Mighty Fall (Ft. Big Sean)
-07. Miss Missing You
-08. Death Valley
-09. Young Volcanoes
-10. Rat A Tat (Ft. Courtney Love)(   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767224   (867472) от 16.03.2014
-
-Dia Frampton - Red (2011) [FLAC|Lossless]<Alternative Pop-Rock, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Kick the Chair (feat. Kid Cudi) (3:34)
-02. Isabella (3:09)
-03. The Broken Ones (4:15)
-04. Good Boy (3:00)
-05. I Will (Feat. Blake Shelton) (3:29)
-06. Billy the Kid (3:47)
-07. Daniel (3:35)
-08. Walk Away (4:14)
-09. Bullseye (3:24)
-10. Trapeze (3:31)Жанр: Alternative Pop-Rock, Indie-RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8262CA006F2B36407BFD399885A41D65F810868
 ```
 
 

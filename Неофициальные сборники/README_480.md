@@ -1,3 +1,165 @@
+###  Публикация: 1395167   (755576) от 10.07.2020
+
+VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755576.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C.K.B. Magnetophon - Hello Phobos Hello Deimos
+002. Sol Oosel - In Allegiance To The Unknowable
+003. Jeb Ash - More Towards You
+004. Mauro Rawn - Soundtrack(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 10:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAB96AD80FBB721DD61034C6D01E54CDECB5A05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395168   (755580) от 10.07.2020
+
+VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claborg - Twenty Four
+02. Jack Le Funk - Get Funky
+03. Eliezer - Crown Zero
+04. Paul Older - A Boo Kee Moon(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 06:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79D14E1C63B3EBC1062053685D6B9E10E512707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018501   (755675) от 20.05.2016
+
+VA - Passion Dance Hit 90's (2016) [MP3|314~320 кб/с] <Techno, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755675.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Masterboy - I Got To Give It Up 6:01
+002. Leila K. - Murderer 3:11
+003. Heath Hunter - Revolution In Paradise (Boom Box Mix) 4:35
+004. Captain Hollywood - Over And Over 3:45(   Читать дальше...   )Жанр: Techno, Pop, DanceПродолжительность: 06:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4B05C8FDF62090BB46BAC61E53065BBA6B4810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018359   (755678) от 20.05.2016
+
+VA - Радио Шансон. Союз The best (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755678.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Папа Радж - Мадам Постойте
+002. Виктор Королёв - Три Часа
+003. Сибирь - На Канарах И На Кипре
+004. Стас Притчин - Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EF8F8222A67424546DE792BF91D7695F913FA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018295   (755683) от 20.05.2016
+
+VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi - Ora
+02. Luke Woodapple - The Awakening - Piano Solo
+03. Roland Orzabal - Mad World
+04. Max Richter - H in New England(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018342   (755685) от 20.05.2016
+
+VA - Русский Популярный Хит Формат (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755685.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Темникова - Ревность
+002. Блокбастер - Девушка-Печаль
+003. N.A.O.M.I. (Наоми) - Надо Бы
+004. Tiger Family - Доза Витамина(   Читать дальше...   )Жанр: PopПродолжительность: 11:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FA99678CC1FF0B716E0B6A59F9A0A45FFED797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018379   (755822) от 20.05.2016
 
 VA - Cosmic Machine - The Sequel (2016) [MP3|320 кб/с] <Electronic, Experimental, Synth-pop>
@@ -535,174 +697,6 @@ VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018117   (757549) от 19.05.2016
-
-VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|320 кб/с] <Jazz, Bossa Nova, Instrumental, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paolo Di Sabatino, Janek Gwizdala, Peter Erskine - Driving Blues 6:58
-2. Bossa Nostra - Rain (To Lidia) 7:11
-3. Italian Secret Service - Oky Doky 4:47
-4. Sam Paglia - Strip Tease Organ 1:43(   Читать дальше...   )Жанр: Jazz, Bossa Nova, Instrumental, Easy ListeningПродолжительность: 02:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4912B0C743DA203BD03831D6947A37CAD702D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018172   (757731) от 19.05.2016
-
-VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Diver - Selfishness
-02. Don Gorda Project - Hand In Hand
-03. Zero Feedback - Deep In The Rain Forest
-04. Don Gorda Project - Dreamscape(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 321233   (757825) от 09.04.2011
-
-VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Electro-House, House, Trance, Dubstep, Dance, Drum'n'Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adam Rickfors - Push The Tempo (Album)
-2. Agnes - Release Me 2011 (Guaranna Project Remix)
-3. Alexandra Stan - Get Back (Dj Amor Remix)
-4. Alexandra Stan - Mr.Saxobeat (Vova Baggage Remix)
-5. Amir van Cayenne - Seele
-6. Azzido Da Bass & Malente - Hunting (Ado Remix)
-7. Basto! - Gregory's Theme (Extended Mix)
-8. Beyonce & Jay Z - Crazy in Love (DJ STYLEZZ Remix)
-9. Boyz Feat. Jessy - We Are Away (Original Mix)
-10. Britney Spears - Hold It Against Me (Dancecom Project Remix)(   Читать дальше...   )Жанр: Electro-House, House, Trance, Dubstep, Dance, Drum'n'BassПродолжительность: 08:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCB7DA81623FC07DEA4935F1287151AE465E391
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215527   (757851) от 26.03.2018
-
-Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Александр Маршал - Дай мне руку
-02 Александр Маршал - Обещай мне
-03 Александр Маршал - Погоди, постой
-04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215504   (757852) от 26.03.2018
-
-VA - Bitter Sweet Symphony (2018) [MP3|320 Kbps] <Neo Classical>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757852.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shamis Khassenov - Treasure Island [2:59]
-002. JГіhann JГіhannsson/Ben Russell/Yuki Numata Resnick/Clarice Jensen/Caleb Burhans/Tarn Travers - Flight From The City [6:28]
-003. BrunuhVille - Spirit of the Wild [4:05]
-004. Ludovico Einaudi/AngГЁle Dubeau/La Pieta - Sarabande (with Piano) (Bonus Track) [4:56](   Читать дальше...   )Жанр: Neo ClassicalПродолжительность: 07:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE33B2E050025B17AC6C3A32BA55A3966CB6693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215509   (757867) от 26.03.2018
-
-VA - Hit Euro Dance 90s (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757867.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. L.A. Style - James Brown Is Dead [5:42]
-002. Earlwood - Take Me Away [4:23]
-003. Da Hool - Meet Her At The Love Parade [4:06]
-004. The Free - Born Crazy [3:47](   Читать дальше...   )Жанр: EurodanceПродолжительность: 09:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFD7EA13D28E2B19F169980E1AF0D348F205D76
 ```
 
 

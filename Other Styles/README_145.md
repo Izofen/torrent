@@ -1,3 +1,487 @@
+###  Публикация: 1114707   (826060) от 18.03.2017
+
+Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colorful Voice (2:49)
+02. Give (4:25)
+03. Half Way (3:15)
+04. Hope (3:37)(   Читать дальше...   )Тип издания: CommercialПроизводство: Rayark Inc.Жанр: Pop, InstrumentalПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D72F2BBE9A7C4552BB15484BF09D55C4B5BFA8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381434   (826145) от 07.05.2020
+
+Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33BC7A98B0EEFBF1B3C8F67F946FEC0E24C5AD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115193   (826167) от 18.03.2017
+
+VA - Acoustic Covers 90s (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo – Wicked Game
+02. Ginnie – I Can’t Make You Love Me – Acoustic Version
+03. Thom Cooper – Don’t Look Back in Anger – Acoustic Version
+04. Anjali Joseph – Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AD4569EDB3493B86E57CDB8EE3B5DB8D79CE15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880093   (826190) от 24.03.2015
+
+Paul Ruskay - Homeworld 2 Remastered Soundtrack (2015) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening
+02. The Pride of Hiigara
+03. Tanis Base
+04. Vaygr Bombers Approaching(   Читать дальше...   )Жанр: OSTПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A20285804D89E0ED8B3570F16F9BB2BEF7CB6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115223   (826452) от 18.03.2017
+
+Equador - Bones Of Man (2016) [MP3|320 Kbps] <Ambient, Electronic, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bones Of Man
+02. Avalon
+03. Symmetry
+04. Blood(   Читать дальше...   )Жанр: Ambient, Electronic, DowntempoПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4BE6F9FA43F71C0765F31389DF21AD25D22B18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006491   (826905) от 12.04.2016
+
+Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premonition [02:05]
+02. DARK SOULS III [02:46]
+03. Prologue [03:07]
+04. Firelink Shrine [03:07](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585978F3326C588AAD67E13B66714393A67BE21A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381201   (827649) от 06.05.2020
+
+Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rex Colt [1:47]
+02. Blood Dragon Theme [3:04]
+03. HELO-73 [1:17]
+04. Warzone [2:37](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 1:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE95613D43D82C93454FE6A4543623743EC659E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381191   (827730) от 06.05.2020
+
+Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: The Return
+02. Let's Get This Ball Rolling!
+03. Over The Deeporama
+04. Out Of The Clay And Mud & Coilsssss And Sssssspringsssss(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4288F6CCB9C24605AF4AF99056BFEDECA551C03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380801   (827735) от 06.05.2020
+
+Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zen Healing 03:14
+2. Calm Mind 03:16
+3. Relax Therapy	 03:34
+4. Mantra 03:58(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30419B2C9E6E765B9ADF9CF551FECF5E9939E55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381012   (827807) от 06.05.2020
+
+David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A New Horizon 03:06
+2. Depths of Love 02:43
+3. Limitless	 02:10
+4. Imagine a World 03:44(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EE00000C7E00AECA103D6D0CE729A6560C05A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380925   (827809) от 06.05.2020
+
+Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827809.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tengo un gran amor 04:26
+2. Colores de amanecer 04:13
+3. Encuentros luminosos 04:02
+4. Canción para un amigo 03:16(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BB95385943A55093BA33CFCF4077E089BBEDEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005754   (828801) от 11.04.2016
+
+Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
+Видео можно найти >здесь< и >здесь<.01. Intro
+02. Губернатор
+03. Праздник Урожая Во Дворце Труда
+04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515786   (828959) от 05.05.2020
+
+VA - The Crow/из к/ф "Ворон" (1994) Compilation [FLAC|Lossless|tracks + .cue] <OST, Rock & Roll, Soft Rock, Alternative Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828959.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ворон» (англ. «The Crow») - дебютный кинофильм Алекса Пройаса, экранизация одноимённого чёрно-белого комикса Джеймса О’Барра. У фильма есть три сиквела, также имеется телесериал с Марком Дакаскосом, показывающий альтернативную версию сюжета фильма. На съёмках Брэндон Ли был случайно ранен из реквизитного револьвера выстрелом актёра Майкла Масси, который играл одного (   Читать дальше...   )01. The Cure - Burn (06:38)
+02. Machines Of Loving Grace - Golgotha Tenement Blues (03:59)
+03. Stone Temple Pilots - Big Empty (04:56)
+04. Nine Inch Nails - Dead Souls (04:53)(   Читать дальше...   )Жанр: OST, Rock & Roll, Soft Rock, Alternative RockПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AB5E9BC1BD584D38F390298D7C70F0EA124399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114978   (829706) от 16.03.2017
+
+VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [MP3|320 Kbps] <Enigmatic, New Age, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vox Archangeli - Sanctus (7:45)
+02. Lugburz - The Ring Goes To South (3:24)
+03. Adoramus - Tri Martolod (4:02)
+04. Elane - Nen Ar Tasar (You See) (3:40)(   Читать дальше...   )Жанр: Enigmatic, New Age, Vocal |Продолжительность: 02:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7A5FF30950027F0977F444A58485C8D39438DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114971   (829711) от 16.03.2017
+
+VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vox Archangeli - Sanctus (7:45)
+02. Lugburz - The Ring Goes To South (3:24)
+03. Adoramus - Tri Martolod (4:02)
+04. Elane - Nen Ar Tasar (You See) (3:40)(   Читать дальше...   )Жанр: Enigmatic, New Age, Vocal |Продолжительность: 02:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436FA388BBD8DA2BA1D32FA9F447EEF8AB4A82B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381165   (829743) от 05.05.2020
+
+Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klayman Shuffle
+02. Olley Oxen Free
+03. Everybody Way Oh
+04. Rock'n'Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E6C3377A2FD3DA8294985027BC93EF7E193FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380951   (829748) от 05.05.2020
+
+Inon Zur - Syberia II (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 2 (Main Theme)
+02. Valadilene Dream
+03. Romansbour
+04. The Youkol's(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE84D5FFB67C703866B08721C0A0C400176AAE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380949   (829763) от 05.05.2020
+
+Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 3 (Main Theme)
+02. Thrill Of Nature
+03. Dark Force In Motion
+04. Call Of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E939C45AB0C7ACB199E2BBFDD340B1ABA35341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501928   (830003) от 13.10.2021
 
 Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -209,491 +693,6 @@ Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114433   (831675) от 15.03.2017
-
-Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Pacific (00:36)
-02. The Beach (01:28)
-03. Project Monarch (02:02)
-04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B967794B2AEAD2C7D0BA2557126E0B8B5687BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113833   (831682) от 15.03.2017
-
-Mgzavrebi / Мгзавреби - PROстранства (2015) [WavPack|Lossless|image + .cue] <Folk, Pop-Rock, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Просыпается заря (2:45)
-02. Наливайте (2:59)
-03. Если ты протянешь мне руку (3:03)
-04. Я придумал (3:22)(   Читать дальше...   )Жанр: Folk, Pop-Rock, PopПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0334860B18F1D5EBA70C568FDFFF0F8712C0DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114430   (831961) от 15.03.2017
-
-Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Pacific (00:36)
-02. The Beach (01:28)
-03. Project Monarch (02:02)
-04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC72C160C14135BF6F7180B79B1FECDCA621AAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114701   (831965) от 15.03.2017
-
-Joe Bongiorno - Synfonia (2015) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face to Face
-02. Melancholy Morning
-03. Love's Light
-04. With You, in Spirit(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7A938FC31F4E93DA2F10D7176F4CB19B2D3770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114700   (832069) от 15.03.2017
-
-Joe Bongiorno - Synfonia (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face to Face
-02. Melancholy Morning
-03. Love's Light
-04. With You, in Spirit(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A600AAEC338D93BBA4D451536ABB903BA6341921
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195076   (832121) от 24.04.2010
-
-Shastro - 8 альбомов (1994-2001) [MP3|320 kbps]<NewAge, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offering
-02. Spirit Of Reiki
-03. Touching Silence
-04. Gratefulness
-05. Gift of Light
-06. CommunionЖанр: NewAge, Meditative, WorldПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379923   (832525) от 03.05.2020
-
-Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cuando te miro 04:12
-2. Los secretos del viento 04:38
-3. Ángeles	05:34
-4. Reflejos	03:53(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD70DE05449FC0B1B4C71A5CC16BE8220B6E232
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114252   (833295) от 14.03.2017
-
-Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks] <Score, Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Expanse (01:04)
-02. Hostage (03:13)
-03. Signal (02:10)
-04. Welwala (02:17)(   Читать дальше...   )Жанр: Score, Soundtrack, AmbientПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991D3C1477CEC19C7DFDB2F10ED6362578ECCF21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114304   (833502) от 14.03.2017
-
-Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilling Funk Nights
-02. October Sun
-03. White Couch
-04. Schwabing Nights(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C420D652B826B04D280C7CF4B42FF7BDB9066504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114030   (833505) от 14.03.2017
-
-Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flamenco, Latin, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luna Blanca - El Dorado
-02. Fuegoitaliano - Rumba Del Sol
-03. Bino Dola - Venta De Vargas
-04. Luna Blanca - Rio Mamoré(   Читать дальше...   )Жанр: Flamenco, Latin, InstrumentalПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE14E9240E2A76465641230318FD29D710015A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501567   (833634) от 11.10.2021
-
-Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флейта Пана (Pan Flute) - общее название многоствольных флейт, древнейшего музыкального инструмента, существовавшего еще до нашей эры. Название связано с мифом о древнегреческом боге Пане, покровителе пастухов. На всех изображениях Пан играет на сиринге (греческое название флейты Пана), а в Помпеях найдена скульптура, на которой Пан обучает Дафниса игре на сиринге. (   Читать дальше...   )01. The Brîu of Oltenie (2:19)
-02. Song of Iancu Jianu (3:16)
-03. An Ill Blackbird (2:34)
-04. Hora Slow (1:57)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344D4EA1D0501B412203BD1E81CA4C3C719359D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004097   (834354) от 08.04.2016
-
-Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834354.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Dies 02:44
-2. Skin 02:48
-3. Late Nights 02:57
-4. Kinky Love 02:55(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8793BBC85F58BAA1EBD1BE842DC3BC7711124D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004934   (834355) от 08.04.2016
-
-Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vocal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Kiss Before You Go    01:16
-02. I Will Dance (When I Walk Away)    03:50
-03. Cherry Pie    03:01
-04. Land Of Confusion    03:39(   Читать дальше...   )Жанр: Pop, Folk, VocalПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509845   (834402) от 02.05.2020
-
-Птицы - Курские Соловьи (2004) [FLAC|Lossless|image + .cue] <Звуки Природы>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Курские соловьи (01:19:56)Жанр: Звуки ПриродыПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9C53976CFE6CF5979C0454E02EAEE0B8AA5EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380409   (834906) от 02.05.2020
-
-Евгений Крылатов - Крылатые Качели (1994) APEX Records [FLAC|Lossless|tracks] <Vocal, Soundtrack, Theme>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хор п/у В. Попова - Крылатые Качели (03:17)
- 02. Хор п/у В. Попова - Прекрасное Далеко (03:18)
- 03. А. Миронов - Песенка О Шпаге (02:48)
- 04. Хор п/у В. Попова - Колыбельная Медведицы (03:27)(   Читать дальше...   )Жанр: Vocal, Soundtrack, ThemeПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882B9D7758E8AA2810C076E64546A7A3E09726CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113899   (835239) от 13.03.2017
-
-Joe Bongiorno - Love's Light (Solo Piano) (2016) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's Light [00:04:24]
-02. Call of the Canyon [00:04:37]
-03. Fly for Her [00:04:54]
-04. Surreal [00:04:20](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3181758F5D77CDFFCD074EAD25CE2A0B211FBCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378985   (835890) от 01.05.2020
-
-Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Their Footsteps 02:49
-2. A Solomn Journey 03:15
-3. Spirit of Kaloko 02:45
-4. Loko 'ia 01:55(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B7CAC0AB47500844CE769296109C4AD4589294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380107   (835912) от 01.05.2020
-
-Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lonely Shepherd
-02. For A Few Dollars More
-03. Lose Yourself
-04. Hold The Line(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C5DE0FC8D45A7FE0D1456CE3D2E1DABFFE2E1D
 ```
 
 

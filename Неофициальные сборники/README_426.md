@@ -1,3 +1,111 @@
+###  Публикация: 1290098   (681972) от 18.03.2019
+
+VA - Empire Records - Strip (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Rudolph - A Glimpse Of Joy
+02. The Apocalypse Blues Revue - Evil Is As Evil Does
+03. Big Wolf Band - Love That Hurts
+04. Duke Robillard - Come With Me Baby(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB609CCDE99E25A1A681643FE52586A0CDDF598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290086   (681984) от 18.03.2019
+
+VA - не Громкие новинки недели 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alliel - Encore
+02. Better - Гори Ясно
+03. DJ Jedy feat. VITA - Именно Я
+04. DJ Vianu - Stuck In My Brain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DF2239119DC6278D5F76960503BB722A074340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289693   (681988) от 18.03.2019
+
+VA - DubStep Pro V.35 (2013) [MP3|320 Kbps] <DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - 13 Angels On My Broken Windowsill (Fractal Remix)
+02. Silkie - Time Delay (Original Mix)
+03. Mutated Mindz - Moshing N Rocking (Original Mix)
+04. Cottonmouth feat. Holly Grey - Revel In Me(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E0C8BEF363130E8D5D626BC3A4027C9F17F42B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029512   (682065) от 26.06.2016
+
+VA - Natural Instinct: Mode Relax (2016) [MP3|320 кб/с] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jako Diaz - Youth (Alex Hook Remix)
+002. Jan Blomqvist feat. Elena Pitoulis - More
+003. On An On - Drifting (RAC Remix)
+004. Blank & Jones - Illusion(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3E81DDE4200B41EE0C8B26ED9D8B79D7FE68B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290015   (682073) от 18.03.2019
 
 VA - Cr2 Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -599,120 +707,6 @@ VA - СупердискотЭка Радио Рекорд 80-х 50/50 (2012) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2CCC08BDFBB9CBA7AEA488F73AF7627E6B3137B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507743   (683561) от 08.06.2012
-
-VA - Жаркая Июньская Дискотека (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683561.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лавика - Качели (DJ Melloffon Remix) (4:31)
-2. АЖУР - Город (Remix) (3:05)
-3. Пачуля - Жаркое Лето (Fidel Wicked Radio Edit) (3:21)
-4. Jennifer Lopez feat. Pitbull - Dance Again (3:57)
-5. Adrian Sina feat. Diana Hetea - Back To Me (Radio Edit) (3:50)
-6. DJ Richi - Пляж (Radio Mix) (4:11)
-7. Макс Волга - Ты Одна Такая (4:12)
-8. Travis Garland - Right Here (3:23)
-9. Тринна - Взорви Моё Сердце (4:02)
-10. DJ Bobo - Everybodys gonna dance (Bryce remix edit) (3:12)2012Жанр: PopПродолжительность: 06:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DEA22CC96549F64865E6A63D4B73B8E5D90594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029125   (683669) от 25.06.2016
-
-VA - Дискотека 2016 Dance Club Vol. 152 от NNNB (2016) [MP3|320 кб/с] <Dance, Club, Pop, Dubstep, Breaks, Trap, Twerk, Bass, D'n'B, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RoelBeat & Pruchkovsky feat. Vika Grand - Ocean Drive (Radio Edit)
-02. Arash feat. Snoop Dogg - OMG (Radio Edit)
-03. Calvin Harris - This Is What You Came For (feat. Rihanna)
-04. Rich Edwards feat. Cozi Zuehlsdorff - Where I'll Be Waiting (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Pop, Dubstep, Breaks, Trap, Twerk, Bass, D'n'B, Chill OutПродолжительность: 12:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C56A2F3F56BBEDAF1EA4D521AE9EB1F822DE7DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289645   (683731) от 17.03.2019
-
-VA - Знакомые все лица...Rock 90-х (зарубежный выпуск) (1990-1999) [MP3|320 Kbps] <Hard Rock, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Maiden - Be Quick Or Be Dead (03:25)
-02. Helloween - Goin' Home (03:52)
-03. Accept - Rich And Famous (03:14)
-04. Gamma Ray - Lust For Life (05:19)(   Читать дальше...   )Жанр: Hard Rock, Metal, RockПродолжительность: 08:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98D702C7C48C9FA56510BEE9FE2053541BC9AAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029097   (683906) от 25.06.2016
-
-VA - Retro Vintage Vocal Jazz (2016) [MP3|320 кб/с] <Vocal, Smooth Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alma Cogan - Dreamboat
-002. Glen Gray - In The Mood
-003. Peggy Lee - Fever
-004. Shirley Bassey -Жанр: Vocal, Smooth Jazz, BluesПродолжительность: 08:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F66FE721E64352DD3CABAC6D40A51327CC8CA8
 ```
 
 

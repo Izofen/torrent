@@ -1,3 +1,30 @@
+###  Публикация: 1275129   (790949) от 10.01.2019
+
+Boney M - The Magic 2 CD (2019) (Compilation) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painter Man
+02. Silly Confusion
+03. Sunny
+04. Fever(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFB8EBE03163B7A36A086D33BCC8D9D63917222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387534   (791299) от 02.06.2020
 
 VA - Hopes For Tomorrow (2020) [MP3|320 Kbps] <Pop Lyric, Romantic>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:363C6D26A866B2F8496B8936E21D3E26078D1E55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A698BC1258A3005967B541BA73B81F75895F257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508950   (796168) от 10.11.2021
-
-VA - My Beath Summer: Pop Musical Collection (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Bieber - Peaches
-002. Aitana - Menos
-003. (Dis)Amore - Ti Stavo Lontano
-004. Ava Max - My Head & My Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532D39D756EB802B1576FFF52635204005788B23
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1288174   (697504) от 10.03.2019
+
+VA - Pop Lolipop (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697504.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lily Allen - Come On Then
+002. Eder Rocky Maurer - Am Rosenhuegel
+003. Kevin Chomat - La Vague
+004. Laserdance - Colonize All Planets(   Читать дальше...   )Жанр: PopПродолжительность: 14:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4129769815F4DBF45CFDB7416846E944DD7CDD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288180   (697640) от 10.03.2019
+
+VA - German Top 40 DBC Deutsche Black Charts 08.03.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyga - Girls Have Fun
+02. Chris Brown - Undecided
+03. Mustard - Pure Water
+04. Chaka Khan - Hello Happiness(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7A91D9C56A5DA70573BCCBC5E802B493A77B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402748   (697719) от 16.08.2020
+
+VA - Record Super Chart 649 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBro - Юность (3:39)
+02. twocolors - Lovefool (3:10)
+03. Zivert feat. NILETTO - Fly 2 (3:25)
+04. Topic feat. A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212EFEDE178E4F050D9E2F0DA1DB78A42293E6DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288110   (697774) от 10.03.2019
+
+VA - Record Super Chart 577 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+02. Ilkay Sencan - Do It (3:51)
+03. Sofi Tukker & ZHU - Mi Rumba (3:20)
+04. Mark Ronson feat. Miley Cyrus - Nothing Breaks Like A Heart (3:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD756BAEDB6ABEA217FD21EB76CBBD964C62B85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288283   (697862) от 10.03.2019
+
+VA - Empire Records - Fake 6 (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone - Motif (Robert Nickson Remix)
+02. Kiyoi & Eky feat. Khairy Ahmed - Little Angel (Extended Mix)
+03. Josh Dirschka & Gravitega - Trinity (Original Mix)
+04. Sean Mathews - Come Alive(   Читать дальше...   )Жанр: TranceПродолжительность: 03:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DD62D5195B2B79D43AD8A4AEA0930C236CE2BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288221   (697866) от 10.03.2019
 
 VA - German Top 50 Official Dance Charts 08.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -560,141 +695,6 @@ VA - EUROMANIA: Rave Hits vol. 1-4 (2015) [MP3|320 Kbps] <Eurodance, Rave, Techn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E96792346A3035F56C78895DE15FA348B727144D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132673   (698787) от 10.05.2017
-
-VA - Cosmical Odissey: Synthetic Musical Mix (2017) [MP3|192-320 Kbps] <Spacesynth, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698787.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3Rd Planet - Planet Rock 6:32
-002. Amandi - Digital Attack 5:57
-003. Aphelion - Endless Flight 6:35
-004. Digital Oblique - White Planet 5:43(   Читать дальше...   )Жанр: Spacesynth, Synthwave, ElectronicПродолжительность: 08:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8CFD323A67DAE9E21BC20A7E0D21BEEF30A7CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132639   (698788) от 10.05.2017
-
-VA - Synthetics Drive (2017) [MP3|192-320 Kbps] <Synthpop, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698788.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mflex - Shining Echoes 7:01
-002. Robert Marlow - Smile (Reset Remix By Angst Pop Feat. Technomancer) 4:54
-003. Dynatron - Fireburner 3:58
-004. Rossetti's Compass - My Beloved (Abi's Electro Mix By Angst Pop Feat. Technomancer) 3:16(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 10:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2D1B35DD6437F3479ACA77D60CED7E627EDEE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132647   (698791) от 10.05.2017
-
-VA - 100-ка популярных весенних хитов от Европы Плюс. Версия № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698791.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Belak - Невыносимая 2:58
-002. Галамартовна - Ермакова 3:12
-003. Андрей Леницкий - Она 4:10
-004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DD7AABF8EAA33254FDA33CF40A8A35E7C55F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221087   (698806) от 22.04.2018
-
-VA - Spring Essentials: April House (2018) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrick Topping - Be Sharp Say Nowt (Original Mix)
-002. Shashaf - Monkey Fun (Original Mix)
-003. KDA & Patrick Cash - Hate Me (Original Mix)
-004. Bicep - Metro (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F8FFB6966C4A6C6C4ED4F7E7F3D70898DD5378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132965   (698860) от 10.05.2017
-
-VA - Топовая сотня весенняя от Хит FM. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наташа Турбина - Маша 3:09
-002. Иван Тетенов - Море Магнит 3:20
-003. Ласковый Шепот - Не Говори Мне 4:47
-004. Константин Легостаев - Религия Любви 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4C83224D5BB9AA3515C1E008E77F8C08D48946
 ```
 
 

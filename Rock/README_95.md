@@ -1,3 +1,165 @@
+###  Публикация: 1472042   (1014640) от 23.05.2021
+
+Maneskin - Teatro d'ira - Vol. I (2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - zitti e buoni [00:03:14]
+02 - coraline [00:05:00]
+03 - lividi sui gomiti [00:02:45]
+04 - i wanna be your slave [00:02:53](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379AFFA51521900A4604301D49562A90E47F6257
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471887   (1014850) от 22.05.2021
+
+Pennies by the Pound - Heat Death Of The Universe (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Waters 06:49
+02. Strange Matter 01:18
+03. Strange Stars (Lies Closer To Truth Than Beauty) 05:32
+04. 139 04:13(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B78B2A6375EEA9605029E317647FF849A22C63D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468805   (1016763) от 10.05.2021
+
+Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engagements 1969-70 [MP3|320 Kbps] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blue Suede Shoes (International Hotel August 1969) [00:02:17]
+02 - I Got a Woman (International Hotel August 1969) [00:02:38]
+03 - All Shook Up (International Hotel August 1969) [00:02:47]
+04 - Love Me Tender (International Hotel August 1969) [00:03:29](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07C9ACABE9E565C71EEE3139A0678138F0F7F03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468034   (1017416) от 06.05.2021
+
+The Mars Volta - La Realidad De Los Suenos (2021) Box Set, Vinyl [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tremulant EP:
+01 Cut That City (05:43)
+ 02 Concertina (04:54)
+ 03 Eunuch Provocateur (08:48)Жанр: Progressive RockПродолжительность: 07:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4260B3775ADFFB4F6E212594662B1EC3DC4292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467635   (1017771) от 04.05.2021
+
+Force 10 - Force 10 (1981) LP [MP3|320 Kbps] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watanabe (3:56)
+02. Hypnotized (4:57)
+03. (I Fell So) Amused (3:43)
+04. Pictures (Of My Favorite Things) (6:04)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41E1F5D60CA68AC2639E4670B2791819E682FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466649   (1018061) от 02.05.2021
+
+Lez Zeppelin - The Island Of Skyros (2021) [MP3|320 Kbps] <Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Battle Of Evermore [00:05:48]
+02 Achilles Last Stand [00:09:55]
+03 Rain Song [00:07:41]
+04 Immigrant Song [00:02:23](   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB36C29F4446203CDE07037B264756B1EE89B589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467090   (1018082) от 02.05.2021
 
 Black Veil Brides - 8 Albums (2010-2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
@@ -533,168 +695,6 @@ Snake Bite Whisky - Black Candy (2021) [MP3|320 Kbps] <Glam Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:223BD0DE77A8326B291A22921DD92B2636F5E660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458142   (1024034) от 28.03.2021
-
-The Dirty Mojo Blues Band - It Is What It Is (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Blues [00:04:37]
-02. Dirty Dog [00:02:47]
-03. Missin You [00:04:04]
-04. Pb and Jam [00:04:38](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E165652BCBBEA11C5BDAF10DDE72183B9F4917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457908   (1024040) от 28.03.2021
-
-The Quill - Earthrise (2021) [MP3|320 Kbps] <Stoner Rock, Heavy Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hallucinate [00:04:12]
-02 - Keep On Moving [00:03:23]
-03 - Dwarf Planet [00:07:18]
-04 - Left Brain Blues [00:03:58](   Читать дальше...   )Жанр: Stoner Rock, Heavy Blues RockПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB41118E9136F208A07C0677AA8372CA063B8C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457889   (1024041) от 28.03.2021
-
-Damon Fowler - Alafia Moon (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave It Alone [00:04:59]
-02. I've Been Low [00:04:16]
-03. Alafia Moon [00:04:34]
-04. Make The Best Of Your Time [00:05:40](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF65ACC486064D23A6462D13DB6F7736133473B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458144   (1024042) от 28.03.2021
-
-Gaelle Buswel - Your Journey (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Journey [00:03:29]
-02. Last Day [00:03:45]
-03. All You Gotta Do [00:03:51]
-04. Razor's Edge [00:04:52](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B2A8E6B6DB2A78D90BF2FBC42CDB618A68C0F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458162   (1024081) от 28.03.2021
-
-Trettioariga Kriget - Till horisisonten (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:49]
-02 - In Memoriam [00:07:38]
-03 - Tidigt [00:04:35]
-04 - Staden [00:06:38](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAF5EAA6B8BED64A035DE6BEA30FC08769AAA1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457531   (1024431) от 26.03.2021
-
-dArtagnan - Feuer & Flamme (2021) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024431.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. C'est la vie
-2. Feuer & Flamme
-3. Farewell
-4. Feste feiern(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBD95A321264A0E4E91EA48CB271F593D10D33A
 ```
 
 

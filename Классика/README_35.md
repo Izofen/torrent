@@ -1,3 +1,189 @@
+###  Публикация: 1393419   (767601) от 30.06.2020
+
+Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Ambient>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Poetry (3:03)
+ 02. Mer de velours (3:35)
+ 03. Larmes glacées (3:24)
+ 04. A Forest Bird Never Wants a Cage (2:09)(   Читать дальше...   )Жанр: Modern Classical, Piano, AmbientПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0349AA8A5C891478974977AD697451BA0E0974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278958   (767671) от 27.01.2019
+
+Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movement I
+02. Movement II
+03. Movement III
+04. Movement IV(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125473   (767752) от 15.04.2017
+
+Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Ambient, Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No title  (05:16) 
+02. Cuddle  (03:31) 
+03. Stream  (03:25) 
+04. Circus  (03:10) (   Читать дальше...   )Жанр: Piano, Ambient, ClassicalПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79ED2E7545E8EF6708A7A8A06548A0FD8333114E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392052   (769798) от 24.06.2020
+
+Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something I Said (1:02)
+02. Pretty Sure We've Met Before (1:01)
+03. Almost But Not Quite (1:02)
+04. I Will Walk You Home (2:11)(   Читать дальше...   )Жанр: Modern Classical, Solo Piano |Продолжительность: 00:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285C8A2D38A326E205DE06E850A23A811558DEEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016451   (770074) от 14.05.2016
+
+VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano,  Easy Listening, Pop-Rock>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из очередной командировки привез музыку для отдохновения из сери Simply (остальные публикации из этой серии найдете по ссылке внизу). У этого двухдискового сета есть две особенности. Первое, это сокращенное переиздание четырехдискового сета, вышедшего в 2008 году. Так что здесь собраны самые сливки. И второе, каждая сливка на этом сете с одной стороны очень узнаваема, (   Читать дальше...   )CD1:
+01. The Chris Ingham Orchestra - Come Away With Me  (3:11)
+02. The Chris Ingham Orchestra - You're Beautiful  (3:12)
+03. The Chris Ingham Orchestra - Moon River  (3:36)(   Читать дальше...   )Жанр: Piano,  Easy Listening, Pop-RockПродолжительность: 02:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB486EA7B821DAF8AF8EDA6335D2A88FE41AEE12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016357   (770156) от 14.05.2016
+
+N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Снегурочка (2008) [APE|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770156.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Пролог. Вcтупление и сцена Весны с птицами.
+02. Пролог. Речитатив и ария Весны.
+03. Пролог. Речитатив.(   Читать дальше...   )Жанр: OperaПродолжительность: 02:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661A597A8DC5140B0AB04A96EC591573E06BAECD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661127   (770639) от 26.05.2013
+
+V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED77444AE1E7EC888D19467D36A689E605BB3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015777   (770956) от 13.05.2016
 
 VA - 100 лучших произведений классики (2010) [MP3|256 кб/с] <Classical>
@@ -501,195 +687,6 @@ Concerto No. 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205369   (783464) от 10.02.2018
-
-Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/18. Hent I (2:56)
- 02/18. Pern (4:27)
- 03/18. Hent II (1:15)
- 04/18. Porz Goret (4:56)(   Читать дальше...   )Жанр: Neoclassical, Contemporary, PianoПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203972   (784019) от 08.02.2018
-
-Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto In D Major, Op. 61
-
-A	Allegro Ma Non Troppo
-B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204264   (784031) от 08.02.2018
-
-Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 100 G Major "Military"
-A1	Band 1: Adagio; Allegro
-A2	Band 2: Allegretto
-A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204738   (784272) от 07.02.2018
-
-The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Daniel Harding (2017)2CD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Die Meistersinger von Nürnberg (1868)
-01.Vorspiel (III)
-02.Sachs: Was duftet doch der Flieder so mild (II, “Fliedermonolog”)
-Tristan und Isolde (1865)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6023A457FB85AAD13FC7A9705F9BA521D5B4B8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204816   (784278) от 07.02.2018
-
-Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Scene 1: Introduction
-02.Scene 2: Cosa dite! Ma cosa dite! (Tarabotto, Isabella)
-03.Scene 3: Ebben, che ascondi a Tarabatto (Isabella, Tarabotto)
-04.Scene 4: Qual tenero diletto (Bertrando)(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204760   (784286) от 07.02.2018
-
-Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 No. 1, Overture
-02 Act I, No. 2, "Tocchiamo! a gaudio insolito" (Chorus)
-03 Act I, No. 3, "Ciel, ch'io respiri!"
-04 Act I, No. 4, "Salvami to, gran Dio"(   Читать дальше...   )Жанр: Opera,ClassicalПродолжительность: 02:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204032   (785233) от 04.02.2018
-
-The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics (1998) [FLAC|Lossless|image + .cue] <Instrumental, Classical, Easy Listening>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785233.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Habanera From 'Carmen' (Bizet) (2:30)
-02. O My Beloved Daddy (O Mio Babbino Caro) From Gianni Schicchi (Puccini) (2:41)
-03. 'Tis the Last Rose of Summer (Flotow) (3:47)
-04. Adagio From Spartacus (Khachaturian) (3:33)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCFBE216704AE39F73CE577040DC07ECE4AC175
 ```
 
 

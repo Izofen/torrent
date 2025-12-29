@@ -1,3 +1,165 @@
+###  Публикация: 991733   (904332) от 29.02.2016
+
+VA - Душевные песни радио Шансон (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виталий Аксёнов - Нина
+02. Сергеич Арзамасский - До Свидания Лагерь
+03. Александр Корецкий - Осколки Счастья
+04. Юрий Кость - Дай Мне Шанс Долюбить Тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E86EB8B20ECA0DCE2F58FC81C2563E3938F3FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991757   (904361) от 29.02.2016
+
+VA - Bass Attack: Great Compilation (2016) [MP3|320 кб/с] <Drum And Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904361.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klax - Amnesia (Original mix)
+002. Shield, Ordure - Dumflad (Original Mix)
+003. Ganja Kru - Super Sharp Shooter
+004. Alex Reece - Pulp Fiction(   Читать дальше...   )Жанр: Drum And Bass, DubstepПродолжительность: 10:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C61DDAC85E367F1677119310C70E1E287E4AEE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992050   (904443) от 29.02.2016
+
+VA - Trance Traveling 74 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_904443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax - Warmrider (Extended Mix) (07:06)
+02. Local Heroes - Ares (Original Mix) (04:30)
+03. Gareth Emery feat. Wayward Daughter - Reckless (Extended Mix) (03:30)
+04. Yuri Kane & Ana Criado - Running Wild (04:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FDC149F2B903F5F1D9139A0FC8B332FB4F4EC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991763   (904449) от 29.02.2016
+
+VA - Blonde Pleasures: 25 Sexy Relaxing Anthems (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The X Lounge - Look
+02. Beta Ensemble - Room Five Room
+03. Dan Haany - Late Night Lounge
+04. Formentera Quartett - Lover(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84354441F417ED850B9C664ADF3D22A64598A018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991727   (904453) от 29.02.2016
+
+VA - Теплая атмосфера на радио шансон (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904453.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Краев - Любимой Женщине.mp3
+002. Виталий Волк - Русалочка.mp3
+003. Александр Келеберда - Мы Как Яблоки В Снегу.mp3
+004. Игорь Добролевский - Мир На Двоих.mp3(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AACDBB8E92E1326AEBC14F0C2F2ED484A3E683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991737   (904455) от 29.02.2016
+
+VA - На Волне Шансона (2016) [MP3|256-320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Шпехт - Она кого-то ждёт (03:40)
+02. Кира Дымов - Хулиганская (03:40)
+03. Стас Михайлов - Там (03:40)
+04. Дмитрий Миронов - В Глазах Твоих (03:41)(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D3EAFC91D0CCF7432D420E98F1C64825E79EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992009   (904458) от 29.02.2016
 
 VA - Dancefloor Hits State Tribute (2016) [MP3|258-320 кб/с] <House, Tropical, Future House, Club, Tribal, Progressive>
@@ -537,168 +699,6 @@ VA - 1EDM: Funky Club House (2017) [MP3|320 Kbps] <Funky, Club, Electro, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C4C13F72DBB574C9563A860A37A6F9F4EC4046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099511   (905428) от 01.02.2017
-
-VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Redgi - Можешь 3:04
-002. Jolya Pi - Не Играем 2:34
-003. Даша Данилова - Останься В Прошлом 4:15
-004. Роза Мажонц - Мадонна 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAA87F4ED03977F718A61D71742CA66CA7CBC17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099505   (905432) от 01.02.2017
-
-VA - Полный отрыв. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905432.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tori Kelly - Don't You Worry 'bout A Thing 4:02
-002. Olisha - Не Трави 3:53
-003. Тина Кароль - Lost In The Rain 3:18
-004. Регина Тодоренко - Не Обижу 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA34C75592B45C28AE89D356E6460157D505B757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099379   (905436) от 01.02.2017
-
-VA - Finding Around Blessing (Energy Tech Trance) 001 (2017) [MP3|320 Kbps] <Trance, Harmonic, Stadium Trance, Melodic, Energy, Tech-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vadim Spark & Dennis Graft - Spells (Attila Syah Remix)  6:23
-02.  Fabio XB & Marell feat. Christina Novelli - Can't Let Go (LTN Remix)  5:42
-03.  Aurora Night vs Iversoon & Alex Daf - Osiris (Original Mix)  6:51
-04.  Damian Wasse - United States (Original Mix)  6:52(   Читать дальше...   )Жанр: Trance, Harmonic, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265C5E092DB4A884E106099793E470318BA4FC96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099491   (905438) от 01.02.2017
-
-VA - Танцевальная зима. Снежная сотка. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905438.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Шоуа - Как Жаль 4:02
-002. Егор Крид - Мало Так Мало 3:07
-003. Adlernebel - The Forgotten Trail 8:39
-004. Junge - Chasing Your Shadow 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54A33826F6FEE82B4D98A827385C16F0D7DE986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368994   (905576) от 22.03.2020
-
-VA - Progressive Electro: EDM Party (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_905576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Tyler - Everytime
-002. Mste - Raster Flash
-003. Rigel - Singularity Spike
-004. Katrin Souza - A Dark Forest(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73D92C67E107AAFDC2D26285D850D45A2F844B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369083   (905580) от 22.03.2020
-
-VA - Beatport Tech House: Electro Sound Pack #35 (2020) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905580.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sala - Siouxsie
-002. Chris Knipp - Baldhead
-003. Gianni B Goode - My Desire (Techno Mix)
-004. Jan Darsel - Dark Butterfly(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 11:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2D397455E54035994B8050B608592C0D88C197
 ```
 
 

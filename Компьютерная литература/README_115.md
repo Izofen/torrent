@@ -1,3 +1,28 @@
+###  Публикация: 1439690   (1039451) от 14.01.2021
+
+Джозеф Албахари, Бен Албахари | C# 9.0 Карманный Справочник (2021) [EPUB] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039451.jpg" />
+</div>
+
+
+###  Подробнее
+
+When you need answers about using C# 9.0, this tightly focused and practical book tells you exactly what you need to know without long intros or bloated samples. Succinct and easy to browse, this reference is an ideal quick source of information and can be used as a guide to get you rapidly up to speed if you know Java, C++, or an earlier C# version.
+All programs (   Читать дальше...   )Жанр: ПрограммарованиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613595   (1039470) от 18.02.2023
 
 П. Лузанов и др. | Postgres 15. Первое знакомство (2023) [PDF]
@@ -610,30 +635,6 @@ magnet:?xt=urn:btih:1B24630A16FCB27B2523ED7E3EAF4165FBBC11D8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AF001734CD273C83DC24B3C542E65E33DF563C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692879   (1043109) от 04.02.2023
-
-Кёртис Вагспак / Curtis Waguespack | Освоение / Mastering Autodesk Inventor 2014 and Autodesk Inventor LT 2014 [2013] [PDF] [EN]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное руководство о мощном программном обеспечении - Autodesk® Inventor® 2014.Язык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1875D3A1B45B39BBF62144B51828B14B4348CEAE
 ```
 
 

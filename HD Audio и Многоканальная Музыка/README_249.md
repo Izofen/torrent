@@ -1,3 +1,84 @@
+###  Публикация: 1205577   (783152) от 11.02.2018
+
+Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koi No Kisetsu (3:23)
+ 02. Yuzuki (2:25)
+ 03. Shinjuku Sodachi (2:57)
+ 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205785   (783180) от 11.02.2018
+
+10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Dare You (4:14)
+02. Lazy Ways (4:21)
+03. I Wanna Rule the World (3:58)
+04. I'm Mandy, Fly Me (5:22)(   Читать дальше...   )Жанр: Art-Rock, Pop RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204978   (783986) от 08.02.2018
+
+Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Everything You Got (4:38)
+ 02. Damn Your Eyes (4:34)
+ 03. Black Coffee (4:15)
+ 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203660   (785217) от 04.02.2018
 
 Pink Floyd - Atom Heart Mother (1978) EMS-80320 [FLAC|Lossless|tracks] <Rock Style, Psychedelic Rock>
@@ -614,87 +695,6 @@ A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200363   (796143) от 20.01.2018
-
-Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Love Is Stronger Than Pride (4:17)
-A2. Paradise (4:02)
-A3. Nothing Can Come Between Us (4:24)
-A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011018   (797359) от 26.04.2016
-
-Inside The Music: Classic Rock (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797359.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bad To The Bone - George Thorogood & The Destroyers
-2. Rebel Yell - Billy Idol
-3. Green Eyed Lady - Sugarloaf
-4. When The Night Comes - Joe Cocker(   Читать дальше...   )Жанр: new waveПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEF7D230B8CAD933A76473113D32317132CB7FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273829   (799329) от 03.01.2019
-
-Roger Shah - Music For Meditation, Yoga & Any Other Wellbeing Moments (2016) [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio]] <Relax, Ambient, Chillout>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Close Your Eyes [07:23]
-2. Inner Peace [07:07]
-3. Island Of Calm [08:09]
-4. Quiet Your Mind [07:01](   Читать дальше...   )Жанр: RelaxПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374E0B229F62FB2EA88E0CFA8EA07315D88D87C6
 ```
 
 

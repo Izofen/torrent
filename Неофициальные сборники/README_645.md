@@ -1,3 +1,165 @@
+###  Публикация: 971577   (985851) от 03.01.2016
+
+VA - Top Club Music World Hits 10116 (2016) [MP3|320 кб/с] <Bigroom, Tropical, Dance, Future House, Nu Disco, Tech-Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue5even - Oceania (Maglev Remix) 05:36
+02. Doublev Vs Antillas & Dankann - Goliath (Original Mix) 05:48
+03. Makhaon - Somniare (Original Mix) 05:14
+04. Zuubi - Ride The Waves (Original Mix) 06:30(   Читать дальше...   )Жанр: Bigroom, Tropical, Dance, Future House, Nu Disco, Tech-TranceПродолжительность: 03:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6ED5364BF5FAFE3F7972CBFE1CC571C0DE8E382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971421   (985856) от 03.01.2016
+
+VA - Amnezia Best Of 2015 (2015) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies ft. Janieck Devy - Reality
+02. Otto Knows - Next To Me
+03. Anna Naklab ft. Alle Farben - Supergirl
+04. Dimitri Vegas & Like Mike ft. Ne-Yo - Higher Place(   Читать дальше...   )Жанр: DanceПродолжительность: 08:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654EB7048D3C1AF4C338C1CEB8DCD28C9296F5D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971445   (985937) от 03.01.2016
+
+VA - Cinema Lounge Vol 1 (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Junior - Now We Are Free (From Gladiator) (06:41)
+02. Nacho Sotomayor - Love Theme (From Blade Runner) (04:15)
+03. Ram J - The Kiss (From The Last of the Mohicans) (06:01)
+04. Tabula Rasa - My Heart Will Go On (From Titanic) (05:47)(   Читать дальше...   )Производство: House D'ArretЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE255A4932DAD55081D41B803E197246AF6B125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971306   (985942) от 03.01.2016
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Soulful, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beach Lovers - Illusion (Original Mix) 03:10
+02. Daniel Curley - Body Thrill (South Pacific Mix) 03:54
+03. The House Freelancers - Fast And Slow (Original Mix) 06:49
+04. Jason Jinx - Family Patterns (Roger Figuereira Mix) 05:22(   Читать дальше...   )Жанр: Downtempo, Soulful, Deep HouseПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E64A217E221182118E37DC5E69DD44E921C3DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971583   (985944) от 03.01.2016
+
+VA - World 2016 Future (2016) [MP3|264-320 кб/с] <Club, Tropical, Future House, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Micar Feat. Nico Santos - Brothers In Arms (Extended Mix) 04:38
+02. Sugarstarr Feat. Alexander - Hey Sunshine (Antonio Giacca Remix) 06:43
+03. Refex - My Sweetheart (Mann & Meer Remix) 06:27
+04. Samurize - Killer Instinct (Edit) 03:26(   Читать дальше...   )Жанр: Club, Tropical, Future House, Indie DanceПродолжительность: 04:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C35E5C25C839F64331B20586701E2C68C817A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971476   (986013) от 03.01.2016
+
+VA - Lovers Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luigi & Riccardo - Sambella
+02. Oscar Salguero - Chillout Night
+03. James Jensen - Walk on By
+04. Schwarz & Funk - Velvet Dreams(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: | 03:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB649806F669699E7ECFF3AFE1D088923F788AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971451   (986025) от 03.01.2016
 
 VA - January DJ News (2016) [MP3|320 кб/с] <Funky, Club, Tech-House>
@@ -548,168 +710,6 @@ VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5484CAD89F4718D4EFEC9AFDC447E546D49B8354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610333   (988292) от 31.01.2013
-
-VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard Hot 100.
-Существует и «братский» хит-парад альбомов — UK Albums Chart (найдете по ссылке в дополнительной информации).
-Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FAC037C3835666E3E6787F9B5D57D97A3EF071
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970976   (988496) от 01.01.2016
-
-VA - 100 Platinum Hits Dance & Masters Workout (2015) [MP3|320 кб/с] <Commercial, Vocal, Club, Euro, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Winter - I'm On Fire (Extended Mix) 05:02
-02. Bass Inferno Inc - Lightning (Radio Edit) 03:05
-03. Nicy - Waiting For Love (Smithee Remix Edit) 03:21
-04. Jj & Dj Oskar - I Want You Forever (Dj Oskar Mix) 06:36(   Читать дальше...   )Жанр: Commercial, Vocal, Club, Euro, DiscoПродолжительность: 08:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8636353A3671E7A035A7B45EBCAA91465172155D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971040   (988594) от 01.01.2016
-
-VA - Kontor Top Of The Clubs 2016.01 (2015) [MP3|320 кб/с] <Bigroom, Nu Disco, Future House, Tropical, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deejay Y - Over the Rainbow (Original Mix) [05:24]
-02. Jerome & Eric Chase - Close to You (Extended Mix) [04:25]
-03. Sigala - Easy Love (Radio Edit) [02:40]
-04. Stereoact - Die immer lacht (Extended 2016 Mix) (feat. Kerstin Ott) [05:17](   Читать дальше...   )Жанр: Bigroom, Nu Disco, Future House, Tropical, Indie DanceПродолжительность: 08:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CB1A543DBADA5337B5D049DA51962893F9E419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971031   (988627) от 01.01.2016
-
-VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afro Paris - Solar Sides 06:49
-02. Everything Is Changing - Groove Collective 07:09
-03. Summer - Booster 07:22
-04. Heartfixer - Heartfixer 03:33(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu SoulПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6CE4F2D9129703AF2D891875AF71F69E5E2138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971174   (988657) от 01.01.2016
-
-VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progressive House, Power Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Terence - Feel That Vibe 04:22
-02. J & V - Walk Away (Randy Norton Edit) 04:54
-03. Trancemaster File - Time To Say Goodbye 08:54
-04. Naxwell - Living On Video (Radio Mix) 04:00(   Читать дальше...   )Жанр: Club, Progressive House, Power ElectronicsПродолжительность: 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B16C99016BA7BEB66DF08587A21A670B9C1DC77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354241   (988868) от 21.01.2020
-
-VA - Роза Января (2020) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Andre TAY - Снежная Ночь (5:02)
-2.Александр Вестов - Загадаю Желание (3:06)
-3.Александр Забазный - Памяти Друга (3:47)
-4.Александр Курган - Потом (3:19)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDDA7EF31BD0BBBC6F8ED036909F47D00496C6B
 ```
 
 

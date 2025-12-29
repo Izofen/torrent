@@ -1,3 +1,30 @@
+###  Публикация: 1129621   (720437) от 29.04.2017
+
+Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720437.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bambino
+02. Gondolier
+03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531772   (720646) от 16.02.2022
 
 Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -376,6 +403,33 @@ magnet:?xt=urn:btih:389F95BF754872AE1A3890B74B3984F759A915A2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668016   (725436) от 14.06.2013
+
+Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_725436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 You're My Heart, You're My Soul 	(4:02)
+02 You Can Win If You Want 	(3:42)
+03 Cheri, Cheri Lady 	(3:36)
+04 Brother Louie 	(4:02)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128729   (726254) от 26.04.2017
 
 Gipsy Kings - The Real... Gipsy Kings (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
@@ -641,60 +695,6 @@ Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022201   (729526) от 01.06.2016
-
-The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How I Love (Everything About You)
-02. Dum Dum
-03. Long Last Night
-04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022180   (729879) от 01.06.2016
-
-Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Girl
-02. Faint of Heart
-03. Boyfriend
-04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
 ```
 
 

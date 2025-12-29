@@ -1,3 +1,57 @@
+###  Публикация: 1396637   (745501) от 16.07.2020
+
+Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дикая вода
+02. Мужчина моей мечты
+03. Тобi здається
+04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282002   (746407) от 11.02.2019
+
+VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano & Romina Power - Liberta
+02. Collage - Donna Musica
+03. Pupo - La Notte
+04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281988   (748419) от 10.02.2019
 
 Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
@@ -639,60 +693,6 @@ The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279937   (763524) от 01.02.2019
-
-Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony (feat. Zara Larsson) (03:32)
-02. Baby (feat. Marina & Luis Fonsi) (03:25)
-03. Solo (feat. Demi Lovato) (03:43)
-04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394477   (763750) от 05.07.2020
-
-The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FOMO (05:06)
-02. Angel Of My Life (04:00)
-03. So Did I (04:12)
-04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
 ```
 
 

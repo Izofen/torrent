@@ -1,3 +1,165 @@
+###  Публикация: 1483102   (1007023) от 12.07.2021
+
+VA - D&B Master Box (2021) [MP3|320 Kbps] <Drum & Bass, Dubstep, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Slk - Game Changer
+002. Afterlife - Still Jazzy
+003. Annix & Fade Black - Dismantle
+004. Arxiva - Full Cycle(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, BasslineПродолжительность: 07:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129554836050A968433733084B1FF9F2489AF175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483094   (1007032) от 12.07.2021
+
+VA - Neon Mania: Synth Electronic DJ Mixtape (2021) [MP3|320 Kbps] <Synthwave, Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sandrow M - Disco Schlamboni
+002. Rvds - Moon Operator
+003. Iron Curtis - Against My Window
+004. Intelligenza Artigianale - User Space(   Читать дальше...   )Жанр: Synthwave, SyntheticПродолжительность: 11:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B44A95C77DB708BBC8024E6E7F1A54D5092343D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615475   (1007063) от 11.07.2021
+
+VA - Sex у нашому селі (2007) [MP3|256 кб/с]<folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007063.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Коломийка вітальна
+2	Коломийка весільна
+3	Зятьок
+4	Чорнобривці(   Читать дальше...   )Жанр: folkПродолжительность: 06:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DE067828DFB5D48F0773154BF574C836079105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482989   (1007140) от 11.07.2021
+
+VA - Record Super Chart 10.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Nessa Barrett feat. jxdn - la di die (3:15)
+03. Markul, Джарахов - Я в моменте (2:06)
+04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A420E104DB0EAFF4A4758D01F85140FE380252C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482627   (1007404) от 09.07.2021
+
+VA - Music News vol.114 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007404.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Azealia Banks - Fuck Him All Night (02:56)
+ 002. Afrojack & David Guetta - Hero (Damien N-Drix Remix) (03:37)
+ 003. Ян Марти - Водка, Лёд, Мартини (03:12)
+ 004. Afrojack & David Guetta - Hero (Nicky Romero Remix) (03:12)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7867A233B2956A208C47EDBB1FD61E6CCB4FE80D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482682   (1007409) от 09.07.2021
+
+VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 1975 – The Sound (04:08)
+02. Grimes – Kill V. Maim (04:06)
+03. Foals – Mountain at My Gates (04:04)
+04. Arctic Monkeys – Do I Wanna Know? (04:32)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 06:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA402E5FC2C3D464C20A06AD548DFC7D3FC95FF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482505   (1007594) от 08.07.2021
 
 VA - Romantic R&B Sunday (2021) [MP3|320 Kbps] <R&B, Soul>
@@ -533,168 +695,6 @@ VA - The Great Jazz Code (2021) [MP3|320 Kbps] <Jazz, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFABBF8E663AEB3CF87A0737D26B54AF2323EF24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481305   (1008288) от 03.07.2021
-
-VA - Everybody Clap: Disco Party (Vol.04) (2021) [MP3|320 Kbps] <Disco, Remix>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008288.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Jansen - Red Threads
-002. Skyy - Let's Celebrate
-003. Decameron - Just A Little Dance
-004. Jungle Fire - Culebro(   Читать дальше...   )Жанр: Disco, RemixПродолжительность: 09:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D0524834C7708557541D7BC225E1CE4AD69485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481302   (1008345) от 03.07.2021
-
-VA - Beatport Drum And Bass: Sound Pack #311 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Degs, Nutone - The Connection
-002. Bartholomew Kind - Get Well Soon
-003. Heist - Back To Hers
-004. Flipnosis - Playing With Fire(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 08:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF0DBF869DA12C11B2E8EF1A3303C2CBF21D938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842104   (1008402) от 02.07.2021
-
-Чип и Дейл (DJ RaiSky) - Все песни (2021) [MP3|320 кб/с]<Юмор>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Анастасия Александровна, С днём рожденья (Cover Голубой вагон)
-02.В кафе сидел Кузнечик (Cover В траве сидел кузнечик)
-03.Всегда Мои Друзья Онлайн (Cover Когда Мои Друзья Со Мной)
-04.Детские Военные Новогодние Попурри(   Читать дальше...   )Жанр: ЮморПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3707DD2E1F44C0525D6F62020159E66D9A733302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481083   (1008467) от 02.07.2021
-
-VA - Beatport Deep House: Sound Pack #310 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nopi - Coral Soul
-002. The Official Bug - Soul Food
-003. Phonika - Abandoned By Mercy
-004. Hernan Cerbello - Roasted(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4728FAB8C423B0D3440934049AD44C77CB81AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481078   (1008483) от 02.07.2021
-
-VA - Beatport Electro House: Sound Pack #309 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Exon Bacon - Sunny Days
-002. The Golden Boys - Afrobeat
-003. Eins Tiefer - Photon
-004. Fred Everything - True(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1019DAE98BA3D43409E9D3B6DEEBE13B2D8BCB13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481072   (1008543) от 01.07.2021
-
-VA - Shazam Хит-парад World Top 200 Июнь (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Måneskin - Beggin' (3:31)
-002. Justin Wellington, Small Jam - Iko Iko (My Bestie) (3:02)
-003. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
-004. Doja Cat, SZA - Kiss Me More (feat. SZA) (3:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558B24D6C0EED395B721B13998DDB9DE219AE49
 ```
 
 

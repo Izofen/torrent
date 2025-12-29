@@ -1,3 +1,57 @@
+###  Публикация: 1401903   (705145) от 12.08.2020
+
+The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705145.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Saw Her Standing There
+A2 Too Much Monkey Business
+A3 I'll Get You
+A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131738   (706397) от 06.05.2017
+
+Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706397.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. L'Italiano (3:58)
+A2. Solo Noi (4:04)
+A3. Soli (4:04)
+A4. Donna, Donna Mia (3:01)(   Читать дальше...   )Производство: Jugoton - LSY 10026Жанр: PopПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025204   (710094) от 12.06.2016
 
 Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Breaks, Trip Hop, Tribal>
@@ -640,60 +694,6 @@ B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Прои
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399102   (734306) от 29.07.2020
-
-Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Motorrennerrock
-A2 Der Kater
-A3 Heut' Spielt Hier 'Ne Soul-Band
-A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528269   (734960) от 01.02.2022
-
-The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734960.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Spirits In The Material World
-A2 Every Little Thing She Does Is Magic
-A3 Invisible Sun
-A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
 ```
 
 

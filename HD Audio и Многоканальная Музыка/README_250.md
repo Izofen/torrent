@@ -1,3 +1,84 @@
+###  Публикация: 1200363   (796143) от 20.01.2018
+
+Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love Is Stronger Than Pride (4:17)
+A2. Paradise (4:02)
+A3. Nothing Can Come Between Us (4:24)
+A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011018   (797359) от 26.04.2016
+
+Inside The Music: Classic Rock (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797359.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad To The Bone - George Thorogood & The Destroyers
+2. Rebel Yell - Billy Idol
+3. Green Eyed Lady - Sugarloaf
+4. When The Night Comes - Joe Cocker(   Читать дальше...   )Жанр: new waveПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEF7D230B8CAD933A76473113D32317132CB7FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273829   (799329) от 03.01.2019
+
+Roger Shah - Music For Meditation, Yoga & Any Other Wellbeing Moments (2016) [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio]] <Relax, Ambient, Chillout>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799329.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Close Your Eyes [07:23]
+2. Inner Peace [07:07]
+3. Island Of Calm [08:09]
+4. Quiet Your Mind [07:01](   Читать дальше...   )Жанр: RelaxПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374E0B229F62FB2EA88E0CFA8EA07315D88D87C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121901   (799579) от 03.04.2017
 
 KOTO - Plays Synthesizer World Hits (1990)  [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
@@ -625,87 +706,6 @@ Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008740   (813553) от 19.04.2016
-
-Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
-</div>
-
-
-###  Подробнее
-
-• The Montreux Album •
-
-01. The Girl Can't Help It  3:48
-02. Power of Love  1:58(   Читать дальше...   )Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117989   (814903) от 24.03.2017
-
-Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallin' Apart at the Seams (5:19)
-02. Gypsy Road (3:55)
-03. Don't know What You Got (Till It's Gone) (5:54)
-04. The Last Mile (3:52)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008532   (815255) от 18.04.2016
-
-Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smooth-jazz, new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815255.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Through The Lens
-2. Grasslands
-3. Flowers
-4. Clockwork(   Читать дальше...   )Жанр: smooth-jazz, new ageПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A3C004ED197BFD75B3C70845F87362723AE935
 ```
 
 

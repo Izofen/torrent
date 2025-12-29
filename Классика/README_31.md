@@ -407,6 +407,63 @@ magnet:?xt=urn:btih:7A9B4AC34D5B30F07CF89F698B45D9BD2BBB7AA5
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 180920   (665736) от 17.06.2012
+
+Peter Bjargo (Pettersson) - Arcana / Sophia - 21 albums (1996-2012) [FLAC/APE/WV|Lossless] <Dark Ambient, Neoclassical, Martial Industrial>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_665736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Architecture Of Melancholy (06:47)
+02. Bitteresque (04:43)
+03. The Hidden Compass (03:59)
+04. Apathy (05:08)
+05. A Wheel Of Thoughts (04:05)
+06. The Death Of Our Sun (05:24)
+07. Sleep DepLoop1 (10:12)1996-2012Жанр: Dark Ambient, Neoclassical, Martial IndustrialПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511836   (665813) от 17.06.2012
+
+A Silver Mt. Zion - 8 albums (2000-2012) [FLAC|Lossless] <Experimental, Neoclassical, Post-Rock>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_665813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What We Loved Was Not Enough (Part 1) (05:16)
+02. What We Loved Was Not Enough (Part 2) (05:31)
+03. The State Itself Did Not Agree (06:13)
+04. Psalms 99 (06:20)2000-2012Жанр: Experimental, Neoclassical, Post-RockПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137729   (666490) от 27.05.2017
 
 VA - Peaceful Piano (2017) [MP3|320 Kbps] <Classical, Piano>
@@ -428,6 +485,38 @@ VA - Peaceful Piano (2017) [MP3|320 Kbps] <Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77B885F3ABB06887F010AC5BC999592E134B2C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511588   (667164) от 16.06.2012
+
+Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experimental, Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dog River (03:28)
+02. Walking Through Mist (03:34)
+03. Last Waltz (05:50)
+04. Trampolin (04:42)
+05. Snow Day For Lhasa (05:15)
+06. Sprouts (07:35)
+07. Little Streams Make Big Rivers (03:32)
+08. Au Crépuscule, Sans Laisse (03:04)
+09. Fish On Land (06:46)2003-2011Жанр: Post-Rock, Instrumental, Experimental, NeoclassicalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -504,6 +593,30 @@ VA - 100 Piano Masterworks (2017) [MP3|320 Kbps] <Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2298694C836AEB3A537CEE52E0181D2119572672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 167580   (670680) от 20.05.2015
+
+Совместный проект Юга де Курсона (Huges de Courson) и Ахмеда аль Магреби (Ahmed al Maghreby) - Моцарт в Египте / Mozart in Egypt (1997) [FLAC|Lossless]<Classic - Ethnic>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic - EthnicПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -612,114 +725,6 @@ New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE1A0D8E305A7E7C7C04B8372231FE3FD43B6BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899309   (673100) от 19.05.2015
-
-Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orchester) (1983) [FLAC|Lossless]<Classical, Romantic Period, Song, Dance, Prelude, Incidental, Lullaby>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (Act I) - Wedding Scene (05:14)
-02. Wedding March (03:11)
-03. Prelude Act II (Abduction & Ingrid's Lament) (03:51)
-04. In The Hall Of The Mountain King (02:43)(   Читать дальше...   )Жанр: Classical, Romantic Period, Song, Dance, Prelude, Incidental, LullabyПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F7979713662D693A9C04157FC2FA8F803AC706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223288   (673302) от 05.05.2018
-
-Berdien Stenberg - Pirouette (1987) [FLAC|Lossless|tracks + .cue] <Classical-crossover, Instrumental, Flute music>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Coppelia, Mazurka + Waltz (L. Delibes) (3:51)
-02 Danzas Espanolas (E. Granados) (4:21)
-03 Solvejg's Song from ''Peer Gynt Suite'' Op. 46, No. 1 (E. Grieg) (3:24)
-04 Nutcracker (P.I. Tchaikovsky) (2:34)(   Читать дальше...   )Жанр: Classical-crossover, Instrumental, Flute musicПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29948F4C1D98696B4EE36296ACAC39641A31B0BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899032   (675343) от 18.05.2015
-
-Mozart - Le nozze di Figaro (Herbert von Karajan & Vienna Philharmonic Orchestra) (2CDs) (1990) [FLAC|Lossless]<Classical, Opera, Classical Period, Comic Opera, Opera Buffa>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Le nozze di Figaro, opera, K. 492
-01. Act 3:Crudel! Perche Finora Farmi Languir Cosi? (02:44)
-02. Act 3:Hai Gia Vinta La Causa (04:59)
-03. Act 3:Riconosci In Questo Amplesso (04:55)(   Читать дальше...   )Жанр: Classical, Opera, Classical Period, Comic Opera, Opera BuffaПродолжительность: 01:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5D385AF5384FD3AC291143AF0BE5FB3026D3C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536228   (676573) от 11.03.2022
-
-Lise Davidsen, Leif Ove Andsnes, Edvard Grieg - Edvard Grieg (2022) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676573.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1]-[8] Haugtussa (The Mountain Maid), Op.67
-[9] Six Poems, Op.25 - II. En Svane (A Swan)
-[10] Six Poems, Op.25 - IV. Med en Vandlilje (With a Water-Lily)
-[11] Six Elegiac Songs, Op.59 - III. Til Én (To Her) (I)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CA5B30A29537A57437A6DED50AF248701362F7
 ```
 
 

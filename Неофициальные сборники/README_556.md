@@ -1,3 +1,159 @@
+###  Публикация: 1113267   (837489) от 11.03.2017
+
+VA - Club Dance Dependence vol.3 (2017) [MP3|320 Kbps] <Club , Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837489.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afrojack Ft. Luis Fonsi - Wave Your Flag (Original Mix) 3:13
+002. Alan Walker - Alone (Andrey Proto Remix 2017) 4:02
+003. Alan Walker - Alone (Lost Frequencies Remix) 6:44
+004. Andrea del Vescovo - Just  A Bit Of Luv (Tumba Mix) 6:38(   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 06:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5D773CDE438739905D6B5EB949DA6F0C62687A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310252   (837895) от 18.03.2011
+
+VA - Radio Record present: Progressive House (2011) [MP3|256 kbps]<Club, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Club, DanceПродолжительность: 07:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD21503CBA8587516593F7D89F10C8C31181D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310325   (837908) от 18.03.2011
+
+VA - Звездный Суперхит 50/50 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0006866D992A9B6C46A41F26B7C77E6513180A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004401   (837925) от 06.04.2016
+
+Ольга Арефьева и Ковчег - Батакакумба (1995) [MP3|320 кб/с] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорога в рай
+02. Скорее пой
+03. Магия чисел
+04. На хрена нам война(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE24F7B2708612325118CA1AC0CBC8CFFB7B0C3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501145   (837994) от 08.10.2021
+
+VA - Music News vol.139 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анастасия Рэй - Я Смогу (02:39)
+ 002. 24kGoldn feat. Lil Tecca - Prada (02:32)
+ 003. A7S - Nirvana (Header Remix) (03:17)
+ 004. Aimee - Just A Phase (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F724DEC9370EEF07A31B0846FD40CCD7919520DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004435   (838064) от 06.04.2016
+
+VA - Горячая Дискотека По-Заявкам (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
+02. Авиатор - В Твоих Глазах
+03. Greyson Chance - Hit & Run
+04. Чи-Ли - Ангел На Моем Плече(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683BD728F3316CA6B95A981AE4EFCD308DA5DE2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113508   (838078) от 11.03.2017
 
 Fleetwood Mac - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
@@ -533,168 +689,6 @@ VA - German Top 50 Official Dance Charts 10.03.2017 (2017) [MP3|320 Kbps] <Pop ,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5538351A237010DE857C2682B69959C51AB73A78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113234   (838635) от 11.03.2017
-
-VA - Молодежный хитовый бум. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Март Бабаян - Выходи За Меня 3:57
-002. Kristina Si - Гасим Свет 3:58
-003. Мария Миа - Я Буду 2:50
-004. Вика Воронина - Мое Сердце 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D73B9C3A8CA2F6C210FF96B66A39C8837C1A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113206   (838644) от 11.03.2017
-
-VA - Neotrance Vol.8 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Neotrance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Definition - Elysium 7:31
-002. Moonwalk - Retrox 6:54
-003. Nick Devon - Skyline (Mallone's City Lights Remix) 7:26
-004. Savino & William Medagli - En Route On Mind (Feat Thallulah) 8:08(   Читать дальше...   )Жанр: NeotranceПродолжительность: 03:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432E3A86F47F14305FC85B8F283AAE3CE4F7CC2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113212   (838708) от 11.03.2017
-
-VA - Progressive House Vol.3 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sebastian Busto - Nature 9:09
-002. Techtower - Vanguard 9:26
-003. Dio S - Asma 6:08
-004. Loquai - Night Dive (Forerunners Remix) 8:26(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931927C6B7C0F9B45B0D273C13E8FA9B0471E086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379404   (838926) от 29.04.2020
-
-VA - Shazam Хит-парад Russia Top 100 Апрель (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838926.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Intelligency - Август 3:27
-002. El Capon - Shut Up Chicken 2:31
-003. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-004. Hafex - Intihask 2:51(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A17C573E6947841EF6E9B6DF3B8DE7022877602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379552   (838985) от 29.04.2020
-
-Uriah Heep - Best of the Best (1970-2011) (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 03:04:48
-02-01. The Hanging Tree (1977) (03:41)
-02-02. Been Away Too Long (1977) (05:03)
-02-03. Wise Man (1977) (04:42)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D9FB1CDF4FCF48F4C2B79D50A8853F7E441470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379506   (839073) от 29.04.2020
-
-Kingdom Come - 100% Kingdom Come (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Crying for the Moon
-02. Passion Departed
-03. Over You
-04. What Love Can Be(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5355AAC6AF7F77F30988EE244ED69CBE215C3CD1
 ```
 
 

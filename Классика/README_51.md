@@ -1,3 +1,210 @@
+###  Публикация: 611441   (977305) от 08.02.2013
+
+Liszt - Complete Tone Poems Vol.1 & Vol.2 (Bernard Haitink & London Philharmonic Orchestra) (1993) 4CD [FLAC|Lossless]<Classical, Romantic Period, Symphony, Tone Poem>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orpheus, symphonic poem for orchestra, S. 98 (LW G9)    (11:09)
+02. Prometheus (I & II), symphonic poem for orchestra, S. 99 (LW G6)   (13:02)
+03. Mazeppa, symphonic poem for orchestra, S. 100 (LW G7)    (16:28)
+04. Festklänge (I & II), symphonic poem for orchestra, S. 101, (LW G10)    (19:44)Жанр: Classical, Romantic Period, Symphony, Tone PoemПродолжительность: 01:07:13
+
+01. Mephisto Waltz, for orchestra No. 1 (Der Tanz in der Dorfschenke; Episoden No. 2), S. 110-2 (LW G16-2) (15:10)
+02. Heroide funebre (I & II), symphonic poem for orchestra, S. 102 (LW G4) (27:03)
+03. Die Ideale, symphonic poem for orchestra, S. 106 (LW G106) (13:54)
+04. Von der Wiege bis zum Grabe (From the Cradle to the Grave), symphonic poem for orchestra, S. 107 (LW A424) (11:06)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615037   (977309) от 08.02.2013
+
+Antonio Lucio Vivaldi- The 37 Bassoon Concertos: English Chamber Orchestra Daniel Smith 5CD (1986-1991) /1996, ASV [WavPack (iso.wv)|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977309.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: ChamberПродолжительность: 01:10:22
+
+CONCERTO No.7 in A minor (RV497)
+1.	Allegro molto	3.20
+2.	Andante molto	3.08
+3.	Allegro	2.34
+CONCERTO No.8 in F (RV485)
+4.	Allegro non molto	4.04
+5.	Andante	2.39
+6.	Allegro molto	2.32(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BBE9871DA5286C112C4EB340FBF0BB80354AC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615196   (978417) от 07.02.2013
+
+Светлана Бережная - Орган - музыка релаксации (2002) [FLAC|Lossless]<Classical, Organ>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дж. Каччини - Ave Maria
+02. И. С. Бах - Хоральная прелюдия (Wer nur den lieben Gott lasst walten) BWV 642
+03. И. С. Бах - Пастораль BWV 590 (Часть первая Pastorella)
+04. И. С. Бах - Пастораль BWV 590 (Часть вторая Allemande)
+05. И. С. Бах - Пастораль BWV 590 (Часть третья Aria)
+06. И. С. Бах - Пастораль BWV 590 (Часть четвертая Gigue)
+07. Ф. Куперен - Tierce en Taille из Мессы №1
+08. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Adagio. Vivace)
+09. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Andante)
+10. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Un poco allegro)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE51C57CFAB758F53BF8E2CD409115EDC02519E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166137   (978576) от 13.01.2010
+
+VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|Lossless]<Classical, Фортепьяно>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это превосходная коллекция 100 лучших фортепьянных композиций. Гершвин, Григ, Бах, Бетховен и Моцарт, Мусоргский... - есть что-то для каждого, чтобы насладиться прекрасной музыкой! 100 лучших фортепьянных произведений для любого настроения в исполнении лучших пианистов мира.
+
+         Жанр: Classical -Формат: FLAC (Образ + .CUE)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973602   (978938) от 09.01.2016
+
+Rosetti - Sinfonies - Concerto Köln (Vol.1) (1995) [FLAC|Lossless|image + .cue] <Classical, Classical Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony in G minor, K 1 No 27
+01. Vivace (06:51)
+02. Menuet fresco: Allegretto - Trio - Menuet (03:10)
+03. Andante ma Allegretto (03:23)(   Читать дальше...   )Жанр: Classical, Classical Period, SymphonyПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42842A6B842E324C1E4CE7CCD060EB64CBF49AC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973590   (978946) от 09.01.2016
+
+Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .cue] <Classical, Recitals, Romantic Period, Chamber Music, Nocturne>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturne No. 11 in G minor, Op. 37 - I - Andante sostenuto (05:47)
+02. Nocturne No. 12 in G Major, Op. 37 - II - Andantino (05:57)
+03. Nocturne No. 13 in C minor, Op. 48 - I - Lento (06:45)
+04. Nocturne No. 14 in F sharp minor, Op. 48 - II - Andantino (07:18)(   Читать дальше...   )Жанр: Classical, Recitals, Romantic Period, Chamber Music, NocturneПродолжительность: 01:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614154   (980872) от 05.02.2013
+
+Антонио Вивальди - Времена года (2002) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна
+02. Лето
+03. Осень
+04. Зима
+
+Исполняет Английский камерный оркестр под управлением Леонарда СлаткинаЖанр: ClassicalПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAA694A337D1B89A25A7117524930D11B4155F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614122   (981032) от 05.02.2013
 
 VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
@@ -584,226 +791,6 @@ Ludovico Einaudi - In a Time Lapse (2013) [MP3|320 кб/с]<Neoclassical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9657D61294D66813D4331E5049ECCDAE73F8AEFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608810   (992780) от 26.01.2013
-
-Antonio Lucio Vivaldi - 6 cello concertos: The Academy of Ancient Music Christopher Hogwood (1742)/1989, Decca [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto h-moll RV 424
-1. Allegro non molto 4:01
-2. Largo 2:50
-3. Allegro 3:30Жанр: ChamberПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0A51319962709EECE8014340945C9D059DDB00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353020   (993128) от 16.01.2020
-
-Secret Garden - Storyteller (2019) Japan Edition [FLAC|Lossless|image + .cue] <Neo-Classical, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pilot
-02. Beyond the Blue
-03. Beautiful
-04. Flow(   Читать дальше...   )Жанр: Neo-Classical, Classical CrossoverПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7ADF8B8CC87E66D9864E428E8DC4F317F79BE50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605904   (994780) от 22.01.2013
-
-Antonio Lucio Vivaldi-Bassoon Concertos: I Musici bassoon Klaus Thunemann 2CD (1985-1994)/2003, Philips [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994780.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: ChamberПродолжительность: 01:15:07
-Concerto in G major, RV 492
-sol majeur G-Dur
-1.	Allegro non molto	03:17
-2.	Largo	02:22
-3.	Allegro	02:31
-Concerto in B flat major, RV 503
-4.	si bemol majeur B-Dur Allegro non molto	03:36
-5.	Largo	02:42
-6.	Allegro	03:01(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C50A5E8CA4A1B817AC36D597E6581D4E8F2074B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605487   (995525) от 20.01.2013
-
-Antonio Lucio Vivaldi - Harmonic Inspirations: Concertos for Strings & Harpsichord for Strings & Orchestra (1994)/1999, Weton-Wesgram [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in A minor, Op.3/8
-01. - Allegro (4:00)
-02. - Larghetto (4:20)
-03. - Allegro (3:49)
-Concerto in B minor, Op. 3/10
-04. - Allegro (4:15)
-05. - Largo - Larghetto (3:20)
-06. - Allegro (3:33)
-Concerto for Strings and Harpsichord, in G Major
-07. - Presto (2:35)(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F6929AC331E6B0B0061F2AFA00D2DFACBD74C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605216   (995786) от 19.01.2013
-
-Wolfgang Amadeus Mozart–Mass C-Dur K.317, Exsultate K.165, Vesperae solennes K.339: Trevor Pinnock (1773-1780)/1994 Deutsche Grammophon/[WavPack](iso.wv)|Lossless]<Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mass C-Dur K.317 “Coronation” / “Kronungsmesse” (1779)
-1. Kyrie 3:17
-Andante maestoso – Piu andante – Andante maestoso
-2. Gloria 4:30
-Allegro con spirito
-3. Credo 6:24
-Credo in unum Deum – Allegro molto
-Et incarnatus est – Adagio
-Et resurrexit – Primo tempo
-4. Sanctus 1:52(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0662A6CAB5479F8D77833C0B09D326C9AF5D1E1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604651   (996061) от 18.01.2013
-
-Telemann, Albinoni, J.S. Bach, J-J. Mouret, Handel, Yon - Music for Trumpet and Organ: Festive Music (1999)/2003 Naxos [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Georg Philipp Telemann (1681-1767)
-1.	Air de trompette	0:57
-2.	Gayment		0:38
-3.	Air de trompette da capo	1:05
-Tommaso Albinoni (1671-1751)
-Concerto Saint Marc
-4.	Grave		2:10
-5.	Allegro	1:38
-6.	Andante	1:12
-7.	Allegro	1:54(   Читать дальше...   )Жанр: OrganПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5C3E599E01585967FDA7285D83529B8F83A9D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604680   (996129) от 18.01.2013
-
-VA-Charles Ives Symphony No 4 and No 2 (1999) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орманди обладал очень хорошей памятью и быстро запоминал все сочинения непосредственно по партитуре. Обычно при дирижировании он не пользовался ни палочкой, ни нотами. Звучание оркестра под его управлением отличалось чувственностью и точностью исполнения...
-(   Читать дальше...   )Symphony No 4 
-1. Prelude - Maestoso    [03:16]
-2. Allegretto    [11:24]
-3. Fugue - Andante moderato    [09:21]
-4. Largo maestosao    [09:01]
-
-
-Symphony No 2 
-5. Andante moderato    [05:52]
-6. Allegro    [13:27](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1363B3AE3F107AEF13E3D6D342CA32623B4046
 ```
 
 

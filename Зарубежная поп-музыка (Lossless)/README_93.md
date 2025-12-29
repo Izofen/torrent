@@ -1,3 +1,65 @@
+###  Публикация: 616140   (976259) от 09.02.2013
+
+VA - 2013 Grammy Nominees (2013) [FLAC|Lossless]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В ближайшее воскресенье (10.02.2013) состоится 55 по счету (можно сказать юбилейная) церемония награждения премией Гремми (Grammy) - Американской академии звукозаписи, которая учреждена Ассоциацией звукозаписывающих компаний США 14 марта 1958 года.
+Премия является одной из самых престижных наград в современной музыкальной индустрии, которую можно сравнить с премией «Оскар» в кинематографе.
+В этот раз интерес к ней подогрели просьбой номинантам и ведущим не выходить на сцену обнаженными, а уж грудь сестры Джексона (   Читать дальше...   )1. The Black Keys - Lonely Boy (3:13)
+2. Kelly Clarkson - Stronger (What Doesn't Kill You) (3:42)
+3. Taylor Swift - We Are Never Ever Getting Back Together (3:12)
+4. Gotye feat. Kimbra - Somebody That I Used to Know (3:28)
+5. Katy Perry - Wide Awake (3:39)
+6. Fun. feat. Janelle Monae - We Are Young (3:53)
+7. Florence + the Machine - Shake It Out (3:52)
+8. Pink - Try (4:01)
+9. Maroon 5 feat. Wiz Khalifa - Payphone (3:51)
+10. Carly Rae Jepsen - Call Me Maybe (3:13)(   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEEC2E12DACAC69ADD761F4AEB193A2026C6B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974269   (976616) от 11.01.2016
+
+VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Newman - Come And Get It (3:04)
+02. The Weeknd - Can't Feel My Face (3:35)
+03. Avicii - Waiting For Love (3:49)
+04. Lost Frequencies feat. Janieck Devy - Reality (Radio Edit) (2:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743030   (976965) от 07.01.2014
 
 VA - Мелодии Рождества (Коллекция рождественских песен и гимнов) (2001) [FLAC|Lossless]<Pop>
@@ -674,60 +736,6 @@ VA - Now 100 Hits Party (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E79D22B179D8F6F46C4FE9AA5F2FF0DCA2CF4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353542   (990698) от 19.01.2020
-
-Halsey - Manic (2020) [FLAC|Lossless|tracks] <Indie, Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley (3:06)
-02. clementine (3:54)
-03. Graveyard (3:02)
-04. You should be sad (3:25)(   Читать дальше...   )Жанр: Indie, Pop, AlternativeПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A46C2759E06B70FE22A86C3CEC779B830F09CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353613   (990699) от 19.01.2020
-
-a-ha - Stay On These Roads (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/20. Stay on These Roads (Early Version) (4:40)
-02/20. The Blood That Moves the Body (Demo) (3:39)
-03/20. Touchy! (Original Mix) (4:37)
-04/20. This Alone Is Love (Demo) (5:01)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4777B16D43A747DE825F5B16F6A9F53E3419022
 ```
 
 

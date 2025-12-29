@@ -1,3 +1,165 @@
+###  Публикация: 1000593   (857423) от 26.03.2016
+
+VA - DJ Tools Essential: DJ Samples DJ Mixtools (2016) [MP3|255-320 кб/с] <Club, Electro, Bass Music, Dubstep, Tribal, UK Garage>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857423.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moguai Feat. Cheat Codes - Hold On (Extended Mix) 03:56
+002. 4 Strings Feat. Eric Lumiere - Crazy (Original Mix) 06:47
+003. Knife Party And Tom Staar - Kraken 04:51
+004. Yoel Lewis - Monaco (Original Mix) 05:57(   Читать дальше...   )Жанр: Club, Electro, Bass Music, Dubstep, Tribal, UK GarageПродолжительность: 09:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2732093A679EEA94594772684120B6CDF28F8EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000605   (857427) от 26.03.2016
+
+VA - Новая Жажда Скорости Без Тормозов vol.3 (2016) [MP3|320 кб/с] <Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zario - Eyes On You (Original Mix)
+02. Blasco Feat. Szen - Hurt (Extended Mix)
+03. Norlak - Hurt You (Darklight Remix)
+04. Dr Rude - Apocalypse (Extended Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000564   (857448) от 26.03.2016
+
+VA - Давай, наливай. Сборник радио Шансон 4 (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виктор Барабанщиков - Сравнение
+02. Александр Дюмин - Братушка
+03. Виталий Волк - Русалочка
+04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109514   (857457) от 28.02.2017
+
+VA - Музыкальное зимнее настроение выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Monisha - Брюлли Диванны Автомобилли 3:32
+002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
+003. Катя Ростовцева - Целуй 3:55
+004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0D0595C01578B9AE96F3C386B5EE2ABEEAB461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109594   (857462) от 28.02.2017
+
+VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Omniks - Looking For You (Original Mix)  6:48
+02.  Tycoos & First Sight - Wonderland (Original Mix)  6:12
+03.  Raz Nitzan & Kate Louise Smith - This Time (Steve Allen Remix)  4:44
+04.  Delta IV - Forever Home (Betsy's Heart Pt. 2) (Original Mix)  9:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 01:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BF7922C416C79FA16739239B4B4EC40E9DB45E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000780   (857520) от 26.03.2016
+
+VA - Dr. Metal Presents: Vol.6 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857520.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Helloween-Battle`s Won
+002. Blazon Stone-Fire The Cannons
+003. Fireland-Ancient Time
+004. Luca Turilli-In The Mirror(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BA2662357AF392C0B95391C62BC83ADCF6B4D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000659   (857523) от 26.03.2016
 
 VA - Super Dance Party Vol.5 (2016) [MP3|320 кб/с] <Hands Up, Pop, House>
@@ -527,168 +689,6 @@ VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F05E2F667AFD1F7564C8CB337D53DBCC0CAEAEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109229   (859014) от 27.02.2017
-
-VA - The Most Live Rock'n'Roll (2017) [MP3|320 Kbps] <Rock 'n' Roll , Rockabilly>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Baseballs - The Sign 2:55
-002. Backdraft - Jumpin' Jive 2:58
-003. Ruby Dee and The Snakehandlers - Who You Think I Am 3:26
-004. The Montecristos - Born To Rock 'N' Roll 3:14(   Читать дальше...   )Жанр: Rock 'n' Roll , RockabillyПродолжительность: 03:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC39C4D596610D4AC7548757575D2B542DB9308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109347   (859017) от 27.02.2017
-
-VA - Record Super Chart #476 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Klaas - Riot  4:00
-02.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  4:23
-03.  Ofenbach - Be Mine (Amice Remix)  3:23
-04.  Armin van Buuren & Garibay - I Need You (Filatov & Karas Extended Remix)  4:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4EED70885A63872EA41FFDC4E3D7BF9DDD89A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376672   (859024) от 18.04.2020
-
-VA - The Official UK Top 40 Singles Chart 17.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. SAINt JHN - Roses (Imanbek Remix)
-03. Drake - Toosie Slide
-04. Dua Lipa - Physical(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6587E438C3A45E6A4DB54204415ED14BF6B8F830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000061   (859078) от 25.03.2016
-
-VA - Hits Disco & Pop Dance - Part I (2016) [MP3|256 кб/с] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dalida - Tico Tico
-02. Ray Charles - Hit The Road Jack
-03. Los Lobos With A Banperas - Canuon Del Mariachi
-04. Alan Price - Poor People(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B026A61AD6F2A820D93ACFD8E0FE28B6282056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109197   (859094) от 27.02.2017
-
-VA - Space Synth Noise (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Android - The Hole 2:26
-002. Quixotic - Highway Violence 5:52
-003. Angelo Taylor - Space Synth Noise 1:44
-004. Retroxx - Antogonist 4:56(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 07:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E1AB3958A404455AA61A8A88F4A3A25D28F511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109270   (859095) от 27.02.2017
-
-VA - Лучшая дискотека от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859095.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rozhden - Убегай 3:31
-002. Alesya Kay - Кто Мешает Любить 3:40
-003. Слава Басюл - Ты Меня Ранишь Поцелуями 4:45
-004. Станислав Сорока - Иди За Мной 3:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7550D60D30B489AD07D36BB4AAE054CA09E7C5C
 ```
 
 

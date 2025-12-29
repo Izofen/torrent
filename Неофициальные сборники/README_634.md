@@ -1,3 +1,165 @@
+###  Публикация: 979378   (959959) от 26.01.2016
+
+VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Moore - In the Sunshine - Original Mix
+02. Scott Navarro - Tell Me Why - Original Mix
+03. Nigel Scott - Disco Salsa - Original Mix
+04. Peter Cox - White Star - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979297   (959962) от 26.01.2016
+
+VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7 Baltic - Gold Rusch (David Gate Remix)
+002. Hi Profile - Archangel
+003. Memory Loss - Fugue State (Original Mix)
+004. Artisan, Linnea Schossow - You & I (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979575   (959963) от 26.01.2016
+
+VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell & Armin van Buuren - Off the Hook (Radio Edit)
+002. Kollektiv Turmstrasse - Sorry I Am Late
+003. Sander Van Doorn & Sunnery James & Ryan Marciano - ABC (Extended Mix)
+004. Technasia, Green Velvet - Suga(   Читать дальше...   )Жанр: Tech, Deep, Progressive HouseПродолжительность: 09:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360276   (960294) от 15.02.2020
+
+VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A$AP Ferg - Value (2:47)
+2.AJR - Bang! (2:50)
+3.Anivar feat. Adamyan - Руку Держи (3:57)
+4.Anne-Marie - Birthday (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360378   (960630) от 15.02.2020
+
+VA - Rap NNM 2020 [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960630.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mac Miller - Good News (5:42)
+2.H.E.R., Pop Smoke, A Boogie wit da Hoodie, Chris Brown - Slide (4:56)
+3.Madchild, Tom MacDonald, Nova Rockafeller - Sober (4:33)
+4.NF - Time (4:00)(   Читать дальше...   )Жанр: RapПродолжительность: 03:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5493A3DF4D8E3C48AD2E7EC124486111A17C2E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979079   (960816) от 25.01.2016
+
+VA - Blues Forever vol.08 - vol.12 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blues Forever vol.09
+01. Pepe Ahlqvist - Dont Leave Me Again
+02. John Lawton - Tomorrow
+03. Sherman Robertson - In The Here And Now(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747821   (960907) от 20.01.2014
 
 Александр Барыкин - Лучшие песни (4CD) (1981-2011) (2014) [MP3|320 кб/с]<Rock, Reggae, New Wave>
@@ -531,168 +693,6 @@ VA - Late Night Vibe: Romantic R&B (2020) [MP3|250-320 Kbps] <R&B, Sou>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDE5E78CA74ADD7171CBF0F709FE528E0932BF3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359947   (963161) от 13.02.2020
-
-VA - Немного песен о любви (2020) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963161.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Artemiev - Виды (4:00)
-2.Boogrov, Mana Island - Swarm (4:28)
-3.K.A.T.Y.A. - Кем была я (3:01)
-4.Mujuice - Химия (4:09)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A345E0D91C80B211F9C7CACEFBB3091122C543DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359742   (963163) от 13.02.2020
-
-VA - House In Space (2020) [MP3|320 Kbps] <Future House, EDM, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Go Satta - A Real Boy
-002. Jubba - Elemento Y
-003. Major K - Narwhal (Original Mix)
-004. Dom Kane - Tunnel Run(   Читать дальше...   )Жанр: Future House, EDM, ElectronicПродолжительность: 11:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65CBF250ED985696C785DC3351B697068D3C3A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359743   (963208) от 13.02.2020
-
-VA - Beatport Techno: Electro Sound Pack #11 (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Mood - Thoughts Are Clear (Original Mix)
-02. Dj Dextro - Reflection (Original Mix)
-03. Mari Mattham - Foggy Destiny (Original Mix)
-04. Suspect Boyz - Madrid (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, Electro, MinimalПродолжительность: 07:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32040658692C20C7673CA518FC7499B9FD5F1901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359737   (963217) от 13.02.2020
-
-VA - Back In The Future: Indie Pop Rock (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Oh Pep! - Bleeding Hearts
-002. They Owe Us - Rest My Mind
-003. Zach Rogue - Mrs. Santa Claus
-004. Ella Blixt - Hellsinkin(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 10:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F135038AE9576C8D4E530EDB66782FA53126B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359736   (963268) от 13.02.2020
-
-VA - Interior Lounge Sounds Vol.02 (2020) [MP3|320 Kbps] <Lounge, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hedflux, Alex Delfont - Manifolds
-002. Ron Sander - True Lies (Intense Mix)
-003. Nova Casa - Feel
-004. Juan Candados - Su Manzanu (Original Mix)(   Читать дальше...   )Жанр: Lounge, Relax, DowntempoПродолжительность: 09:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DBF15F86BB79CEDCB03AFB2D80A413BFB954BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978081   (963334) от 23.01.2016
-
-VA - Blues Forever (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Christian - Wholly Cats
-02. Carl Kress - Jazz in G
-03. Blind Lemon Jefferson - Shuckin' Sugar
-04. Lefty Frizzell - Long Black Veil(   Читать дальше...   )Жанр: BluesПродолжительность: 05:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7368E426704B83A57D282E980F4AC02696E95EA0
 ```
 
 

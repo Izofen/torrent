@@ -1,3 +1,300 @@
+###  Публикация: 1127233   (741127) от 20.04.2017
+
+VA - Suanda Classics Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Offshore Wind & Roman Messer - Suanda (feat. Ange) (Aurosonic Intro)  3:58
+02.  Photographer - Infinity (Radio Edit)  3:46
+03.  Roman Messer feat. Christina Novelli - Frozen (feat. Christina Novelli) (Radio Edit)  4:41
+04.  Simon O'Shine feat. Eskova - You May Love (Radio Edit)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118BC94D12EA626EEFD34825EDCEEB5F94A288FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126733   (741128) от 20.04.2017
+
+VA - La Maison La Rue Vol.4 (Pure Lounge For Now People) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Monte La Rue - When I Look  4:37
+02.  Faberge - Mother Of Pearl  4:14
+03.  Monte La Rue - Champagne Breakfast  3:54
+04.  Da Vince - Dimanche  4:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B333C3C2C461882C48A37E2B8B76ADFA9298EF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127241   (741129) от 20.04.2017
+
+Airform - Quantum (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival (In Mix) [00:04:12]
+02. Corpuscle (Original Mix) [00:06:11]
+03. Follow Me (Original Mix) [00:07:32]
+04. Red Stone (Original Mix) [00:05:46](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B42C85453DD864987C853D37F73DB46EF6B5AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283142   (741164) от 15.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 February (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tiesto - Traffic (Arkham Knights)
+02.Viper - Titty Twister (Jam El Mar Extended Remix)
+03.Markus Schulz Pres. Dakota - Searching (Daxson Extended Remix)
+04.Eli & Fur - Parfume (Dosem Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1453BA0B15796C72AB118743C15D2D4DFD40194F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127212   (741180) от 20.04.2017
+
+Felix Magnus Grossmann - Lounge & Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Malibu Beach 1975 (3:39)
+02.  Slipstream (3:32)
+03.  Miles Away (3:39)
+04.  Wanderlust (3:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9D47AA9D8371A09EF74C6EDEB0DC847C855180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126698   (741182) от 20.04.2017
+
+VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bsharry - Adagio 06:11
+02. Josh Nor - Space Sea 05:30
+03. Forever 80 - Automa D 05:05
+04. James Black Pitch - Origins 07:22(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769370AD0A9EEACAC190F0EF251EADCE9DA0A1E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126998   (741184) от 20.04.2017
+
+Nuta Cookier - Space Age (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Space Temple (9:09)
+ 02 – Ocean Travelling (8:34)
+ 03 – Saturn Breathe (7:47)
+ 04 – Space Age (6:00)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489274B60C508EE7F43B1AC57440ECE6C9414AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126943   (741192) от 20.04.2017
+
+VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sombra Modos - Shared Happiness  6:05
+02.  Sombra Modos - Botavara  5:34
+03.  Lamar Ensemble - Inspirational Shortcut  5:47
+04.  Lamar Ensemble - A Personal Perspective  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACA0960F826E6431370B19F7B427678D23A7435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126801   (741196) от 20.04.2017
+
+VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seldon Thaye – Tibet (Original Mix) (00:06:23)
+ 02. Nino Garcia – Marrakesh (Original Mix) (00:05:37)
+ 03. Mark Gaetani – Rwanda (Original Mix) (00:05:21)
+ 04. Alonso Di Uomo – Lynx (Original Mix) (00:04:39)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2997004D1509CEDEDF4FFEC4EB03CD065AA905F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126781   (741200) от 20.04.2017
+
+VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Neuroborus - Readout Output (Alternate Mix)  2:58
+02.  Green Grid - Reason Soul (Clip Version)  3:05
+03.  Sine Tunes - Tedium Street (Memo Export)  3:01
+04.  Keyright - Lakeside (Yellow Sun)  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126737   (741202) от 20.04.2017
+
+VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Benatural - Little  5:09
+02.  Ialaz - Waves  4:21
+03.  Lo Tide - Never Coming Back  4:01
+04.  Michiko - Outta Sight Outta Mind  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DD9B3C3FCA5940387F7ACE227751F51A9FED66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283139   (741232) от 15.02.2019
 
 BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
@@ -395,301 +692,6 @@ Phasenmensch - Discography 16 Releases (2009-2020) Hands Productions [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D10E3E760A2D2F5DD430014F00D49122075B4A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396962   (742640) от 18.07.2020
-
-Keoki - Ego-Trip (1997) Moonshine Music [FLAC|Lossless|tracks+.cue] <Breaks, Electro>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness (07:12)
- 02. Wicked (07:01)
- 03. Me (06:52)
- 04. Crash (06:28)(   Читать дальше...   )Жанр: Breaks, ElectroПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB64BDE0A3C0F1B8928D378EE962CA5E21B385D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396974   (742647) от 18.07.2020
-
-Lydia - Landscape (2020) Altar Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Progressive Trance, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landscape (Intro) (03:00)
- 02. Waves of the Ocean (07:26)
- 03. Echoes (07:33)
- 04. Levitate (07:37)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, Downtempo, AmbientПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1BAEB6FB879EA2707EE881310A5F71A784C7CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397027   (742696) от 18.07.2020
-
-Germind - Goa Elixir (2020) Plexus Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psychill, Tribal, Goa Trance, Acid>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Vibes (06:46)
-02. Tribe (05:49)
-03. Anomaly (07:31)
-04. Goa Elixir (06:18)(   Читать дальше...   )Жанр: Psychill, Tribal, Goa Trance, AcidПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DFC7D36A352FFAC1BF29E5110AB7459801920A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397028   (742698) от 18.07.2020
-
-And Exile - From Oblivion (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Open Void (04:27)
-02. Before It Swallows Us All (06:50)
-03. Bermuda Swing (05:27)
-04. Mariana's Trench (05:11)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA36E6828FF8D169AF8DECA6607E526FF9918A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396975   (742700) от 18.07.2020
-
-Lydia - Landscape (2020) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landscape (Intro) (03:00)
- 02. Waves of the Ocean (07:26)
- 03. Echoes (07:33)
- 04. Levitate (07:37)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, Downtempo, AmbientПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFE4BF81475F3FF5BC6349B560FBE241AA745BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217310   (743226) от 04.04.2018
-
-Phelian - Quadrivium (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo, Future Garage>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ainemra (02:56)
- 02. Forbidden (05:20)
- 03. Liturgy (05:28)
- 04. Amour (05:18)(   Читать дальше...   )Жанр: Ambient, Downtempo, Future GarageПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57ACAA0AE62409A6E3FCC2C40FB6906377735B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928676   (743294) от 13.02.2019
-
-Ott - Discography 12 Releases (2003-2018) [FLAC|Lossless|tracks+.cue, tracks]<Psydub, Downtempo, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Load Up At Nunney Catch (07:22)
- 02. Scilly Automatic (07:42)Тип издания: CD, Web, VinylЖанр: Psydub, Downtempo, Psychill •Продолжительность: 00:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978BD5B27F0A29A2CF98A368AF192BB024A8279A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217470   (743481) от 04.04.2018
-
-VA - United Colors Of Trance Vol.11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Inc - Strong
-02. Vol Deeman - Fantasy
-03. Daniel Wanrooy & Marc Simz - Komaru
-04. Ryoji Takahashi & EpicFail feat. Amy K - Moments(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47B86B589DBDF9FAE9A395DC5B471D2460CAA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217235   (743482) от 04.04.2018
-
-VA - Suanda Music Radio Top 15 (April 2018) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Xquizit - Empire Of Our Own (Alexander Popov Remix) (Feat. Osito) [3:23]
-02. Etasonic - Flying In A Dream (Ram & Cari Remix) [6:24]
-03. Ruslan Radriges - Wonderfull (Extended Mix) [5:17]
-04. Deep Fog - Open Your Eyes (O.B.M Notion Remix) (Feat. Djiva) [6:54](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C217F905C8B9C2D416F26CD3AA9C2B51225B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217452   (743483) от 04.04.2018
-
-VA - Tech Trance Essentials Vol.12 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Van Orton - The Scarlet Flower  (Phase II) (original mix)
-02. Alex Van Orton - Le Projet De Janvier (original mix)
-03. 2Sher - Illustrator (Illustration 1)
-04. 3rd Planet - Planet Rock (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339BCE27E434F626BFCDCD65DD8B6E998AD63958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217459   (743484) от 04.04.2018
-
-VA - Trance Generator (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.A.R.K.Y - Cloudless (Original Mix)
-02. Higher State of Trance - Memories (Extended Mix)
-03. Sunlight Project - Paths of Love (Original Mix)
-04. MarcW - Grey Day (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25414EB1008E4787D888CB470FBBF75C95D98FEB
 ```
 
 

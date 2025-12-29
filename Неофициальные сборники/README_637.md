@@ -1,3 +1,183 @@
+###  Публикация: 614745   (967804) от 16.02.2013
+
+VA- Dubstep Planet 4 (2013) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01..  Sub Focus ft. Kenzie May -  Falling Down (xKore Remix)  (5:04)
+02..  Zomboy -  Nuclear (Hands Up)  (5:16)
+03..  Skrillex & Alvin Risk -  Imma Try It Out  (3:50)
+04..  Sub Focus ft. Kenzie May -  Falling Down (VIP Mix)  (4:36)
+05..  ShockOne -  Chaos Theory (Dubstep Mix)  (3:26)
+06..  Flatland Funk ft. Tory D -  Lose Control (Callum B Remix)  (5:43)
+07..  Pixel Fist -  Shots & Straps  (4:20)
+08..  Skrillex & Damian Marley -  Make It Bun Dem (Teddy Killerz Remix)  (4:40)
+09..  Pegboard Nerds -  Self Destruct (Original Mix)  (3:33)
+10..  Bombs & Bottles -  I Will Take You There (RoughMath Remix)  (5:29)(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068298B06EF182F0A6A22FE14A35AA7D6AEBA12A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977019   (967835) от 19.01.2016
+
+VA - Morning Chill Out (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominique Langham - In the Middle of the Night
+02. Ayuthya - Dreamy Mood
+03. Philippe Bestion - Quiet Awakening 1
+04. Bruno Philip - Moment of Peace(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616B40F1F7D7EF8436F715A08F8F8157E762CCB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976856   (967837) от 19.01.2016
+
+VA - Private Lounge Cafe, Vol. 3 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill out Activity - Awentura - Original Mix (05:26)
+02. Red Sea Grooves - Freezone - Original Mix (04:22)
+03. Drummachill - Criterio - Original Mix (04:41)
+04. RD Project - Qotto - Original Mix (04:01)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A1D973F3AEAABAD4C8B46D598FFB5301AF342F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976873   (967868) от 19.01.2016
+
+VA - Luxury Chill Grooves - Cool Winter Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charly'n Black - C17H21N04 (03:28)
+02. Stuce The Sketch. Kim - Chillin' - Stuce The Sketch (03:20)
+03. Dub Mars - Always And Everywhere (05:52)
+04. Florent Campana - Et Dieu Pour Tous (03:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559BF223F2A8DA12F0E83B72D25C51AFFEE926F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618351   (967913) от 16.02.2013
+
+VA - Club Dubstep №28 (2013) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litov - You by Tim Ismag (Litov Remix)
+ 02. MitiS - Identity
+ 03. Moxix, Mojo - Shaolin Funk (Quartus Saul ft. Maksim Remix)
+ 04. Phrenik, Kezwik - Ready For Impact (feat. PLS DNT STP) (Original Mix)
+ 05. Quartus Saul - Dream Sequence (Original Mix)
+ 06. Reflux Ft. Romy Harmony - Prometheus (Fidgi edited)
+ 07. Roksonix - Ready To Rumble
+ 08. SirensCeol - Perpetual Motion
+ 09. Team Brooklyn ft. Chihiro - Friend No More
+ 10. Those Usual Suspects feat. Erik Hecht - Can't Hold On (Phetsta Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EEA2EE783557E155DECD8A00DE52AA9B1EED19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618438   (967923) от 16.02.2013
+
+VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grimblee - Mutilated Gore
+ 02. Camo and Krooked feat. Shaz Sparks - All Fall Down
+ 03. Jet Fly feat Nika p.m. - I Can Fly ( Dub Step Radio Mix)
+ 04. Friction - Led Astray (Culprate Remix)
+ 05. Knife Party - Internet Friends Original mix
+ 06. Delilah - Breathe Emalkay Remix
+ 07. BreakNoise – Re-Think (Arkasia Remix)
+ 08. Ellie Goulding - Lights Bassnectar rmx
+ 09. Emily Browning - Sweet Dreams (DJ WaY Dubstep Remix)
+ 10. Ellie Goulding – Hanging On (Sound Remedy Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C16C4F06281A92BCEE01933642DB1F986FA858E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616786   (967955) от 16.02.2013
 
 VA - Dj Compressor - Best 2012 Part 3 (2013) [MP3|320 кб/с]<House, Trance, Techno>
@@ -561,168 +741,6 @@ VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975885   (970472) от 16.01.2016
-
-VA - Beatport Top 100 (15.01.2016) [MP3|320 кб/с] <House, Electro, Progressive, Deep House, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren, W&W - If It Ain't Dutch (Extended Mix) 04:22
-002. Showtek & Eva Shaw feat Martha Wash - N2U (Original Mix) 04:37
-003. Riton - Rinse & Repeat 04:00
-004. Don Diablo feat. Jungle Brothers - I'll House You (VIP Mix) 03:52(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C1CA919AF9917C3FB508F1BA83133C802EB4AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358033   (970630) от 06.02.2020
-
-VA - 100 Greatest BRIT Awards Winners (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - New Rules
-002. Stormzy - Blinded By Your Grace, Pt. 2 (feat. MNEK)
-003. Little Mix - Shout Out to My Ex
-004. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FF9610D4ABC7E6C90D4B0A4F5FCCC784A24180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975773   (970869) от 16.01.2016
-
-VA - Вечное движение с лучшими хитами радио Шансон (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алексей Ром - У Ворот Рая
-02. Елена Ваенга И Михаил Бублик - Что Мы Наделали
-03. Валерий Вави - Я Не Жду
-04. Наталья Лапина - Дождись Хороший Мой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF9C666C85C93DB5200B06F3B8A81170DF88847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976080   (970872) от 16.01.2016
-
-VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (Club Mix) [06:52]
-02. Magazine 60 - Rendez-Vous Sur La Costa Del Sol (Maxi Version) [05:21]
-03. Boney M. - Gotta Go Home (Club Mix) [04:26]
-04. Dance Department - Paradise (Extended Dance Remix) [08:03](   Читать дальше...   )Жанр: Disco, Italo Disco, EurodiscoПродолжительность: 05:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55827469263974D2E5A65392B657DD1D23032A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975900   (970928) от 16.01.2016
-
-VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House, Electro, Bigroom, Dutch, Dirty, Bounce>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970928.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. W & W And Moti - Spack Jarrow (Original Mix) 04:31
-002. Showtek Feat. Vassy - Satisfied 04:19
-003. Global Deejays & Frontload - Get Up! 04:28
-004. Starjack Feat. Mimoza - Thunder (Starjack Club Mix) 05:30(   Читать дальше...   )Жанр: Club, House, Electro, Bigroom, Dutch, Dirty, BounceПродолжительность: 09:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19BCBF1115E9901188A467B791EB382F38CCF48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975768   (970938) от 16.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brando - Love Is A Fantasy (Radio Remix) (04:17)
-02. Boris Zhivago - Love In Russia (Radio Remix) (04:45)
-03. Birizdo I Am - Maybe Baby (Radio Edit) (04:04)
-04. Casanova - Angel Eyes (Short Version) (04:31)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F6500CDE5AD50243039720FC5330E0AF30D02D
 ```
 
 

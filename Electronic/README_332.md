@@ -624,6 +624,39 @@ magnet:?xt=urn:btih:72F0828A9AFDA09146783225408229C6509892DE
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514568   (657754) от 24.06.2012
+
+Example - Playing In The Shadows (2011) [FLAC|Lossless]<Electro House/ Electro Hip-Hop/Dubstep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Example - Playing In The Shadows (2011)
+
+Год: 2011
+Жанр: Electro House/ Electro Hip-Hop/Dubstep
+Продолжительность: 00:52:39
+Страна: UK
+Лейбл: Ministry Of Sound
+Каталог №:  MOSART2
+Сканы: Комплект
+Кодек: FLAC(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902917   (657868) от 31.05.2015
 
 VA - Paul Oakenfold - DJ Box: June (2015) [MP3|320 кб/с]<Trance>
@@ -673,33 +706,6 @@ VA - Chill Bar Essential Lounge (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A528F268292F1D7D87D2C3FA6885599525E93ADF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225845   (657956) от 18.05.2018
-
-DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boarding Call (7:07)
- 02. Boarding Call (Armen Miran Remix) (6:56)
- 03. Boarding Call (Hraach Remix) (7:47)
- 04. Corrected (7:08)Жанр: Deep Progressive HouseПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA1C2783B7D72E8BBC9DA0061C44FC4C70710A4
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 980259   (956273) от 29.01.2016
+
+VA - Extra Latin Sensation (2016) [MP3|320 кб/с] <Latin, Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon El Emperador - Propuesta (Original Mix)
+02. Yandel - No Sales de Mi Mente (feat. Nicky Jam)
+03. FSC - Toko-to (Original Mix) (feat. Yoger)
+04. Yandel - Encantadora(   Читать дальше...   )Жанр: Latin, Dance, Pop, HouseПродолжительность: 04:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061223C2772071BC657B556A7F6BF7063F3F48FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980277   (956278) от 29.01.2016
+
+The Grid - Collection (1990-2008) [OGG|438-522 кб/с] <Downtempo, Ambient, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floatation (Subsonic Mix)
+02. Face The Sun
+03. Heartbeat
+04. Rollercoaster (The Global Communication Yellow Submarine Re-Take)(   Читать дальше...   )Жанр: Downtempo, Ambient, TechnoПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160E64B8A1F98DA7B139558A76F0CDDF27B66696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980515   (956284) от 29.01.2016
+
+VA - Christmas Chillout Gift 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rega Avoena - Earth Angels (Original Mix) [05:11]
+02. 1Touch - Creamsun (Original Mix) [03:17]
+03. LuOrchestra - OdaMare (Original Mix) [04:27]
+04. Doors in the Sand - Red Triangle (Original Mix) [02:58](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2326B4F93241A5387BD237EB3CEA00DA4F3F19C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980480   (956288) от 29.01.2016
+
+2011stress - Ген Счастья (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic Styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блюз пивных пуз
+02. Верхом на Кенгуру
+03. Оставляя шумный город
+04. Дождь в Пустыне(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic StylingПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B6C21CF2CE8627E8140996C3730C2D3F2A8392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980510   (956290) от 29.01.2016
+
+VA - After Work Lounge, Vol. 5 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Formentera Quartett - Lover (03:45)
+02. Magic Mike - Kb (02:33)
+03. Cafe Ibiza - Your Everything (04:14)
+04. The Cotton Groove - Gava (03:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE106F3B003F397AD113A38234871C77CFE92F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979501   (956385) от 29.01.2016
+
+2011stress - Language of the Universe (NNM) (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перекати - Космос
+02. Кружение в невесомости
+03. Переменное ускорение
+04. Странные , но безобидные(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6688CB35440EE35B54D40735C257D5F14A0D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 748541   (957048) от 23.01.2014
 
 Enigma - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
@@ -541,168 +703,6 @@ VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979378   (959959) от 26.01.2016
-
-VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Moore - In the Sunshine - Original Mix
-02. Scott Navarro - Tell Me Why - Original Mix
-03. Nigel Scott - Disco Salsa - Original Mix
-04. Peter Cox - White Star - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979297   (959962) от 26.01.2016
-
-VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7 Baltic - Gold Rusch (David Gate Remix)
-002. Hi Profile - Archangel
-003. Memory Loss - Fugue State (Original Mix)
-004. Artisan, Linnea Schossow - You & I (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979575   (959963) от 26.01.2016
-
-VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell & Armin van Buuren - Off the Hook (Radio Edit)
-002. Kollektiv Turmstrasse - Sorry I Am Late
-003. Sander Van Doorn & Sunnery James & Ryan Marciano - ABC (Extended Mix)
-004. Technasia, Green Velvet - Suga(   Читать дальше...   )Жанр: Tech, Deep, Progressive HouseПродолжительность: 09:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360276   (960294) от 15.02.2020
-
-VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.A$AP Ferg - Value (2:47)
-2.AJR - Bang! (2:50)
-3.Anivar feat. Adamyan - Руку Держи (3:57)
-4.Anne-Marie - Birthday (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360378   (960630) от 15.02.2020
-
-VA - Rap NNM 2020 [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960630.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mac Miller - Good News (5:42)
-2.H.E.R., Pop Smoke, A Boogie wit da Hoodie, Chris Brown - Slide (4:56)
-3.Madchild, Tom MacDonald, Nova Rockafeller - Sober (4:33)
-4.NF - Time (4:00)(   Читать дальше...   )Жанр: RapПродолжительность: 03:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5493A3DF4D8E3C48AD2E7EC124486111A17C2E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979079   (960816) от 25.01.2016
-
-VA - Blues Forever vol.08 - vol.12 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blues Forever vol.09
-01. Pepe Ahlqvist - Dont Leave Me Again
-02. John Lawton - Tomorrow
-03. Sherman Robertson - In The Here And Now(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
 ```
 
 

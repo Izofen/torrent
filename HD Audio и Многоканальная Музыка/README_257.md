@@ -1,3 +1,84 @@
+###  Публикация: 174227   (947635) от 24.02.2020
+
+Yello - The New Mix In One Go (Upmix) (1980-1985) [DTS]<Electro, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daily Disco (4:06)
+02. Swing (3:29)
+03. The Evening's Young (3:08)
+04. Pinball Cha Cha (3:35)(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBAD84BED350E8EF134E553B31CE8B0A25A0EC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089953   (948549) от 05.01.2017
+
+Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948549.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Road To Hell (Part I)
+A2 The Road To Hell (Part II)
+A3 You Must Be Evil
+A4 Texas(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 07:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAB54180658E49682BA09E4CE562340867C4279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089961   (948567) от 05.01.2017
+
+VA - RETROспектива, часть IV: Эстрадные оркестры IV (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Я миланец (медленный фокстрот)
+02. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Любопытство (мамбо-бегин)
+03. Инструментальное трио - Доброй ночи (фокстрот)
+04. Инструментальное трио - Маленькая мельница (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FC521C0E5B5E509B7017D8E7D7430E9CFA2FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089678   (948575) от 05.01.2017
 
 VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -620,82 +701,6 @@ B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973432   (977974) от 10.01.2016
-
-Наутилус Помпилиус - 3 альбома (1988-1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972986   (978123) от 10.01.2016
-
-Ансамбль (Вокальный квартет) Аккорд (1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В дороге
-02. МустафаЖанр: PopПродолжительность: 00:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973397   (978125) от 10.01.2016
-
-Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diva
-02. Cinque Milla (Remix)
-03. Maganuna (Remix)
-04. Qu'est Que C'est? (Remix)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
 ```
 
 

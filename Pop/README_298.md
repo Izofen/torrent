@@ -1,3 +1,407 @@
+###  Публикация: 1382508   (819128) от 11.05.2020
+
+TDHDriver - My Fantasy World (2015) Remastered 2020, Spacesynth.ru [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Launch Base (4:38)
+02. Touch The Stars (7:18)
+03. New Reality (4:23)
+04. Galaxy Nexus (6:01)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC7A723BF98025434EA3864F51E57FF446A248D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117429   (819247) от 22.03.2017
+
+Saturday Night Band - Come On Dance, Dance (1994) 2 Albums (1978;1979), Remaster, Unidisc [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Come On Dance, Dance Album - 1978
+01. Come On Dance, Dance (12:50)
+02. Don't (Take My Love Away) (5:09)
+03. Touch Me On My Hot Spot (11:34)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B8647DFDB3EFC7A7453B76991D007F2F9303AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503381   (819387) от 19.10.2021
+
+Новые Самоцветы - Просто не верится (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retro-Schlager>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто не верится (3:25)
+ 02. Лунная ночь (3:54)
+ 03. Там (3:09)
+ 04. Незнакомка (3:49)(   Читать дальше...   )Жанр: Pop, Retro-SchlagerПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7708A7401A6927B74598FF1AA79EC28201D16019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503564   (819487) от 19.10.2021
+
+Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss a Thing (3:57)
+03. Real Groove (3:15)
+04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BAEA3A1F28F4B5F5817E86CA29DC5849B44B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503572   (819495) от 19.10.2021
+
+VA - Gentle and Calm Instrumental Covers: 14 Beautifully Relaxing Instrumental Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yann Nyman - I Will Survive (Arr. for Piano) (03:06)
+02. Jonah Paris - Both Sides, Now (Arr. for Saxophone and Piano) (04:19)
+03. Max Arnald - Suburbia (Arr. for Piano) (03:55)
+04. Chris Mercer - Rocket Man (Arr. for Guitar) (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EC818846CF1F3B96C8062EDAB1FA5EF8DCE8F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007733   (819660) от 16.04.2016
+
+Izabella - Iza (1992) [MP3|320 кб/с] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Izabella Dorota Skorupko - Изабелла Скорупко — шведская модель и актриса, польского происхождения, наиболее известна по роли «девушки Бонда» Натальи Семёновой в фильме «Золотой глаз» 1995 г..
+Родилась 4 июня 1970 года в Белостоке на севере Польши. Когда ей был всего год, её отец и мать развелись, и дочь осталась с матерью. В 1978 году они переезжают в Стокгольм, (   Читать дальше...   )Трeклист:
+01. Shame Shame Shame   (3:51)
+02. Write You A Love Song   (3:40)
+03. Everything To You   (4:36)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED036DFEF17A1AC93E63249696011326EA2BD0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503563   (819693) от 19.10.2021
+
+Kylie Minogue - DISCO (2020) [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss A Thing (3:57)
+03. Real Groove (3:15)
+04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C0F516BAD455C14B7A9053E3A09C13C7F67F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007810   (819818) от 16.04.2016
+
+Femme - Debutante (2016) [MP3|320 кб/с] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Poptarts Are Ready (00:50)
+02. Fever Boy (02:43)
+03. Romeo (02:59)
+04. Bring It Back Round (03:11)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34432FD0BD64CCF0ECB393862BC2E6983DCF24F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196708   (820530) от 04.01.2018
+
+VA - Ретро Шлягер "Зимний" (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зима (Э.Ханок - С.Островой) - Эдуард Хиль
+02. Бубенцы (А.Кублинскис - И.Кашежева) - ВК "Аккорд"
+03. А снег идёт (А.Эшпай - Е.Евтушенко) - Майя Кристалинская
+04. Гололёд (Э.Шварц - А.Дмоховский) - Лариса Мондрус(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F26DA7E10B8B94AA56527642A0695FF129F4241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196730   (820630) от 04.01.2018
+
+Зола - Кровожадная (2017) EP [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кровожадная
+02. Вопросы
+03. Париж
+04. Не взрывай(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDDE48CF0B4DBC4893B99B28D9DD0652F1C5166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196745   (820740) от 04.01.2018
+
+VA - Dance Hits Explode (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bjur – Paper Hearts 2:59
+02. Julie Griffin – Party Part 2 3:55
+03. Thomas Papadopoulos – Proxima 4:16
+04. Shifter X – Rolling Ball 2:45(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633DD856EB7629B48674C856BDD1CC029A4488AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196690   (820741) от 04.01.2018
+
+Judy Cheeks - Mellow Lovin’ (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Girl In Me (3:51)
+02. Kiss Me Baby (5:38)
+03. Suspicious Minds (4:08)
+04. It's Just A Love Affair Gone (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9A32706FEF296DA0CA3E40687497E47D1EDFCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196777   (820743) от 04.01.2018
+
+Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хуан Фернандо Сильветти Адорно (27 марта 1944 года — 5 июля 2003 года), более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем (   Читать дальше...   )01. Lluvia de primavera (5:55)
+02. Atmosfera (4:44)
+03. Fin de semana (2:30)
+04. Lluvia de cocos (3:26)(   Читать дальше...   )Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116938   (820803) от 21.03.2017
+
+Secret Star - I Need A Man | Jump In My Car (2 Singles) (1986) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need A Man 4:47
+02. Space Operator 4:12Жанр: Euro-DiscoПродолжительность: 00:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D49B8A176EC22209CDBA9B7EEB9B6D627650AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117099   (820929) от 21.03.2017
+
+НеИгрушки - На Луну (2000) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ерунда
+02. На Луну
+03. Мальчишка
+04. Весна (полная версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF0CBD671D5808A202FCDB97BFEBBEA42BA7FBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116810   (821052) от 21.03.2017
 
 Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
@@ -290,408 +694,6 @@ Chilly - The Magic of Chilly (2016) [FLAC|Lossless|tracks + .cue] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E17027F4237607D6367BBF58338FC1A73B35D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007321   (823223) от 14.04.2016
-
-Меджикул - Всё О Марфе (2016) [MP3|320 кб/с] <Pop, Disco, Funk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интерлюдия
-02. Насалатило
-03. Без чувств
-04. Поли Поли(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC14F2237B8D36888801427F75E7069E128736F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007179   (823233) от 14.04.2016
-
-Plazma - Take My Love (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take My Love (3:41)
-02. The Sweetest Surrender (4:20)
-03. Memories (3:32)
-04. Jump in My Car (4:19)(   Читать дальше...   )Жанр: Synth-pop, Euro HouseПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D6DAF9C2B79EB0F71B10964AE3806D61F889A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007168   (823490) от 14.04.2016
-
-Kiley Dean - Scream (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream
-02. Lockdown
-03. Backseat
-04. A Million Miles(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA918717F6C61A6A7738D8099F50493F82B94F8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775372   (823617) от 09.04.2014
-
-VA - Pure... Love (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию очередной боксет от Sony Music (остальные части серии по ссылке ниже). Добавить к названию можно только то, что весной, конечно, найдутся у этого сборника благодарные слушатели. Ну и на здоровье!CD1:
-Продoлжитeльность: 01:06:38
- 01. Whitney Houston - Greatest Love Of All (Remastered 2000) (4:50)
-02. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A003FEAF672D7028F928380C45A8C44422AD70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196324   (823884) от 02.01.2018
-
-VA - Сборник советских песен Мой Мотив (2007) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва майская - А. Соколов, Е. Кибкало
-02. Песня о Родине - И. Петров
-03. Гляжу в озёра синие - Е. Шаврина
-04. С чего начинается Родина - М. Бернес(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB701A92FFB8E5CD9FAE6BA5A92211A07DC2AC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839122   (824150) от 27.11.2025
-
-VA - Echoes of the 1980s (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arthur's Theme (Best That You Can Do) - Christopher Cross  - (03:54)
- 02. Take On Me - A-Ha  - (03:49)
- 03. St. Elmo's Fire (Man in Motion) - John Parr  - (04:12)
- 04. Into the Groove - Madonna  - (04:45)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 04:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F5024FB44561948BC63400611541C858B53CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116424   (824429) от 19.03.2017
-
-VA - 12 Inch Dance: 80s Remix (2017) [FLAC|Lossless|WEB|tracks] <Pop, Synthpop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
-02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
-03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
-04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66497F42D254B320A46739731BE1DB6C01FCD48F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116429   (824450) от 19.03.2017
-
-VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
-02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
-03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
-04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14B56450C3CA1E3019B06E8D88599F0DD35DD68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381786   (824463) от 08.05.2020
-
-Little Big - Hypnodancer (2020) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824463.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. HypnodancerЖанр: PopПродолжительность: 00:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CC525BE4F025237434FBF4F87CB53A0C5C6D74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381788   (824476) от 08.05.2020
-
-Анита Цой - Нации победителей посвящается... (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вступление (Юрий Левитан, 8 мая 1945 год)
-2. Офицеры
-3. В землянке
-4. Тёмная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBEFDBDD6BD9872D873FF2A4698C50D8C4D1B6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381726   (824590) от 08.05.2020
-
-Александр Подболотов - Русские песни и романсы (2006) [FLAC|Lossless|tracks + .cue]<Романсы, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Калинка
-02. Очи чёрные
-03. Коробейники
-04. Вечерний звон(   Читать дальше...   )Жанр: Романсы, РетроПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA61B742169B98191F4DA8FF8D15E17805CDCE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116422   (824660) от 19.03.2017
-
-Amii Stewart - Knock On Wood & Paradise Bird (1979) Reissue, 1999, Limited Edition  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knock On Wood (6:21)
-02. You Really Touched My Heart (4:28)
-03. Light My Fire / 137 Disco Heaven (8:24)
-04. Bring It On Back To Me (3:55)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E57ACF9807583E1A9C511A2215AEC9EF8DB6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115987   (824751) от 19.03.2017
-
-Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps] <Disco,  Funk-Soul, Classical, Easy Listening, Modern>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный проект итальянского пианиста, композитора, руководителя оркестра и мюнхенской группы Giorgio Moroder - Munich Machine.01. Sheherazade (4:14)
-02. Ol' Man River (3:16)
-03. From The New World Symphony (7:10)
-04. Serenade (4:13)(   Читать дальше...   )Жанр: Disco,  Funk-Soul, Classical, Easy Listening, ModernПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50253CE029BFC9916B4F18B48CE295E29F710F2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381651   (824809) от 08.05.2020
-
-I Break Horses - Warnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn (09:00)
-02. Silence (04:28)
-03. l a r m (01:03)
-04. I'll Be The Death Of You (04:37)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963F03240E3653A6F34A1BEC467A2C972DBA2F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502940   (824857) от 16.10.2021
-
-Инна Маликова & Новые Самоцветы - Просто не верится (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просто не верится
-2. Лунная ночь
-3. Там
-4. Незнакомка(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317BC3A7D124A9420B2A740EA8A65B9B454115E2
 ```
 
 

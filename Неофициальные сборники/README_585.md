@@ -1,3 +1,165 @@
+###  Публикация: 1373173   (882181) от 05.04.2020
+
+VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parvenu - Side Step
+02. Sebastian - Movement
+03. Beamy - Big Sur (Original Mix)
+04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495031   (882262) от 11.09.2021
+
+VA - Remix NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah Yeah Yeahs - Heads Will Roll (Kubi Remix) (4:15)
+02. The Black Eyed Peas - Don39t Phunk With My Heart (Sulim Dj Chicago Extended Remix) (4:46)
+03. La Bouche - Sweet Dreams (Struzhkin Vitto Remix) (3:37)
+04. Oceana - Cry Cry (Layer Bootleg) (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EA3E7E0530F1074E5637BFD6DB0F49421B5F42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495223   (882369) от 11.09.2021
+
+VA - Music of the Night (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doja Cat - Streets (3:47)
+02. Color Me Badd - I Wanna Sex You Up - Single Mix (3:56)
+03. PARTYNEXTDOOR, Drake - Recognize (5:11)
+04. Pop Smoke, Lil Tjay - Mood Swings (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E2D38DC5D07D32A6CCB675B685C9AC603887D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995855   (882400) от 12.03.2016
+
+Screamin' Jay Hawkins - I Put A Spell On You: Screamin' Years(2016) 2CD [MP3|319-320 кб/с] <Blues, Rhythn'n'Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гений, опередивший время... да и живший, собственно, вне этого времени...В числе тех, кого можно считать его учениками и последователями - Том Уэйтс, Ник Кэйв, Артур Браун, Элис Купер, Оззи Осборн... может, кого-то еще я и упустил... Его "I Put A Spell On You" перепета в самых разнообразных версиях сотни... тысячи раз... кто ее только не пел - от Нины Симон (   Читать дальше...   )01. I Put A Spell On You
+02. She Put The Whamee On Me
+03. What That Is
+04. This Is All(   Читать дальше...   )Жанр: Blues, Rhythn'n'Blues, SoulПродолжительность: 06:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0977A5F44AE1429477C1796833940A419DDC0A5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995959   (882468) от 12.03.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 25 ) (2016) [MP3|196-320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon Ray - Comanchero (Fuzzdead Reboot) (02:59)
+02. Ace Of Base - Beautiful Life (Alchemist Project Mix ) (04:30)
+03. Fancy - Sail Away (Standing Alone Mix) (06:05)
+04. Kate Ryan - Voyage Voyage (Dj.Svn Version) (05:04)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27580BF1B6AADF123815C94B05F8DF50FE94D408
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995725   (882690) от 12.03.2016
+
+VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rihanna - Work (Feat. Drake) .mp3
+002. Justin Bieber - Love Yourself  .mp3
+003. Twenty One Pilots - Stressed Out .mp3
+004. Justin Bieber - Sorry .mp3(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7C82FC1708F5D92CBC83EEA8433290337047D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995859   (882699) от 12.03.2016
 
 VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
@@ -530,168 +692,6 @@ VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103831   (883640) от 13.02.2017
-
-VA - Музыкальное потрясение зимы от Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883640.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A-Sen - Губы Любят 3:16
-002. Proвокация - Два Сердца 3:35
-003. Моника - Корпоратив 3:08
-004. Елена Есенина - Тамтамы 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022E3F0FC85E2C0CD64A5BF9F6E7BEA45BF65D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103845   (883642) от 13.02.2017
-
-VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Зара - Забыть О Тебе 3:32
-002. Alex 67 - Сумасшедшая 3:18
-003. Alvarez - Sin Miedo 4:12
-004. Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103792   (883647) от 13.02.2017
-
-VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ethyl/Flori - Shelter (07:33)
-2. Brawther - Spaceman Funk (Deep Club mix) (08:12)
-3. Shanti Celeste - Nu4him (06:21)
-4. BLM - Chemistry (07:14)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA4BCE468C19138B7800885EFF2C79BFAB9C3FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995436   (883805) от 11.03.2016
-
-VA - Вспоминая СССР. По-новому о главном [6CD] от DON Music (2016) [MP3|320 кб/с] <Folk Rock, Punk Rock, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бряц-Band - СССР (04:26)
-02. Король и Шут - Коробейники (01:51)
-03. Пикник - Полюшко-поле (04:32)
-04. После 11 - Порушка-параня (02:36)(   Читать дальше...   )Жанр: Folk Rock, Punk Rock, Rock, PopПродолжительность: 07:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1F1AE2368894674141863579390A345CBF9BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994747   (883807) от 11.03.2016
-
-VA - Absolute Dance Spring (2016) [MP3|320 кб/с] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M - Work It (Club Mix)
-02. Aqualoop Allstars - You Take Me Away (DJ Fait Remix)
-03. Benny Benassi & Vassy - Even If (Radio Edit)
-04. Calvin Harris & Disciples - How Deep Is Your Love (Oguzhan Guzelderen Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B0DA2F6CDF615385FD199080617643C1496671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994856   (883809) от 11.03.2016
-
-VA - Powerful 100 Hits Delight (2016) [MP3|256-320 кб/с] <Indie Dance, Club, Progressive, Nu Disco, Bigroom, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883809.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wildones Feat. David Julien - You Dancing (Inpetto Remix).mp3
-002. Krankbrother - When You Are Watching Me.mp3
-003. Solid Stone - Signs Of The Future.mp3
-004. Tinarm - We Love The Sky (Edm Radio Mix).mp3(   Читать дальше...   )Жанр: Indie Dance, Club, Progressive, Nu Disco, Bigroom, Hands UpПродолжительность: 07:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C19A111E47E322653BD09A7F3A1B4C8EA0A2D2
 ```
 
 

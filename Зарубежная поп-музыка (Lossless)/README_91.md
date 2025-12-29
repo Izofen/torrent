@@ -1,3 +1,57 @@
+###  Публикация: 978003   (963639) от 23.01.2016
+
+VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano Daniele - Quando (3:35)
+02. Umberto Tozzi - Gli altri siamo noi (5:31)
+03. R.Casale e G.Di Michele - Gli amori diversi (3:39)
+04. Cristiano De Andre - Dietro la porta (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977956   (964535) от 22.01.2016
+
+VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Morandi, Enrico Ruggeri - Si Puo Dare Di Pu (4:28)
+02. Raf - Inevitabile Follia (4:32)
+03. Fiorella Mannoia - Caffe Nero Bollente (4:26)
+04. Francesco Baccini - Le Donne Di Modena (5:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977982   (964556) от 22.01.2016
 
 VA - I Grandi Successi Degli Anni 80 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -669,63 +723,6 @@ VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975495   (971936) от 15.01.2016
-
-Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:01:12:34
-1.When You Believe (4:36)
-2.Sweetheart (4:22)
-3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
-1.Fantasy (4:04)
-2.My all (3:52)
-3.Open arms (3:32)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975622   (971938) от 15.01.2016
-
-Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Amour A Deux [04:55]
- 02. Dis Lui Toi Que Je T'Aime [03:58]
- 03. L'Amour En Soi [05:07]
- 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
 ```
 
 

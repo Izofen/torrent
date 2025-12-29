@@ -1,3 +1,141 @@
+###  Публикация: 1134370   (689455) от 15.05.2017
+
+VA - Hed Kandi Beach Body (2016) [MP3|320 Kbps] <House, Deep House, Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn, Jasmine Thompson - Ain't Nobody (Loves Me Better) feat. Jasmine Thompson (The Rooftop Boys Remix)
+02. Duke Dumont - Ocean Drive (Shaun Frank Remix)
+03. Years & Years - Shine (Sanna & Pitron Remix)
+04. Frequency, Diia, SoulCircuit - Lost feat. Diia (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, DiscoПродолжительность: 04:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792C1C6821414E0CDBAAD536E01F5AB2BE57E86C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505758   (689603) от 05.06.2012
+
+VA - Калина Красная - Лучшее (2012) [MP3|128 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689603.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:55] . - 001 Андрей Бандера - Шереметьево
+[03:13] . - 002 Елена Ваенга - Аэропорт
+[04:16] . - 003 Стас Михайлов - А может быть
+[03:23] . - 004 Рада Рай - Отпускала в небо
+[03:59] . - 005 Григорий Лепс - Самый лучший день
+[03:23] . - 006 Артур - Лето пролетело
+[03:59] . - 007 Леонид Агутин и Анжелика Варум - Две дороги, два пути
+[04:03] . - 008 Евгений Кемеровский - Ключи (новая версия)
+[03:43] . - 009 Афина - Душа кричит
+[04:34] . - 010 Александр Малинин - Под венец(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 12:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6621C6371BE4C960DB804330A9A4C53EA8008D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221940   (689671) от 27.04.2018
+
+VA - Time Paradox: Psy Trance Compilation (2018) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы упускаем смысл жизни, упускаем возможность жить целостно, что означает жить в соответствии с реальностью, в согласии с тем, что существует или может существовать в действительности. Нам следует воспринимать опасное и мучительное точно так же, как обнадеживающее и вожделенное. Идти по жизни с открытыми глазами – признак зрелости01. Astro-D - Party Alien
+02. Mental Flow - Time Paradox
+03. Erotic Dream - Tico Tico
+04. Grails - New Prague(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 07:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F8F60A912D216BF3EBD9B9D1BAE617C7CCCCC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288932   (689697) от 14.03.2019
+
+Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689697.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elton John - Sorry Seems To Be The Hardest Word (Igor Frank Radio Remix)Жанр: Club, DanceПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB34C9E17E1507CE85C5D3B2E0F770184B20ECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028439   (690092) от 22.06.2016
+
+VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] <Pop, Retro, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.ВИА Земляне - А жизнь идёт
+002.ВИА Земляне - Взлётная полоса
+003.ВИА Земляне - Жизнь идёт
+004.ВИА Земляне - Каскадёры(   Читать дальше...   )Жанр: Pop, Retro, RockПродолжительность: 13:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE48712BDD2D6E6B054C4B0B324511D5B3B99F59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028195   (690110) от 22.06.2016
 
 VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
@@ -566,141 +704,6 @@ VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:662F991D9E47B67353C7C5EB60B3CD34A1A055D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133591   (691414) от 14.05.2017
-
-VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mr. President - 4 On The Floor 3:17
-002. Dj Bobo - Amazing Life 4:01
-003. E-Type - Angels Crying 3:51
-004. The Free - Dance The Night Away 3:51(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95C818E67826C4D7DA65E5016F8E89D1AABB4CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133954   (691422) от 14.05.2017
-
-VA - Душевный сборник Русского радио выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анжелика Султанова - Омут 4:36
-002. 2 Маши - Звезды 3:23
-003. Без Пароля - Киты 4:36
-004. Ira Smith - Мир В Тебе 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929526899DBEA9073E558D762FA1AF83AD3EF71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221679   (691457) от 26.04.2018
-
-VA - Best Vocal Trance 2018 vol.3 [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix)
-02. Akcess & Venetica - So Are You The One (Venetica Remix)
-03. Kaimo K & Jess Morgan - In A Whisper - (Extended Mix)
-04. 4 Strings & Fenna Day - Everybody's Gotta Learn Sometime (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57860BFFEBB15CB3CAAE59A061855E6D9FC112E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133911   (691473) от 14.05.2017
-
-VA - One Love Reggae: Soul Collection (2017) [MP3|250-320 Kbps] <Reggae, Lyric>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jah Cure Feat. Gyptian - More Thanks For 4:09
-002. Capleton - Caan Tan Yah 3:46
-003. Martha Pasch - La Revolution (Kingston Jam Mix) 3:51
-004. Anthony B - Change 3:57(   Читать дальше...   )Жанр: Reggae, LyricПродолжительность: 06:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E83FB51AA0017C4740A8780EEED535A3F9B6E99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133589   (691480) от 14.05.2017
-
-VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shanghai - Ballerina 3:22
-002. Creative Connection - Dont You Go Away 5:32
-003. Tony Caso - Motorcycle Madeness 5:28
-004. Torrevado - Living in the Shuttle 5:08(   Читать дальше...   )Жанр: Disco, Pop, Italo DiscoПродолжительность: 08:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD813C1E4270ED6C1454D024B504725E8FE8C98D
 ```
 
 

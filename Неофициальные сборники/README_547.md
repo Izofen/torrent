@@ -1,3 +1,165 @@
+###  Публикация: 1007020   (823484) от 14.04.2016
+
+VA - La Noche Piano: y Dulces Atmosferas Musica Clasica (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philip Bennetts - Proud Achievement
+02. Francesco Morettini - Nel pianoforte in A Major - for Piano
+03. Pino Cangialosi - Rain on Kids
+04. Gianluca Ricciardi - Conseguenze(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC3EE3CBA9DBDE6D94FC2F1EAC9ACC31D8C5CFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007114   (823567) от 14.04.2016
+
+VA - Мачо. Академия хитов шансона (2016) [MP3|256-320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Кнут - Ножичек
+02. Мурки - Мачо
+03. Виктор Калина - Дочка
+04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314BC4182A9E8E1E66378C70A3211A6BC5B05FE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007148   (823635) от 14.04.2016
+
+VA - BacauHouseMafia Vol.10 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bass Inside (Original Mix) - AC Slater 04:24
+002. Adam Lambert - If I Had You (Ricky C Remix) 04:11
+003. Ahxello - Levitate (Original Mix) 03:21
+004. Anro - I Remember House (Original Mix) 06:04(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 13:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1F3B160415C41C11C6E25D338F67FBA97309F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006774   (823638) от 14.04.2016
+
+Анастасия Макаревич (Лицей) - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2016) [MP3|128 кб/с] <Поп, Интервью>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Паровозик-облачко
+2. Фотография
+3. Ты Думала
+4. Осень(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8C82330EFD938350EB05BBAC00D86B6DD03AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196382   (823721) от 02.01.2018
+
+VA - Новинки С Разных Популярных MP3 Сайтов Vol.68 (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Darude  -  Sandstorm (Velchev & Arefiev Remix) (Radio Edit)  2:42
+02.  Maria Balak feat. Nejtrino  -  Звенит Январская Вьюга (Arefiev & DJ Olmega Remix)  3:24
+03.  Татьяна Буланова  -  Иди  3:33
+04.  W&W  -  Supa Dupa Fly 2018  2:53(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 07:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D80DC488FA8F92EA2D43FB3FFD2B5A3429E6445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196425   (824003) от 02.01.2018
+
+Amure - Calypso (2018) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow On The Wall (4:27)
+02. Frozen Love (4:52)
+03. Soran (5:27)
+04. The Rain (5:13)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBFB92D37762D538B6DA3E2D9EF3C5D579F5085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116080   (824089) от 19.03.2017
 
 Led Zeppelin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
@@ -533,168 +695,6 @@ VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115816   (825663) от 18.03.2017
-
-VA - 20 Кавер версий которые превзошли оригинал (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You - 04:30
-02. Johnny Cash - Hurt - 03:38
-03. Jeff Buckley - Hallelujah (Radio Edit) - 04:15
-04. Nirvana - Man Who Sold The World (Live, MTV Unplugged) - 03:50(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1012FDBC7B7C4D76AFDD6C1101895A70152A64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115808   (825667) от 18.03.2017
-
-VA - 20 Песен, которые заставляют сердце биться чаще (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U2 - With Or Without You - 04:55
-02. Aerosmith - I Don't Want To Miss A Thing (Radio Edit) - 04:58
-03. Jeff Buckley - Hallelujah (Radio Edit) - 04:15
-04. A-ha - Velvet (Album Version) - 04:19(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D780B6F7E77A2E670D61FD5DC667DA7CB2A4F812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115611   (825669) от 18.03.2017
-
-VA - Клубные Суперхиты (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blasterjaxx & Jonathan Mendelsohn - Black Rose (Blasterjaxx Club Mix)  3:47
-02.  DJ Antoine & Conor Maynard - Dancing In The Headlights (Rudeejay & Da Brozz Club Mix)  4:01
-03.  Katy Perry & Skip Marley - Chained To The Rhythm (Liam Keegan Instrumental Mix)  4:37
-04.  Vali - Ain't No Friend Of Mine (Jesus Montanez Club Mix)  5:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDC9E2EACE9E394C35241BD0DAD908F478B02FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196110   (825790) от 01.01.2018
-
-VA - Record Super Chart - Итоговый Суперчарт (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825790.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Tiesto & Sevenn  -  Boom  3:03
-002.  Don Diablo  -  Momentum  3:28
-003.  Malaa  -  Notorious  3:58
-004.  CamelPhat & Elderbrook  -  Cola Denis First Remix  4:16(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69913D6D41AA65BE99B4F817C7539399D2C5967B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381534   (825823) от 07.05.2020
-
-VA - Super Hits 100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825823.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dua Lipa - Don't Start Now (3:03)
-2.The Weeknd - Blinding Lights (3:21)
-3.Topic - Breaking Me (2:46)
-4.Tones and I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD1ECC123918B2A4728713056B3928122FD2C16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196221   (825901) от 01.01.2018
-
-VA - Хайп на Новый год (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мари Краймбрери - Нет никого круче нас
-02. Алёна Высотская - Вижу тебя
-03. LIKE.A - Пульс
-04. Edgar - Позови(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1973379EBABE3CA3620FD013A651BF1971979F
 ```
 
 

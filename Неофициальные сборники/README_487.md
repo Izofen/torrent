@@ -1,3 +1,165 @@
+###  Публикация: 1126933   (764558) от 19.04.2017
+
+VA - Empire Records - Dancenudisco 15 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Ramone Feat. Minelli - Love On Repeat (Filatov & Karas Radio Edit)
+02. Fialta - Another Lonely Heart (Mark Lower Remix)
+03. Dr. Beat - House Orgy (Radio Edit)
+04. Dogus Cabakcor - Trouble (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281866CCD29DD24877D2558D1380B9AAB5C80841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126912   (764608) от 19.04.2017
+
+VA - Empire Records - Dancenudisco 14 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)
+02. Arilena Ara - Nentori (Beverly Pills Remix)
+03. El Mukuka feat. Kayla Jacobs - Bottle of Loneliness (Filatov & Karas Remix Extended)
+04. LP - Tightrope (Regard Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DF693DCB6C19D8B5D7C23587AD00FEBB91505E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126818   (764609) от 19.04.2017
+
+VA - Sunrise Energy Melodies (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Energy, Harmonic, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sam Laxton - Decadence (Extended Mix)  6:22
+02.  Paul van Dyk - Touched By Heaven (Extended)  7:30
+03.  DJ T.H. & Natalia Meister - Where We Belong (Original Mix)  7:15
+04.  Fady & Mina - Akemi (Extended Mix)  8:22(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Energy, Harmonic, EuphoricПродолжительность: 02:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357F8998C868D08084FAA95CB92F589F40267745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125676   (764613) от 19.04.2017
+
+VA - Сотка популярных весенних хитов на Europa Plus. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764613.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cash'u - Хочу 3:29
+002. Алла Пугачева - Счастливые Дни 3:52
+003. Митя Фомин - Твоя Энергия 3:21
+004. Adil Karaca - Музыка 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB49A48C05DB4FFB4E3B949640683B0CADE453C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214359   (764857) от 21.03.2018
+
+VA - Pacifique: New Age Music (2018) [MP3|256-320 Kbps] <New Age, Instrumental, Relax Electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764857.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deep Forest - Pacifique
+002. David Wright & Carys - Where the Whales Still Sing
+003. Nox Arcana - Night of the Wolf
+004. Mathieu Age - Legerete, Flute celtique(   Читать дальше...   )Жанр: New Age, Instrumental, Relax ElectronicПродолжительность: 08:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F1BECF240AE1FF42151D1AD0BE0450FD5B6D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214302   (764897) от 21.03.2018
+
+VA - Euro Disco 80s: New Generation Album (2018) [MP3|267-320 Kbps] <Euro Disco, Pop, New Generation>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boris Zhivago - One More Night With You (Extended Mix)
+002. Momento - Love Is Dead
+003. Den Harrow - Day By Day (Remix)
+004. Dean Corporation - La dolce vita(   Читать дальше...   )Жанр: Euro Disco, Pop, New GenerationПродолжительность: 08:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926DEAD1F395C619A1056CF70340FB10829848FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214227   (764935) от 21.03.2018
 
 VA - Better Day Trance Mix (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -530,168 +692,6 @@ VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:437652CFBF9A99895ED5AE5CBAAD14A4BA96D287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126642   (765420) от 18.04.2017
-
-VA - Лучшая дискотека на Europa Plus выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765420.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rozhden - Планы На Любовь 3:58
-002. Галина Боб - Сладкие Вещи 3:04
-003. Melinda - Бесконечность 4:08
-004. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5914ED5177DFA2830B5E41DBC90C46E7ACA891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394094   (765426) от 03.07.2020
-
-VA - Music News vol.25 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765426.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aina - Хризантемы (04:03)
- 002. Григорий Лепс - Городской Романс (02:10)
- 003. Alex Adair - Real For Me (03:00)
- 004. Alexandra - Волны Моря (03:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E355E6DD682D8F9DB47C387F4099D9FF68CCEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279600   (765466) от 30.01.2019
-
-VA - German Top 50 Party Schlager Charts 28.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Kerstin Ott - Regenbogenfarben
-04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA464CC1C067BA665749BF424BD026AC53DD9BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126613   (765476) от 18.04.2017
-
-VA - Best-of-ka Шансона (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Параллельные Миры 3:34
-002. Валерий Новиков - Тюлени 3:35
-003. Климм - Не Было  И Нет 5:03
-004. Александр Федорков - Листья Падают 3:36(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCA3D5FF3BF3AFD4E79A5A6A9DDE015800993A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126610   (765478) от 18.04.2017
-
-VA - Любимые хиты весны. Сборник 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lalo Project - Честная Весна 2:58
-002. Tiana - Мне Так Жаль 3:44
-003. Pasha Leem - Чую 3:47
-004. Dante - Не Вздумай 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6032762CE94F3423FDEEA735FAD291395C06F9AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126442   (765487) от 18.04.2017
-
-VA - Песни для души на радио Шансон выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова & Ростислав Галаган - Арифметика Расставаний 4:50
-002. Александр Курган - Если Музыка Звучит 3:10
-003. Елена Ваенга - Невеста 3:46
-004. Даниил Сорокин - Время Лечит 3:10(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADBEF8E4E5B7765E1DA81F4EF7535D7BE070F01
 ```
 
 

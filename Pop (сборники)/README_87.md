@@ -538,6 +538,30 @@ magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 207928   (709659) от 12.06.2010
+
+VA - Романтик Хит - Люблю тебя (2010) [MP3|192-320 kbps]<Pop, Ballad>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Ballad
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219852   (709777) от 16.04.2018
 
 VA - Экспресс русских хитов на Hit FM (8) (2018) [MP3|256 Kbps] <Поп>
@@ -668,33 +692,6 @@ VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286659   (711325) от 03.03.2019
-
-VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
-02. Calvin Harris - Giant
-03. Hugel - WTF (feat. Amber Van Day)
-04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
 ```
 
 

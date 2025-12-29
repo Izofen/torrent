@@ -1,3 +1,57 @@
+###  Публикация: 1399102   (734306) от 29.07.2020
+
+Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Motorrennerrock
+A2 Der Kater
+A3 Heut' Spielt Hier 'Ne Soul-Band
+A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528269   (734960) от 01.02.2022
+
+The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734960.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Spirits In The Material World
+A2 Every Little Thing She Does Is Magic
+A3 Invisible Sun
+A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528254   (734968) от 01.02.2022
 
 The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <New Wave, Pop Rock>
@@ -637,66 +691,6 @@ magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524455   (743627) от 16.01.2022
-
-Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone is Love (2:33)
- 02. Home Again (3:04)
- 03. My House And The River (2:56)
- 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783781   (743906) от 05.05.2014
-
-Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона
-1. Я мысленно вхожу в Ваш кабинет (М. Волошин) М. Бади ("Арсенал")  5:04
-2. Из сафо (VII век до н.э.) , перевод В. Вересаева) Наталья Капустина (Вокальная группа "Современник")  5:17
-3. Из вагантов (XI - XIII вв.) , перевод Л. Гинзбурга) Игорь Иванов ("Надежда")  3:02
-4. Приглашение к путешествию (Ш. Бодлер , перевод И. Озеровой) А. Барыкин ("Самоцветы")  4:05
-5. Доброй ночи (П. Б. Шелли) М. Бади ("Арсенал")  3:45
-2 сторона
-1. По волне моей памяти (Н. Гильен , перевод И. Тыняновой) В. Андрианов ("Лейся , песня")  3:45
-2. Сентиментальная прогулка (П. Верлен , перевод А. Эфрон) С. Беликов ("Аракс")  3:57
-3. Сердце моё , сердце (И. В. Гёте , перевод В. Левика) А. Лерман (Вокальная группа "Добры молодцы")  3:58(   Читать дальше...   )Жанр: ArtRock, SchlagerПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
 ```
 
 

@@ -1,683 +1,674 @@
-###  Публикация: 1005800   (830282) от 10.04.2016
+###  Публикация: 1197178   (813927) от 08.01.2018
 
-Чудак / Oddball (2015) HDRip
+VA - Trance (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830282.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постоянные набеги лис грозят закрытием главной туристической достопримечательности маленького городка на юге Австралии — острову «Страна пингвинов». Чудаковатый птицевод вместе с внучкой решают спасти пингвинов. Как? С помощью неугомонного шаловливого пса-пастуха…Производство: Австралия, Kmunications, The Film Company, WTFN EntertainmentЖанр: ПриключенияРежиссер: Стюарт МакДональдПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:35:31Реклама: Присутствуют вставки голосовой и текстовой рекламы!
+01.  Arty  -  Twilight Tonight (Steve Brian Remix)  2:57
+02.  Daniel Kandi  -  What Happens When We End (Original Mix)  4:21
+03.  Paul Arcane  -  Transcend (Original Mix)  4:14
+04.  Emme  -  Kilimanjaro (Original Mix)  3:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:37:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:336AD9BD800B11551A9C1095FACE94B1B5C15943
+magnet:?xt=urn:btih:8BCEF19DC0F9729CFE85174136537A2D25D86FDA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005463   (830283) от 10.04.2016
+###  Публикация: 1197237   (813928) от 08.01.2018
 
-Идеальный день / A Perfect Day (2015) HDRip
+VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа сотрудников гуманитарной службы пытается достать труп из колодца в зоне конфликта. Кто-то бросил туда тело, чтобы отравить воду, и местные люди мучаются от жажды. Задача, которая кажется простейшей, превращается в невыполнимую миссию, в которой злейший враг — иррациональность. Работники пересекают местность, охваченную войной, пытаясь решить эту проблему.Производство: Испания / Mediapro, Reposado Producciones, Televisión Española (TVE)Жанр: драмаРежиссер: Фернандо Леон Де АраноаАктеры: Бенисио Дель Торо, Тим Роббинс, Ольга Куриленко, Мелани Тьерри, Федя Стукан, Серхи Лопес, Ненад Вукелич, Франк Фейс, Мортен СуурбаллеПеревод: Профессиональный (многоголосый, закадровый) (Paradox & Omskbird records)Субтитры: ОтсутствуютПродолжительность: 01:46:06
+01.  Betsie Larkin & Roman Messer  -  Unite (Extended Full Fire Mix)  5:46
+02.  Sunset & Steve Dekay  -  Turbulence (Extended Mix)  6:02
+03.  Attila Syah feat. Cari  -  Dark Side Of The Moon (Andy Elliass Extended Remix)  6:28
+04.  Cyril Ryaz  -  Punk Connection (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:31:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62BBFD4AFAFE0CC9AA6E0F1E17D8076FBEA14242
+magnet:?xt=urn:btih:7185F20C4DEE315097FD2BAEA39FBFE99656CC56
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499905   (830284) от 13.10.2021
+###  Публикация: 1197228   (813929) от 08.01.2018
 
-VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 4 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830284.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Klod Rights - Everyday (5:09)
-02. Matthew Daniel, Lina Loi - Joy (4:57)
-03. Stargazer - La Vie Est Belle (Pre Mix) (3:44)
-04. Cuetec - Structures (8:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:25
+01.  Roman Messer  -  Cosmodrome (Original Mix)  4:46
+02.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Instrumentall Mix)  5:48
+03.  Attila Syah  -  Malang Rain (Extended Mix)  7:08
+04.  NoMosk feat. Maria Milewska  -  Black Light (Dub Mix)  5:29(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:36:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C70083B08B62F000D74F76463BB332BA2593368F
+magnet:?xt=urn:btih:AF5A1DF13EA6BF28A399D118E52014694AC832BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495312   (830285) от 13.10.2021
+###  Публикация: 1008853   (813930) от 19.04.2016
 
-Sexy Chillout Music Cafe - Erotic Seductive Chillout: Night Sensuality, Making Love, Romantic Lounge (2021) [AAC|~295 Kbps] <Lounge, Downtempo, Chillout>
+Право голоса. "Тайная армия" Путина" (19.04.2016) SATRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830285.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Friday Night (3:39)
-02. Hotline Connection (3:47)
-03. Lap Dance (3:38)
-04. Moment of Desire (3:41)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 00:55:44
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Газета Bild опубликовала статью, в которой утверждается, что в Германии действует "тайная армия" Путина. Её основу составляют клубы единоборств, живущие в стране казаки и завербованные агенты из различных слоёв общества. Верят ли обычные европейцы в эти "страшилки" и много ли тех, кто поддерживает Путина? Как будут развиваться отношения с Европой? (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:297185D428B7D3C987231B7DDF34FD5F5A646446
+magnet:?xt=urn:btih:1A4B0C3B14F01AF98BB14A9E788A94111AA555EF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501916   (830286) от 13.10.2021
+###  Публикация: 1008738   (813931) от 19.04.2016
 
-VA - Carpe Diem Lounge (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Джон Голсуорси | Братство (2014) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830286.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stargazer - White Caps (Original Mix) (4:07)
-02. Living Room - Evening Groove (Original Mix) (3:42)
-03. Weber - The Soul (Original Mix) (5:46)
-04. Marc Hartman - Bright Like the Night (Original Mix) (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:02
+Новые времена - новые нравы… Пока профессор Сильванус Стоун, представитель уходящей эпохи викторианской Англии, работает над трудом "Книга братства", в его доме кипят нешуточные страсти молодого поколения. Отношения между молодыми людьми, преисполненные то комизма, то подлинного драматизма, снова и снова нарушают непререкаемые представления добродушного (   Читать дальше...   )Жанр: КлассикаПродолжительность: 13:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:258A6D464EA937580656E10F9D35C5D7589732E5
+magnet:?xt=urn:btih:DF7845C6454814964E4DDEE746EB2F88E2172C68
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502266   (830287) от 13.10.2021
+###  Публикация: 1008917   (813932) от 19.04.2016
 
-PCDJ DEX 3.16.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830287.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCDJ DEX 3 - профессиональное программное обеспечение для DJ на macOS, которое позволяет легко микшировать музыку, музыкальные клипы и устраивать караоке-шоу. DEX 3 дает вам полный контроль над вашими медиафайлами, предоставляя больше творческой свободы при микшировании, чем когда-либо прежде. Благодаря нашему автоматическому микшированию ударов на основе сетки ударов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: DIGITAL 1 AUDIO INCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9FC07781A50E189A50F6F2B2107906FFFF1E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496750   (830288) от 13.10.2021
-
-Боцман и Бродяга - Я милого узнаю по походке (1995) [AAC|~337 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь после лета (3:16)
-02. Я милого узнаю по походке (4:27)
-03. Дроля (4:07)
-04. Ты больная… (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DF45DDC22BBC1A945FCD473A10912C4BC60660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502259   (830289) от 13.10.2021
-
-MacX Video Converter Pro 6.5.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830289.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
-MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным устройством, включая даже смартфоны и планшеты не самой первой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82143828D3E642B639EBC09A917D302A2A2843D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501924   (830290) от 13.10.2021
-
-Billy Esteban, Rialians on Earth, Cafe De Anatolia - Around the World (2020) [AAC|~338 Kbps] <Chillout, Ethno Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe De Anatolia - Mediterraneo (5:15)
-02. Billy Esteban - Eagea (4:26)
-03. Cafe De Anatolia - Ozora (4:50)
-04. Billy Esteban - Heraclea (6:42)(   Читать дальше...   )Жанр: Chillout, Ethno Lounge, DowntempoПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C32D6D0BDB24B1205825C23D4C2BD8197076DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502131   (830291) от 13.10.2021
-
-Jazz At Lincoln Center Orchestra - The Music Of Wayne Shorter (2015) 2CD, 2020, Blue Engine Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+VA - My Kind Of Music: A Fine Romance (2012)3CD [FLAC|Lossless|tracks + .cue] <Jazz,Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_830291.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Yes or No [10:20]
-02. Diana [7:40]
-03. Hammer Head [7:43](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:27:41
+01.Ella Fitzgerald & Louis Armstrong - A Fine Romance - 00:03:55
+02.Bobby Darin - Dream Lover - 00:02:32
+03.Shirley Bassey - As I Love You - 00:02:55
+04.Frank Sinatra - Young At Heart - 00:02:51(   Читать дальше...   )Жанр: Jazz,Vocal JazzПродолжительность: 02:52:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F260E1C5E38A5AD41C24F9959D0CB38FD70F3C6
+magnet:?xt=urn:btih:280F79617B63C67BCF3A6E1A580F08557BB0929B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501708   (830292) от 13.10.2021
+###  Публикация: 1008637   (813933) от 19.04.2016
 
-VA - Relax Your Base, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_830292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Fuji-san (4:54)
-02. Smooth Deluxe, Nizam Kharda - Indian Cuisine (3:09)
-03. Inventors Of The Sun - Desert Moon (4:36)
-04. Eriq Johnson - A Lonely Place (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBBB7DB8695E601FD9382A7141007993A1BA793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500264   (830293) от 13.10.2021
-
-VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 1 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_830293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harrison & Daicz - La Sonrisa De María, Pt. 2 (1:57)
-02. Svendaq - World Contact (5:11)
-03. Krystian Shek - MAL-FRA (3:05)
-04. Corrado Saija - Nomos (17:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1255173C35A83DDE30DF70CE0238C0D3091F13FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500065   (830294) от 13.10.2021
-
-VA - Global Chill Out Masters, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - The Cosmic Vortex (6:45)
-02. Thomas Lemmer, Naemi Joy - Dive (Late Night Chill Version) (5:46)
-03. Weed - Blessed (6:00)
-04. Weathertunes - Finding Neverland (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09758B7709B742DCA7B811686127EDE2C223B344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495592   (830295) от 13.10.2021
-
-OneRepublic - Human (2021) [AAC|~303 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (2:48)
-02. Distance (3:00)
-03. Someday (3:08)
-04. Didn’t I (3:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C2A93BEFBEF061536788BE7DA7B62DE29CECDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501918   (830296) от 13.10.2021
-
-VA - Café Deluxe Chillout - Nu Ibiza / Lounge (2016) [AAC|~314 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) (4:19)
-02. Soundset City - From Bar to Bar (Café Lounge Groove Mix) (5:10)
-03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) (4:43)
-04. Dave Neville - Funny Sky (Cosmic Space Mix) (5:48)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E7245C72E2C57385978D61667C7C1BA4543BEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502222   (830297) от 13.10.2021
-
-FigrCollage 3.2.4 [Multi]
+Футбол. Чемпионат Англии 2015-2016. 34 тур. Обзор матчей. (18.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830297.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FigrCollage - программа для создания удивительных композиций, коллажей и мозаик, из любых цифровых изображений и текста. Приложение поддерживает обработку изображений в форматах JPG, PNG, TIFF, и дает возможность сохранять готовые файлы в высоком качестве.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+Обзор матчей 34-го тура.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:51:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:261C7D76B43B6F2302A4A8553AFEFA4971AAB9CF
+magnet:?xt=urn:btih:9B3CD2983610A37E24508BE296A09665FABB6ECD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501694   (830298) от 13.10.2021
+###  Публикация: 1008661   (813934) от 19.04.2016
 
-VA - 100% Relaxation (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+VA - LUXEmusic: Dance Super Chart Vol. 64 (2016) [MP3|320 кб/с] <Club House, Dance, Deep House, Electro House, House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830298.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solanos - Siempreverde (5:40)
-02. Arrojas - Bayamo (6:00)
-03. Sonnenburg - Above All (5:57)
-04. Komplextum - Interlude of Clarity (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:10
+01. 50 Cent - P.I.M.P. (DJ Krupnov & DJ All Inclusive feat DJ O'Neill Sax Radio Edit) [03:12]
+02. Adele - Hello (DJ Denis Rublev Remix) [04:25]
+03. Aisha - Новое поколение (DJ Andy Light & DJ O'Neill Sax Radio Remix) [03:49]
+04. Anton Liss feat. Гейдар Багиров - Океаны (Radio Edit) [03:45](   Читать дальше...   )Жанр: Club House, Dance, Deep House, Electro House, HouseПродолжительность: 03:26:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7369D8F175A80F3984565E2103D71ED1906BD71B
+magnet:?xt=urn:btih:3C2BDFEA738293E20D044E79199DE172BA61E7CC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497834   (830299) от 13.10.2021
+###  Публикация: 1008850   (813935) от 19.04.2016
 
-Röyksopp - Melody A.M. (2003) [AAC|~300 Kbps] <Electronic, Downtempo>
+VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830299.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. So Easy (4:10)
-1.02. Eple (3:37)
-1.03. Sparks (5:26)
-1.04. In Space (3:31)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:42:33
+001. Mr. Fingers - Qwazars [06:17]
+002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
+003. Borrowed Identity - Mary Jane [07:12]
+004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA1040871D6EFFD8305B587E5D8920B2DC3F2F7
+magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499904   (830300) от 13.10.2021
+###  Публикация: 1008606   (813936) от 19.04.2016
 
-VA - The Chill Side of Underground (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Downtempo>
+Журнал | Мир криминала №8 (апрель 2016) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830300.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Basics On Lounge - Insatiable Love (6:06)
-02. Thetis Signal - Eerie Mood (6:00)
-03. Blumenseele - Pleasure and Action (5:52)
-04. Lusser - In a Different Light (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:01
+«Мир криминала» - одно из самых популярных СМИ криминальной тематики, на рынке свыше 10 лет.
+Недавно был сделан ребрендинг издания. У журнала теперь обновленный макет, постепенно меняется и содержание номеров. Хотя упор, как и прежде, делается на самые громкие и скандальные преступления в России и за рубежом, специальные расследования, эксклюзивные материалы из жизни (   Читать дальше...   )Жанр: История, криминалистика, детективФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFEEF1C51EE45E6EB4FFDDE96F9128699F48BE39
+magnet:?xt=urn:btih:BFA1DFBBFDC39E009E39C1502876FDF6061D96E3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499675   (830301) от 13.10.2021
+###  Публикация: 1008786   (813937) от 19.04.2016
 
-VA - The History of Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
+The Cannonball Adderley Quintet - 74 Miles Away / Walk Tall (1967) Remaster, 2011, EMI Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830301.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Koenig Eltz - Shambala (6:22)
-02. Almohnke - Laid-Back Morning (6:03)
-03. Kaxamalka - Pearls (5:41)
-04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:45:10
+01.Do Do Do (What Now Is Next?) [06:23]
+ 02.I Remember Bird [06:57]
+ 03.Walk Tall (Baby, That's What I Need) [02:37]
+ 04.74 Miles Away [13:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82D515258EABF82C16D3AEB47739A0837EE22AD6
+magnet:?xt=urn:btih:518A97CC25BE40EBBEE4BECFCB53D51CA71CE48D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498526   (830302) от 13.10.2021
+###  Публикация: 1008784   (813938) от 19.04.2016
 
-Chris de Burgh - The Legend of Robin Hood (2021) [AAC|~330 Kbps] <Classical, Early Music, Folk>
+Даниил Гранин | Путевые очерки (1977) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830302.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. The Robin Hood Overture (3:09)
-1.02. The Tale of Robin Hood (3:14)
-1.03. The Wedding Feast (3:48)
-1.04. Only a Child (3:02)(   Читать дальше...   )Жанр: Classical, Early Music, FolkПродолжительность: 01:34:09
+Даниил Гранин,интересный русский писатель,рассказывает о своих путешествиях в Австралию и Францию, и описывает свои впечатления от увиденного.
+Для нескольких поколений россиян книги писателя Даниила Гранина были, как сейчас принято говорить, культовыми. Самые заметные из них - такие, как роман "Искатели" и повесть "Иду на грозу", - неразрывно (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBD1E14876ABF7EF8DEEE74E5FA6461D7436F5EE
+magnet:?xt=urn:btih:848611E4810FB87CA18F34A051AAA07820C7DABF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501919   (830303) от 13.10.2021
+###  Публикация: 1008713   (813939) от 19.04.2016
 
-VA - Winter Lounge (Destination Aspen) (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Coleman Hawkins - Blues Wail: Coleman Hawkins Plays The Blues (1996) Remastering, 1996 [APE|Lossless|image + .cue] <Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830303.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lounge Groove Avenue - Slow Soul (2:59)
-02. Luis Hermandez - Don't Want Your Love (3:06)
-03. Jane Maximova - A Straw (5:01)
-04. The Diventa Project - Coffee Shop (Short Edit) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:09
+01. Juicy Fruit
+02. Blues for tomorrow
+03. Blues Wail
+04. Soul blues(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C606E0969A6F7EFDF54E3D24016D5B68DA444146
+magnet:?xt=urn:btih:CF598EB6A1F4ACC8795B8DCCC75D010F57B4FB7A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 312414   (830314) от 22.03.2011
+###  Публикация: 1008561   (813940) от 19.04.2016
 
-Станислав Лемешкин - Далекая близкая (2011) [MP3|256 kbps]<Instrumental>
+Riot - Shine On (1998) Japan [APE|Lossless|image + .cue] <Heavy Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830314.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Далекая близкая
-02. Прикосновение
-03. Иду в неведомый мне путь
-04. Поцелуй дождя
-05. Быть может
-06. Сегодня, завтра, всегда
-07. Войди в мой дом
-08. Мимолетная встреча
-09. А за окном дождь
-10. Грезы(   Читать дальше...)Жанр: InstrumentalПродолжительность: 00:40:50
+01."Black Water" - 1:47
+02."Angel Eyes" - 4:26
+03."Soldier" - 4:51
+04."The Man" - 4:05(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A59D859BB766CFBED225FAA33960129AAB279E8B
+magnet:?xt=urn:btih:B0E12D77B9D1DA3B34ED9D87D9970F735550C53D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 309905   (830316) от 22.03.2011
+###  Публикация: 1008721   (813941) от 19.04.2016
 
-Евстифейка волк (2001) SATRip
+Этель Войнич | Оливия Лэтам (2015) [MP3]
 
 >>Архив торрентов
->>Архив Мультфильмов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830316.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бабуля блинцы напекла,но уже не масленница.Жанр: Рисованая анимация, ДетскийРежиссер: Елена Ужинова, Олег УжиновПерсонажи: Волк и все все все.Продолжительность: 00:05:13
+"Оливия Лэтам" - третий роман Этель Лилиан Войнич. В этом романе отразились ее впечатления от пребывания в России в 1887-1889 годах. Впечатления от семейства народовольцев Василия и Николая Карауловых легли в основу описания семьи Дамаровых. На русском языке "Оливия Лэтам" впервые была опубликована в 1906 г. в переводе А.Н. Анненской со значительными (   Читать дальше...   )Жанр: РоманПродолжительность: 08:04:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E1FAE709187C741AD0218A16F5EDD8D3B272657
+magnet:?xt=urn:btih:342E62B7DBBA49FC78F50112986BD300D75376F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 195592   (830317) от 25.04.2010
+###  Публикация: 1008669   (813942) от 19.04.2016
 
-Пандорум / Pandorum (2009) DVDRip
+Антивирусные базы Qihoo 360 (Bitdefender) от 2016.04.18 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813942.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Total Security и 360 Total Security Essential - бесплатные антивирусы с облачной и проактивной защитой - 360 Cloud и QVM II, а также дополнительными локальным движком Bitdefender для эффективной онлайн и оффлайн защиты от всех угроз.
+Антивирусные базы 360 Total Security для Windows позволяют обновлять локальные движок Bitdefender на компьютерах, не подключенных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FDF1AA7ADC3282ABE71D6498488257257AACC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008798   (813943) от 19.04.2016
+
+Art Blakey & Thelonious Monk - Art Blakey's Jazz Messengers With Thelonious Monk (1957) Remaster, 2006, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Evidence [06:47]
+ 02.In Walked Bud [06:40]
+ 03.Blue Monk [07:55]
+ 04.I Mean You [08:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989EFA8E8EE9B3DEF1EF10E359D1375E023F1FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008558   (813944) от 19.04.2016
+
+Riot - Angel Eyes (1997) Japan [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Eyes 4:29
+02. 15 Rivers 5:18
+03. Red Reign 5:27
+04. Turning the Hands of Time 5:08Жанр: Heavy MetalПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94F79978E05F073E73F9A563B0FF2C01CBACEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008880   (813945) от 19.04.2016
+
+VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Demegni – A New Love
+ 02. Luna Lounge – Luna Serenade
+ 03. Andrea Cardillo Project – Buona vita
+ 04. Vincenzo Ricca – Chill Thrill(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008712   (813946) от 19.04.2016
+
+Андрей Дубов - Начинается путь (2016) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аленушка
+02. Белый парус
+03. Вестница прошлого
+04. Дальняя дорога(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF590FC6762C1B75C7861D38D45C0E0666D8855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008562   (813947) от 19.04.2016
+
+Riot - Sons Of Society (1999) Japan [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Snake Charmer	01:04
+02.	On the Wings of Life	04:36
+03.	Sons of Society	04:26
+04.	Twist of Fate	05:36(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7129011E453685A292948EF75339D361415BD2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008556   (813948) от 19.04.2016
+
+Riot - The Brethren Of The Long House (1995) Japan [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	The Last Of The Mohicans (Intro) 01:41
+02.	Glory Calling	05:11
+03.	Rolling Thunder	03:56
+04.	Rain	04:58(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84911AAF04AD04401F5EF4A291D2FF1D02BD7A72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008792   (813949) от 19.04.2016
+
+McCoy Tyner Trio - Bon Voyage (1987) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bon Voyage [10:29]
+ 02.Summertime [06:13]
+ 03.Don't Blame Me [04:59]
+ 04.You Stepped Out Of A Dream [04:33](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568657FC5BB9AF52813EEB777511A2DFAF22AC7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776928   (813952) от 14.04.2014
+
+Кровные узы / Blood Ties (2013) BDRemux [1080p]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830317.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В безднах космоса движется звездолет. Два члена команды, пробудившиеся от гиперсна, оказываются в сложной ситуации: оборудование не работает, вспомнить они ничего не могут. Какова была их миссия? Сколько времени прошло? Где они? Кто они? На все эти вопросы у них нет ответов. К тому же, на корабле обнаруживаются чужие - злобные воины, которые крушат все на своем пути. (   Читать дальше...   )Жанр: Фантастика, Ужасы, ТриллерРежиссер: Кристиан Алверт /Christian Alvart/Актеры: Деннис Куэйд /Dennis Quaid/, Бен Фостер /Ben Foster/, Кэм Жиганде /Cam Gigandet/, Антье Трое /Antje Traue/, Кунг Ле /Cung Le/, Эдди Роус /Eddie Rouse/Перевод: ДублированныйПродолжительность: 01:43:36
+Нью-Йорк, 1974 г. После многих лет, проведенных в тюрьме по обвинению в убийстве, 50-летний Крис освобожден за примерное поведение. У дверей тюрьмы его поджидает младший брат Фрэнк — многообещающий полицейский. Братьев разделяет не только выбор «карьеры», но и взгляды на жизнь, и детское соперничество… Фрэнк надеется, что Крис изменился, и хочет дать ему шанс: находит (   Читать дальше...   )Производство: Франция, США / France 3 Cinéma, Canal+ (fr)Жанр: Триллер, драма, криминалРежиссер: Гийом Кане / Guillaume CanetАктеры: Клайв Оуэн, Билли Крудап, Марион Котийяр, Мила Кунис, Зои Салдана, Маттиас Шонартс, Джеймс Каан, Ноа Эммерик, Лили Тейлор, Доменик ЛомбардоззиПеревод: Многоголосый закадровый (профессиональный)Озвучка / Автор перевода: BaibaKoЯзык субтитров: Английский (full, SDH), французскийПродолжительность: 02:08:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6A64524AB893DD9729E7792EB50CE8524A6D7B69
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 195569   (830337) от 25.04.2010
+###  Публикация: 777319   (813953) от 14.04.2014
 
-Mark Knopfler: A night in London (1996) DVD5
+9 месяцев строгого режима / 9 mois ferme (2013) BDRemux [1080p]
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830337.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: RockПродолжительность: 00:95:02
+Ариана — судья, трудоголик и блондинка с высокими моральными принципами. Никаких мужчин. Никакой семьи. Никаких детей. Только работа, только закон. Кошмарная новость — и конец идиллии — она беременна! «Этого не может быть!» — кричит Ариана, начиная расследование самого невероятного дела в своей жизни! Распутать его отчаянно мешают собственные принципы и знаменитый (   Читать дальше...   )Производство: Франция / France 2 Cinéma, Canal+ (fr)Жанр: КомедияРежиссер: Альбер Дюпонтель / Albert DupontelАктеры: Сандрин Киберлэн, Альбер Дюпонтель, Николя Марье, Филипп Юшан, Филипп Дюкен, Кристиан Эк, Жиль Гастон-Дрейфус, Лорэ Кэлами, Иоланда Моро, Мишель ФоПеревод: Дублированный (лицензия DVD R5)Язык субтитров: Русский, английскийПродолжительность: 01:22:01
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:677D607B0FAB2796C88869A4ECA46CC08B337FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777080   (813954) от 14.04.2014
+
+Сборник - Книги / Books [JPEG,PNG,PSD,EPS,AI]
+
+>>След.
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги
+книга открытая,закрытая,толстая,тонкая,лежачая,стоячая и даже волшебная  :romashka:Формат: JPEG,PNG,PSD,EPS,AIРазрешение файлов: 1800х2400-7600х6700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA682174DE6D7875BA7580023745E5338DB7B05E
 ```
 
 

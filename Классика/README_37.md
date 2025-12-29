@@ -1,3 +1,189 @@
+###  Публикация: 1010711   (802037) от 25.04.2016
+
+Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|320 кб/с] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring  (0:42)
+02. Spring 1 (2:32)
+03. Spring 2 (3:19)
+04. Spring 3 (3:09)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C09AE0E5D21117544B08B3AF801B4EE00A05456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010170   (803621) от 24.04.2016
+
+Andre Rieu - Magic Of The Waltz (2016) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Windsor Waltz (6:14)
+02. The Blue Danube (8:01)
+03. The Merry Widow (3:05)
+04. Valse Triste (4:41)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DD63BF4A1E943806D899B924F5959175D16D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119769   (805130) от 29.03.2017
+
+La Grande Ecurie et la Chambre du Roy, Jean-Claude Malgoire - Jean-Philippe Rameau - Les Paladins (Паладины) (1990) [FLAC|Lossless|image + .cue] <Baroque opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805130.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01 - ACTE I: Ouverture. Galop, Menuet, Rondeau
+02 - Scène 1: Argie, 'Triste séjour, solitude ennuyeuse'.
+03 - Scène 2: Orcan, 'Argie, holà... Nérine...'.(   Читать дальше...   )Жанр: Baroque operaПродолжительность: 02:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF1147D4A0909153D6AB1EEAFE7960F5261B0BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384021   (805890) от 18.05.2020
+
+Lindsey Stirling - Warmer In The Winter (2018) Deluxe Edition [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Classical Crossover>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Of The Sugar Plum Fairy
+02. You’re A Mean One, Mr. Grinch (feat. Sabrina Carpenter)
+03. Christmas C’mon (feat. Becky G]p)
+04. Carol Of The Bells(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65063BE4ABC81EC02FFB82C8BE2BE9D844A2E20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198539   (806179) от 12.01.2018
+
+VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Classical, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earl Wild and Royal Philharmonic Orchestra - Piano Concerto No. 2 In C Minor (Rachmaninoff) (13:25)
+02. The Virtuoso Piano Quartet - Malaguena (Lecuona) (4:02)
+03. Michael Reeves and National Philharmonic Orchestra - Theme From Sonata In C (Mozart) (2:26)
+04. Earl Wild and Royal Philharmonic Orchestra - Nocturne In A Flat (Chopin) (4:02)(   Читать дальше...   )Жанр: Classical, Easy ListeningПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505164   (806301) от 26.10.2021
+
+VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vitaly Margulis - Nocturnes, Op. 9 No. 2, Andante in E-Flat Major (4:34)
+02. Henrik Mawe - Suite bergamasque, L. 75 III. Clair de lune (5:01)
+03. Vitaly Margulis - Waltzes, Op. 64 No. 1, Molto vivace in D-Flat Major Minute Waltz (1:53)
+04. Slovak Philharmonic Orchestra - Piano Concerto No. 5 in E-Flat Major, Op. 73 Emperor II. Adagio un poco moto (8:19)(   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 02:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E4C85539ABD8DBE0BC5FAC79740065E882186E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431123   (807741) от 11.01.2018
+
+Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC|Lossless]<Classic, Sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ансамбль Органум (фр. Ensemble Organum) — французская музыкальная группа, исполняющая средневековую (и похожую на средневековую) музыку. Основана в 1982 годуПродолжительность: ~35 часов 20 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A20CD4476147B142FB814970EACC6BEA7B52BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009258   (809552) от 21.04.2016
 
 J. S. Bach: Complete Flute Sonatas; Complete Viola da Gamba Sonatas (1993) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque>
@@ -510,207 +696,6 @@ New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196695   (820525) от 04.01.2018
-
-David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Classical, New Age>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wandering Path
-02. Conversation avec les Etoiles
-03. The River at Night
-04. Midnight Kiss(   Читать дальше...   )Жанр: Piano, Classical, New AgeПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653376   (821213) от 12.05.2013
-
-Ансамбль Мадригал, Андрей Волконский - Cерия Тысяча лет музыки (после 1981) 16 LP [FLAC|Lossless]<Сlassic>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У. БЁРД (1543—1623): Месса для пяти голосов (24.32)
-- Kyrie eleison
-- Gloria in excelsis
-- Credo
-- Sanctus
-- Benedictus
-- Agnus Dei
-02. У. БЁРД (1543—1623): Callino Casturame, вариации для клавесина (3:55)
-03. Дж. ДОУЛЕНД (1562—1626): What if I never speede, мадригал (2:44)
-04. Дж. ДОУЛЕНД (1562—1626): If my complaints, песня (3:36)(   Читать дальше...   )Жанр: classicПродолжительность: 0:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36201740E449FA53B87A89E1EE7B8B0F764066A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503181   (821233) от 18.10.2021
-
-VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Ciccolini - Suite bergamasque, L. 75 - III. Clair de lune (4:43)
-02. Alexis Weissenberg - Nocturnes, Op. 9 - No. 2 in E-Flat Major (Andante) (4:40)
-03. Henrik Mawe - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 -Moonlight - - I. Adagio sostenuto (5:26)
-04. Kun-Woo Paik - Hungarian Rhapsodies, S. 244 - No. 12 in C-Sharp Minor (10:49)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6DE383589D15CA10FE881F9128D4720DFDB40C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655174   (821520) от 12.05.2013
-
-Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Biondi (2001) /2002 Virgin Classics [flac|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in G major for 2 mandolines and strings RV532
-1 I. Allegro 3:57
-2 II. Andante 2:46
-3 III. Allegro 3:20
-Concerto in C major for 2 violini in tromba marina, 2 flauti dritti, 2 madolini, 2 salmoe, 2 teorbe e violoncello RV558
-4 I. Allegro molto 4:52
-5 II. Andante molto 1:29
-6 III. Allegro 2:54
-Concerto in G minor per violino, 2 flauti dritti, 2 oboi, fagotto ed archi RV 576, 'dedicato a Sua Altezza Reale di Sassonia'
-7 I. Allegro 4:13(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E0038B2BFE6B790A778ABD530F9ADE50E357E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116569   (822150) от 20.03.2017
-
-2Cellos & London Symphony Orchestra - Score (2017) [FLAC|Lossless|tracks + .cue] <Neoclassical, Stage & Screen, Score>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramin Djawadi - Medley (From Game of Thrones) (5:04)
-02. Enya, Roma Ryan, Nicky Ryan, Howard Shore - May It Be (From The Lord Of The Rings: The Fellowship Of The Ring) (3:56)
-03. James Horner - For The Love Of A Princess (From Braveheart) (5:11)
-04. Francis Lai, Carl Sigman - Love Story (From Love Story) (3:24)(   Читать дальше...   )Производство: Portrait, Sony Masterworks – 88985349122Жанр: Neoclassical, Stage & Screen, ScoreПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BC5AE6A5F62551B597244530AAEE9DB79BA7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116535   (822236) от 20.03.2017
-
-VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Tipo - Goldberg Variations, BWV 988: Aria
-02. Marielle Labeque, Katia Labeque, Israel Philharmonic Orchestra and Zubin Mehta - Le carnaval des animaux, R. 125: VII. Aquarium
-03. Aldo Ciccolini - Arabesque, L. 66: I. Andantino con moto
-04. Wolfgang Sawallisch, Philharmonia Orchestra and Annie Fischer - Piano Concerto No. 21 in C Major, K. 467: II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD73DE2EAC6D04FE8E7A28517A8BF8926D589B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116201   (822482) от 20.03.2017
-
-L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ireneu Sagarra (1917)
-1. Salve Regina “Germinans” 8:02
-
-Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
 ```
 
 

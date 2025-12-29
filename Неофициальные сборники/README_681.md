@@ -1,3 +1,165 @@
+###  Публикация: 1615933   (1037001) от 28.02.2023
+
+Shiroe Brothers - Single (2022-2023) [MP3|320 Kbps] <Ethnic, World Music, Dance House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribal [04:32]
+02. The Journey [06:00]
+03. Om Shiva Hom [03:25]
+04. Dancing Whistle [03:15](   Читать дальше...   )Жанр: Ethnic, World Music, Dance HouseПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3D5A76CA034D73153D9BE1C7B9624F9C3BEEEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441762   (1037123) от 23.01.2021
+
+VA - Ibiza Lounge Music 2021 [MP3|320 Kbps] <Pop. Vocal Chillout, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kyla La Grange, Kygo - Cut Your Teeth (6:39)
+002. Wankelmut, Emma Louise - My Head is a Jungle - Extended Vocal Mix (6:33)
+003. Tove Lo, BURNS, BloodPop®, Vitaclub - Sweettalk my Heart (4:58)
+004. Lane 8, Le Youth, POLICA - The Rope (4:39)(   Читать дальше...   )Жанр: Pop, Vocal Chillout, OtherПродолжительность: 05:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2B06A905EC96902029722855A7E91128641B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442037   (1037160) от 23.01.2021
+
+VA - не Громкие новинки недели 95 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Любавин - Холодает (4:00)
+02. KIRILL - Застелила (4:01)
+03. Элбой feat. Eskin - На Небе (3:52)
+04. ДжаЯмми - Брат (3:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85227F5E01266B514674EF87887661C927AA2AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441782   (1037165) от 23.01.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 22.01.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Yeter - Body Talks (3:56)
+02. Nea & Nio Garcia - DIABLO (2:46)
+03. Marshmello & Imanbek feat. Usher - Too Much (2:49)
+04. Joel Corry feat. MNEK - Head & Heart (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FD3C8E6C8C5EC30F9795CCF1ECD5E83C3AA8E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441871   (1037178) от 23.01.2021
+
+VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasimir1441, badmómzjay & WILDBWOYS - Ohne Dich
+02. Olivia Rodrigo - drivers license
+03. Katja Krasavice - HIGHWAY (feat. ELIF)
+04. Rin - Dirty South(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6343AC13E61BB1E04506823B51F28BF4336BA782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441496   (1037376) от 22.01.2021
+
+VA - Party Retro Hits 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда самые известные, а ныне немного подзабытые популярные мелодии из прошедшего столетия в лонгплее под названием "Party Retro Hits 80s", накатят волну ностальгии и как и прежде порадуют Вас своими заводными мелодиями.001. Kylie Minogue - Hand On Your Heart
+002. The Whispers - And The Beat Goes On
+003. Re-Flex - The Politics Of Dancing
+004. Clannad, Bono - In A Lifetime(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D6C921A1EECF1E3987DF0BE2F33CFCB51380CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441492   (1037453) от 22.01.2021
 
 VA - Beyond The Airwaves: EDM Essentials Hits (2021) [MP3|320 Kbps] <Electro, Dance, Techno, House>
@@ -533,168 +695,6 @@ VA - Smooth Jazz: The Magic Of Improvisation (2021) [MP3|320 Kbps] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEA39D47C3D80303224E33345347455C742A9B55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440893   (1038239) от 19.01.2021
-
-VA - Hospitality Christmas Pop Party (2021) [MP3|320 Kbps] <Pop, Romantic, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приятные и простые мелодии музыкальной подборки "Hospitality Christmas Pop Party" слушаются на едином дыхании, делая пластинку крайне простой и легкой для восприятия. Остаться равнодушным к такой музыке сможет только тот, кто абсолютно глух.001. Shakira - Whenever, Wherever
-002. Nico Santos - Nothing To Lose
-003. Pharrell Williams - Happy
-004. In-Grid - Summer Souvenir(   Читать дальше...   )Жанр: Pop, Romantic, DanceПродолжительность: 08:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC79F78C4E1122FFEE9F5DAFF2B23C3A2777690D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440828   (1038252) от 19.01.2021
-
-VA - XV Anniversary Compilation (2021) [MP3|320 Kbps] <Doom Metal, Drone, Post-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shattered Hope - Prometheus Unbound (28:44)
- 02. S.C.A.L.P. - Третья Весна - The Third Spring (09:14)
- 03. Amederia - Doomed Ground (12:08)
- 04. Invernoir - Cast Away (07:10)(   Читать дальше...   )Жанр: Doom Metal, Drone, Post-MetalПродолжительность: 13:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3272E725EBE634DD4F2FC27FBE6C78415A2FFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440888   (1038259) от 19.01.2021
-
-VA - Vocal Chillout: Move With The Beat Vol.02 (2021) [MP3|320 Kbps] <Vocal Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лонгплей "Vocal Chillout: Move With The Beat" с уверенностью можно назвать чрезвычайно "пластичной" работой. Все треки на пластинке крайне медленны и обтекаемы, тем самым на лонгплее главенствует релаксовое настроение, сравнимое с самой настоящей нирваной.001. Dee C'rell - Whodoo
-002. Frozenax3 - Forever
-003. Gareth Emery - Gunshots
-004. Tuneberg - Amazing Grace(   Читать дальше...   )Жанр: Vocal ChilloutПродолжительность: 08:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B666DF3F4B865AA597736B3CD182A00F7B23F988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440905   (1038275) от 19.01.2021
-
-VA - EDM Free Style (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, вошедшая в микс "EDM Free Style" обладает своей атмосферой, превосходной динамикой и немалой долей оригинальности. Если вам нравятся не ординарные и свежие стилистические решения, то треки лонгплея смогут показать вам свои по-настоящему свежие мысли в привычном стиле танцевальной музыки.001. Van Storck - I Bet You Do
-002. Corona - Baby, I Don't Care
-003. Minupren - Regenbogen
-004. Midnight Cvlt - One Shot(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 11:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D868F09080D52CDDD756028B4315D784A6CEACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440904   (1038290) от 19.01.2021
-
-VA - Hard Dance Motion (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038290.jpg" />
-</div>
-
-
-###  Подробнее
-
-С треками сборника "Hard Dance Motion" Вы можете наслаждаться духом настоящего андерграунда. Стиль прогрессивного хардстайла, который соединил в себе всё самое лучшее из техно и клубного хауса остаётся и поныне одним из самых популярных направлений электронной музыки.001. Kors K - Outro
-002. Cygnus X - Superstring
-003. Mystical Mind - Desire (Radio Edit)
-004. Starfall - Believe(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36328CFD426552D01F07BF70B1276FC23BABB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440616   (1038408) от 18.01.2021
-
-VA - Наше Радио. Лучшее '2020 (2021) MP3 от DON Music [MP3|320 Kbps] <Русский Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038408.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ночные Снайперы - Казино
-002. Мумий Тролль - Тот день когда
-003. Сплин - Джин
-004. Lumen - Электричество(   Читать дальше...   )Жанр: Русский РокПродолжительность: 07:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416499D96F262FCDE5B1EE724F8E5F8E5561726C
 ```
 
 

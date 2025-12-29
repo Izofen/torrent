@@ -1,3 +1,165 @@
+###  Публикация: 1437737   (1041964) от 05.01.2021
+
+Larkin Poe - Self Made Man (2020) [MP3|320 Kbps] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's A Self Made Man (03:02)
+ 02. Holy Ghost Fire (03:23)
+ 03. Keep Diggin' (03:13)
+ 04. Back Down South (03:55)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DE1531FB1FF6F0D7AA5944E35FB0B3BB03EE48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437508   (1042051) от 05.01.2021
+
+Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquest (05:01)
+ 02. Mission Control (03:51)
+ 03. Out the Window (05:58)
+ 04. Player 2 (04:10)(   Читать дальше...   )Жанр: Jam Rock, FusionПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10573416B41453A1187A8DCF8D63ED9FFFB25F18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437596   (1042055) от 05.01.2021
+
+Dorian Wilde - I Am Ready For Love (2020) [MP3|320 Kbps] <Progressive Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Ready For Love (03:48)
+ 02. You Are Not So Far (02:31)
+ 03. My Picture (04:19)
+ 04. Mask (08:11)(   Читать дальше...   )Жанр: Progressive Rock, InstrumentalПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6591E6A979C96632074FC4C1225A8E72BFEBBFA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437528   (1042057) от 05.01.2021
+
+Adam Nitti - The World Is Loud (2021) [MP3|320 Kbps] <Progressive Rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Is Loud (05:21)
+ 02. Zombies (04:42)
+ 03. The Locust (05:24)
+ 04. Broken Dreams (04:56)(   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9EF4CAF004B63D5051B08F740188115079ED76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437197   (1042243) от 04.01.2021
+
+The Groundhogs - Split (1971) 50th Anniversary Edition, Reissue, 2020, Fire Records [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Split Pt. 1 (2003 Remastered Version) (04:30)
+ 02 - Split Pt. 2 (2003 Remastered Version) (05:15)
+ 03 - Split Pt. 3 (2003 Remastered Version) (04:31)
+ 04 - Split Pt. 4 (2003 Remastered Version) (05:44)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FD65A00A6D98D943F8BBE1357F7647CC97D4C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437186   (1042556) от 03.01.2021
+
+Magick Brother & Mystic Sister - Magick Brother & Mystic Sister (2020) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia (04:57)
+ 02. Waterforms (04:06)
+ 03. The First Light (02:24)
+ 04. Yogui Tea (05:16)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE262906B61D96CCBE2801F3527803F1A5844E55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437203   (1042561) от 03.01.2021
 
 The Rome Pro(G)ject - IV - Beaten Paths Different Ways (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -533,168 +695,6 @@ Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E646C61268CC06BDC53652C00980CFD5D13A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607245   (1044084) от 26.01.2023
-
-Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into overdrive [00:04:04]
-02 - Mutiny [00:04:15]
-03 - Late to life [00:04:27]
-04 - Diva of death and destruction [00:05:06](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED02AEDD2B1598386EC45F509C338C960D40543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606717   (1044305) от 23.01.2023
-
-Rainbow - Ritchie Blackmore's Rainbow (1975) Reissue, 2014, Polydor [OGG Vorbis|520 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Man On The Silver Mountain
-02.Self Portrait
-03.Black Sheep Of The Family
-04.Catch The Rainbow(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49ED327559DC7A47B0680A01DA2A050FDD507DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606569   (1044441) от 22.01.2023
-
-Bonnie Tyler - 3 Original Classics Box Set (1992) [MP3|320 Kbps] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just A Woman
-02. We Danced On The Ceiling
-03. Wild Love
-04. The Closer You Get(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:57:129
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA8DF09611CE9BBA79934D4BF19CFAFABFA8F53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606585   (1044442) от 22.01.2023
-
-Rainbow - Difficult To Cure (1981) Reissue, 2013, Polydor [OGG Vorbis|450 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Surrender
-02. Spotlight Kid
-03. No Release
-04. Magic(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34006CB4C15AC474005B8671FE06C9605CCD88DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606195   (1044475) от 21.01.2023
-
-Scorpions - Blackout (1982) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|450 Kbps] <Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackout
-02. Can’t Live Without You
-03. No One Like You
-04. You Give Me All I Need(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C9D72B8498E2225FB2A56CD36E61DF3D733777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606342   (1044525) от 21.01.2023
-
-Dire Straits - Love Over Gold (1982) Reissue, Remastered, 2011, Vertigo [OGG Vorbis|450 Kbps] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telegraph Road
-02. Private Investigations
-03. Industrial Disease
-04. Love Over Gold(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C705E05975B1A9467D5BC64AB1FE9A5041B125
 ```
 
 

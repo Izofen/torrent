@@ -1,3 +1,89 @@
+###  Публикация: 606677   (993836) от 24.01.2013
+
+Mylene Farmer - Monkey me (2012) [LPCM 2.0 24/96 |Blu-ray] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopКачество: Blu-rayПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F982FDF929B743B82BDEF607D190D7F91334B550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607563   (993977) от 24.01.2013
+
+ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Дождь 5:16
+A2. В Последнюю Осень 5:02
+A3. Фома 7:02
+A4. Родина 4:44
+B1. Храм 5:23
+B2. Что Такое Осень 4:58
+B3. Ночь 5:16
+B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604991   (995385) от 20.01.2013
+
+Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.- Кончится лето (5:56)
+02.- Красно-желтые дни (5:50)
+03.- Нам с тобой (4:50)
+04.- Звезда (4:30)
+05.- Кукушка (6:39)
+06.- Когда твоя девушка больна (4:22)
+07.- Муравейник (5:17)
+08.- Следи за собой (5:00)Жанр: RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605588   (995401) от 20.01.2013
 
 Кино (Виктор Цой) - Ночь (1986/1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
@@ -696,87 +782,6 @@ Alone Again (Naturally) (1972)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351125   (1002667) от 08.01.2020
-
-Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theme From S.W.A.T. (1976)
-
-01. Police Story
-02. Happy Days(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350668   (1002912) от 07.01.2020
-
-Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laughter In The Rain (1975)
-
-01. Laughter in the Rain (Sedaka; Cody)
-02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350156   (1003685) от 04.01.2020
-
-Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003685.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Happy Sound Of Ray Conniff (1974)
-
-01. I'll Be With You In Apple Blossom Time
-02. You Made Me Love You (I Didn't Want To Do It)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
 ```
 
 

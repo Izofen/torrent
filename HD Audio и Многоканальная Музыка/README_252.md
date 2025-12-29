@@ -1,3 +1,84 @@
+###  Публикация: 773795   (832753) от 04.04.2014
+
+Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832753.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ocean Breakup / King of the Universe (4:06)
+A2. Bluebird Is Dead (4:43)
+A3. Oh No Not Susan (3:07)
+A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380624   (832820) от 03.05.2020
+
+The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You (4:49)
+ 02. When the Whip Comes Down (4:21)
+ 03. Imagination (4:39)
+ 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380462   (832949) от 03.05.2020
+
+Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
+Norman Gimbel, Michel Legrand, Jaques Demy
+A2. Didn't We
+Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501854   (833536) от 11.10.2021
 
 Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
@@ -617,84 +698,6 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498981   (851019) от 30.09.2021
-
-Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Wave, Alternative Rock, Post-Punk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110767   (851754) от 03.03.2017
-
-Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Walking Back To Me (3:43)
-A2. Your Love Is All (4:10)
-A3. Stop (4:56)
-A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Производство: A&M Records - 395 195-1Жанр: RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001585   (852186) от 29.03.2016
-
-VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald - A Tisket, A Tasket
-02. Ella Fitzgerald - Undecided
-03. Ella Fitzgerald - Flying Home
-04. Ella Fitzgerald - Smooth Sailing(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
 ```
 
 

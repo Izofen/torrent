@@ -1,3 +1,162 @@
+###  Публикация: 986737   (925982) от 17.02.2016
+
+VA - YouTube Top100 Music Singles Chart 25th January (2016) [MP3|236-320 кб/с] <Hip Hop, R&B, Pop Punk, Electropop, Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925982.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. Justin Bieber - Sorry
+003. Drake - Hotline Bling
+004. David Bowie - Lazarus(   Читать дальше...   )Жанр: Hip Hop, R&B, Pop Punk, Electropop, SynthpopПродолжительность: 06:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B3EA35D144F687CA27037AA1C8E3BA461621EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987312   (926062) от 17.02.2016
+
+VA - House Nation Volume 2 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djuro - 3,2,1 (05:19)
+02. Will Sparks feat. Wiley & Elen Levon - Ah Yeah So What (03:23)
+03. COMBO! - Bill Durry (04:04)
+04. Will Sparks - Catch (Radio Edit) (02:57)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B631097C776AF391B7765487CB943BEF9C63D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177619   (926199) от 24.02.2010
+
+Испанская Гитара - Лучшие Хиты 2CD - VA - Spanish Guitar Best Hits Vol.2 (2001) [MP3|320 kbps] <World, Flamenco, Salsa>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: World, Flamenco, SalsaПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987450   (926219) от 17.02.2016
+
+VA - Сердце в шрамах (2016) [MP3|256 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Валерий Вави - Я Не Жду
+002. Сергей Бурштейн - Время
+003. Наталья Лапина - Дождись Хороший Мой
+004. Паша Нарочанский - Свободен(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1775D549ADEA285FF7F3C7C10FC72A8DF513E7E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987357   (926220) от 17.02.2016
+
+VA - Зима на Шансоне (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Махачкалинский - Ша-Бемоль Аленка
+02. Сергей Любавин - Свадьбы
+03. Андрей Иванцов - Нет Худа Без Добра
+04. Сергей Куренков - Ангел Мой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99296857E463DE03D58CF51E7AF281841606D28B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987370   (926224) от 17.02.2016
+
+2011stress - Гости Снов (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Classic styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Я иду искать
+02.Лунная Колыбельная
+03.Бессознательное
+04.Гости Снов(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Classic stylingПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A307500A87EC4B64AE4AC2ACCFFDE845F6670F16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987548   (926242) от 17.02.2016
 
 VA - EDM Deejay Compilation 2016 (2016) [MP3|320 кб/с] <Electro House, Progressive House>
@@ -533,168 +692,6 @@ VA - Autour De Minuit - Piano Bar (2012) [MP3|320 кб/с] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C718306CE58728856FD98DF32F90F0759D0943C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987123   (927772) от 16.02.2016
-
-VA - Acoustic Pop (2016) [MP3|320 kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Fix You
-02. Thom Cooper - Next to Me
-03. Landa - Hello
-04. Chloe Le Page - Middle of the Bed(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799A4D3893C4BB7BD576BCDAF8F13B4000D4E16B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094986   (927855) от 19.01.2017
-
-VA - Music For Everyone - Chillout & Lounge Vol.5 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927855.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agebeat – Sweet (Reprise) (Original Mix)
-2. Finkk – Orange Sunrays (Dub Mix)
-3. Emotional – So Free (Vocalchill Mix)
-4. Dream Machine – Paradise Islands Of Chill (Kandi Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, HouseПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C53D8FCE026571A9C7BF7768066907ED64CEE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986993   (927862) от 16.02.2016
-
-VA - Hot Dance Motion: Winter Show (2016) [MP3|320 kbps] <Dance, Club, Electro, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927862.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Firebeatz - Had It
-002. Chris Packer - Random
-003. Marlon Roudette feat. KStewart - Everybody Feeling Something
-004. Julian Perrerra - Miracle(   Читать дальше...   )Жанр: Dance, Club, Electro, Pop, HouseПродолжительность: 08:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033622F9C85CFB8AEC8A9B7C1FC59F87185D6FBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094701   (927885) от 19.01.2017
-
-VA - Games Rain: Chillout Party January (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Automatic Sound Pilot - Walking Into Silence (German Turbo Mix)
-002. Jack-o'-Lantern - Soul (Original Mix)
-003. Zellarai - Fear (Original Mix)
-004. 5th Groove - Riding the Waves (Next Project's Grand Voyage Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21DAC35742DB47EAFFF5B25F34C003DBE3408B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094780   (927912) от 19.01.2017
-
-VA - Chart Tunes - Indication Reality (2017) [MP3|252-320 Kbps] <Funky, Vocal, Dance, Bigroom, Progressive, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies Feat. Sandro Cavazza - Beautiful Life (Gareth Emery Remix) 03:40
-02. Nora En Pure - On The Beach (Original Mix) 05:38
-03. Empir3 Feat. Pit Bailay - Ride Like The Wind (Jane Vogue's Remix) 04:25
-04. Dario Trapani - Together (Radio Edit) 03:19(   Читать дальше...   )Жанр: Funky, Vocal, Dance, Bigroom, Progressive, HouseПродолжительность: 04:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B41A4145243E92CA3399A5E44D9A3D3D6471E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987046   (927923) от 16.02.2016
-
-VA - Игорь Козлов - Мальчики-налётчики (1990) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мальчики-налётчики
-02. Бабушка здорова
-03. Сонечкины именины
-04. Темница(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39342CB1D677EDB5282472392B906978EE374EBF
 ```
 
 

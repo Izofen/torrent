@@ -1,3 +1,168 @@
+###  Публикация: 981012   (954482) от 30.01.2016
+
+VA - The Best World Ballads - 28 (2016) [MP3|320 кб/с] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Jessica Folcker-Little Bit Longer 4:06
+002 Kendji Girac-Ma Solitude 3:07
+003 Tina Arena-I Want To Love You 5:14
+004 James Morrison-Stay Like This 3:39(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E59B1AFA937F2374B94F3AA9A4BE7A3A52F8FA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980804   (954503) от 30.01.2016
+
+VA - Blues Forever vol.13 - vol.16 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blues Forever vol.13 (2015)
+01. Miller Anderson - City Blues
+02. Trampled Under Foot - Desperate Heart
+03. Doyle Branhall II - Marry You(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052298EC329F11884D163F7A634E739E79505435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857225   (954626) от 07.01.2015
+
+VA - My Favourite Hits of 1971 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954626.jpg" />
+</div>
+
+
+###  Подробнее
+
+138. Lobo - Another Hill To Climb
+139. Rory Gallagher - For The Last Time
+140. The Byrds - B.B. Class Road
+141. James Gang - Walk Away(   Читать дальше...   )Жанр: Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard RockПродолжительность: 09:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDF2A07BE9A171454FA48A758F9587395874DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980823   (954664) от 30.01.2016
+
+VA - Душевный Шансон Зимняя Метелица (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Светлана Астахова – Ночная песня
+2. Константин Куклин — Тебе И Мне
+3. Юрий Сергеев — Цыпа Ненаглядная
+4. Александр Переверзин — Ты Лучшая(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAB516EF21FE7949063FA4C4D9948B426CB2CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978487   (954745) от 30.01.2016
+
+VA - Extra House: Bonus [05] (2016) [MP3|320 кб/с] <Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cahio, Alternative Kasual, Diana Alencar - Wicked Game (Moe Turk Remix) (05:01)
+02. Deepjack, Kinspin - Make Me Cry (Anton Ishutin Remix) (06:40)
+03. Luxx feat. Alice - The Things You Do (Extended Mix) (05:07)
+04. Pretty Pink feat. ARC - Run (Extended Mix) (06:24)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3010348C8E0BBC615DD86217B59572D03572F30F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088469   (955009) от 01.01.2017
+
+VA - Hits of My Soul Vol. 20 (2016) [MP3|320 кб/с]<Pop, Dance, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Несчастный Случай - С 1-го по 13-е (03:44)
+02. Триплекс - Новогодняя история (03:35)
+03. ABBA - Happy New Year (04:29)
+04. DJ Nejtrino, Nikita Malinin - Новогодняя (02:53)(   Читать дальше...   )Жанр: Dance, Pop, Retro, RockПродолжительность: 02:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC78402FCE8E56375F266BD79C3C2E53AEBC3EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088689   (955060) от 01.01.2017
 
 VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #56 (2016) [MP3|256~320 Kbps] <House, Pop, Club, Dance>
@@ -539,168 +704,6 @@ VA - Блатная музыка на любимой волне (2016) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E488FE5425E003179AF0243857539ECD5C3D9607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980259   (956273) от 29.01.2016
-
-VA - Extra Latin Sensation (2016) [MP3|320 кб/с] <Latin, Dance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon El Emperador - Propuesta (Original Mix)
-02. Yandel - No Sales de Mi Mente (feat. Nicky Jam)
-03. FSC - Toko-to (Original Mix) (feat. Yoger)
-04. Yandel - Encantadora(   Читать дальше...   )Жанр: Latin, Dance, Pop, HouseПродолжительность: 04:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061223C2772071BC657B556A7F6BF7063F3F48FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980277   (956278) от 29.01.2016
-
-The Grid - Collection (1990-2008) [OGG|438-522 кб/с] <Downtempo, Ambient, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floatation (Subsonic Mix)
-02. Face The Sun
-03. Heartbeat
-04. Rollercoaster (The Global Communication Yellow Submarine Re-Take)(   Читать дальше...   )Жанр: Downtempo, Ambient, TechnoПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160E64B8A1F98DA7B139558A76F0CDDF27B66696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980515   (956284) от 29.01.2016
-
-VA - Christmas Chillout Gift 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rega Avoena - Earth Angels (Original Mix) [05:11]
-02. 1Touch - Creamsun (Original Mix) [03:17]
-03. LuOrchestra - OdaMare (Original Mix) [04:27]
-04. Doors in the Sand - Red Triangle (Original Mix) [02:58](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2326B4F93241A5387BD237EB3CEA00DA4F3F19C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980480   (956288) от 29.01.2016
-
-2011stress - Ген Счастья (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic Styling>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блюз пивных пуз
-02. Верхом на Кенгуру
-03. Оставляя шумный город
-04. Дождь в Пустыне(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic StylingПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B6C21CF2CE8627E8140996C3730C2D3F2A8392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980510   (956290) от 29.01.2016
-
-VA - After Work Lounge, Vol. 5 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formentera Quartett - Lover (03:45)
-02. Magic Mike - Kb (02:33)
-03. Cafe Ibiza - Your Everything (04:14)
-04. The Cotton Groove - Gava (03:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE106F3B003F397AD113A38234871C77CFE92F8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979501   (956385) от 29.01.2016
-
-2011stress - Language of the Universe (NNM) (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перекати - Космос
-02. Кружение в невесомости
-03. Переменное ускорение
-04. Странные , но безобидные(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6688CB35440EE35B54D40735C257D5F14A0D35
 ```
 
 

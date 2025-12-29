@@ -1,3 +1,30 @@
+###  Публикация: 1397404   (740451) от 20.07.2020
+
+VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740451.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ryan Simmons - Lucky Guy
+A2 Commodores - Nighshift
+A3 Bachman-Turner Overdrive - My Sugaree
+A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665781   (741424) от 08.06.2013
 
 Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Thrash Metal>
@@ -551,6 +578,30 @@ magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 204208   (757696) от 28.05.2010
+
+Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless]<Alternative Rock, Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522392   (758525) от 07.01.2022
 
 Александр Розенбаум - Нарисуйте Мне Дом... (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Vocal>
@@ -654,60 +705,6 @@ B1 Голубая Распсодия (Rhapsody In Blue)(   Читать даль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017139   (763133) от 16.05.2016
-
-Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Last Moment (Na Poslední Chvíli)
-A2	Early Evening Blues (Blues Navečer)
-A3	Gold And Diamonds (Zlato A Stříbro)
-A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394384   (763679) от 05.07.2020
-
-Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763679.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Hooray! Hooray! It's A Holi-Holiday
-(Frank Farian, Fred Jay)
-B Ribbons Of Blue
-(Forsey)Жанр: DiscoПродолжительность: 00:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
 ```
 
 

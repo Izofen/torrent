@@ -1,3 +1,165 @@
+###  Публикация: 990985   (908055) от 27.02.2016
+
+VA  - Гуляй, братва. Зимние хиты от радио Шансон 9 (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Скобля - Темнеет Крест Кованый
+02. Сергей Гвоздика - Я Живу Или Существую
+03. Алена Скок - Роковая
+04. Александр Малинин И Елена Ваенга - Две Души(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B783D3F6285209D3CA3C2C4AA9AFCB04341D03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991277   (908068) от 27.02.2016
+
+VA - Cocktail New Music №26 (2016) [MP3|256-320 кб/с] <Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.23.45 - Все Что В Жизни Есть У Меня
+02.Alien24 - Я Не Железный
+03.Andrey Krivushkin Feat. Taylr Renee - Belief in Humanity (Original Mix)
+04.Anton Ishutin - Take Me Away (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 07:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E707DD9151C72C8509A8BC6A7AF7647B200FC61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098479   (908077) от 30.01.2017
+
+VA - Club Dance Dependence (2017) [MP3|320 Kbps] <Dance, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Felany - Don't Be so Shy (House Remix) 3:17
+002. GTA & Wax Motif - Get It All (Chace Remix) 3:20
+003. Bebe Rexha - No Broken Hearts (feat. Nicki Minaj) 4:00
+004. Atlantic feat Ina Stella - The Ocean (Workout Gym Mix 122 BPM) 5:16(   Читать дальше...   )Жанр: Dance, Club HouseПродолжительность: 07:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811E0190081CF2C50AE6A5506D46E30AEF202A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991063   (908127) от 27.02.2016
+
+VA - Trance Desire Volume 62 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Mash feat. Ariette Florence - Melancholia (Giuseppe Ottaviani Fix) (05:49)
+02. Arctic Lake - Limits (Aurosonic Progressive Mix) (07:10)
+03. York - If Only I (03:39)
+04. The Blizzard & Daniel Van Sand feat. Julie Thompson - Made for You (Club Mix) (08:18)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A1ACD019308E879FC841A200D88B546128F1C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991056   (908192) от 27.02.2016
+
+VA - House Nation Volume 6 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angemi & Prezioso - Dragon (04:05)
+02. Chris Bullen & Matt Watkins - Waddup (04:32)
+03. Disclosure feat. Eliza Doolittle - You & Me (Baauer Remix) (04:03)
+04. Jay Karama - Torment (03:56)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41C0C4BBA4C0A2E1782D1B471CDD09DD11F6D21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991254   (908197) от 27.02.2016
+
+VA - Electro House 50 Vol. 2 (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deniz Koyu - Hertz 06:53
+02. Ernesto vs Bastian ft Susana - Dark Side Of The Moon (Axwell & Sebastian Ingrosso Re-Mode) 05:46
+03. Hardwell - Storage 08:02
+04. Southside Spinners - Luvstruck 2010 (Marco V Revixed) 07:12(   Читать дальше...   )Жанр: Progressive, Electro, ClubПродолжительность: 05:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFEFCAC22B4B15E19A3FC3A36A8962384FDEA98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866648   (908200) от 05.02.2015
 
 The Carbonfools - The Best (2008 - 2014) [MP3|192, 320 кб/с]<Alternative, Electronic, Indie, Pop Rock, Dance Rock>
@@ -530,165 +692,6 @@ VA - Beatport Disco House: Electro Sound Pack #34 (2020) [MP3|320 Kbps] <Funky D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F8AC851477F846F2740F2C43AF45A69317BF9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368279   (909101) от 20.03.2020
-
-VA - Electronic Fantasy Box (2020) [MP3|320 Kbps] <Electronic, Synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909101.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tourist - Wild
-002. Alogique - Clockwork
-003. Dj Oil - Addis
-004. Boss Axis - Goliath(   Читать дальше...   )Жанр: Electronic, SyntheticПродолжительность: 12:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5174FB27A12FCC132F9A146B0F00E6E9B8D13D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368358   (909197) от 20.03.2020
-
-El Mental - Средневековая Дичь (Compilation) (2020) [MP3|~245 Kbps (V0)] <National Neo Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fort Boyard [00:02:40]
-02 Happy New Year ( Abba Cover) [00:01:59]
-03 Teardrop ( Massive Attack Folk Cover) [00:01:15]
-04 Валькирия [00:02:53](   Читать дальше...   )Жанр: National Neo FolkПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DAF08B880A2B21856B7CD3FE53F66D0DF66481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368421   (909203) от 20.03.2020
-
-VA - Rock Against Coronavirus (RAC) (Compilation) (2020) [MP3|~245 Kbps (V0)] <Metalcore, Electronic, Rapcore>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dog Pound - С Меня Хватит [00:03:27]
-02 Facer - Добро пожаловать в ад [00:02:49]
-03 Mjоd - Мелодия Смерти [00:03:24]
-04 R1a1 & Лера Славная - Новый рассвет [00:02:56](   Читать дальше...   )Жанр: Metalcore, Electronic, RapcoreПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAF810F0D8AF2BD0AB47A47F8E3D91FF9977473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368280   (909235) от 20.03.2020
-
-VA - Beatport Goa Trance: Electro Sound Pack #31 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909235.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atacama - Outer Rim
-002. Owntrip - Soul Memory
-003. Conwerter - Ancient Knowledge
-004. Djcybertsai - Journey Inward(   Читать дальше...   )Жанр: Psychedelic, Goa Trance, ElectroПродолжительность: 11:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8C42583EEA64B04596AF44A2B36621AE599BB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635428   (909441) от 26.03.2013
-
-VA - Now Thats What I Call Music 84 (2CD) (2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii & Nicky Romero - I Could Be the One (Nicktim Radio Edit)Жанр: Pop, DanceПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FBDB38C1B2ABAE8BEFB14951E9742E3151532E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990604   (909596) от 26.02.2016
-
-VA - Заводной музон в дальнюю дорогу 2 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S E V E R - С Тобой Или Одному (One Love) 03:36
-02. Selena Gomez ft Fetty Wap - Same Old Love 03:25
-03. Мохито - Слезы Солнца 03:24
-04. Jakwob Feat. Rationale - No Place Like Home 03:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F85F29A3132BD3BE2F7F6A3DE0E367B2048072
 ```
 
 

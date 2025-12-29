@@ -1,3 +1,162 @@
+###  Публикация: 1495300   (880717) от 12.09.2021
+
+VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880717.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thulane Da Producer - Winter Is Coming
+002. Spate - Crescent
+003. Dam Swindle - Pain Tomorrow
+004. Jo Paciello - It's In Your Mind(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340F15992927D126038049DEBE9C94F9FC17512D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495315   (880720) от 12.09.2021
+
+VA - Golden Summer Party (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gabrielle Aplin - Kintsugi
+002. Michael Schulte - What Heroes Do
+003. Dermot Kennedy - Paradise
+004. Chris Galmon - Life Line(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68242ADDCD0ECA1573372318E70CA9A9226BA1F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495321   (880726) от 12.09.2021
+
+VA - Positive Frequency: Really Techno Sound (2021) [MP3|320 Kbps] <Clubbing Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filipe Barbosa - Chlorine
+002. Niki Snow - Voices From Space
+003. Rodrigo Ferran - Mitosis
+004. Flux Flocks - Devoted Moon(   Читать дальше...   )Жанр: Clubbing Techno, Tech House, ElectroПродолжительность: 11:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB46A8D2F5A8E52F70D260F1243B272EB6ACC585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 297234   (880887) от 21.02.2011
+
+VA - Дискотека по Украински (2010) [MP3|128-256 kbps]<Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РорПродолжительность: 5:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F564BC07B9EA1061D9C3C0F2A3F572B15FF93912
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996267   (880953) от 13.03.2016
+
+VA - Smooth Jazz Vocal Grooves (2016) [MP3|320 кб/с] <Smooth Jazz, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nicholas Cole - So Good 4:16
+2. Lin Rountree - Givin' You Love 4:02
+3. James Vargas - Say You Will 5:34
+4. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth Jazz, JazzПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EDBD8D099668849FBC1884CD1BB03BE5D1C80D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996143   (881057) от 13.03.2016
+
+VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheryl Cole - I Dont Care
+02. Александр Балыков - Лето (DJ Nejtrino & Kirill Clash Extended Remix)
+03. Olly Murs - Tomorrow
+04. Major Lazer Feat. Ariana Grande - All My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996332   (881175) от 13.03.2016
 
 VA - Праздничный душевный Шансон (2016) [MP3|256 кб/с] <Shanson>
@@ -524,168 +683,6 @@ VA - The Official UK Top 40 Singles Chart 03.04.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C30BE7FB8E6194A6FEA7C2A8BB1B4050B1BF411A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373173   (882181) от 05.04.2020
-
-VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parvenu - Side Step
-02. Sebastian - Movement
-03. Beamy - Big Sur (Original Mix)
-04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495031   (882262) от 11.09.2021
-
-VA - Remix NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah Yeah Yeahs - Heads Will Roll (Kubi Remix) (4:15)
-02. The Black Eyed Peas - Don39t Phunk With My Heart (Sulim Dj Chicago Extended Remix) (4:46)
-03. La Bouche - Sweet Dreams (Struzhkin Vitto Remix) (3:37)
-04. Oceana - Cry Cry (Layer Bootleg) (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EA3E7E0530F1074E5637BFD6DB0F49421B5F42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495223   (882369) от 11.09.2021
-
-VA - Music of the Night (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doja Cat - Streets (3:47)
-02. Color Me Badd - I Wanna Sex You Up - Single Mix (3:56)
-03. PARTYNEXTDOOR, Drake - Recognize (5:11)
-04. Pop Smoke, Lil Tjay - Mood Swings (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E2D38DC5D07D32A6CCB675B685C9AC603887D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995855   (882400) от 12.03.2016
-
-Screamin' Jay Hawkins - I Put A Spell On You: Screamin' Years(2016) 2CD [MP3|319-320 кб/с] <Blues, Rhythn'n'Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гений, опередивший время... да и живший, собственно, вне этого времени...В числе тех, кого можно считать его учениками и последователями - Том Уэйтс, Ник Кэйв, Артур Браун, Элис Купер, Оззи Осборн... может, кого-то еще я и упустил... Его "I Put A Spell On You" перепета в самых разнообразных версиях сотни... тысячи раз... кто ее только не пел - от Нины Симон (   Читать дальше...   )01. I Put A Spell On You
-02. She Put The Whamee On Me
-03. What That Is
-04. This Is All(   Читать дальше...   )Жанр: Blues, Rhythn'n'Blues, SoulПродолжительность: 06:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0977A5F44AE1429477C1796833940A419DDC0A5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995959   (882468) от 12.03.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 25 ) (2016) [MP3|196-320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon Ray - Comanchero (Fuzzdead Reboot) (02:59)
-02. Ace Of Base - Beautiful Life (Alchemist Project Mix ) (04:30)
-03. Fancy - Sail Away (Standing Alone Mix) (06:05)
-04. Kate Ryan - Voyage Voyage (Dj.Svn Version) (05:04)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27580BF1B6AADF123815C94B05F8DF50FE94D408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995725   (882690) от 12.03.2016
-
-VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rihanna - Work (Feat. Drake) .mp3
-002. Justin Bieber - Love Yourself  .mp3
-003. Twenty One Pilots - Stressed Out .mp3
-004. Justin Bieber - Sorry .mp3(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7C82FC1708F5D92CBC83EEA8433290337047D4
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1022201   (729526) от 01.06.2016
+
+The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How I Love (Everything About You)
+02. Dum Dum
+03. Long Last Night
+04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022180   (729879) от 01.06.2016
+
+Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Girl
+02. Faint of Heart
+03. Boyfriend
+04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530139   (730774) от 09.02.2022
 
 VA - Winter Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -639,60 +693,6 @@ Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397685   (737546) от 22.07.2020
-
-VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Good Vibrations (03:36)
-02. Simon & Garfunkel - Mrs. Robinson (04:02)
-03. The Byrds - Mr. Tambourine Man (02:20)
-04. The Mamas & The Papas - California Dreamin' (02:40)(   Читать дальше...   )Жанр: Pop, Rock, R'n'BПродолжительность: 03:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397640   (737560) от 22.07.2020
-
-VA - Relaxing 80s Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Big Love (3:28)
-02. Karizma Duo - Come On Eileen (2:31)
-03. Shannon & Keast - Time After Time (3:45)
-04. The Shaken Bakers - Dancing in the Dark (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098964AF7D4D14D68DEDB6A7C4C52F833A79953D
 ```
 
 

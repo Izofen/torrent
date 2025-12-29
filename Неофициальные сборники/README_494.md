@@ -1,3 +1,165 @@
+###  Публикация: 1278146   (772816) от 24.01.2019
+
+VA - Не за горами весна (2019) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Логунов - Тайга встречает март
+02. Андрей и Наталья Язвинские - Вишни
+03. Олег Газманов & Ирина Круг - Твой дом
+04. Алексей Брянцев - Тебя мне подарила зима(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13687A6839B728709D02BBB06807827507BC3B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016037   (772833) от 12.05.2016
+
+VA - Acoustic Roots Great Britain (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Cuddeford - Jenny Wren
+02. James Betteridge - Home Prelude
+03. James Betteridge - Home
+04. L Caminero - Donnelly Reel(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FCDC0B88630BE9C608EEDEF188FDF1431290D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015884   (772971) от 12.05.2016
+
+VA - Mуз-сливки хит-парадов. Русский выпуск (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даша Столбова - Баллада
+002. Brainstorm - Пропуск
+003. Kristina Si - Не Обижай Меня
+004. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4030799D87C52A1784518B7234F9E00DA05F1DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278311   (773004) от 24.01.2019
+
+VA - 90's Dance Attack (2019) [MP3|320 Kbps] <Euro-House, Dream House, Hard Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene P. - Signation 3:37
+02. Central 7 - The Making Of House 4:27
+03. Paffendorf - Ruf Mich An 4:42
+04. Four - Only In My Head 4:44(   Читать дальше...   )Жанр: Euro-House, Dream House, Hard Trance, Electronic, DanceПродолжительность: 03:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD6A8FB7873092E88290946EDBB01085A84CBCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278221   (773019) от 24.01.2019
+
+VA - Unexpected Present (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773019.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kelly Clarkson - Heartbeat Song
+002. Ania Dabrowska - Serce Nie Sluga
+003. Cleo - Film
+004. The Kinks - Days Acoustic Version(   Читать дальше...   )Жанр: PopПродолжительность: 09:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77638FEE7131ABB7AB45318D50110C3178D1353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213099   (773085) от 15.03.2018
+
+VA - Hard Rock Anthems Car Hits (2018) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773085.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jasta - This Is Your Life
+002. Great White - I'm Alright
+003. Black Veil Brides - Wake Up
+004. Emerald - Blind(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 08:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD0F44DA9930676A3550E828523B063D8F070CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391504   (773102) от 21.06.2020
 
 VA - Music News vol.21 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -532,167 +694,6 @@ VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBB2A07AB4CC57AE45F57130562ED9D80214F40B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212853   (774006) от 14.03.2018
-
-Savage - Only You (2017) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774006.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Only You
-2. Master Remix
-3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA56103EB5721C23E333F5064826DE396FA197B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278078   (774034) от 23.01.2019
-
-Nirvana - This Is Nirvana (2019) [MP3|320 Kbps] <Rock, Grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Smells Like Teen Spirit
-02 – Come as You Are
-03 – Heart-Shaped Box
-04 – Lithium(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 02:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9AE45F40FC06F27118B10684D540046749B0D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015646   (774044) от 11.05.2016
-
-VA - Italo disco 80s 100 Hits (2016) [MP3|224-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Adriano Celentano - Soli (03:56)
-002 Al Bano & Romina Power - Felicita (03:07)
-003 Eros Ramazzotti - A Mezza Via (05:43)
-004 Ricchi & Poveri - Piccolo Amore (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC20E28EDE5BA6693D13C22A86D19495D8A3653D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212876   (774070) от 14.03.2018
-
-VA - Новая Волна: Сборник Русского Рока (2018) [MP3|192-320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Animal ДжаZ - Любовь к полётам
-002. Северный Флот - Танцуй , король
-003. Мара - Все горит
-004. Ленинград - Кольщик(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC5E02182A67F301978B310BAE5B7CA96202C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278058   (774094) от 23.01.2019
-
-VA - Русский регги от ALEXnROCK часть 2 (2019) [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774094.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли песни от отечественных музыкантов, исполненные в стиле регги. Слушайте и заряжайтесь энергией солнечных мелодий. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK
-P.S Если кто то знает еще клевые вещи в стиле регги от наших исполнителей, оставляйте коменты и я сделаю продолжение сборника.01 Botanic project - Только Jah
-02 Александр Барыкин - Друг или враг
-03 Каникулы Бонифация - Тили-Бом
-04 Валерия - Бессоница(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5BEB63780F978F563162F621BF39C5060BE56E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015583   (774185) от 11.05.2016
-
-VA - Hed Kandi Tropical Nights (2016) [MP3|256 кб/с] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Blue - Fast Car (feat. Dakota) [03:33]
-02. Duke Dumont - Ocean Drive (Michael Calfan Radio Edit) [03:13]
-03. Felix Jaehn - Book of Love (feat. Polina)Жанр: Funky, Club HouseПродолжительность: 04:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA6313F76E94CB43F48E649AB1FFA9EE050EA9F
 ```
 
 

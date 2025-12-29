@@ -1,3 +1,57 @@
+###  Публикация: 1000635   (857429) от 26.03.2016
+
+Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsies, Tramps And Thieves [02:37]
+02. The Way Of Love [02:31]
+03. Take Me Home [06:47]
+04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000839   (857498) от 26.03.2016
+
+Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer For Africa [03:41]
+02. Sweet As Candy [04:00]
+03. Ain't Nobody's Business [03:12]
+04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000596   (857502) от 26.03.2016
 
 Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Electronic>
@@ -668,61 +722,6 @@ VA - PRO FM Super Hits Vol. 1 (2014) [FLAC|Lossless]<Pop, Dancepop, Eurodance, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D6DEFC605D9047289B8B198C08048DA81DFB59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873662   (866752) от 01.03.2015
-
-Shania Twain - Greatest Hits (2004) [APE|Lossless]<Country,Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Forever And For Always
-2. I'm Gonna Getcha Good!
-3. Up!
-4. Ka-Ching!
-5. Come On Over(   Читать дальше...   )Жанр: Country,PopПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B00C639300B888AAD4B0B4986A5BEFE0DB35F15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375321   (867119) от 13.04.2020
-
-VA - Dance Your Ass Off (Salsoul Remixes) (2013) Remixes+Continuous Mix [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loleatta Holloway - Love Sensation (WhiteNoize Remix) (6:24)
-02. Inner Life - Ain't No Mountain High Enough (WhiteNoize Remix) (6:56)
-03. Jessie Andrews - I Never Knew (5:16)
-04. Aurra - Forever (J Paul Getto Remix) (5:19)(   Читать дальше...   )Жанр: Dance, Disco, FunkПродолжительность: 02:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9471EAF2981638EC3AE40552C9A3498F0A461F97
 ```
 
 

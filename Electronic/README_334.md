@@ -1,3 +1,30 @@
+###  Публикация: 903134   (659227) от 30.05.2015
+
+VA - Soul & Lounge: Best Ibiza Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Wave - Autumn Fractal [06:05]
+02. Club Camarillo - Baracoa [05:50]
+03. Gerald Peklar - Zwei Flocken Tanz [03:59]
+04. Cafe Royale - Torn Apart - Chillout Mix [03:18](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCBC3C6E039F904D074A36E062D28B81B60B4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139799   (659289) от 03.06.2017
 
 Adam Jay - Maxia Zeta (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
@@ -668,33 +695,6 @@ VA - Electronic Chillout Instrumentals (2017) [MP3|320 Kbps] <Balearic, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEB303596CF16F6B53A3A9EBCDEE0E84C377385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139358   (660273) от 02.06.2017
-
-VA - This Is My Church Vol.5 The Chill out Edition (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takashi Yomu - Red Lanterns
-02. Sonoric Academy - Under Dress
-03. Suspension 6 - Poisonous Fruits
-04. Nakiro Namoto - Dead Man Walking(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599508805C8C19F2F34FEC60F5FCD6D520EDFA3E
 ```
 
 

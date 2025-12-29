@@ -1,3 +1,324 @@
+###  Публикация: 432812   (988719) от 08.01.2012
+
+Muse - Absolution (2003) [FLAC|Lossless]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro :: 00:22
+02. Apocalypse Please :: 04:12
+03. Time Is Running Out :: 03:56
+04. Sing For Absolution :: 04:54
+05. Stockholm Syndrome :: 04:58
+06. Falling Away With You :: 04:40
+07. Interlude :: 00:37
+08. Hysteria :: 03:47
+09. Blackout :: 04:22
+10. Butterflies & Hurricanes :: 05:01(   Читать дальше...   )2003      |Жанр: Alternative Rock      |Продолжительность: 00:52:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611133   (989024) от 30.01.2013
+
+Our Last Night - 5 Альбомов (2004-2012) Дискография [FLAC|Lossless]<Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989024.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Fate
+02. Send Me to Hell
+03. Age of Ignorance
+04. Reason to Love
+05. Liberate Me
+06. Voices
+07. Conspiracy
+08. Enemy(   Читать дальше...   )Тип издания: ДискографияЖанр: Post-HardcoreПродолжительность: 00:36:18 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353954   (989946) от 20.01.2020
+
+The Hold Steady ‎ - Thrashing Thru The Passion (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denver Haircut (03:01)
+02. Epaulets (02:47)
+03. You Did Good Kid (04:09)
+04. Traditional Village (02:48)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4B308FF379A6C9D167E00FF2F041639BF5AAB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432479   (990616) от 06.01.2012
+
+Agnes Obel - Philharmonics (2010) [FLAC|Lossless]<Piano, Woman Vocal, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Falling, Catching (1:34)
+2. Riverside (3:49)
+3. Brother Sparrow (3:59)
+4. Just So (3:35)
+5. Beast (3:50)
+6. Louretta (2:06)
+7. Avenue (4:07)
+8. Philharmonics (3:33)
+9. Close Watch (4:00)
+10. Wallflower (2:26)(   Читать дальше...   )Жанр: Piano, Woman Vocal, Indie RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595677   (991740) от 27.01.2013
+
+Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative Rock / Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock / Post-GrungeПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353619   (991927) от 18.01.2020
+
+Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Post Punk, Psychedelic Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Year (3:15)
+02. Dispossession (4:15)
+03. Hour Of The Furnaces (4:26)
+04. Losing Is Ours (3:44)(   Читать дальше...   )Производство: Matador RecordsЖанр: Alternative Rock, Post Punk, Experimental, Psychedelic SoulПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353459   (991968) от 18.01.2020
+
+...And You Will Know Us by the Trail of Dead - X The Godless Void and Other Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opening Crescendo (02:54)
+02. All Who Wander (04:56)
+03. Something Like This (04:36)
+04. Into the Godless Void (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608812   (992720) от 26.01.2013
+
+Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GrungeПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430784   (993213) от 03.01.2012
+
+Misstrip - Sibylline (2006) [APE|Lossless]<Alternative Rock, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 A Ticket To Death (4:16)
+02 Marvellous Pills (4:36)
+03 Mothers-Of-Pearl (3:19)
+04 Lilly White (4:12)
+05 Acalmy (1:48)
+06 Inside And Beyond (4:28)
+07 Exhibition Room (3:59)
+08 Sibylline (3:47)
+09 Brainwashing (3:47)
+10 Unemotional (3:46)(   Читать дальше...   )Жанр: Alternative Rock, Trip HopПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352913   (993317) от 16.01.2020
+
+Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Much Love (04:02)
+02. Come Get Me (04:52)
+03. Live Learn and Forget (04:21)
+04. Just Wait (03:57)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607479   (994391) от 23.01.2013
+
+The Pretty Reckless - Light Me Up (2010) Japanese Edition /2011, Interscope Records/ [FLAC|Lossless]<Alt.Rock/Post-Grunge/Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. My Medicine (03:14)
+2. Since You're Gone (02:42)
+3. Make Me Wanna Die (03:56)
+4. Light Me Up (03:28)
+5. Just Tonight (02:48)
+6. Miss Nothing (03:14)
+7. Goin' Down (03:36)
+8. Nothing Left To Lose (04:12)
+9. Factory Girl (03:31)
+10. You (03:32)(   Читать дальше...   )Жанр: Alt.Rock/Post-Grunge/Female VocalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605422   (995438) от 20.01.2013
 
 Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FLAC|Lossless]<Post-Punk>
@@ -427,303 +748,6 @@ Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2E6BC38BE6043D435985600829C4812EF79ADA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485003   (1005613) от 24.07.2021
-
-Attila - Closure (2021) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anxiety (3:09)
- 02. Empty Clip (2:57)
- 03. Metalcore Manson (2:47)
- 04. Day Drinking (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20963F2E94FB1E41204263FFFC548F71232D385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482859   (1007166) от 11.07.2021
-
-Lost in the Moment - Cut All Ties (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cut All Ties (00:04:31)
-02 - Don't Ship My Dreams Away (00:05:02)
-03 - Glue (00:05:26)
-04 - Hit Me in the Feels (00:06:06)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9E3CFC38F1A86838F9E00967EB7121F8306697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480285   (1009174) от 27.06.2021
-
-Mogwai - As The Love Continues (2021) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Post Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Bin My Friend, Tonight We Vacate Earth (5:09)
-02. Here We, Here We, Here We Go Forever (4:45)
-03. Dry Fantasy (5:10)
-04. Ritchie Sacramento (4:12)(   Читать дальше...   )Производство: Rock Action Records – ROCKACT140CDXЖанр: Post Rock, Alternative RockПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F992077BABA12EBDBC89F0AACC27EE019F8F88FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478771   (1010018) от 21.06.2021
-
-Skarlett Riot - Invicta (2021) [FLAC|Lossless|image + .cue] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Habit
-02. Gravity
-03. Black Cloud
-04. Underwater(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3CE7595A40F5788A5734EE6AB4CF3006375CA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478096   (1010465) от 18.06.2021
-
-Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Born (XX Anniversary RemiXX) [00:06:03]
-02. Bliss (XX Anniversary RemiXX) [00:04:14]
-03. Space Dementia (XX Anniversary RemiXX) [00:06:21]
-04. Hyper Music (XX Anniversary RemiXX) [00:03:21](   Читать дальше...   )Жанр: Alt.Rock, Progressive RockПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8D3A58D0D603CD167B1134D186E812C6F8E207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478250   (1010503) от 18.06.2021
-
-Tom Morello & The Bloody Beetroots - The Catastrophists (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil's Infantry (3:48)
- 02. Radium Girls (ft. Pussy Riot, The Last Internationale, Aimee Interrupter) (3:49)
- 03. Lightning Over Mexico (ft. Ana Tijoux) (4:12)
- 04. Keep Going (3:37)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, ElectronicПродолжительность: 00:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E045DF9D03AA6259776B850E534BBE50F4AD9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476329   (1011661) от 11.06.2021
-
-King Gizzard & The Lizard Wizard - Butterfly 3000 (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yours (4:35)
-02. Shanghai (4:01)
-03. Dreams (4:04)
-04. Blue Morpho (3:51)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A31C29E08F56D13FEE54464CF8B122B5AD8D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476333   (1011676) от 11.06.2021
-
-Sleater-Kinney - Path of Wellness (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Path of Wellness (2:40)
-02. High In The Grass (4:06)
-03. Worry With You (3:52)
-04. Method (4:21)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298B0403E824AE609BCFED3D26784FE1030E75EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475314   (1012400) от 06.06.2021
-
-Wolf Alice - Blush (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blush (4:19)
-02. She (3:12)
-03. Nosedive (2:47)
-04. 90 Mile Beach (3:45)Жанр: Indie Rock, Alternative RockПродолжительность: 00:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F795FD6CEC0B0E15B391237B7A98AB22A86BAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475161   (1012453) от 06.06.2021
-
-Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is Not a Test [00:00:48]
-02. What If God Was One of Them? [00:03:56]
-03. The President [00:03:22]
-04. Guns Against Liberty [00:03:27](   Читать дальше...   )Жанр: Metalcore, Melodic HardcoreПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DDAA5ACD0F8F50FCA17BF337265042292E427E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474940   (1012736) от 04.06.2021
-
-Rise Against - Nowhere Generation (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Numbers [00:04:59]
-02. Sudden Urge [00:03:46]
-03. Nowhere Generation [00:03:52]
-04. Talking To Ourselves [00:03:24](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE9767341584340AC599AB58A953A4A7365C734
 ```
 
 

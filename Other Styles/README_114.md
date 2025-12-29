@@ -1,3 +1,411 @@
+###  Публикация: 1027678   (694052) от 20.06.2016
+
+Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (02:40)
+02. Terminator Arrival / Reese Chased / Sarah On Motorbike (07:09)
+03. Terminator Gets Guns / Search For Sarah (01:13)
+04. Reese Dreams Of Future War (01:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741387   (694165) от 20.06.2016
+
+Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Guitar, Beat, RautalankaПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534111   (694253) от 02.03.2022
+
+Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision (6:12)
+02. New Feelings (7:14)
+03. Silent Motions (9:16)
+04. Classic Approach (6:17)(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027627   (694553) от 20.06.2016
+
+Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Midst of Stars [00:04:30]
+02. Carousel [00:04:00]
+03. In Bloom [00:05:31]
+04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027580   (694554) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology [00:05:18]
+02. Saucers over Stonehenge [00:06:47]
+03. Suspended Animation [00:05:53]
+04. Roswell (feat- Annaspaceia) [00:04:12](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027583   (694558) от 20.06.2016
+
+Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Tomorrow Part 1 [00:03:39]
+02. Distant Tomorrow Part 2 [00:03:31]
+03. Descension [00:05:49]
+04. Anti-Gravity [00:03:49](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027834   (694697) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology
+02. Saucers over Stonehenge
+03. Suspended Animation
+04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027666   (694708) от 20.06.2016
+
+Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday Slow Rotations [00:04:10]
+02. Monday Midwinter [00:04:19]
+03. Tuesday The Compass [00:06:46]
+04. Wednesday In Stillness [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125678EB9A59A4F941E1BCB3551B3050C3A588AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211771   (694820) от 20.06.2010
+
+Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694820.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:40) 01. Trois Gymnopedies
+(7:00) 02. Mondscheinsonate
+(5:00) 03. Konzert fur Flote
+(7:27) 04. Konzert fur Violine
+(5:05) 05. Italienisches Konzert
+(4:25) 06. Largo
+(2:29) 07. Klavierkonzert
+(4:09) 08. Konzert fur Flautino
+(2:32) 09. Siciliano
+(2:29) 10. Trinklied(   Читать дальше...   )Жанр: New ageПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027842   (694834) от 20.06.2016
+
+Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .cue] <New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footsteps in the Snow [00:08:13]
+02. Melodies from the Night Fisherman [00:02:45]
+03. Jade River Sampan [00:04:03]
+04. Peach Garden [00:05:53](   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F749E95BBABA092B4FE33AB77465A4DE373C353E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133416   (695124) от 12.05.2017
+
+Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age, World, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Candle Light
+02. The Healing Bath
+03. Lavender Kiss
+04. The Native American Flute as Therapy(   Читать дальше...   )Жанр: New Age, World, Native AmericanПродолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A387A52E2DF2066CA7080EA27E6D4E3057AFD15F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027460   (696412) от 19.06.2016
+
+Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Traveling Through Space (01:26)
+02. Great Speech (01:37)
+03. Hostile Territory (01:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141DD01A18545DCDEEADBBFBB95DC3DD665B83DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027402   (696528) от 19.06.2016
+
+VA - The Nice Guys / Славные парни (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptations – Papa Was a Rollin’ Stone (06:58)
+02. Kool & The Gang – Get Down On It (04:54)
+03. Taste of Honey – Boogie Oogie Oogie (05:32)
+04. Earth, Wind & Fire – September (03:35)(   Читать дальше...   )Жанр: Soundtrack (Dance / Disco / Pop / R'n'B)Продолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D61DD6A0689687CF3CA7132470A89EA9FE3FA35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027458   (696534) от 19.06.2016
+
+Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveling Through Space (01:26)
+02. Great Speech (01:37)
+03. Hostile Territory (01:23)
+04. How Did They Get the Lights On? (01:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDF1AB3B561099579F9175035136A542893C1F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472893   (696585) от 11.05.2017
+
+Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Trance, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (5:54)
+02. One & One (3:54)
+03. Textures (3:16)
+04. Fable (6:26)(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BAB1CA6859BF6CEFE3CFCB56701A1769471E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221180   (696795) от 23.04.2018
 
 Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
@@ -290,417 +698,6 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027189   (698462) от 18.06.2016
-
-John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From "The Nice Guys" (02:01)
-02. Kids Today (03:23)
-03. Disco Party Fight (04:00)
-04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132063   (698497) от 10.05.2017
-
-VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
-02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
-03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
-04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132775   (698684) от 10.05.2017
-
-VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Licht - Dishonored 2 Main Theme (02:37)
-02. Daniel Licht - Aristocrats of Karnaca (Ambient) (01:07)
-03. Daniel Licht - Aristocrats of Karnaca (Suspense) (02:47)
-04. Daniel Licht - The Dreadful Wale (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A03643092FF3BCEC7CDA3E2BECEA266F349A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131961   (698780) от 10.05.2017
-
-VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florindo Sassone - Tierrita
-02. Los Astros del Tango - Derecho Viejo
-03. Mariano Mores - El Firulete
-04. Augusto P. Berto - De Pura Yerba(   Читать дальше...   )Жанр: TangoПродолжительность: 02:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131802   (698789) от 10.05.2017
-
-Алан Менкен & VA - Beauty And The Beast / Красавица и Чудовище (Оригинальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алан Менкен - Увертюра (03:06)
-02. Алан Менкен - Пролог 1 (00:43)
-03. Екатерина Лёхина - Ария (01:03)
-04. Алан Менкен - Пролог 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0C63465A6D99F4D6883678415A5E251E513A35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132869   (698797) от 10.05.2017
-
-VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clara Moreno, OrlandrVo - Tamanco No Samba
-02. Nina Miranda, Zeep, Chris Franck - Keep an Eye On Love
-03. Banda Black Rio, Marcio Local - Quern Vem Li
-04. Marcos Valle - Parabens(   Читать дальше...   )Жанр: World Music, New Age, BrazilПродолжительность: 03:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADE4791EBD4F8A36961602DBABD665B766A0482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332369   (699539) от 04.05.2011
-
-Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sweet Dreams
-02 - Atlantis
-03 - Love Song
-04 - The Inner Temple
-05 - Japanese Spring
-06 - Sky's Beyond
-07 - The End of a Day
-08 - The Commune
-09 - Back Home
-10 - Indian Summer(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E92AA3597C7B0956E89D4A4893789769B3282C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026819   (700205) от 17.06.2016
-
-Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time    03:54
-02. A Love for Life    05:10
-03. Nice to Meet You    05:38
-04. So Long My Friend    03:50(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9E62AD7D8CE3DEF50B7CB06B38F56CCFA548BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026692   (700207) от 17.06.2016
-
-Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Girl (Remix) (6:23)
-02. River Of Souls (Remix) (6:02)
-03. Tantra (Remix) (6:06)
-04. Song For The Mountain (Remix) (5:59)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E4FF6A8DC45E0A7A8A5C27D1803A2CCF326D15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026906   (700321) от 17.06.2016
-
-Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Picture Score) (2013) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me (02:02)
-02. The Team (02:45)
-03. Opus NYSM (02:28)
-04. Chess Moves (03:56)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027059   (700322) от 17.06.2016
-
-Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpcake (00:46)
-02. Finding Dory (Main Title) (00:55)
-03. Lost at Sea (01:36)
-04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5B50077665470F832B4501984F2E10822A18A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131765   (700358) от 09.05.2017
-
-Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Nothing Comes a King (00:43)
-02. King Arthur: Legend of the Sword (02:52)
-03. Growing Up Londinium (02:42)
-04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4303C47C21A7375D0FD7AD98A4FE9B230382A034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026939   (700405) от 17.06.2016
-
-David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at the Moon [00:05:10]
-02. Of Faith [00:02:35]
-03. Song of the Rain [00:03:23]
-04. Gratitude [00:03:43](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A5CA8FB59FE938DA876810ABBC09D9F9E7FBB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179508   (700434) от 21.04.2018
-
-VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Бурляев & Дмитрий Носков - Accident [03:40]
-02. Иван Бурляев & Дмитрий Носков - Connection's Lost [04:32]
-03. Иван Бурляев & Дмитрий Носков - Trainings [02:50]
-04. Иван Бурляев & Дмитрий Носков - Families & Take Off [04:39](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240E0E5AE8D3D725341F572EC76EA1FA196B11FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131769   (700442) от 09.05.2017
-
-Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Nothing Comes a King (00:43)
-02. King Arthur: Legend of the Sword (02:52)
-03. Growing Up Londinium (02:42)
-04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA1980BF19B0AF240635CBD64B0BFEF1F16F5EF
 ```
 
 

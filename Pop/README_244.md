@@ -1,3 +1,81 @@
+###  Публикация: 1135700   (678575) от 20.05.2017
+
+VA - Dieter Bohlen Die Megahits (2017) Premium Edition 3CD  [MP3|320 Kbps] <Eurodance, Europop, Eurodisco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Modern Talking - You're My Heart, You're My Soul (Mix '84) 3:23
+02.  Chris Norman - Midnight Lady 4:10
+03.  Deutschland Sucht Den Superstar - We Have a Dream (Radio Edit) 3:58
+04.  Alexander Klaws - Take Me Tonight (Radio Edit) 4:01(   Читать дальше...   )Жанр: Eurodance, Europop, EurodiscoПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C9EBF98583ED850F69EEF22368F220B77AB860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214008   (679287) от 28.06.2010
+
+Gwen Stefani - Greatest Hits (2008) [MP3|320 kbps]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: popПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290393   (679833) от 19.03.2019
+
+Arabesque - The Best - Легенды Дискотек 80-х (2006) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friday Night
+02. City Cats
+03. Hello, Mr. Monkey
+04. In The Heat Of Disco Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BC7C7B5120DD3DD9E89F3EBB197772BB43C8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290103   (680127) от 19.03.2019
 
 VA - Car Hits The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Dance, Club>
@@ -620,93 +698,6 @@ Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222694   (683029) от 30.04.2018
-
-Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Dance To The Beat (Remix) 5:01
-02. Indian Grave 4:02
-03. Pump It Up 4:26
-04. Masterboy Theme 4:41(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222791   (683032) от 30.04.2018
-
-Crystal Grass With Kristi B. - Love Train (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture To Love Train, Believe In Magic, Love Train Theme (8:27)
-- Overture To Love Train
-- Foggy Day
-- Arrivedercci Roma(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA623B01681171E47B1AD8A978A84740707A92A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507204   (683268) от 08.06.2012
-
-Amy Macdonald - Life In A Beautiful Light (2012) [MP3|~247 кб/с (V0)]<Pop, Folk-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4th Of July
- 02. Pride
- 03. Slow It Down
- 04. The Furthest Star
- 05. The Game
- 06. Across The Nile
- 07. The Days Of Being Young And Free
- 08. Left That Body Long Ago
- 09. Life In A Beautiful Light
- 10. Human Spirit(   Читать дальше...   )2012Жанр: Pop, Folk-RockПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8F6BCFBC8CFE4F1802892EAEF7682F4E015A82
 ```
 
 

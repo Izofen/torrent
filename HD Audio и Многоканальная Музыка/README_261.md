@@ -1,3 +1,84 @@
+###  Публикация: 1621442   (1030764) от 26.03.2023
+
+Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
+1999 - Legends
+2001 - Middle Earth
+2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620890   (1031642) от 22.03.2023
+
+Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Life Is Just What You Make It • Ты хозяин своей судьбы
+A2. The Twelfth Of Never • Буду любить тебя вечно
+A3. Sunshine Rose • Солнечная роза
+A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619367   (1032970) от 16.03.2023
+
+MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032970.jpg" />
+</div>
+
+
+###  Подробнее
+
+MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы "Epica" вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
+2011 - Quarterpast
+2014 - Antagonise
+2018 - DhyanaЖанр: Symphonic Death MetalПродолжительность: 03:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446400   (1032997) от 08.02.2021
 
 VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tracks|Vinyl] <Deep House, Downtempo>
@@ -614,83 +695,6 @@ A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438477   (1041029) от 08.01.2021
-
-Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Roll On Down The Highway
-02 - Hey You
-03 - Lookin' Out For #1
-04 - Gimme Your Money Please(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7237123425A467C44A294782B28AE399FF76601F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611393   (1041300) от 11.02.2023
-
-Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
-</div>
-
-
-###  Подробнее
-
-La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438000   (1041352) от 07.01.2021
-
-Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emmanuelle (1976)
-
-01. Emmanuelle (Soloist, GuitarЖанр: Easy ListeningПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
 ```
 
 

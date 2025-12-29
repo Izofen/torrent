@@ -1,3 +1,165 @@
+###  Публикация: 992622   (900982) от 02.03.2016
+
+Hank Marvin - Marvin At The Movies (2000) [MP3|320 кб/с] <Rock, Pop Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Days Night  03:13
+02. The Sound of Silence  04:42
+03. The Good the Bad & the Ugly  04:18
+04. A Kiss From A Rose  04:50(   Читать дальше...   )Жанр: Rock, Pop Rock, InstrumentalПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E9FDBC2CB15E47828F4705D4CFFA65DCBE4A48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100175   (901026) от 03.02.2017
+
+Slade - B-Sides (2007) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ready Steady Kids
+02. O.H.M.S.
+03. Daddio
+04. It's Alright Buy Me(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258E75C56F07F73886DC85251E96CC4D95C6E579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369480   (901942) от 24.03.2020
+
+VA - Play: 70's Music (2020) [MP3|320 Kbps] <Classic Rock, Soft Rock, Other>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warren Zevon - Excitable Boy 2:42
+02. Faces - Cindy Incidentally 2:35
+03. Leon & Mary Russell - Love's Supposed To Be That Way 3:19
+04. Daryl Hall & John Oates - 70's Scenario 3:57(   Читать дальше...   )Жанр: Classic Rock, Soft Rock, OtherПродолжительность: 01:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453BD84AC38909B9B8898D8BF23B2807B73D25C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992250   (902777) от 01.03.2016
+
+The Champs - 25 All Time Greatest Recordings (2000) [MP3|320 кб/с] <Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila  02:15
+02. Last Night  02:59
+03. Chariot Rock  02:21
+04. Honky Tonk  03:06(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33541CCDC84172E430AD7D4CDEA8A7977FCFD2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369345   (903129) от 23.03.2020
+
+Deep Purple - Best Of (2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke On The Water
+02. Hush
+03. Woman From Tokyo
+04. Knocking At Your Back Door(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6454D8FB913741F1C87713645FF6E5E9465114B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369315   (903495) от 23.03.2020
+
+Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Shook Me All Night Long
+02. T.N.T.
+03. Dirty Deeds Done Dirt Cheap
+04. Highway To Hell(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112383708EE5FB698940A3E6A1FACD62E6033316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992012   (904445) от 29.02.2016
 
 Andy Logan & The O.C. 75s - Transistors of Mercy (2016) [MP3|320 кб/с] <Rock>
@@ -527,168 +689,6 @@ ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3152A0D1F66EF4C53AADB339DEE5EDBFDB912AD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097357   (915848) от 26.01.2017
-
-Pride of Lions - Fearless (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I See Is You! (03:58)
-02. The Tell (04:42)
-03. In Caricature (03:57)
-04. Silent Music (04:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B00300390082D8DB58C9B7E6A5118DBAFB0A3C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989224   (916910) от 22.02.2016
-
-VA - The Many Faces Of David Bowie (2016) 3CD [MP3|320 кб/с] <Art Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reeves Gabrels Feat David Bowie - You've Been Around
-02. Tony Visconti & Woody Woodmansey - The Man Who Sold The World
-03. Ian Hunter & Mick Ronson - All The Young Dudes
-04. Dana Gillespie Prod By Mick Ronson & David Bowie - Andy Warhol(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 02:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B350C0E1B88CDC3E2B46038FB16987E27EC3B12D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490615   (916981) от 21.08.2021
-
-Sweet Crisis - Tricks On My Mind (2021) [MP3|320 Kbps] <Hard Rock, Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Loosen Up [00:03:05]
-02 - One Way Traffic [00:03:53]
-03 - Ain't Got Soul [00:06:56]
-04 - This Guitar [00:04:09](   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Classic RockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49D97A1D1FE98273DDB95D8CBF76F8B6B1F9D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989226   (917371) от 22.02.2016
-
-Conqueror - Madame Zelle (2010) [MP3|320 кб/с] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Margaretha  14:47
-02. Indonesia  05:22
-03. Occhio Dell' Alba  04:56
-04. Fascino Proibito  07:16(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEE7CB94B2C281891EC6A42CB6958B7370A7EDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490642   (917518) от 21.08.2021
-
-Saga - 6 Albums (1978-1985) Remastered 2021, earMUSIC [MP3|320 Kbps] <Progressive-Rock, Crossover-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Loose (4:13)
-02. Time's Up (4:03)
-03. Wind Him Up (5:48)
-04. Amnesia (3:29)(   Читать дальше...   )Жанр: Progressive-Rock, Crossover-ProgПродолжительность: 6CD, 04:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9687BFADE1B8334F3D669A22FCFAA96888CA2DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490617   (917523) от 21.08.2021
-
-Dangerous Curves - Summertime Highs (2021) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In Those Eyes [00:03:45]
-02 - My Oh My (Get What You Need) [00:03:28]
-03 - I Like It [00:02:56]
-04 - Good and the Bad [00:04:04](   Читать дальше...   )Жанр: Hard-Rock, Glam-MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77153204C513B95225DFB4931A194F51EEDC3CA7
 ```
 
 

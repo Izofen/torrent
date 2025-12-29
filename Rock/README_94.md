@@ -1,3 +1,165 @@
+###  Публикация: 1481714   (1008173) от 04.07.2021
+
+Sonic Aftermath - 2 Albums (2016-2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death and Taxes [00:03:16]
+02. Purgatory [00:03:39]
+03. Problem [00:02:54]
+04. Turn It Down [00:04:01](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2CD, 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0598896BF8C1F423CE13B2A4923DB509BE9EE74C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481716   (1008181) от 04.07.2021
+
+Hollow Drifter - Echoes of Things to Come (2021) [MP3|320 Kbps] <Psychedelic Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologue (00:01:24)
+02 - Panacea (00:06:51)
+03 - Misanthropy (00:05:07)
+04 - Brain Cartographer (00:07:39)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B10AE7B170E7767BFEDD14B8BC734E6AEE1918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481515   (1008271) от 03.07.2021
+
+Lynyrd Skynyrd - Nothing Comes Easy 1991-2012 (2021) [MP3|320 Kbps] <Southern, Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smokestack Lightning [00:04:27]
+02 - Keeping the Faith [00:05:16]
+03 - Southern Women [00:04:14]
+04 - Pure and Simple [00:03:07](   Читать дальше...   )Жанр: Southern, Blues Rock, Classic RockПродолжительность: 04:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6447E96E8F0448D69EBAF4EA88D74EAA02DF21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481365   (1008344) от 03.07.2021
+
+Clutch - Songs of Much Gravity... 1993-2001 (2021) [MP3|320 Kbps] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Shogun Named Marcus [00:02:52]
+02 - El Jefe Speaks [00:03:49]
+03 - Binge and Purge [00:06:29]
+04 - 12 Ounce Epilogue [00:02:49](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 03:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4E9AF38F7F86C602216F643842284310AF03D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481143   (1008443) от 02.07.2021
+
+Santana - Splendiferous Santana (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novus (feat. Placido Domingo)
+02. Eres La Luz
+03. Aye Aye Aye
+04. Con Santana (feat. Ismaila & Sixu Toure)(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DF167AE5F056D78972BA24BBC75AABE03277F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480138   (1008954) от 28.06.2021
+
+J Lee and The Hoodoo Skulls - 3 Albums (2018-2021) [MP3|320 Kbps] <Blues Rock, Heavy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Blue [00:02:57]
+02. Beggars Soul [00:03:08]
+03. Let Your Hair Down [00:03:17]
+04. Come Home [00:02:53](   Читать дальше...   )Жанр: Blues Rock, Heavy RockПродолжительность: 3 CD, 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD87B4FFE80BF5A909D8B064B601B9C7C2DFC12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480133   (1009103) от 27.06.2021
 
 The Saturday Blues Project - 3 Albums (2014-2021) [MP3|320 Kbps] <Blues Rock>
@@ -534,168 +696,6 @@ Dunbarrow - Dunbarrow I-III (2017-2021)[MP3|320 Kbps] <Stoner, Heavy Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D973C0C15B99794531982BB5E9BD156507ABF61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472042   (1014640) от 23.05.2021
-
-Maneskin - Teatro d'ira - Vol. I (2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - zitti e buoni [00:03:14]
-02 - coraline [00:05:00]
-03 - lividi sui gomiti [00:02:45]
-04 - i wanna be your slave [00:02:53](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379AFFA51521900A4604301D49562A90E47F6257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471887   (1014850) от 22.05.2021
-
-Pennies by the Pound - Heat Death Of The Universe (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Waters 06:49
-02. Strange Matter 01:18
-03. Strange Stars (Lies Closer To Truth Than Beauty) 05:32
-04. 139 04:13(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B78B2A6375EEA9605029E317647FF849A22C63D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468805   (1016763) от 10.05.2021
-
-Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engagements 1969-70 [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blue Suede Shoes (International Hotel August 1969) [00:02:17]
-02 - I Got a Woman (International Hotel August 1969) [00:02:38]
-03 - All Shook Up (International Hotel August 1969) [00:02:47]
-04 - Love Me Tender (International Hotel August 1969) [00:03:29](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 03:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07C9ACABE9E565C71EEE3139A0678138F0F7F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468034   (1017416) от 06.05.2021
-
-The Mars Volta - La Realidad De Los Suenos (2021) Box Set, Vinyl [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tremulant EP:
-01 Cut That City (05:43)
- 02 Concertina (04:54)
- 03 Eunuch Provocateur (08:48)Жанр: Progressive RockПродолжительность: 07:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4260B3775ADFFB4F6E212594662B1EC3DC4292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467635   (1017771) от 04.05.2021
-
-Force 10 - Force 10 (1981) LP [MP3|320 Kbps] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watanabe (3:56)
-02. Hypnotized (4:57)
-03. (I Fell So) Amused (3:43)
-04. Pictures (Of My Favorite Things) (6:04)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41E1F5D60CA68AC2639E4670B2791819E682FAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466649   (1018061) от 02.05.2021
-
-Lez Zeppelin - The Island Of Skyros (2021) [MP3|320 Kbps] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Battle Of Evermore [00:05:48]
-02 Achilles Last Stand [00:09:55]
-03 Rain Song [00:07:41]
-04 Immigrant Song [00:02:23](   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB36C29F4446203CDE07037B264756B1EE89B589
 ```
 
 

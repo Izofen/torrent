@@ -1,3 +1,30 @@
+###  Публикация: 1452151   (1027897) от 05.03.2021
+
+VA - Новички в попсе Vol 7 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAVRILINA - Ближе к звёздам (1:55)
+02. Свят - Меняли нас (2:00)
+03. Шейх Мансур - Мы сияли (2:02)
+04. Real girl - Пару минут (2:12)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9AA537BA2C49368ADCAE5B3898CF64A3326A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451516   (1028137) от 03.03.2021
 
 VA - Shazam Хит-парад World Top 200 Февраль (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Русское Радио. Лучшее '2020 (2021) MP3 от DON Music [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BDC15BDB8D81DBDB3A62ACDB4D5276160F98C20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438260   (1041059) от 08.01.2021
-
-VA - Radio Discomania (2021) [MP3|320 Kbps] <Pop, Italo-Disco, Euro-Disco, Synthdance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MarcelDeVan - Day of Dreams, Pt. 2 (3:45)
-02. Italove - The Mirror (Radio Edit) (4:09)
-03. Fresh Fox - Don't Stop The Night (4:08)
-04. Silent Circle - Night Train (Radio Edit Remastered) (3:52)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Euro-Disco, SynthdanceПродолжительность: 03:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7EAD783F78139BED3FFC764C4A7283F4AACFD7
 ```
 
 

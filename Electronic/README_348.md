@@ -1,3 +1,190 @@
+###  Публикация: 1403576   (690694) от 20.08.2020
+
+Capsule Network - Discography 2 Releases (2018-2020) WéMè Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Electro, Breaks, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karhu (03:37)
+ 02. Station Bravo (04:34)
+ 03. Taajuus (04:10)
+ 04. Satellite Frequency (03:32)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Techno, Electro, Breaks, Ambient •Продолжительность: 00:46:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099ADD2ED85FF427C5084AFCDE80019B32889FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028395   (690783) от 22.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales – Helligkeit (7:50)
+02. Vlada D'Shake – Public SecretЖанр: Deep House, Tech HouseПродолжительность: 06:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC5226D8690E604707D4CC2B8482B95B36D472A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028305   (690964) от 22.06.2016
+
+VA - Translinguistic Perceptions (2015) [MP3|320 кб/с] <Downtempo, Experimental, Psytrance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nibana - The Ingredient Of Intelligence (7:00)
+02. Oxi - Acceloria (7:49)
+03. Tottem - Peace & Tranquility (7:44)
+04. Tikki Masala - Ma Kali (8:32)(   Читать дальше...   )Жанр: Downtempo, Experimental, Psytrance, GOA TranceПродолжительность: 04:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9E0232911857DDF293002DDABE3213F7E61181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068014   (690995) от 14.05.2017
+
+Ari Mason - 2 альбома + EP (2014, 2016) [MP3|200 -320 Kbps] <Synthpop, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dim The Lights (03:51)
+02. Beasts Tonight (03:29)
+03. Heaven's Gate (02:24)
+04. Empires (03:50)(   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48BB4C66CC529025A4780ECD22F84093CB5A400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134168   (691173) от 14.05.2017
+
+Respected Force - A Kaleidoscope Of Moments Chapter II (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dawn (Original Mix) 04:44
+02. Dancing in the Rain (Chillout Mix) 07:45
+03. Little Owl (Original Mix) 07:37
+04. Fading Lights (Original Mix) 06:10(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DDC90C4E66F7246C086543DD5D26BFF33C1064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221596   (691266) от 26.04.2018
+
+Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amniotic (7:31)
+ 02. Black Day (5:37)
+ 03. Sirens (5:58)
+ 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEE791CB2204CAFAFE8FD9CF89763B695606D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134139   (691302) от 14.05.2017
+
+Zynic - 3 Albums (2011 - 2017) [FLAC|Lossless|image + .cue|tracks + .cue] <Synthpop, Electro-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Oblivion (4:22)
+02. Fear My Love (3:32)
+03. Would (3:56)
+04. Powered By Death (4:11)(   Читать дальше...   )Жанр: Synthpop, Electro-pop |Продолжительность: 02:39:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA1F29EAA5374D64BC3B4B60C92744DD9952350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221758   (691465) от 26.04.2018
 
 VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
@@ -506,195 +693,6 @@ VA - Sunset Lounge Bar Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Lounge, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13EDD830BC410B986F186ABBCDDB1C6C26E6F6A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288877   (692216) от 13.03.2019
-
-VA - Ultimate Workout & Fitness Selections Vol. 06 (2019) [MP3|320 Kbps] <Tech House, Funky, Groove, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Lippolis - Vision (Original Mix)
-02. Alexander Zabbi, Andres Galvis, Jacobo Palacio - Zimbabwe (Original Mix)
-03. Ander Zubiria, Hector Clarossi - Black Whisper (Original Mix)
-04. Ozzie London - Slow Down (Radio Edit)(   Читать дальше...   )Жанр: Tech House, Funky, Groove, TechnoПродолжительность: 02:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329DA7D5782D84CD4CA52D932489522AB3CD61EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288809   (692219) от 13.03.2019
-
-VC-118A - Inside (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tide (06:27)
- 02. PCB (04:36)
- 03. Metric Spaces (00:56)
- 04. Dither (04:44)(   Читать дальше...   )Жанр: Techno, Electro, AmbientПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B59645370E1B5BAD5B8B94769554D905D6C013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028211   (692677) от 21.06.2016
-
-VA - Best Of Female Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2xlc & Jilliana Danise - What Could Be Better (Radio Edit) (3:55)
-02. Ana Criado & Denis Kenzo - Beautiful Creature (Radio Edit) (3:45)
-03. Allen & Envy With Cari - Promises (Radio Edit) (3:54)
-04. Denis Kenzo & Alexandra Badoi - More Time (Radio Edit) (3:26)(   Читать дальше...   )Производство: SirAdrianMusic BundlesЖанр: Trance, Vocal TranceПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA927AD888CCF667E6F76DE1D89A73E4BB6FD88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133705   (692749) от 13.05.2017
-
-Armin van Buuren - The Best Of Armin Only (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692749.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Overture (The Best Of Armin Only) (I. Imagine)
-02. Hymne
-03. Overture (The Best Of Armin Only) (II. Mirage)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEB2CC6E041BBCE9F5389AC62E7894B01B634E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027984   (692770) от 21.06.2016
-
-VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Uplifting Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692770.jpg" />
-</div>
-
-
-###  Подробнее
-
-[07:07] 01. Allen, Envy & Neev Kennedy - Without You (Dan Stone Remix)
-[06:32] 02. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix)
-[07:07] 03. Kaimo K & Cathy Burton - You Deserve Life (2016 Rework)
-[05:51] 04. ReOrder & Katty Heath - Our Nature (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Vocal TranceПродолжительность: 02:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8DCBE2149815A158AC4CC6BF8CA0EEC74EBE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133856   (692952) от 13.05.2017
-
-VA - Bossa N' Adele (2017) [MP3|320 Kbps] <Lounge, Jazzy, Pop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonics - Hello (4:31)
-02. Michelle Simonal - When We Were Young (5:21)
-03. Morgan, G & MacHines - Don't You Remember (4:12)
-04. Sao Vicente & Shelly Sony - Someone Like You (5:35)(   Читать дальше...   )Производство: Music BrokersЖанр: Lounge, Jazzy, PopПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5E82EE9FB93323BC6265C6FC70A4ED64899523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133815   (692954) от 13.05.2017
-
-Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
-02. Space Highway (3:35)
-03. Lost Nebula (4:21)
-04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
 ```
 
 

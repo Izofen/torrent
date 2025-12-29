@@ -1,3 +1,165 @@
+###  Публикация: 1501151   (835116) от 10.10.2021
+
+VA - The Ambient Atmosphere: Relax Musical Collection (2021) [MP3|320 Kbps] <Ambient, Relax, Meditation, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Substak - Celestial
+002. Hvid Ø - Color
+003. Tomat Petrella - Oumuamua
+004. Heavenchord - Pacific Drone(   Читать дальше...   )Жанр: Ambient, Relax, Meditation, New AgeПродолжительность: 09:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03A4662FB6ABAF883EFBF788F5D8A0D21DC0B82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501590   (835119) от 10.10.2021
+
+VA - 255 DJ Loaded - Sessions Speech (2021) [MP3|224-320 Kbps] <Dancehall, Nu Disco, Drum & Bass, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Walker Hayes ft Jake Owen - Country Stuff (Radio Edit)
+002. Rdgo & Ashley Pater - Drunk On Your Love (Original Mix)
+003. The Scene Kings - Smack That (Main)
+004. Chris Burke - Bugatti (Original Mix)(   Читать дальше...   )Жанр: Dancehall, Nu Disco, Drum & Bass, Future HouseПродолжительность: 14:38:21 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C472CE8D87ED4AB695CE1BBBE7471B50F45423E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501458   (835121) от 10.10.2021
+
+VA - The Official UK Top 100 Singles Chart 08.10.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Shivers
+02. Elton John, Dua Lipa - Cold Heart (PNAU Remix)
+03. CKay - love nwantiti (ah ah ah)
+04. Central Cee - Obsessed With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B445E9EE12D642151E2BE7B26039BE10ED1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501532   (835124) от 10.10.2021
+
+VA - Record Super Chart 09.10.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
+02. Minelli - Rampampam (3:20)
+03. Tiesto & KAROL G - Don't Be Shy (2:20)
+04. Ed Sheeran - Bad Habits (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E041C8A50CFE631882E0EC2672F75737AD69CB21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380257   (835128) от 02.05.2020
+
+VA - The Official UK Top 40 Singles Chart 01.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Lounge Allstars - Times Like These (BBC Radio 1 Stay Home Live Lounge)
+02. The Weeknd - Blinding Lights
+03. SAINt JHN - Roses (Imanbek Remix)
+04. Drake - Toosie Slide(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25FBAD9041F9224E1CB1F33E25A25CC376562E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380333   (835129) от 02.05.2020
+
+VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grotto Terrazza - Gestalt Bondage
+002. Los Retros - Oh Grace
+003. Night Flowers - I've Loved You
+004. Crushed Beaks - Jupiter(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7443F99D67333C209D32F327B73F4A53A3F54E12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114139   (835174) от 13.03.2017
 
 VA - Hits Cocktail vol.2 (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -533,162 +695,6 @@ VA - В Современной Обработке. Mega Дискотека 80-90
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C64B73AB6CDAADBB8DEA3D29F639B3B1448FAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113267   (837489) от 11.03.2017
-
-VA - Club Dance Dependence vol.3 (2017) [MP3|320 Kbps] <Club , Dance , House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afrojack Ft. Luis Fonsi - Wave Your Flag (Original Mix) 3:13
-002. Alan Walker - Alone (Andrey Proto Remix 2017) 4:02
-003. Alan Walker - Alone (Lost Frequencies Remix) 6:44
-004. Andrea del Vescovo - Just  A Bit Of Luv (Tumba Mix) 6:38(   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 06:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D773CDE438739905D6B5EB949DA6F0C62687A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310252   (837895) от 18.03.2011
-
-VA - Radio Record present: Progressive House (2011) [MP3|256 kbps]<Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Club, DanceПродолжительность: 07:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD21503CBA8587516593F7D89F10C8C31181D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310325   (837908) от 18.03.2011
-
-VA - Звездный Суперхит 50/50 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0006866D992A9B6C46A41F26B7C77E6513180A10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004401   (837925) от 06.04.2016
-
-Ольга Арефьева и Ковчег - Батакакумба (1995) [MP3|320 кб/с] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорога в рай
-02. Скорее пой
-03. Магия чисел
-04. На хрена нам война(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE24F7B2708612325118CA1AC0CBC8CFFB7B0C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501145   (837994) от 08.10.2021
-
-VA - Music News vol.139 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837994.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анастасия Рэй - Я Смогу (02:39)
- 002. 24kGoldn feat. Lil Tecca - Prada (02:32)
- 003. A7S - Nirvana (Header Remix) (03:17)
- 004. Aimee - Just A Phase (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F724DEC9370EEF07A31B0846FD40CCD7919520DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004435   (838064) от 06.04.2016
-
-VA - Горячая Дискотека По-Заявкам (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
-02. Авиатор - В Твоих Глазах
-03. Greyson Chance - Hit & Run
-04. Чи-Ли - Ангел На Моем Плече(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683BD728F3316CA6B95A981AE4EFCD308DA5DE2A
 ```
 
 

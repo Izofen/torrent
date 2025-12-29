@@ -1,3 +1,165 @@
+###  Публикация: 1129249   (722274) от 28.04.2017
+
+VA - Песни Про Рыбалку (2017) [MP3|320 Kbps] <Поп, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Горячие Головы - Рыбалка 3:27
+002. Мурзилки International - Мужики-Рыбаки 3:08
+003. Владимир Кузнецов - Я на рыбалку мужики! 3:42
+004. Экипаж молодость - Рыбалка 3:31(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 04:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C023233FDFE8A3D90EF2E182C77C25C74510F83D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023643   (722357) от 06.06.2016
+
+VA - New Music Generation. Vol. 1 (2016) [MP3|320 кб/с] <Club, House, Dance, Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Martina - Memories (Extended Version)  (6:42)
+02. 300 Degrees - Acid Dirt  (5:44)
+03. Momento - Dark Is the Night (Extended Version)  (7:49)
+04. Kenny Bizzarro - Simple  (6:47)(   Читать дальше...   )Жанр: Club, House, Dance, DiscoПродолжительность: 02:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884B980B783A12B296D03FF2EF2C4D9D024FA593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023806   (722359) от 06.06.2016
+
+VA - Keep Original - Deep Tech Vocals & Electronica (2016) [MP3|222-320 кб/с] <Indie Dance, Club, Deep, Tech, Tribalm Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722359.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dennis Grkn - Dirty In The Club (Original Mix) 05:22
+002. Man Without A Clue And Alias Rhythm - What We Had To Do (Extended Mix) 06:34
+003. Gebreski - Salvador (Original Mix) 06:20
+004. Marc Karsten - Gros Balourd (Original Mix) 07:16(   Читать дальше...   )Жанр: Indie Dance, Club, Deep, Tech, Tribalm Nu DiscoПродолжительность: 11:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7E017FB8C5B799DC2CB3F069E2D2E4F24C077F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023823   (722363) от 06.06.2016
+
+VA - VOID Neo Disco (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Voyage Organisation - Shenzhen 5  (5:55)
+02. Marie Madeleine - Swimming Pool  (5:25)
+03. Hypnolove - La Piscine (L'Imperatrice remix)  (4:57)
+04. The Supermen Lovers - Family Business  (4:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB4D3DA54A856D1CC16577AFB93489FAEDAE831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129261   (722404) от 28.04.2017
+
+Paul Van Dyk - Best of 10 Years: 1994-2004 (2005) [MP3|192-320 Kbps] <Trance> [Compiled by Firstlast2]
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Van Dyk - Vega [6:05]
+02. Paul Van Dyk feat. Jan Johnston - Like a Friend [3:55]
+03. Paul Van Dyk - Never Forget [5:27]
+04. Paul van Dyk - Today (Trance Ambient Mix) [5:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853A76732D4463CC6F7438280E05DE28DE1E409D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531353   (722483) от 15.02.2022
+
+VA - 30(10) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bukatara - Статус нелюбовь (2:56)
+02. Аль Виноградов - Ангел Моей Любви (4:06)
+03. Канги - 1+1 (2:35)
+04. GAYAZOV$ BROTHER$ - СИНИЙ ИНЕЙ (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D60AED332F2E8B65E631FB2F907B6C09F503874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129417   (722496) от 28.04.2017
 
 VA - Buddha-Bar Monte-Carlo (2017) [MP3|320 Kbps] <Electronic, Easy Listening, Downtempo>
@@ -533,168 +695,6 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C96DC96B5869E6FE4C99EB48578E8875C7E830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218399   (723215) от 09.04.2018
-
-VA - History Of Female Vocal (2018) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above & Beyond feat. Zoe Johnston - My Own Hymn (Original Mix)
-002. Susana - The Promise (Original Mix)
-003. Gabriel & Dresden feat. Jan Burton - Waiting For Winter (Extended Mix)
-004. C-Systems - Heat (Trance Arts Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 11:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BD778AC78A8DE69D29485D3B6BAFB697E50778
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218459   (723217) от 09.04.2018
-
-VA - Deep House Collection Vol.165 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2deepsoul - Its a Sign (Original Mix)
-002. 4 Da People - 4 Me (2018 Mix)
-003. Aaron Lewis - Higher Dimension (Original Mix)
-004. Adam Joseph Ft. Lady Red Couture - The Rent (Seb Skalski Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2E7AE40334EA9B76DFE6FC7C467E932011B5B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218498   (723222) от 09.04.2018
-
-VA - Cocktail new music №31 (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Newman - Fire In Me (Martin Jensen Remix)
-002. Hush - Fired Up (Alex Shik & Duck Radio Edit)
-003. Tristan Garner - Give Love (John Reyton Remix)
-004. Basada feat. Camden Cox - Good Vibes(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4571F7638853ED5F901DF999C789E363DCB3BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218433   (723223) от 09.04.2018
-
-VA - Metal Tuning Fork (2018) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duskmourn - Ancient Whispers
-002. Slow - Aurore
-003. Cripper - Pressure
-004. All Out War - Burn These Enemies(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 08:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE856014DE4119B70661B2114183C107F136140
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218402   (723226) от 09.04.2018
-
-VA - Soft Bass Example (2018) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Delta Heavy, Dirty Audio, Holly - Stay (Maduk Remix)
-002. Macca & Loz Contreras - Better World
-003. Bustrexx - A Common Element  feat. Tessa Der Kinderen (Keeno Remix)
-004. WTRFALL - Lose (Original Mix)(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BD05B677D04314DE9EFC918C5735A60827F0DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218401   (723295) от 09.04.2018
-
-VA - Psy Trance Euphoria (2018) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Lesden - The Last of Our Kind
-02. Astro-D - Anything is Possible (feat. Etnica)
-03. Coral - Well Oiled Machine (Original Mix)
-04. Gonzi & Boot Sequence - Day After Day (Ecolift Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 08:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4215BF01A2ED0CEDE5803810380BE81F2B94B2D0
 ```
 
 

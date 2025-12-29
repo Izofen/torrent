@@ -1,3 +1,165 @@
+###  Публикация: 1129829   (718632) от 30.04.2017
+
+VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Ed Sheeran – Shape of You
+003. Burak Yeter – Tuesday (feat. Danelle Sandoval)
+004. Jason Derulo – Swalla (feat. Nicki Minaj Ty Dolla ign)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DC35AE439E8042C625B15DC69E119C1869AD77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285034   (718684) от 27.02.2019
+
+VA - Vynil Rock Classic Mania (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718684.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Buffalo - Quickening
+002. Afi - Get Dark
+003. Blondie - Heart Of Glass
+004. Comisario Pantera - El Camino De La Noche(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91497423C5EC5D634127C5A5A105C2408BE2EBF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129878   (718702) от 30.04.2017
+
+VA - Deluxe Drum And Bass (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718702.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3D Stas - Heroine Beat (Original Mix)
+002. 9TRANE - Heard Me (Strong4Life Remix)
+003. Junkie XL - Heart Of Darkness
+004. DJ Red - Bad Hombres (Richard Wette VIP Remix)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 08:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CF0C23ECE73DE9524E1BCA19E3A83C1F0D4343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130019   (718710) от 30.04.2017
+
+VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kim McNichols - Better off Alone (Summer Pool Party Mix)
+02. Michael Ribeira - Ecuador (Slowsphere Remix)
+03. Damon Paul, Beccy - I Was Made for Lovin' You (Patricio Amc Remix)
+04. Tenishia & Sue Mclaren - Strong (Chill Out Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531753   (718714) от 17.02.2022
+
+Digital Infinity - Digital Infinity (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiance (4:39)
+02. Dreams (5:49)
+03. Black Sky (4:57)
+04. Scars (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 02:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9F42E5916DB4846E87F62C58A55F8C5C23139B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285399   (718815) от 27.02.2019
+
+VA - Melodic Therapy (2019) [MP3|320 Kbps] <Melodic Techno, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Einmusik - Sa Trincha [6:44]
+02. Jay Fm - So Right (Cherry Pheromone Remix) [6:51]
+03. Andre Sobota - Robots (Original Mix) [6:36]
+04. Dante Pippi, Demitros - Maculelê (Original Mix) [8:40](   Читать дальше...   )Жанр: Melodic Techno, Progressive HouseПродолжительность: 05:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD8C74A1AF3BDB09D827A578A0C6DE3A045934A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285567   (718818) от 27.02.2019
 
 VA - Vocal The Air Trance (2019) [MP3|320 Kbps] <Trance>
@@ -537,172 +699,6 @@ VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327139   (720370) от 24.04.2011
-
-VA - Drum & Bass Collection 22 (17.04.2011) [MP3|320 kbps]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpine Dub - Side My Channel (4:28)
-02. Asphexia - Nirvana (6:25)
-03. Asphexia - Sick Structure (5:30)
-04. Blokhe4d - Cretin (Prolix Remix) (6:57)
-05. Blokhe4d - Kisses and Lies (5:18)
-06. Camo & Krooked - Cliffhanger (Original Mix) (4:17)
-07. Cause 4 Concern - Lifelike (4:56)
-08. Chase & Status - Fool Yourself (feat. Plan B & Rage) (4:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56581802B952586A7749C5E3DCD8B08FF5E9A262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024122   (720430) от 07.06.2016
-
-VA - Ultimate Dance Crazy Shakers (2016) [MP3|253-320 кб/с] <Dance, Euro, Disco, Electronic, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Sam - Zigomar (Original Mix) 06:33
-02. Jezzpi Feat. Nick Ray - Uncontrolled (Extended Mix) 05:50
-03. Sasha Primitive - Stop (Original Mix) 06:11
-04. TV Noise Ft. Bright Sparks - Bring Me Down (Extended Mix) 03:29(   Читать дальше...   )Жанр: Dance, Euro, Disco, Electronic, Hands UpПродолжительность: 09:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACF79E81EFFCAEE8D53DE60AE868489F0A3F247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024131   (720566) от 07.06.2016
-
-VA - Summer Club Charts (2016) [MP3|320 кб/с] <Electronic, House, UK Garage, Tropical, Progressive, Tribal, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Summer Club Charts DJ Mix 2016, Pt.1 01:07:55
-02. DJ Mix - Deep House Anthems DJ Mix 2016, Pt.2 01:17:19
-03. DJ Mix - EDM Festival DJ Mix 2016, Pt.3 01:06:46
-04. Avicii - Waiting for Love 03:50(   Читать дальше...   )Жанр: Electronic, House, UK Garage, Tropical, Progressive, Tribal, Future HouseПродолжительность: 07:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987D4C93BDEE05A4F7CC913E05DE798D98AD5E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024117   (720664) от 07.06.2016
-
-VA - House & Tech Tops Trips Times (2016) [MP3|256-320 кб/с] <Electronic, House, Funky, Tech House, Tribal, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blade And Tolu - Funky Feeling (Club Mix) 06:36
-002. Me And The Gang - Hunter (The Path) 07:11
-003. Phocus - Iceman (Original Mix) 04:51
-004. Max Freegrant - Thrill Me (Future Disciple Remix) 07:40(   Читать дальше...   )Жанр: Electronic, House, Funky, Tech House, Tribal, SoulfulПродолжительность: 10:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E7D20DEA1665569AA6E3E18A46B58B3A4B6357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129531   (720698) от 29.04.2017
-
-VA - Eurodance Compilation (2017) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr. President - 4 On The Floor  3:17
-02.  DJ BoBo - Amazing Life  4:01
-03.  E-Type - Angels Crying  3:51
-04.  Activate - Let The Rhythm Take Control  3:32(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B111892CD241D8E090306AEBD9AA9CC23CC54D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129239   (720711) от 29.04.2017
-
-VA - Лучший русский шансон выпуск № 11 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720711.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Edik Salonikski - Не Молчи 4:13
-002. Сергей Чепрак - Совесть 4:11
-003. Жора Камский - За Колючею Душой 3:14
-004. Александр Кузнецов & Регион 42 - Осинники 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D3EBE99C5DE58CFA4A3227BF73AB353A5B421C
 ```
 
 

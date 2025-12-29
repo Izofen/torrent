@@ -1,3 +1,57 @@
+###  Публикация: 1362353   (949696) от 23.02.2020
+
+Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (Original Mix) (4:12)
+02. Stars (Sky Edit) (4:32)
+03. Stars (Mother Dub) (6:27)
+04. Stars (Search & Destroy Full Vox Mix) (7:35)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C668BA04F6B247AAC5985B827CCAF38CE1D48514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981781   (949827) от 02.02.2016
+
+Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love Within
+02. Only He Can Heal Me
+03. So Real
+04. The Good News(   Читать дальше...   )Жанр: Alternative Dance, Indie Pop, ElectronicПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981907   (949988) от 02.02.2016
 
 Andrea Lindsay, Luc De Larochelliere - C'est d'l'amour ou c'est comme (2012) 2015 GSI Musique [FLAC|Lossless|WEB-DL|tracks] <French Pop>
@@ -638,60 +692,6 @@ VA - Viva Italia - Canzone Italiana (2006) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74FBDB6E12CE2EB392BE2CB6817B726E9C78EDF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978003   (963639) от 23.01.2016
-
-VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Daniele - Quando (3:35)
-02. Umberto Tozzi - Gli altri siamo noi (5:31)
-03. R.Casale e G.Di Michele - Gli amori diversi (3:39)
-04. Cristiano De Andre - Dietro la porta (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977956   (964535) от 22.01.2016
-
-VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianni Morandi, Enrico Ruggeri - Si Puo Dare Di Pu (4:28)
-02. Raf - Inevitabile Follia (4:32)
-03. Fiorella Mannoia - Caffe Nero Bollente (4:26)
-04. Francesco Baccini - Le Donne Di Modena (5:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
 ```
 
 

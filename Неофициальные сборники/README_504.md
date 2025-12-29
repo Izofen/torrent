@@ -1,3 +1,165 @@
+###  Публикация: 1207547   (780496) от 18.02.2018
+
+VA - Радио Шансон. Лучшее 2017 от DON Music (2018) [MP3|256-320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Михаил Шуфутинский - Она была совсем девчонкой
+02 Григорий Лепс - Орлы или вороны (feat. Максим Фадеев)
+03 Анатолий Полотно - Далекий берег (feat. Федя Карманов)
+04 Вероника Андреева и Гарик Кричевский - Правила против нас(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E500C7C073973E39CE53FEF6C326829C6F9F0FDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207494   (780511) от 18.02.2018
+
+VA - RockДрайв. Новинки русского рока. Часть 2 (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. СерьГа - Сказочный лес
+02. 7Б - Передайте маме
+03. АнимациЯ - Русские города
+04. Чёрный Обелиск - Снизу вверх(   Читать дальше...   )Жанр: RockПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2196EAF582DF42E0671700C1915FAFDA84C61D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207491   (780539) от 18.02.2018
+
+VA - Music Infection: Dance Culture 90's (Compiled by electro75) (2018) [MP3|320 Kbps] <Techno, Euro House, Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  L.A. Style  -  James Brown Is Dead  5:42
+02.  Da Hool  -  Meet Her At The Love Parade  4:06
+03.  DJ Visage  -  Formula  3:42
+04.  Red 5  -  Da Beat Goes  3:48(   Читать дальше...   )Жанр: Techno, Euro House, RaveПродолжительность: 04:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F735EA1EFBAF75D6276F9A669028B15BBA4380FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207553   (780566) от 18.02.2018
+
+VA - De Top 100 Aller Tijden 1981 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780566.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Champaign - How 'Bout Us (3:21)
+002. Anita Meyer - Why Tell Me Why (3:29)
+003. Stars On 45 - Stars On 45 (4:47)
+004. Police - Every Little Thing She Does Is Magic (4:21)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89915DA067E78CBCE48DC0971375A1EC8F6D921A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207411   (780605) от 18.02.2018
+
+VA - The Official UK Top 40 Singles Chart 16.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+03. Keala Settle & The Greatest - This Is Me
+04. Dua Lipa – IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1BDB8E2BED04998A352FE9A7CEBD6C06BCB0EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207441   (780608) от 18.02.2018
+
+VA - The Best Of Trance 65 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sky Motion  -  Salva (Original Mix)  7:03
+02.  Kayan Code  -  Jawbreaker (Original Mix)  6:00
+03.  Accelerator  -  Fist Of The Legend (Part 1) (Original Mix)  6:30
+04.  Evgeny Lebedev & Alter Future  -  Tornado Valley (Extended Mix)  7:09(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A76C49C0B7DFB8FF0355E38060457FF6BFFDEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207451   (780611) от 18.02.2018
 
 VA - Express Train (2018) [MP3|320 Kbps] <House, Techno, Electro>
@@ -538,168 +700,6 @@ VA - Лучшие клубные новинки Vol.12 (2018) (2018) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:884208BA04B764B2FE6AFA9008B59B53562B58A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206979   (781293) от 16.02.2018
-
-VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Eminem - River (feat. Ed Sheeran)
-003. Bausa - Was du Liebe nennst
-004. UFO361 - Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435E0E8BD0A5BC3E971CD3CA46181F8658445395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206936   (781326) от 16.02.2018
-
-VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781326.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estiva & Justin Oh - Reach For The Sky
-002. Marc Van Gale - Mumbai Taxi (Original Mix)
-003. Emanuele Braveri - Destination Summer (Original Mix)
-004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206889   (781330) от 16.02.2018
-
-VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
-2. Kajis feat. Ylona - Way Back Home (Taival Remix)
-3. RAMiNiO - Confession (Extended Mix)
-4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391242   (781458) от 19.06.2020
-
-VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limit - Tell Me
-02. Dynamic Destruction - Bubbles
-03. Rebuilder - Follow Me
-04. Changer - Locals (Original Mix)(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 05:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206662   (781716) от 15.02.2018
-
-VA - Heavy Manuscript: Hard Compilation (2018) [MP3|320 Kbps] <Heavy, Power Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Exocrine - Garden Of Flesh
-002. Kings Of Disorder - Murdered One
-003. Absolva - Never Back Down (Acoustic)
-004. Pretty Maids - Was That What You Wanted(   Читать дальше...   )Жанр: Heavy, Power MetallПродолжительность: 19:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE77455AEA85A324CEBD425E1DB1E8D6D2142250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206905   (781722) от 15.02.2018
-
-VA - Peoples Choise: Pop Rock Retrospective (2018) [MP3|320 Kbps] <Pop Rock, Retro 80's>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Maggie Macneal  -  When You're Gone  4:30
-002.  Hollies  -  Sandy  4:00
-003.  Ike & Tina Turner  -  Baby Get It On  3:14
-004.  B.T. Express  -  Do It  5:50(   Читать дальше...   )Жанр: Pop Rock, Retro 80'sПродолжительность: 06:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFDA7892AFCF99CDCCD8D330AC0EAC3E416DD88
 ```
 
 

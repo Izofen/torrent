@@ -1,3 +1,162 @@
+###  Публикация: 1473679   (1013536) от 30.05.2021
+
+VA - Record Super Chart 29.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inna - Flashbacks (2:57)
+02. Tiesto - The Business (2:44)
+03. Nessa Barrett feat. jxdn - la di die (3:15)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D95F2F678528B99CF24318F34850C84D41C749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473346   (1013667) от 29.05.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 28.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INNA - Flashbacks (2:33)
+02. The Weeknd - Save Your Tears (3:35)
+03. Nessa Barrett & JXDN - La Di Die (3:15)
+04. HVME & Travis Scott - Goosebumps (Remix) (2:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE3F3F1F3A01E0341BC7CFC2A28022918D264B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473569   (1013692) от 29.05.2021
+
+VA - German Top 100 Single Charts 28.05.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shirin David - Ich darf das
+02. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+03. Olivia Rodrigo - good 4 u
+04. Jamule - Liege wieder wach(   Читать дальше...   )Жанр: PopПродолжительность: 05:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488C58F96B960B34170A65B1E3E5F71F0A7F4B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473296   (1013720) от 29.05.2021
+
+VA - Beatport Electro House: Sound Pack #287 (2021) [MP3|320 Kbps] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mat Lunnen - 2 Beat Groove
+002. Foletto & Lostin - Distant Waves
+003. Jaco Matthews - Detroit Fréquences
+004. Juliet Mendoza - That Thang(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 12:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C17F8ECFE9A7EF2BB2A65C23F0F035B10F55D98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472966   (1013801) от 28.05.2021
+
+VA - Blues 100 (2021) [MP3|320 Kbps] <Blues, Soul, Rock, Punk>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Band, Muddy Waters - Mannish Boy (Live)Жанр: Blues, Soul, Rock, PunkПродолжительность: 06:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012BE6EF92EBCECFD42209E64CC9EB0229134899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473078   (1013817) от 28.05.2021
+
+VA - Top 100 Energetic Dance Club Music (2021) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013817.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Struzhkin - Perfect Love
+002. Casaris - The Power Of Harmony
+003. Ozkar Ramirez - Dulces, Alcohol Y Rumba
+004. Jga - Close My Eyes(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE62150812405C941C3439AAC521C89B932B8767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472950   (1013822) от 28.05.2021
 
 VA - Best of 80's: Anni Ottanta (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
@@ -533,168 +692,6 @@ VA - Simply 90s: Greatest Hits of the 90ies (2021) [MP3|320 Kbps] <Electronic, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78C4ECEB007281FED9AD4CB35D14D876CD9D9C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472644   (1014189) от 26.05.2021
-
-VA - NRJ Good Vibes Only 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Your Love (9PM)
-02. Black M - Cesar (feat. Maitre Gims)
-03. Clara Luciani - Le reste
-04. Dj jabato - Master kg - jerusalema(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 03:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5006AD32EE2BEDE365A8FCE718F787FD79AA2CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472752   (1014195) от 26.05.2021
-
-VA - Music News vol.103 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кристина Орбакайте - Я-Кристина Орбакайте (03:14)
- 002. 3 Sud Est feat. Andra - Jumatatea Mea Mai Buna (Moonsound & Cristi Nitzu Remix) (02:59)
- 003. 1986zig feat. Bozza - Goldraub (02:21)
- 004. ABAKAR - Ночные Огни (04:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9F9CDB98AC7659E0D222A0EE1A538EEB6C0695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472622   (1014198) от 26.05.2021
-
-VA - Evrybody Clap: Disco Party (Vol.01) (2021) [MP3|320 Kbps] <Disco, Nu Disco, Disco House, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка не стоит на месте и постоянно движется вперед. Возникают какие-то новые стили, модные тенденции и направления. Но иногда можно услышать довольно старые хиты в новой обработке, которые не уступают новейшим песням по звучанию и мелодичности. Сборник именно таких хитов, возможно уже забытых многими, представляем вам для прослушивания. Многие меломаны оценят звучание (   Читать дальше...   )001. Electro Potato - Video Game
-002. Donna Summer - When Love Takes
-003. Dave Rodgers - Wild Heaven
-004. Roberto Lee - Love Games(   Читать дальше...   )Жанр: Disco, Nu Disco, Disco House, FunkyПродолжительность: 09:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEA5A0CEC5A19714F8736CF843D6A783F440CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472603   (1014218) от 26.05.2021
-
-VA - National Pop Dance Music (Vol.17) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 2021 года уже набирает свои обороты, но лучшая весенняя музыка еще не теряет своей популярности. Представляем вам сборник двести лучших песен последних весенних месяцев года, вместе с которым Вы ощутите всю прелесть солнечных дней и поднимете себе настроение!001. Kate Rusby - If I Had A Boat
-002. Tele Novella - One Little Pearl
-003. Pierre Jomie - Pour Un Sourire
-004. Egerlaender6 - Schlagzeilen(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 11:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDD24E0844EB567798F45BD5476D24B625AC6FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472616   (1014231) от 26.05.2021
-
-VA - Balearic Dawn (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это прекрасно почувствовать себя неожиданно остановившимся, оглянувшимся, постигнувшим себя и окружающее пространство. Мелодии треков предлагаемого Вам сборника способствует к такому возвышенному душевному состоянию, при котором противопоказаны резкие движения.001. Pat & Pats - Tobago
-002. Rip Swirl - Whacked
-003. 9dw - Walk The Diorama
-004. Intravert - Something In It(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, RelaxПродолжительность: 07:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31180398B2B3A2BE1ACFAC52A228FE69B319237D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472713   (1014233) от 26.05.2021
-
-VA - Perfect Moment (Epic Trance Classics) (2021) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tillmann Uhrmacher - On The Run (Ocean To Shore Club Extended)
-02. Nostrum - Brainchild (Taucher Remix)
-03. El Loco - Ibiza (Club Mix)
-04. Jay Cosgrove & Jon Craig - Binary Finary 2010 (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D71F3A794115A634EFBD6AB47E167043B54573
 ```
 
 

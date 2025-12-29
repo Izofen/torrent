@@ -1,3 +1,192 @@
+###  Публикация: 1288877   (692216) от 13.03.2019
+
+VA - Ultimate Workout & Fitness Selections Vol. 06 (2019) [MP3|320 Kbps] <Tech House, Funky, Groove, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo Lippolis - Vision (Original Mix)
+02. Alexander Zabbi, Andres Galvis, Jacobo Palacio - Zimbabwe (Original Mix)
+03. Ander Zubiria, Hector Clarossi - Black Whisper (Original Mix)
+04. Ozzie London - Slow Down (Radio Edit)(   Читать дальше...   )Жанр: Tech House, Funky, Groove, TechnoПродолжительность: 02:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329DA7D5782D84CD4CA52D932489522AB3CD61EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288809   (692219) от 13.03.2019
+
+VC-118A - Inside (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tide (06:27)
+ 02. PCB (04:36)
+ 03. Metric Spaces (00:56)
+ 04. Dither (04:44)(   Читать дальше...   )Жанр: Techno, Electro, AmbientПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B59645370E1B5BAD5B8B94769554D905D6C013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028211   (692677) от 21.06.2016
+
+VA - Best Of Female Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2xlc & Jilliana Danise - What Could Be Better (Radio Edit) (3:55)
+02. Ana Criado & Denis Kenzo - Beautiful Creature (Radio Edit) (3:45)
+03. Allen & Envy With Cari - Promises (Radio Edit) (3:54)
+04. Denis Kenzo & Alexandra Badoi - More Time (Radio Edit) (3:26)(   Читать дальше...   )Производство: SirAdrianMusic BundlesЖанр: Trance, Vocal TranceПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA927AD888CCF667E6F76DE1D89A73E4BB6FD88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133705   (692749) от 13.05.2017
+
+Armin van Buuren - The Best Of Armin Only (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692749.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Overture (The Best Of Armin Only) (I. Imagine)
+02. Hymne
+03. Overture (The Best Of Armin Only) (II. Mirage)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEB2CC6E041BBCE9F5389AC62E7894B01B634E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027984   (692770) от 21.06.2016
+
+VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Uplifting Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692770.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:07] 01. Allen, Envy & Neev Kennedy - Without You (Dan Stone Remix)
+[06:32] 02. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix)
+[07:07] 03. Kaimo K & Cathy Burton - You Deserve Life (2016 Rework)
+[05:51] 04. ReOrder & Katty Heath - Our Nature (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Vocal TranceПродолжительность: 02:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8DCBE2149815A158AC4CC6BF8CA0EEC74EBE5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133856   (692952) от 13.05.2017
+
+VA - Bossa N' Adele (2017) [MP3|320 Kbps] <Lounge, Jazzy, Pop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonics - Hello (4:31)
+02. Michelle Simonal - When We Were Young (5:21)
+03. Morgan, G & MacHines - Don't You Remember (4:12)
+04. Sao Vicente & Shelly Sony - Someone Like You (5:35)(   Читать дальше...   )Производство: Music BrokersЖанр: Lounge, Jazzy, PopПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5E82EE9FB93323BC6265C6FC70A4ED64899523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133815   (692954) от 13.05.2017
+
+Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
+02. Space Highway (3:35)
+03. Lost Nebula (4:21)
+04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028123   (692965) от 21.06.2016
 
 VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -506,195 +695,6 @@ VA - Vocal Trance feat. Jess Morgan (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106612D17A6DD62C4D26480FF64C9E9512C3ABF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403239   (694277) от 18.08.2020
-
-VA - Abora Recordings: Best Of 2019 (Mixed by Ori Uplift) (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Gunichev & DreamLife - Good Night My Dream (Intro Edit)
-02. Sandro Mireno & Alaera - Awakening (Original Mix)
-03. Illitheas - Freefall (Original Mix)
-04. Inci3ion ft Zara Taylor - Holding On (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA37BD89D6D3A8A6B62F3C93F3DF086F5CE1104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288753   (694307) от 12.03.2019
-
-Igor Cold (Igor Dyachenko) - The Crying Room (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mono Cry (03:32)
-02. Had Black Orchard (06:14)
-03. 57 Navigational Stars (04:01)
-04. Crying Room (07:00)(   Читать дальше...   )Жанр: Electronica, Downtempo, AmbientПродолжительность: 01:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA50F6AD87BE7DB65535B5F24DA458139168293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794873   (694331) от 10.06.2014
-
-Entheogenic - Enthymesis (2014) [FLAC|Lossless|WEB-DL]<Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autopsia (8:24)
- 02. Infrasensory (6:34)
- 03. Planetary Medicine (8:51)
- 04. Silent Knowing (10:44)(   Читать дальше...   )Жанр: Psychill, Tribal, Downtempo, Ambient, Psy-TranceПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFBFF880926A2B358BE0146C27BB6A6B5D01B4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403180   (694404) от 18.08.2020
-
-ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ALPHA 9 - ID
-2. ALPHA 9 - All That I Cant
-3. Above & Beyond feat. Zoë Johnston - My Own Hymn (ALPHA 9 Remix)
-4. ALPHA 9 - Before The Dawn(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D870299A63EDF5D044B9D021C0468535C77F888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027756   (694450) от 20.06.2016
-
-Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Past, Present & Future (Intro) (1:00)
-02. Dreamcatcher (4:13)
-03. Arrow (3:27)
-04. Nana (3:24)(   Читать дальше...   )Производство: Not On Label (Vanilla Self-Released)Жанр: Electronic, Jazz, Funk, Soul, Ambient, Experimental, Hip HopПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186D02E6CC994B38F0C59F2CB491E79EA39DE511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027878   (694836) от 20.06.2016
-
-Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe (Chill Out Mix) (3:27)
-02. Hotel Summerville (Original Mix) (5:38)
-03. Campfire (Original Mix) (4:24)
-04. Smile When You're Hurt the Most (Original Mix) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5762FBE153EE6121FA2B048F6502D459987341F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027632   (694845) от 20.06.2016
-
-VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Stand Up (4:41)
-02. Audio Jacker - Gimme Gimme (8:10)
-03. Funkstar - Turn the Beat (5:31)
-04. Serial Thrilla - Get Down (5:53)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: Funky, Disco, Nu-DiscoПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA69AF00519E9293A9EEE38D5CF865449C1FCAD
 ```
 
 

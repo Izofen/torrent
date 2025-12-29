@@ -1,3 +1,192 @@
+###  Публикация: 1004539   (836417) от 07.04.2016
+
+Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [MP3|320 кб/с] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no. 8 in G major, op. 88
+01 (1) Allegro con brio
+02 (2) Adagio
+03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCCDD97291008A8DCC3D758A0151961817954D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004514   (836423) от 07.04.2016
+
+Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind-SLSO) (2007) [MP3|320 кб/с] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto in A minor, op. 53
+01. (1) Allegro ma non troppo - Adagio ma non troppo
+02. (2) Finale. Allegro giocoso
+(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0B92B02B4628614A278816D18C75FC68581C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004457   (837839) от 06.04.2016
+
+Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind) (2007) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto in A minor, op. 53
+01. (1) Allegro ma non troppo - Adagio ma non troppo
+02. (2) Finale. Allegro giocoso
+(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CEA3CD51CC2ADF607F7C49599C35D92DDEAD4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004293   (837927) от 06.04.2016
+
+Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le carnaval des animaux: No. 13, Le cygne
+02. Klid, Op. 68 No. 5, B. 182
+03. From Jewish Life: I. Prayer (Arr. for Cello & Orchestra)
+04. Kol Nidrei, Op. 47(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE36F885DFF6164131085627C77D92091F536F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004467   (838049) от 06.04.2016
+
+Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no. 8 in G major, op. 88
+01 (1) Allegro con brio
+02 (2) Adagio
+03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F7103D323DA04A51C4B898BEF9EEE83AB7ECFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112968   (839779) от 10.03.2017
+
+Boismortier - Motets avec symphonies (1991) 2004,  Accord [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motet a Grand Choeur
+01. Symphonie et duo de basses tailles 2:21
+02. Choeur 2:12
+03. Recit basse taille 2:15(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01616280CC5248967712BAB954494FBC1B1536AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500928   (839823) от 07.10.2021
+
+VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glorious Symphony Orchestra - Symphony in E flat major, No 5, Op 82: I (31:46)
+02. Tatjana Franova - Etude in C sharp minor, Op 2: I (04:13)
+03. Great Baltic Symphony Orchestra - The Symphony's Song, Op. 57: I (17:13)
+04. Kaunas Symphony Orchestra - Da Requiem, Op 20: I (18:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004147   (839893) от 05.04.2016
 
 Simone Kermes - Love (2016) [FLAC|Lossless|tracks] <Classical>
@@ -503,195 +692,6 @@ Schnittke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8410EE70FD938C7E63E2542749A3980770DF7AFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002305   (848604) от 31.03.2016
-
-Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seguidilla - Carmen (Bizet)  4:40
-02.  Chanson - Carmen (Bizet)  4:44
-03.  Habanera - Carmen (Bizet)  4:41
-04.  Flower Duet - Lakme (Delibes)  5:06(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66244D046611927183743C95808B4D4AD3BB8797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002315   (848608) от 31.03.2016
-
-Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Charles Gounod - Sanctus  5:39
-02.  Charles Gounod - Repentir (O Divine Redeemer)  6:34
-03.  Ugjis Praulinjsh - Dievaines  6:25
-04.  Pietro Mascagni - Regina coeli laetare  5:56(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65968525AFAFE447E341A7BBE839179E4BDD3E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002208   (848680) от 31.03.2016
-
-Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chi sa, chi sa, quai sia - KV 582  3:23
-02.  La Clemenza di Tito, KV 621: 1. Akt, Nr. 2 - Deh, se piacer mi vuoi  5:59
-03.  Basta, vincesti... Ah, non lasciarmi, no - KV 486a  6:30
-04.  La finta giardiniera, KV 196: 3. Akt - Va pure ad altri  3:37(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB65A6EAA79C2A4AF0A5CDF3B47F1F3CBB93ADE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002204   (848681) от 31.03.2016
-
-Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chapi - Al pensar (Las hijas del Zebedeo)  4:56
-02.  Massenet - Werther ... Werther ...qui m'aurait dit (Werther)  7:15
-03.  Offenbach - C'est  l'amour, l'amour vainqueur! (Les Contes d'Hoffmann)  3:50
-04.  Rossini - Nacqui all'affanno (La Cenerentola)  7:35(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745596E62A72E57EBF1E935D801C2CF55B9F314D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002188   (848685) от 31.03.2016
-
-Elina Garanca - Arie Favorite (2002) [APE|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfgang Amadeus Mozart:
-01.  Non so Piu cosa Son  2:51
-02.  Voi Che Sapete  2:54
-03.  Den per questo Instante  6:22(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165CE16FFF09D8933B6E522B048DD0656B73E689
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002195   (848686) от 31.03.2016
-
-Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  L'ai-je bien entendu? ... O mon Fernand! (Donizetti)  8:25
-02.  Mon coeur s'ouvre a ta voix (Saint-Saens)  6:15
-03.  Da, chas nastal! ... Prostite vi, kholmi, polya rodniye (Tchaikowsky)  6:26
-04.  Ou suis-je? ... O ma lyre immortelle (Gounod. Sapho)  7:55(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7CF47D7BAE46FE71733C85656EBE5E9D3F88C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002064   (848696) от 31.03.2016
-
-Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gaitas  3:37
-02.  Zangarilleja  1:59
-03.  "A del arrebol luciente" (Juan Hidalgo)  3:36
-04.  Fandango  2:53(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDDB5015A2F400A127C891FFD98855B86F0B6A41
 ```
 
 

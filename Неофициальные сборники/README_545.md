@@ -1,3 +1,165 @@
+###  Публикация: 1116917   (820802) от 21.03.2017
+
+VA - 100 Popular European Hit (2017) [MP3|320 Kbps] <Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820802.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zara Larsson - So Good
+002. Yvonne Catterfeld - Irgendwas (feat. Bengio)
+003. Adele - Water Under The Bridge
+004. Robbie Williams - Love My Life(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 05:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B939AD24DA8BC1806419D463DFFC42DDC9539B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116951   (820808) от 21.03.2017
+
+Albert Collins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Texas Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iceman
+02. If Trouble Was Money
+03. When The Welfare Turns Its Back On You
+04. I Got That Feeling(   Читать дальше...   )Жанр: Blues, Texas BluesПродолжительность: 04:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C5D97345D3DFB6DB54C6087E2868FADD1C32A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382227   (820871) от 10.05.2020
+
+VA - New Wave Of Disco (2020) [MP3|320 Kbps] <Disco, New Generation>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820871.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelica Rose - My Love Is Always Forever
+002. Kinsuby feat. Demetrius - No Fool
+003. Domineeky - Slow Ragga Flava
+004. Limelight - Say You, Say Me(   Читать дальше...   )Жанр: Disco, New GenerationПродолжительность: 09:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F636F142C577BAD1C6FAF6E03FA1F20879B0F35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381558   (820872) от 10.05.2020
+
+VA - Life under the rubble - collection (2020) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abuser - Creations (05:01)
+02. Accept - Stalingrad (05:59)
+03. Accuser - Perish By Oblivion (04:06)
+04. Agent Steel - Illuminati Is Machine (05:01)(   Читать дальше...   )Жанр: MetalПродолжительность: 07:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA2098A79493DAD310B22B218759CB25E443B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382235   (820876) от 10.05.2020
+
+VA - Beatport Trance: Electro Sound Pack: #76 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820876.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Infect Insect - Boiler Of Thoughts
+002. Aj Gibson & Claire Willis - Reach The Sun
+003. Division Zero - Resystance (Extended Mix)
+004. John Askew - Electraglide (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045595A98E3A27B3A0958FD3CB8D58724A083E19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116920   (820912) от 21.03.2017
+
+VA - Top 100 DJ Vocal Trance (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820912.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Morris feat. Katty Mcgrew - I See You (Igor Dyachkov Remix)
+002. Andre Visior & Cathy Burton - Daylight (Andre Visior 2017 Remix)
+003. Andy Duguid feat. Leah - Don't Belong (Sied Van Riel Remix)
+004. Angel Falls, Andrew Henry - Forever Is A Lie (Original Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2190D36B9682774061A69994CDAFA92BC73AA323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502828   (820958) от 18.10.2021
 
 VA - Shazam Хит-парад Top 100 Russia 15.10.2021 (2021) [MP3|192-320 Kbps] <Pop, Electronic, Dance>
@@ -536,168 +698,6 @@ Oscar Benton - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:967B35E18CDB186A496A53A6C50266AA3F0204A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382105   (822092) от 09.05.2020
-
-VA - Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix vs. Matisse & Sadko with Michel Zitron - Hold On (feat. Michel Zitron) 4:05
-02. SAINt JHN - Roses (Imanbek Remix) 2:57
-03. R3HAB x Timmy Trumpet - 911 2:09
-04. Dubdogz & Bhaskar - Infinity (Dubdogz & Bhaskar Edit) 3:16(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4F63988DF495AAB6D40E43E54C7A99D459DEE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116412   (822241) от 20.03.2017
-
-Pet Shop Boys - Ultimate Tracks Surprise (2017) [MP3|320 Kbps] <Europop, Art Pop, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yesterday, When I Was Mad (Raf Zone Dub)  5:41
-02.  Opportunities (Let's Make Lots Of Money) (Full Length Original 7'')  4:37
-03.  Miserabilism (Moby Electro Mix)  5:36
-04.  London (Thee Radikal Blaklite Edit)  5:44(   Читать дальше...   )Жанр: Europop, Art Pop, Synthpop, New WaveПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDC9549FAE6CF98A9EF66117FD5C5A412714492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116764   (822246) от 20.03.2017
-
-Snowy White - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue To The Bone
-02. I Loved Another Woman
-03. The Agency Blues
-04. Loving Man(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C696608BEBBF2925AB66744D80F320EBCA4E9CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196517   (822314) от 03.01.2018
-
-VA - Best of Deep House. Volume 10. Titanic Emotions [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House, Tech House, Nu-Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nic Fanciulli - The Light (feat. Constance) [2:56]
-02. Abel - NYE 2014 [6:10]
-03. Neil Quigley - Look CLoser [6:57]
-04. Marco Resmann - Babylon Side (feat. Deep Aztec & Black Soda) [6:51](   Читать дальше...   )Жанр: Deep House, Tech House, Nu-DiscoПродолжительность: 05:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57998D213F94791B6CFE1A01E3C81787FC1518E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116551   (822319) от 20.03.2017
-
-VA - Top 100 Зайцев нет. Март (2017) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822319.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Pac - Dear Mama 4:39
-002. Ace Of Base - All That She Wants 3:31
-003. Alan Walker - Alone 2:41
-004. Alan Walker - Faded (DJ Amice Remix) 4:02(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0065596472B9109100FA370EE4F4701D630BCF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114508   (822343) от 20.03.2017
-
-Moscow Cast - Бал Вампиров - официальная запись со спектакля (2017) [MP3|~223 Kbps (V0)] <Мюзикл>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uvertyura. Prolog
-02. Ne Spitsya Etoy Noch'yu Mne
-03. Bog Zabyt
-04. Priglashenie na bal(   Читать дальше...   )Жанр: МюзиклПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024CD5B3ACF5E63E0A80C5EF065A01A38EEF3C34
 ```
 
 

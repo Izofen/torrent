@@ -1,3 +1,135 @@
+###  Публикация: 1221542   (693177) от 25.04.2018
+
+VA - 125 Keep World DJ Loaded (2018) [MP3|256-320 Kbps] <Progressive, Future House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Finesse F. Cardi B (Mr. Collipark Remix) - Intro/Clean 4:25
+02. Tujamo & Sidney Samson - Riverside (Reloaded) (Dirty) (Short Edit) 2:17
+03. Dillon Francis - We The Funk (Sh8k Remix) 2:58
+04. Demar Jackson - Retawded F. Gucci Mane - Intro/Clean 4:03(   Читать дальше...   )Жанр: Progressive, Future House, ElectroПродолжительность: 07:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BE422766167CF3CCFEFBD9B8A17E542E26FD72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221532   (693180) от 25.04.2018
+
+VA - Night Dreamer: Chill Deep House (2018) [MP3|320 Kbps] <Deep House, Chill House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693180.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix)
+002. Natural Soul - Get Ready (Phisicall Lover Mix)
+003. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
+004. K Tonique - Give At To Me (Ibiza Night Mix)(   Читать дальше...   )Жанр: Deep House, Chill House, Electro HouseПродолжительность: 08:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CA7BDBE327D0F6CF7143647760EA071DA753D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221562   (693183) от 25.04.2018
+
+VA - DNA Injection: Techno Party (2018) [MP3|192-320 Kbps] <Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693183.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске творится настоящая гипно бионическая магия. Быстрые биты и размеренно плывущая по синусоиде мелодия обрастает дополнительными гармониями и красками, и с каждой минутой прибавляется десятки дополнительных звуков, которые к пятой или шестой минуте унесут ваше сознание в умиротворенное и отстранённое пространство.01. NagoviciN - My Beloved Wife! (Original Mix)
+02. Frequency Fifty - A'Dora
+03. Joven Misterio - Shakerz Nights (Original mix)
+04. Robben Cepeda - Tribal Shades (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 05:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BC624160FB35CE6FD3B762088E9404C0768A0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221529   (693185) от 25.04.2018
+
+VA - German Top 50 Party Schlager Charts (23.04.2018) (2018) [MP3|266-320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna-Maria Zimmermann - Scheiß egal
+02. Helene Fischer - Nur mit Dir
+03. Ben Zucker - Was fur eine geile Zeit
+04. Beatrice Egli - Herz an(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FCDB3C386B762512E9464C10370E0EBD88416D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333284   (693313) от 07.05.2011
+
+VA - Самые Лучшие Хиты Радио Maximum Часть 1 (2011) [MP3|256 kbps]<Рок, Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, ПопПродолжительность: 06:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4397AAC1271739DD12517A65CB9ED2D812BC1D1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133549   (693324) от 13.05.2017
 
 VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Synthpop, Electroclash >
@@ -545,141 +677,6 @@ VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE5DB7488C0FB37893AD3742AA6BB865A46C2C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027951   (694934) от 20.06.2016
-
-VA - Lobby Bar Lounge Vol.4: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UK One - Levitate
-02. James Walden - Guitar Dreams
-03. Michel Haimann - Rain
-04. Cinematic Lovers - Love in Verona(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70952BCFA1FD25C19F640D50C6CEE2300742F6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221392   (695016) от 24.04.2018
-
-VA - Весеннее созвездие хитов (3) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ася Пивоварова - Океаны
-002. Арбат New - Ангелом-Хранителем
-003. Оля Краснова - Та Самая Лов
-004. Серы - Патриаршие Пруды(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64188E704B5959C7B40063917ABF6784AADA543E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133265   (695031) от 12.05.2017
-
-VA - Шальной шансон в дорогу. Выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695031.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Ростовцева - Я Решила Тебя Не Любить 3:32
-002. Андрей Шпехт - Все Пути Сойдутся В Кабаке 4:11
-003. Централ - Соскучился 4:08
-004. Игорь Колюха - Сизый Дым 4:06(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F542F9ED1427833CFC9785D2283B3A0FC8B1EE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221367   (695080) от 24.04.2018
-
-VA - Deep House Collection Vol.167 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695080.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A. Rassevich - No One Dares (QRVZH Remix)
-002. Alex Ranerro & Coeus - Enigma (Forteba Alternative Version)
-003. Alex Vortex - Say No (Original Mix)
-004. Alexander Orue - We Can Dance  (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1657BD7E1D6FD601FED15EDF2C211C81531DBD49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221324   (695105) от 24.04.2018
-
-VA - Natural Lounge (2018) [MP3|320 Kbps] <Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незатейливые мелодии, легкое, атмосферное звучание, как будто композиторы пытаются озвучить первые солнечные лучи на горизонте бескрайнего океана. Такую музыку подобрана в сборнике «Natural Lounge». Чтобы полностью насладиться этой музыкой, вам понадобится кресло или диван. Остальное всё произойдёт само собой.01. Ku You - Sandhand
-02. Thomas Sopper & Herr Schmidt - Wolken im Wind
-03. Grandbrothers - From a Distance
-04. Han Tronic - Tea del Mar(   Читать дальше...   )Жанр: Lounge, Downtempo, RelaxПродолжительность: 04:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A03E95B376F05BD5279750661EE1D3EB544369
 ```
 
 

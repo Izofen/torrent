@@ -1,3 +1,165 @@
+###  Публикация: 1096770   (917333) от 25.01.2017
+
+VA - Big Party Of The 80s & 90s (2017) [MP3|320 Kbps] <Pop, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917333.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ABBA - Super Trouper 4:14
+002. B.A.S.P. - Summernight City 3:47
+003. Blue System - My Bed Is Too Big 3:15
+004. D-Vision - Tell Me Why 4:17(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 11:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CB826B14BC976D50F3D49D2824ED55B024B0A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989075   (917337) от 22.02.2016
+
+VA - Super Bomb Electro - Classic (2016) [MP3|320 kbps] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Afrojack & R3hab - Prutataaa (Darth & Vader Remix) (6:27)
+2. Albin Myers - Hells Bells (Original Mix) (4:50)
+3. David Guetta & Afrojack - Lunar (Original Mix) (5:16)
+4. Divkid - Tailwhip (Becca Remix) (5:30)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 02:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC35E95898DF183BD033E3556B69BCBB19737FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490515   (917369) от 21.08.2021
+
+VA - Ocean Sound: Actual Trance Set (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Euphoric Heart - Our Homeworld
+002. Marcell Stone And Floe - Sensory
+003. Global Mind - Moving Sky
+004. Rodrigo Deem - Mighty(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4941BF3F309F4007061A2C8CE0F9DFAF028A622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490512   (917374) от 21.08.2021
+
+VA - HGM: Deep House Season (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Budrick - Starfish
+002. Vince Guidotti - Luftzug
+003. Tolero - Parabens
+004. Dego - This Is Message To You(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D417680A9A8D099D52F191F28841FAC685B25898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096691   (917375) от 25.01.2017
+
+VA - Автозвук. Отборный зимний хит. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Макс Барских - Пьяная Луна 3:20
+002. The Weeknd - Love To Lay 3:44
+003. Вик - Вдыхаю Твой Холод 4:23
+004. Delerium Feat. Phildel - Zero 4:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8013F283B0C9EA67EA0733E95995E85E7BEB8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989555   (917381) от 22.02.2016
+
+VA - Les Grooves: Selected Vibes for Cool People (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Project - Deep Night Alone - Astral Deep Mix
+02. Le Griffe - Touring Fat - Pfister Mix
+03. Aquamind - Lopresson - Fine Gold Mix
+04. Rainold Monlove - Old the Thait - Sunset Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2F77C9BDE85400F0A9380C7FE38CAB43BD209D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490529   (917405) от 21.08.2021
 
 VA - Rebel Rock Indie (Vol.02) (2021) [MP3|320 Kbps] <Rock Indie, Alternative>
@@ -533,168 +695,6 @@ VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30ECA5CD559CAAFE5F4444E715BA42547E37E66F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096682   (917797) от 25.01.2017
-
-VA - Отрывайся с лучшими хитами. Версия № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917797.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jess Glynne - Take Me Home 4:26
-002. Максим Куст - Не Меняй Меня 3:55
-003. Артем Пивоваров - Стереосистема 3:44
-004. Татьяна Маргай - Обними 4:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9AEF88D0BAC0D9C671DCB78C06BBE51432DA69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366500   (918223) от 14.03.2020
-
-VA - B машину ремиксы Vol. 3 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Harrison - I've Got My Mind Set On You (Yastreb Radio Edit Remix)
-02. Звонкий - Ностальжи (Radiostadia Remix)
-03. To-Ma - Бессонница (Remix)
-04. Rasa - Пчеловод (Glazur & Struzhkin Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4C5CE0D73D460C131A83DDC8A152C5EFBB863F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366700   (918513) от 14.03.2020
-
-VA - The Collection 30 Years Ago From Ovvod7 (1986) (60 CD) (2020) [MP3|192-320 Kbps] <Italo-disco, electronic, rock, pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стиль итало-диско, пользовавшийся большой популярностью на протяжении практически всех 80-х годов, является одним из самых удивительных феноменов в истории мировой популярной культуры. В отличие от многих других, зачастую более поздних направлений поп-музыки, уже успевших кануть в Лету, исполнители итало-диско до сих пор популярны и любимы.Многие считают 1983 год (   Читать дальше...   )01. C.C. Catch - I Can Lose My Heart Tonight ( 12'' Version 1986 )
-02. Modern Talking - Brother Louie ( 1986 )
-03. Bad Boys Blue - I Wanna Hear Your Heartbeat ( Sunday Girl ) ( 1986 )
-04. Laid Back - C.C. Cool ( 1986 )(   Читать дальше...   )Жанр: Italo-disco, electronic, rock, popПродолжительность: 89:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A0FA026492F96B32CEADCFFB48123F3B3A030F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096528   (918524) от 24.01.2017
-
-VA - Discoteka 2017 Dance Club. The Party Continues (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ofenbach - Be Mine (Amice Remix)  3:23
-02.  NERVO & Timmy Trumpet - Anywhere You Go (Diego Power Remix)  5:38
-03.  Alan Walker - Alone (Extended Mix)  3:55
-04.  Filterkat - Don't You Wanna (Fabron Remix)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B3DB3884F8E6CBAC8B06FF60BFC88475BAAE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366972   (918630) от 14.03.2020
-
-VA - Hits of My Soul Vol. 55 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918630.jpg" />
-</div>
-
-
-###  Подробнее
-
-|07:30| 01. Damian Wasse - Memories Of Love (Adriz Remix)
-|07:56| 02. Killswitch & Kelly Jay - Carpe Diem (Original Mix)
-|06:57| 03. Roman Messer feat. Christina Novelli - Frozen (Alex M.O.R.P.H. Remix)
-|06:19| 04. Aelyn - New Day (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 23:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C39BE9E4A486A26C96FB7685CAA53840200C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988704   (918678) от 21.02.2016
-
-VA - Диско 80 от Виталия 72 часть 1 (1981-1989) [MP3|204-320 кб/с] <Italo-Disco, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Only You (06:50)
-02. Eddy Huntington - Physical Attraction (05:02)
-03. Bad Boys Blue - A World Without You (Michelle) (Remix) (06:21)
-04. Mike Mareen - Love Spy (Night Mix) (08:43)(   Читать дальше...   )Жанр: Italo-Disco, DiscoПродолжительность: 06:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396356DAE2AEB929D9B42D8A3D65988798D72ED6
 ```
 
 

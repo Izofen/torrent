@@ -1,3 +1,54 @@
+###  Публикация: 625617   (938360) от 09.03.2013
+
+И. Кальман - Оперетта Принцесса цирка (1973) /2 Lp/ [FLAC 2.0 24/96 |Vinyl-Rip]<Classic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7F4EC240E47DAE7840D372745C0DE32FF37E07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983234   (939704) от 08.02.2016
+
+Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin'
+02. Baby Be Mine
+03. The Girl Is Mine
+04. Thriller(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983264   (939717) от 08.02.2016
 
 Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
@@ -641,60 +692,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171737   (955211) от 19.02.2020
-
-Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-1. Steamrock Fever (03:41)
-2. We'll Burn The Sky (06:30)
-3. I've Got To Be Free (04:04)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278226   (957828) от 05.01.2011
-
-George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A - My Sweet Lord (04:35)
-Side 2
-B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00:11:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1374307   (874581) от 09.04.2020
+
+Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The JB Shuffle (4:06)
+02. That's what I like (4:04)
+03. Glen Miller Medley (3:55)
+04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496213   (874650) от 16.09.2021
+
+Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly with His Song
+02. Everything I Wanted
+03. Falling
+04. Stop Right Now(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374291   (874717) от 09.04.2020
 
 Hound Dog & The Megamixers - The Greatest Ever Junior Party Megamix (1990) [FLAC|Lossless|image + .cue] <Rock & Roll, Pop Rock, Disco>
@@ -663,66 +717,6 @@ Sarah Brightman - Sarah Brightman (2CD) (2009) [FLAC|Lossless]<Рop>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186263   (881865) от 25.03.2010
-
-2 Unlimited - No Limits (1993) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. No limit (3:48)
-2. Tribal Dance (4:34)
-3. Mysterious (3.59)
-4. Faces (3:29)
-5. Maximum Overdrive (3:31)
-6. The Power Age (3:54)
-7. Break the Chain (3:22)
-8. Kiss Me Bliss Me (3:32)
-9. Throw the Groove Down (3:53)
-10. R.U.O.K. (3:28)(   Читать дальше...)Жанр: Pop
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495257   (882299) от 11.09.2021
-
-Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice (LSDXOXO Remix)
-02. Stupid Love (COUCOU CHLOE Remix)
-03. Rain On Me ft. Ariana Grande (Arca Remix)
-04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
 ```
 
 

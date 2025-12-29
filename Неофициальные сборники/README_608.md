@@ -1,3 +1,165 @@
+###  Публикация: 1097265   (915850) от 26.01.2017
+
+VA - Хиты в тачку (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Те100стерон (Тестостерон) - Ты Ангел 3:04
+002. Денис Кочержук - Нежность Твоих Губ 3:48
+003. Дарья Кумпаньенко - 120 Ударов В Минуту 3:11
+004. Moyyo - Любил Тебя Я 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F305D073B097C0F326F827F1B0770CB0DED4E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097242   (915852) от 26.01.2017
+
+VA - Душевные хиты на любой вкус (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Милена Дейнега - Я ждала
+02. Александр Поддубный - Без суеты
+03. Andrey Bo feat. Amina & Nell Mc - Сердце (feat. Amina & Nell Mc; Radio Mix)
+04. МурKISS - Мачо(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749DE5F15652A65156825CCB8680D29B85339AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097088   (915868) от 26.01.2017
+
+VA - Союз хитов зимний Выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915868.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Chainz - Shake It For Me 3:55
+002. Черешня - Мятный Чай 3:27
+003. John Legend - Start A Fire 3:12
+004. Виталий Козловский - Мое Желание 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B43958BBA86F088181CF1C8F442623B82B338A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097063   (915874) от 26.01.2017
+
+VA - Intergalactik Highway: Space Mix (2017) [MP3|201-320 Kbps] <SpaceSynth, SynthPop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alphawave - Underwater World
+002. Camouflage - Shine
+003. Cosmologia - Eternal Seeker
+004. DMC - Noisy Pillars(   Читать дальше...   )Жанр: SpaceSynth, SynthPop, ElectronicПродолжительность: 10:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81362E9F71817A62BBFB5770B5560E0CBAE8D10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097091   (915982) от 26.01.2017
+
+VA - Я слушаю шансон. Зимний выпуск. Версия №3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915982.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - Страна 4:23
+002. Татьяна Козловская - Какая Меня Муха Укусила 5:14
+003. Парень Из Союза - Озоновый Слой 5:40
+004. Елена Ваенга & Интарс Бусулис - Нева 5:11(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FA503FAAD92423A65A443D1E7B877E160EE54F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097086   (916026) от 26.01.2017
+
+VA - Зимний русский музобоз. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916026.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Гена Селезнев - Мира Мало 2:56
+002. Hann - Счастливый Случай 3:17
+003. Tiana - Без Лишних Истерик 3:17
+004. Andre Durgaryan - Любовь Между Нами 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98B5DDE8F7530C5CB2058E6F85FFF808C3E5D17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097089   (916042) от 26.01.2017
 
 VA - Зимняя сотка хитовая. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -533,168 +695,6 @@ VA - House Nation Volume 4 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF70E9D96783A3085ACCC2882D9537D2A0F34444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096770   (917333) от 25.01.2017
-
-VA - Big Party Of The 80s & 90s (2017) [MP3|320 Kbps] <Pop, Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917333.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ABBA - Super Trouper 4:14
-002. B.A.S.P. - Summernight City 3:47
-003. Blue System - My Bed Is Too Big 3:15
-004. D-Vision - Tell Me Why 4:17(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 11:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CB826B14BC976D50F3D49D2824ED55B024B0A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989075   (917337) от 22.02.2016
-
-VA - Super Bomb Electro - Classic (2016) [MP3|320 kbps] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Afrojack & R3hab - Prutataaa (Darth & Vader Remix) (6:27)
-2. Albin Myers - Hells Bells (Original Mix) (4:50)
-3. David Guetta & Afrojack - Lunar (Original Mix) (5:16)
-4. Divkid - Tailwhip (Becca Remix) (5:30)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 02:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC35E95898DF183BD033E3556B69BCBB19737FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490515   (917369) от 21.08.2021
-
-VA - Ocean Sound: Actual Trance Set (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Euphoric Heart - Our Homeworld
-002. Marcell Stone And Floe - Sensory
-003. Global Mind - Moving Sky
-004. Rodrigo Deem - Mighty(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4941BF3F309F4007061A2C8CE0F9DFAF028A622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490512   (917374) от 21.08.2021
-
-VA - HGM: Deep House Season (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Budrick - Starfish
-002. Vince Guidotti - Luftzug
-003. Tolero - Parabens
-004. Dego - This Is Message To You(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D417680A9A8D099D52F191F28841FAC685B25898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096691   (917375) от 25.01.2017
-
-VA - Автозвук. Отборный зимний хит. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917375.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - Пьяная Луна 3:20
-002. The Weeknd - Love To Lay 3:44
-003. Вик - Вдыхаю Твой Холод 4:23
-004. Delerium Feat. Phildel - Zero 4:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8013F283B0C9EA67EA0733E95995E85E7BEB8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989555   (917381) от 22.02.2016
-
-VA - Les Grooves: Selected Vibes for Cool People (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Project - Deep Night Alone - Astral Deep Mix
-02. Le Griffe - Touring Fat - Pfister Mix
-03. Aquamind - Lopresson - Fine Gold Mix
-04. Rainold Monlove - Old the Thait - Sunset Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2F77C9BDE85400F0A9380C7FE38CAB43BD209D
 ```
 
 

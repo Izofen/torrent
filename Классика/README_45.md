@@ -1,3 +1,190 @@
+###  Публикация: 995105   (886328) от 10.03.2016
+
+Ferenc Liszt - Complete Symphonic Poems - Arpad Joo (1994) [FLAC|Lossless|tracks+.cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zwei Episoden aus Lenaus Faust / Два эпизода из "Фауста" Ленау (1857-1866)
+1. I. Der nächtliche Zug / Ночное шествие (15:15)
+2.II. Der Tanz in der Dorfschenke (Erster Mephisto-Walzer) / Танец в деревенском кабачке (Мефисто-вальс № 1) (11:54)
+3. Zweiter Mephisto-Walzer / Мефисто-вальс № 2 (1880-1881) (11:41)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 04:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81158DF3CCBBC1AE0EBB16571E5378EF3B5BEA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995241   (886364) от 10.03.2016
+
+Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, InstrumentaI>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction I
+02. Running by the roads, running by the fields
+03. A summer by the sea II
+04. Tristesse/Escapism(   Читать дальше...   )Жанр: Modern Classical, InstrumentaIПродолжительность: 00:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97082076B840997CCB13BD3277D4429F5D30F3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994874   (887421) от 09.03.2016
+
+И. С. Бах (J. S. Bach) - Полное собрание произведений (Hanssler 172 CD) (2000) [MP3|320 кб/с] <Classical>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Die Kompletten Werke, Volume 1 (4001-2): Kantaten, BWV 1-10, 12, 13 (feat. conductor: Helmuth Rilling)
+
+01. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': I. Coro 'Wie schön leuchtet der Morgenstern'
+02. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': II. Recitativo (Tenore) 'Du wahrer Gottes und Marien Sohn'Жанр: ClassicalПродолжительность: 178:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27600329A839B303F908AAC1BC34C2C593082741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995042   (887778) от 09.03.2016
+
+Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с] <Classical, Concerto>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto RV 383a - I. Allegro 02:42
+02. Concerto RV 383a - II. Largo e cantabile 01:56
+03. Concerto RV 383a - III. Allegro 02:36
+04. Concerto RV 279 - I. Allegro 04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765DDF97F07BF92F41313A20E4EC56B4365E264B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995027   (887867) от 09.03.2016
+
+Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto No. 4 in D major for Violin, K. 218: I. Allegro
+02. Concerto No. 4 in D major for Violin, K. 218: II. Andante cantabile
+03. Concerto No. 4 in D major for Violin, K. 218: III. Rondeau. Allegro grazioso ...
+04. Concerto No. 5 in A major for Violin, K. 219 'Turkish': I. Allegro aperto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276A1777A2BC882BF99F4384711909328B152F1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994760   (888083) от 09.03.2016
+
+Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruch: Violin Concerto No 1 in G minor, Op. 26 - Adagio
+02. Glazunov: Violin Concerto in A minor, Op 82 - Andante sostenuto
+03. Bach: Concerto for two Violins in D minor, bwv 1043 - Largo ma non tanto
+04. Medelssohn: Violin Concerto in E minor, Op. 64 - Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737024E42145D3094C8799119D67E44776F78AB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371822   (888404) от 01.04.2020
+
+Daniel Behle - George Petrou Gluck: Opera Arias (2014) [FLAC|Lossless|image + .cue] <Classical opera vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antigono, Wq 21
+1. "Quercia annosa sull'erte pendici" (Ed. Giovanni Secchi) 4:06Жанр: Classical opera vocalПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6033B6C7F86D7293C3A132F82A504757C0EAC27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994773   (889080) от 08.03.2016
 
 VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) Box set, 35CD [FLAC|Lossless|image + .cue] <Classical, Ballet>
@@ -507,196 +694,6 @@ Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954455564C93BFF20BBFD8D55D6307AFBAB2DC53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994055   (893904) от 06.03.2016
-
-Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Lis - Carlo Tessarini LA STRAVAGANZA (2004) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I. Overture: Allegro assai (2:24)
-02.  I. Overture: Largo Sempre Piano (3:05)
-03.  I. Overture: Presto (2:31)
-04.  II. Concerto con Violino Obbligato: Vivace (4:37)(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648D844DE8A2EE8AF13C35673156E4AE7D47A941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993441   (894963) от 05.03.2016
-
-И. С. Бах (J. S. Bach) - Полное собрание произведений (Teldec 154 CD) (1999) [MP3|320 кб/с] <Classical>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иоганн Себастьян Бах (нем. Johann Sebastian Bach; 21 марта 1685, Эйзенах, Саксен-Эйзенах — 28 июля 1750, Лейпциг, Саксония, Священная Римская империя) — великий немецкий композитор, представитель эпохи барокко, органист-виртуоз, музыкальный педагог.
-За свою жизнь Бах написал более 1000 произведений. В его творчестве представлены все значимые жанры того времени, кроме (   Читать дальше...   )Bach 2000. The Complete Bach Edition, Volume 1 (001): Sacred Cantatas (BWV 1-3)
-
-    01. Kantate, BWV 1 'Wie schn leuchtet der Morgenstern': I. Coro 'Wie schn leuchtet der Morgenstern'
-    02. Kantate, BWV 1 'Wie schn leuchtet der Morgenstern': II. Recitativo (Tenore) 'Du wahrer Gottes und Marien Sohn'(   Читать дальше...   )Жанр: ClassicalПродолжительность: 159:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC269A5CD7A852B56A4BD1F3EB70EC30FDF9D93F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370024   (895034) от 28.03.2020
-
-Andre Rieu - Celebrates ABBA | Music Of The Night (2013) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Romantic, Neo-Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андре Леон Мари Николя Рьё (нидерл. André Léon Marie Nicolas Rieu; род. 1 октября 1949, Маастрихт) - нидерландский дирижёр и скрипач, называемый в прессе Королём вальса вслед за Иоганном Штраусом-сыном. Сын дирижёра Андре Рьё-старшего.01. Chiquitita (4:39)
-02. Mamma Mia (2:44)
-03. Fernando (5:01)
-04. Money, Money, Money (3:01)(   Читать дальше...   )Жанр: Classical, Romantic, Neo-ClassicalПродолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AC760BB3FBD7AF348305B31B0331D9E9B0C061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993228   (895216) от 05.03.2016
-
-Имре Кальман / Emmerich Kalman - Сильва (Княгиня чардаша) / Die Csardasfurstin (2005) [MP3|320 кб/с] <Operetta>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра
-02. Мелодрама
-03. Мчись во все края песнь моя (Сильва)
-04. Мелодрама(   Читать дальше...   )Жанр: OperettaПродолжительность: 01:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FF4E4C0A0BFC91F9A03260F1567F14637CBD17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993349   (895349) от 05.03.2016
-
-L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Five Symphonies (2011) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Symphony in G major: Allegro (6:56)
-02.  Symphony in G major: Andante (5:19)
-03.  Symphony in G major: Allegro (2:20)
-04.  Symphony in D major: Allegro capriccioso (6:56)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499243EFCC52B996D4F0376D289D361E2842611D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993437   (895448) от 05.03.2016
-
-W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Introitus. Requiem (5:38)
-02. Ii. Kypie (2:48)
-03. Iii. Sequienz. Dies Irae (1:51)
-04. Iii. Sequienz. Tuba Mirum (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0377C38538BC3D92EC3E3038B874EC5200F8FA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993404   (895521) от 05.03.2016
-
-Renee Fleming - The Art Of Renee Fleming (2012), compilation [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ave Maria, D839 (Schubert) (4:21)
-02.  Casta Diva (Norma - Bellini) (7:36)
-03.  Lo son l'umile ancella del Genio creator (Adriana Lecouvreur - Cilea) (3:57)
-04.  Ah! je veux vivre (Waltz Song) (Romeo et Juliette - Gounod) (3:42)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D9EAC7E24C4E5F6904B76B7EA16312E0B2CA73
 ```
 
 

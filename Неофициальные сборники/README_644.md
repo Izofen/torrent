@@ -1,3 +1,165 @@
+###  Публикация: 971860   (982901) от 05.01.2016
+
+VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с] <Dance, Club House, Electro House, Drum & Bass, Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982901.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love (Extende [05:57]
+002. Major Lazer feat. MO & DJ Snake - Lean On [02:27]
+003. Martin Solveig - +1 [05:09]
+004. Galantis - Runaway (U & I) [03:45](   Читать дальше...   )Жанр: Dance, Club House, Electro House, Drum & Bass, TrapПродолжительность: 09:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F32955194F0E1E81012128936AF9B286A1F88F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355387   (983134) от 26.01.2020
+
+VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+02. The Black Eyed Peas & J Balvin - RITMO (Vadim Adamov & Hardphol Remix) 2:38
+03. Dua Lipa - Don't Start Now (Sergey Raf & ARROY Remix) 3:00
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1B15E552DD7BAD5B8C349D4D2EB817AEEFD8AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972091   (983284) от 05.01.2016
+
+VA - Winter Music (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983284.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robin Schulz - Sugar (feat. Francesco Yates)
+2. Anna Naklab - Supergirl (feat. Alle Farben & YOUNOTUS) (DJ Antonio Remix)
+3. Елена Темникова - Наверно (feat. Natan)
+4. Feder - Blind (feat. Emmi) (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE55FBCB743B72B89F514621791612602FF2CB90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972211   (983422) от 05.01.2016
+
+VA - Royalty - Free Nu School Deep & Garage (2015) [MP3|223-320 кб/с] <House, Soulful, Nu Disco, Funky, Indie Dance, UK Jackin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Tort - Bad Habits 06:54
+002. Dopp - Bahija (Original) 07:24
+003. Discorocks & Nakia - Moving On Up (Alaya & Gallo Remix) 06:22
+004. C.K - S Jam 07:21(   Читать дальше...   )Жанр: House, Soulful, Nu Disco, Funky, Indie Dance, UK JackinПродолжительность: 12:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB33E4A0C275CFC9F270B29ABF1EEA522C5A67F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972283   (983432) от 05.01.2016
+
+VA - After Workout Chillout Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Chilly Vanilly [05:52]
+02. Psytrotune - Fall in the Darkness - Chillout Mix [05:47]
+03. Eroc - Wolkenreise 2k11 - Part of the Art Remix Edit [04:40]
+04. Blueye - Autumn Leaves - Chillout Mix [05:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD90D06B9EA5C977778E7B2C08F77CA9C3BB6A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972218   (983437) от 05.01.2016
+
+VA - Classical Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claude Debussy - Deux Arabesques : No. 1 Andante con moto [03:59]
+02. Felix Mendelssohn - Songs Without Words, Op. 62: No. 6 in A Major, "Spring Song": Andante grazioso [02:32]
+03. Philip Glass - Glass: The Hours - Arr. Michael Riesman - Morning Passages [06:11]
+04. Frйdйric Chopin - 24 Prйludes, Op. 28 : 15. in D Flat Major "Raindrop" [05:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5707FDC97A9773CB5E3769A19798C67123B8BD22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971951   (983502) от 05.01.2016
 
 VA - Super Bomb Electro 56 (2015) [MP3|320 кб/с] <Electro House, Electro>
@@ -545,168 +707,6 @@ VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C386D432C87E24AD605DD3EFD059A19F75F488B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971577   (985851) от 03.01.2016
-
-VA - Top Club Music World Hits 10116 (2016) [MP3|320 кб/с] <Bigroom, Tropical, Dance, Future House, Nu Disco, Tech-Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue5even - Oceania (Maglev Remix) 05:36
-02. Doublev Vs Antillas & Dankann - Goliath (Original Mix) 05:48
-03. Makhaon - Somniare (Original Mix) 05:14
-04. Zuubi - Ride The Waves (Original Mix) 06:30(   Читать дальше...   )Жанр: Bigroom, Tropical, Dance, Future House, Nu Disco, Tech-TranceПродолжительность: 03:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6ED5364BF5FAFE3F7972CBFE1CC571C0DE8E382
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971421   (985856) от 03.01.2016
-
-VA - Amnezia Best Of 2015 (2015) [MP3|320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies ft. Janieck Devy - Reality
-02. Otto Knows - Next To Me
-03. Anna Naklab ft. Alle Farben - Supergirl
-04. Dimitri Vegas & Like Mike ft. Ne-Yo - Higher Place(   Читать дальше...   )Жанр: DanceПродолжительность: 08:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654EB7048D3C1AF4C338C1CEB8DCD28C9296F5D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971445   (985937) от 03.01.2016
-
-VA - Cinema Lounge Vol 1 (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Junior - Now We Are Free (From Gladiator) (06:41)
-02. Nacho Sotomayor - Love Theme (From Blade Runner) (04:15)
-03. Ram J - The Kiss (From The Last of the Mohicans) (06:01)
-04. Tabula Rasa - My Heart Will Go On (From Titanic) (05:47)(   Читать дальше...   )Производство: House D'ArretЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE255A4932DAD55081D41B803E197246AF6B125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971306   (985942) от 03.01.2016
-
-VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Soulful, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beach Lovers - Illusion (Original Mix) 03:10
-02. Daniel Curley - Body Thrill (South Pacific Mix) 03:54
-03. The House Freelancers - Fast And Slow (Original Mix) 06:49
-04. Jason Jinx - Family Patterns (Roger Figuereira Mix) 05:22(   Читать дальше...   )Жанр: Downtempo, Soulful, Deep HouseПродолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E64A217E221182118E37DC5E69DD44E921C3DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971583   (985944) от 03.01.2016
-
-VA - World 2016 Future (2016) [MP3|264-320 кб/с] <Club, Tropical, Future House, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micar Feat. Nico Santos - Brothers In Arms (Extended Mix) 04:38
-02. Sugarstarr Feat. Alexander - Hey Sunshine (Antonio Giacca Remix) 06:43
-03. Refex - My Sweetheart (Mann & Meer Remix) 06:27
-04. Samurize - Killer Instinct (Edit) 03:26(   Читать дальше...   )Жанр: Club, Tropical, Future House, Indie DanceПродолжительность: 04:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C35E5C25C839F64331B20586701E2C68C817A24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971476   (986013) от 03.01.2016
-
-VA - Lovers Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luigi & Riccardo - Sambella
-02. Oscar Salguero - Chillout Night
-03. James Jensen - Walk on By
-04. Schwarz & Funk - Velvet Dreams(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: | 03:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB649806F669699E7ECFF3AFE1D088923F788AA1
 ```
 
 

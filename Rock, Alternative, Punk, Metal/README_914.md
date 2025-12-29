@@ -1,3 +1,84 @@
+###  Публикация: 1138147   (659203) от 03.06.2017
+
+Siena Root - A Dream of Lasting Peace (2017) KSL Edition [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets (3:37)
+02. Tales of Independence (3:39)
+03. Sundown (4:20)
+04. The Piper Won't Let You Stay (6:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CAF7321F743B4F61F749469FCE973F300F3200E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903007   (659216) от 30.05.2015
+
+Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659216.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Win Hands Down
+2. Mess
+3. An Exercise In Debauchery
+4. Muscle Memory(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1DB35B55B0876DD36336F40C25894BF17AB9BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902775   (659218) от 30.05.2015
+
+F5 - OrganiK (2015) [MP3|~245 кб/с (V0)]<Alternative, Pop, Funk, Reggae, Soul, Female Jazz Vocal, Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time
+02. Sun Is Up
+03. Hugs & Kisses
+04. Bam!(   Читать дальше...   )Жанр: Alternative, Pop, Funk, Reggae, Soul, Female Jazz Vocal, CoversПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A30E5501D7466DDE49A70F233D3C7DE8FBF637D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539078   (659232) от 24.03.2022
 
 Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
@@ -562,6 +643,33 @@ magnet:?xt=urn:btih:6D670E54E38F053851E400F9587AB9DEBD4B37AD
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219505   (660097) от 02.06.2017
+
+Игорь Романов - ACHTUNG! АХТУНГ! (1995 (переиздание 2000)) [FLAC|Lossless]<Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_660097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шантажист
+2. Poco Loco
+3. Крещение
+4. Инсектоид(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539061   (660169) от 23.03.2022
 
 Mulla - مَوْلَى (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
@@ -611,111 +719,6 @@ magnet:?xt=urn:btih:0503D0C9EA84A2ECD2EFB36326F0AEA7A3686930
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5D218550D5D65B0E4375FE89699DF19DE57A471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139211   (660185) от 02.06.2017
-
-Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|image + .cue] <Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Guitar Craft Theme I: Invocation
-2. The Tight Muscle Party at Love Beach - Robert Fripp, Essex, Andrew
-3. Chords That Bind
-4. Guitar Craft Theme III: Eye of the Needle(   Читать дальше...   )Жанр: Prog-RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902731   (660214) от 29.05.2015
-
-Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Prometheus (00:05:06)Жанр: Symphonic Power Metal |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603639D47D0D6C09ABF3B2F23E6EDFBC1F484D65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902801   (660223) от 29.05.2015
-
-Lou Pardini - Look The Other Way (1998) [FLAC|Lossless]<AOR, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Late Than Never (5:23)
-02. We've Got So Far To Go (4:43)
-03. Love Is A Hurtin' Thing (4:54)
-04. Time Out For Love (4:25)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:012B7144FB6AD8CDB3A48B400DF68051B0A877C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902621   (660231) от 29.05.2015
-
-Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. From A Frozen Wasteland
-2. Hunter Of The Celestial Sea
-3. Son Of Phoebus
-4. A Ghost In Gleaming Stars(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 02:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540FA5D115356B545D1115F3C713C25CD7C6EC6F
 ```
 
 

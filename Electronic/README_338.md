@@ -1,3 +1,143 @@
+###  Публикация: 510059   (668559) от 15.06.2012
+
+VA - Neotrance Essentials (2007) [FLAC|Lossless]<Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_668559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monoroom - Memory inc. part 2 [05:41]
+02. Dejonka - Memento [05:32]
+03. Komytea - Soldiers of Karkadu [04:23]
+04. Trentemoller - Always something better [03:21]
+05. Daniela Stickroth - Chest in the attic [02:34]
+06. Roberto Rodriguez - Serenade [04:54]
+07. Ryan Davis - Airport [05:40]
+08. Peltier - Graustufe [05:25]
+09. Salee - Impressed [05:48]
+10. Booka Shade - Darko [04:07](   Читать дальше...   )2007Жанр: Minimal, Tech HouseПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031131   (668655) от 03.07.2016
+
+Henry Saiz - Secrets (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets (Original Mix) [06:56]
+02. Secrets (Brassica Remix) [05:16]
+03. Secrets (Brassica Remix Club Version) [06:55]Жанр: Deep House, Tech HouseПродолжительность: 00:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB2651978FAFBB734DF41527DA51B0DE38741B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031146   (668656) от 03.07.2016
+
+Lauer - Borndom Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ByBy (Fort Romeau Remix) [06:32]
+02. Alright (The Working Elite Remix) [06:45]
+03. ESC (Prins Thomas Diskomiks) [07:30]
+04. Hump Acid (Lexx Remix) [06:37](   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AD4B2C00D26D42CCC6B69AB604A6901CA3AE03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031299   (668782) от 03.07.2016
+
+VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage -  Tell Me (Club Mix) 4:05
+02. Vio -  One Girl (Stephan F Extended) 4:45
+03. Deeplow -  Limelight (DJane HouseKat Remix) 4:45
+04. Fucking Role Models -  Leave Me Alone (Feat. Adeena) (Extended Mix) 4:52(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 02:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CF45DA0B996397BC7B4CF925C6F858FFC30426
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031368   (668783) от 03.07.2016
+
+VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
+02. Cedric Gervais -  Make Me Feel 3:28
+03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
+04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031180   (668893) от 03.07.2016
 
 Thomalla - Imaginary Solutions (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -560,139 +700,6 @@ Dub Taylor - Caves & Cages (2018) Dirt Crew Recordings [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756C57DA6F1BC673060FB0A124412306A0D80DD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224007   (669893) от 07.05.2018
-
-VA - Manuel Le Saux Pres.Extrema Maxima (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. McAree & Clancy – Fracture (Radio Edit)
-02. Claire Willis & Andres Sanchez – These Three Words (Radio Edit)
-03. TLR – Chemistry (Radio Edit)
-04. Ariette Florence & Syntouch – Unspoken Words (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A92A0C32E9522C17B05B9A87F2C6D9BC655A09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224037   (669896) от 07.05.2018
-
-VA - Recoverworld Radio 020 (Mixed By Para X) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Para X - Rising Star (Chilled Mix)
-02. Sentien - Journey of Life (Original Mix)
-03. Daniel Scott - Cynosure (Original Mix)
-04. DJ Mystic - Trancemate (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E931C67B0EC1C9975025558436167285145FB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223869   (669897) от 07.05.2018
-
-Willie Graff & Darren Eboli - The Tribeca Tapes (2018) Music For Dreams [FLAC|Lossless|WEB-DL|tracks] <Downtempo, House, Dub>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Flight (06:35)
- 02. First Light (07:21)
- 03. Second Sun (07:04)
- 04. Moon Tan (06:01)Жанр: Downtempo, House, DubПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0CE79632B9B2FB90D5E3A8E57B9828E2CAD2F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224014   (669899) от 07.05.2018
-
-VA - True Uplifting Vol. 3 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM - Highlight (Extended Mix)
-02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
-03. Tycoos - 717 (Extended Mix)
-04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791012936B7970810B9EC741CFC09DACF3F186B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030801   (670150) от 02.07.2016
-
-VA - Get Physical Music Presents: Most Wanted 2016, Pt. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Le Roi - I Get Deep (feat. Roland Clark)  (07:30)
-02. Robosonic - Drowning (feat. Son Little)Жанр: Deep House, Tech HouseПродолжительность: 04:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD676F8AA3A69A223A4D7901549D99E9C3E68C9
 ```
 
 

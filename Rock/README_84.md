@@ -1,3 +1,171 @@
+###  Публикация: 879961   (833184) от 20.03.2015
+
+Mark Knopfler - Tracker (2015) limited Deluxe Edition [MP3|320 кб/с]<Rock, Blues Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughs And Jokes And Drinks And Smokes
+02. Basil
+03. River Towns
+04. Skydiver(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8C36DCD327A948583DF3DA0D33DC7624C30C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501674   (833752) от 11.10.2021
+
+Jacky Chalard - Avec Un Pied Dans Le Rock 'N Roll (1977) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady, Baby, Rock'N Roll (3:57)
+02. On S'Tire Aux USA (4:17)
+03. Docteur Mabuse (3:02)
+04. Ardeche (3:08)(   Читать дальше...   )Жанр: Electronic, Prog Rock, DiscoПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9823C331CCF9C415EF1C29FB5D8752A44440AB35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501608   (835246) от 10.10.2021
+
+Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock City (3:19)
+02. That's Not Normal (4:46)
+03. Show Me Something More (4:50)
+04. Empire Man (4:28)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B6F9671DBFE7FF7604EC4122058332D77EB785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004692   (836161) от 07.04.2016
+
+Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 кб/с] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Blue Sky
+02. Evil Woman
+03. Don't Bring Me Down
+04. Sweet Talkin' Woman(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380125   (836383) от 01.05.2020
+
+The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Apples In Stereo - американская рок-группа, связанная с Elephant Six Collective. Группа в значительной степени является продуктом ведущего вокалиста/гитариста/продюсера Роберта Шнайдера, который пишет большинство музыки и текстов группы. Звучание группы сравнивают с психоделическим роком от The Beatles и The Beach Boys в 1960-е годы, а также таких групп как Electric (   Читать дальше...   )Список альбомов:
+1995 - Fun Trick Noisemaker
+1997 - Tone Soul Evolution
+1999 - Her Wallpaper Reverie(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 04:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310242   (837381) от 18.03.2011
+
+Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Mona Lisa [03:46]
+02. Let's Kill Tonight [03:33]
+03. Hurricane [04:25]
+04. Memories [03:25]
+05. Trade Mistakes [03:36]
+06. Ready To Go (Get Me Out Of My Mind) [03:37]
+07. Always [02:33]
+08. The Calendar [04:43]
+09. Sarah Smiles [03:33]
+10. Nearly Witches (Ever Since We Met…) [04:16]Жанр: RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501114   (838122) от 08.10.2021
 
 Santiano - Wenn die Kälte kommt (2021) 2CD [MP3|320 Kbps] <Folk Rock>
@@ -524,168 +692,6 @@ Yurcash (Юркеш) - Каралі Карпаратівав (2019) [MP3|320 kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F225881B105432EEB3E95783D596FE63A6E76C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001808   (852190) от 29.03.2016
-
-Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste! (2014) EP [MP3|192 кб/с] <Alternative Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный EP многообещающей команды.01. The Steven Bradley
-02. Dotab
-03. Bob Loblaw
-04. 12 Years Howled(   Читать дальше...   )Жанр: Alternative Progressive RockПродолжительность: 00:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8978C491E591398615CD096CC33A6248EAB65F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001834   (852195) от 29.03.2016
-
-Farm - Farm (1971) Remastered, 2000, Shadoks Music [MP3|320 кб/с] <Psychedelic Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852195.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunshine In My Window
-2. Cottonfield Woman
-3. Statesboro Blues
-4. Jungle Song(   Читать дальше...   )Жанр: Psychedelic Blues RockПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6AE9828436188CAD9E1B7B27C3830D0BF48DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001537   (852290) от 29.03.2016
-
-Kyle English - 12:33 (2016) [MP3|320 кб/с] <Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Fade Away
-02. Last Of The Innocent
-03. Photograph
-04. Better Plan(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558F9E71605155FA8609A79F48158BAE128FD116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001338   (853788) от 28.03.2016
-
-VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guns n' Roses - Sweet Child O'Mine (5:54)
- 02. Meatloaf - Bat Out Of Hell (4:44)
- 03. Midnight Oil - Beds Are Burning (4:15)
- 04. INXS - Need You Tonight (3:01)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F0F863508E0B70F348D1904D31F7BF3548AE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001187   (855471) от 27.03.2016
-
-VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  More Than A Feeling - Boston (3:23)
- 02.  Don't You (Forget About Me) - Simple Minds (4:18)
- 03.  Time After Time - Cyndi Lauper (4:01)
- 04.  Africa - Toto (4:25)(   Читать дальше...   )Жанр: Pop Rock, BalladsПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1572FBD5FF099F19A2E0566C3A1C574BD9B945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498091   (857804) от 26.09.2021
-
-Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventeen [00:02:10]
-02. Satellite [00:04:12]
-03. Feelings (aka 'No Feelings') [00:02:54]
-04. Just Me (aka 'I Wanna Be Me') [00:03:16](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4CD, 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32347FD5B464744DDD992DB63B44EA3315F9ED82
 ```
 
 

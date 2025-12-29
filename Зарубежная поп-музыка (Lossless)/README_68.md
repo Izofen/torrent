@@ -1,3 +1,57 @@
+###  Публикация: 1397685   (737546) от 22.07.2020
+
+VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Boys - Good Vibrations (03:36)
+02. Simon & Garfunkel - Mrs. Robinson (04:02)
+03. The Byrds - Mr. Tambourine Man (02:20)
+04. The Mamas & The Papas - California Dreamin' (02:40)(   Читать дальше...   )Жанр: Pop, Rock, R'n'BПродолжительность: 03:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397640   (737560) от 22.07.2020
+
+VA - Relaxing 80s Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Big Love (3:28)
+02. Karizma Duo - Come On Eileen (2:31)
+03. Shannon & Keast - Time After Time (3:45)
+04. The Shaken Bakers - Dancing in the Dark (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098964AF7D4D14D68DEDB6A7C4C52F833A79953D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526796   (737795) от 26.01.2022
 
 VA - Romantic Pop Songs 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -639,60 +693,6 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396637   (745501) от 16.07.2020
-
-Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дикая вода
-02. Мужчина моей мечты
-03. Тобi здається
-04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282002   (746407) от 11.02.2019
-
-VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano & Romina Power - Liberta
-02. Collage - Donna Musica
-03. Pupo - La Notte
-04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
 ```
 
 

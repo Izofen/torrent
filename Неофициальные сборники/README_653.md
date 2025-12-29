@@ -1,3 +1,165 @@
+###  Публикация: 1350765   (1002964) от 07.01.2020
+
+VA - Yoga And Deep House Meditation Music (2020) [MP3|320 Kbps] <Downtempo, New Age, Ambient, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002964.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bijoy - I Dream Of You
+002. Celer - Wishes To Prolong
+003. Living Room - Portuguese Beach Cafe
+004. Dub Mars - Lost In Thought(   Читать дальше...   )Жанр: Downtempo, New Age, Ambient, ChilloutПродолжительность: 07:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709A3D6C2408CA19D6899C055E301EE970979CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350762   (1002977) от 07.01.2020
+
+VA - Excalibur: Trance Original Mix (2020) [MP3|320 Kbps] <Trance, Progressive , Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fischer & Miethig - Oxygenious
+002. Mindsoundscapes - Excalibur
+003. K.E.K A - Impulse (Extended Mix)
+004. Martin Graff - Mantissimo (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive , Uplifting TranceПродолжительность: 09:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DB3ADE1523D1AEAF2612974B387E0FA11135A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350677   (1002986) от 07.01.2020
+
+VA - Techno Friday: With Special Guest (2020) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002986.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wardogg - Last Call (Original Mix)
+002. Delphunk - Mucho
+003. Loren Lewis - Vandal (Hypnotic Mix)
+004. Oziriz - Cheerful (Original Mix)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 13:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9D4D30EEFD95CA5B45C24EBF8150D984DF8F6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350885   (1002994) от 07.01.2020
+
+VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe De Renzo - Long Trip
+002. Af Double - Redemption
+003. Agoria - Hélice
+004. Sebastian Groth - Snow Leopard(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 15:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492F07413472B6388959FE7A9DE53BBCC55F1A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350764   (1003006) от 07.01.2020
+
+VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003006.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jose Vilches - Groove Music (Original Mix)
+002. Jp Lantieri - Intimacy (Original Mix)
+003. Jerome Isma-Ae - Opium (Quivver Remix)
+004. Eimear - Wake Up (Talamanca Remix)(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350678   (1003020) от 07.01.2020
+
+VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Domi Re - The Locals (Original Mix)
+002. Astropilot - Breathe (Sirius Music Remix)
+003. Roger Rabbit - Breath (Original Mix)
+004. Liquid Ace - Neurochemistry (Indianix Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350258   (1003134) от 06.01.2020
 
 VA - Лучшие из лучших: Top 100 хитов радиостанций за 2019 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -533,168 +695,6 @@ VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D17187039E6B50E5FD455455149A5D160026D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350018   (1003798) от 04.01.2020
-
-VA - German Top 100 Single Charts 03.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. The Weeknd - Blinding Lights
-03. Apache 207 - Roller
-04. Gzuz - Vor der Tr(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B448D4EEC051244B4CC19DCD5847327B5CCE88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487120   (1004003) от 03.08.2021
-
-VA - Свежаки Лета Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антон Девяткин - Camry (3:44)
-02. Artik Asti - Фурия (DJ Prezzplay Radio Edit) (3:30)
-03. Lucky Laura - Party Non Stop (D. Anuchin Radio Edit) (2:45)
-04. Dj Slon - Джимми Джимми (Dj Prezzplay Radio Edit) (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F7C734FAADFAE33CAEBE4A8194E2B9102F83DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487072   (1004055) от 03.08.2021
-
-VA - The Melancholy Blues (2021) [MP3|320 Kbps] <Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004055.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Delta Moon - House Of Dolls
-002. Paul Gillings - I Dont Know When Im Beaten
-003. John Lee Hooker - Amazing Grace
-004. Lynn August - The Lords Gonna Fix It(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7EA03FA732CB3294E80AFB40BB2E31EC02A1CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487070   (1004056) от 03.08.2021
-
-VA - The Classic Blues (2021) [MP3|320 Kbps] <Blues, Classic, Retro Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004056.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Lee Hooker - Drifting Blues
-002. T-Bone Walker - Blues For Marili
-003. Jan James - Where You Gonna Run To
-004. Alastair Greene - No Longer Amused(   Читать дальше...   )Жанр: Blues, Classic, Retro BluesПродолжительность: 09:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D360DD9C055B5478D91C647A2BEB032DC7D7CB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487074   (1004136) от 03.08.2021
-
-VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004136.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Blackstorm - Crystal Skies
-02. Evolving Suns Audio - Outside The Box(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487073   (1004153) от 03.08.2021
-
-VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynamite MC - It's Just What Lovers Do
-002. Amplify - Omg
-003. Brusten - In Motion
-004. Fushara - The Rave(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
 ```
 
 

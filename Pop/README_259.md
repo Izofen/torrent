@@ -1,3 +1,302 @@
+###  Публикация: 1399908   (725081) от 02.08.2020
+
+Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Fantasy (3:59)
+02. Dance With Me (4:51)
+03. Fools Cry (4:07)
+04. Calling Out For Love (4:02)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C96F3B8493C782A2D7E4B06EDF3FFE7984D738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668016   (725436) от 14.06.2013
+
+Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_725436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 You're My Heart, You're My Soul 	(4:02)
+02 You Can Win If You Want 	(3:42)
+03 Cheri, Cheri Lady 	(3:36)
+04 Brother Louie 	(4:02)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023074   (725849) от 04.06.2016
+
+Градусы - Градус 100 (2016) EP [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #Валигуляй
+2. Градус 100
+3. Хочется
+4. Я не был дома(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023290   (726205) от 04.06.2016
+
+Белый Орел - Как упоительны в России вечера (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как упоительны в России вечера [03:56]
+02. Потому что нельзя быть красивой такой [04:45]
+03. С высоких гор [03:44]
+04. Без тебя [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284936   (726246) от 23.02.2019
+
+Voggue - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love To Dance (5:02)
+02. Loverboy (5:25)
+03. Heart On The Line (2:42)
+04. Presto Changeo (4:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128912   (726250) от 26.04.2017
+
+Филипп Киркоров - Лучшие песни (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Роза чайная 4:19
+02. Дай огня, детка 4:37
+03. Ты со мной 4:10
+04. Я за тебя умру 3:28(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6F4A5B58D7D07EB51EB93C449AFAA1F0DBB67C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128729   (726254) от 26.04.2017
+
+Gipsy Kings - The Real... Gipsy Kings (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Bamboleo
+2. Hotel California
+3. Soy(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 03:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BEB32427C2E53382A61BA6CD79B5DD9E3AE27A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667716   (726343) от 14.06.2013
+
+The Crosslines - Singles Collection (2013) [MP3|320 кб/с]<ItaloDisco, EuroDisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ItaloDisco, EuroDiscoПродолжительность: 00:23:23
+01 - Tomorrow Is Another Day (Radio Mix) 03:40
+02 - Tomorrow Is Another Day (Maxi Version) 06:21
+03 - Tomorrow Is Another Day (Dub Mix) 04:15
+04 - Tomorrow Is Another Day (Single Version) 04:33
+05 - Tomorrow Is Another Day (Instrumental Version) 04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7BC629F93031BE2FE8379DDF45A05A226A743E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128923   (726367) от 26.04.2017
+
+Филипп Киркоров - For You ... (2007) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я эту жизнь тебе отдам 03:31
+02. Полетели 03:56
+03. Холодно в городе (дуэт с Аллой Пугачёвой) 03:40
+04. История 03:37(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F13FA8D486461B07141F364B07AE3F302DD9E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128984   (726447) от 26.04.2017
+
+VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy Marton - People From Ibiza (4:17)
+02. Rofo - You've Got To Move It On (4:11)
+03. Savage - Don't Cry Tonight (3:58)
+04. Carmelo La Bionda - I Love You (3:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F69F5267C0D80A5BA5CD9264F4D91DDE2B419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284650   (726542) от 23.02.2019
+
+Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotions
+02. If It's Over
+03. Someday
+04. Vision Of Love(   Читать дальше...   )Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128928   (726555) от 26.04.2017
 
 The Splash Band - The Music Of John Carpenter (1984) Reissue CD, 2015, ZYX Music [MP3|320 Kbps] <Electronic, Experimental, Synth-pop, Disco>
@@ -398,303 +697,6 @@ VA - Созвездие хитов-киношлягеры vol.1 (2004) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B20BEEE28E6705F658FF1C753B6F38E66F4B918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022598   (728824) от 02.06.2016
-
-Queen Samantha - The Letter (The Best Of) (1994) [MP3|320 кб/с] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Letter   (7:29)
-02. Give Me Action   (5:31)
-03. What's In Your Mind   (5:10)
-04. Get Back (Boogie Dance)   (3:15)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB76D5D4EBD423FF0EB11A0AC40B16F7BAC4BB04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284274   (728897) от 21.02.2019
-
-Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstar
-02. Thank You
-03. See It in a Boy's Eyes
-04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284438   (728903) от 21.02.2019
-
-VA - I Can See Clearly Now - Top-Oldies Cover-Versions Vol. 2 (1994) 2 CD [MP3|320 Kbps] <Rock, Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728903.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1.	Here Come My Baby–The Tremeloes
-2.	Love Me Tonight–Joe Dolan
-3.	Remember Then–Sha-na-na(   Читать дальше...   )Жанр: Rock, Pop, CoverПродолжительность: 01:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743165575BD18DCB867A1CD7C5FAD585282FEC5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284445   (728957) от 21.02.2019
-
-Zebra Crossing - Zebra Crossing (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Going Places (4:47)
-02. Just Another Day (4:58)
-03. Gipsy Boy (3:28)
-04. Flim Flam (4:49)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2653199781768A39C7766B4BBC14651ECDD3A1B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284323   (728961) от 21.02.2019
-
-The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love The Sun
-02. Love Is In Your Eyes
-03. Everything I Want To Know
-04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022169   (729511) от 01.06.2016
-
-Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovemachine [08:37]
-02. Dance Dance Dance [03:43]
-03. African Blood [08:34]
-04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022201   (729526) от 01.06.2016
-
-The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How I Love (Everything About You)
-02. Dum Dum
-03. Long Last Night
-04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128216   (729732) от 23.04.2017
-
-Tom Hooker - Back In Time (2017) 2CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый проект, вышедший в самом конце марта очень ограниченным изданием от известного исполнителя Italo-Disco 80х - начала 90х - Tom Hooker и итало-американского музыканта, диджея и продюсера Miki Chieregato, уже успевших недавно нашуметь своим предыдущим: Tam Harrow01. I Don't Want To Fight (5:44)
-02. King Of The World (5:13)
-03. I Want You Tonight (5:45)
-04. Give Me Your Love (4:24)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 02:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8963C6DAE45F62A658472FD0EF9DF4B1E457EC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022342   (729767) от 01.06.2016
-
-Suzi Lane - Ooh, La, La (1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственно вышедший и спродюсированный Джорджио Мородером в 1979 году альбом. Тяжелая автомобильная авария весной 1980 года, положила конец ее музыкальной карьере.01. Ooh, La, La   (7:40)
-02. Givin' It Up   (3:57)
-03. No One Home In The City   (5:02)
-04. Harmony   (7:01)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F686EEC643542ED6EE4936EF55D60427C878BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128118   (729849) от 23.04.2017
-
-VA - Pop & Rock Hits Made for Dancing (2017) [MP3|320 Kbps] <Dance, Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Parker – Only You (Tbo Vega remix) 03:47
-02. Danky Brain – Chasing Cars (Rick remix) 04:45
-03. Bass Boom Deejays – Faded (Jason Parker remix edit) 03:40
-04. Elaine Winter – Forever Young (Tbo Vega remix) 04:48(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C349FB85CFCF1A1B0D8627985599CBBFA72C54D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022180   (729879) от 01.06.2016
-
-Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Girl
-02. Faint of Heart
-03. Boyfriend
-04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
 ```
 
 

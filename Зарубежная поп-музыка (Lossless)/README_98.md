@@ -1,3 +1,57 @@
+###  Публикация: 1451577   (1028219) от 03.03.2021
+
+VA - Pop Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - I Believe In You
+02. Jason Derulo - Whatcha Say (Acoustic)
+03. Jason Mraz - Live High
+04. Seal - Crazy (Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461ACB4048DEAC0E5EE1B2B6AFC9D296ECEB0BFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451326   (1028358) от 02.03.2021
+
+Star Sisters - Hooray For Hollywood  (1984) Reissue, 2005, 2000 FruitGum Corp[FLAC|Lossless|image + .cue] <Disco, Swing, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	A Tribute To Marilyn Monroe	4:21
+-	My Heart Belongs To Daddy
+-	I Wanna Be Loved By You
+-	Diamonds Are A Girl's Best Friend(   Читать дальше...   )Жанр: Disco, Swing, Funk / SoulПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084F0CBA56CE9A964639C5757502C976C304C468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451139   (1028707) от 28.02.2021
 
 VA - 70s 80s and 90s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -643,60 +697,6 @@ VA - Pop Blockbusters 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61457EC99346057DF3FD4CBD0CA751C3391AD21A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446498   (1032728) от 09.02.2021
-
-Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Have Some Fun (5:03)
-02. Love House (4:36)
-03. Your House or My House (3:56)
-04. Next to Me (5:26)(   Читать дальше...   )Жанр: Synth-pop, Pop, DanceПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446095   (1033024) от 08.02.2021
-
-VA - Acoustic Versions of Rock Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Django Wallace - My Hero (03:46)
-02. Shannon & Keast - Wake Me up When September Ends (04:10)
-03. Karizma Duo - Everybody’s Changing (02:35)
-04. Nora & Will - Creep (04:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B27F89AA9AB9E8CD1B924210B26DEDC2B9D3B85
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1130578   (714426) от 02.05.2017
+
+VA - In The Mood For Love Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madmotormiquel & San Marco – Holymotor
+02. Mirco Violi – Natural Extasis
+03. DJ Monique – Music On Hold
+04. Kraak & Smaak – Good For The City (feat Sam Duckworth – DiskJokke vocal version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC80E483B620E599F4777CAB079236BE4D9FAAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130572   (714482) от 02.05.2017
+
+VA - Wet & Hot Chill Beatz (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stube - Everything Is Alright  6:46
+02.  Chillelektro - Hiddensee  6:59
+03.  Performative Mode - Path Of Motions  7:21
+04.  Mighty Real - Remote Viewing  6:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332BACD429DF99D03F560FA067DE698BEE98168B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130551   (714486) от 02.05.2017
+
+VA - Bhudda Propensity (Deep Serendipity Mind State) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindness Bay - Nice Fly (Quiet version) [00:02:16]
+02. Jean Claude Fanette - Customer Focus (Aural mix) [00:01:32]
+03. Ephemeral - Most Cases (Relaxing cut) [00:02:16]
+04. Jean Claude Fanette - Point Or Place (Stand Export) [00:02:07](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A53F9544413046495081894F64EF1C7302A5E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130648   (714487) от 02.05.2017
+
+VA - Chill Out Brain Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils Hahn - Piange dolcemente [00:05:22]
+02. Chris Snelling - Hoppipolla [00:02:57]
+03. Ethereal Isolation - Take Me With You [00:03:42]
+04. Unique Chill - Destiny [00:03:13](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0B577C27CCBB2BF215D712B1CB91759C78B255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991089   (714511) от 01.03.2019
+
+CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossless]<Synthpop, Indietronica>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714511.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - EP (Japanese Edition)
+2013 - The Bones Of What You Believe (EU Limited Edition)
+2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
+2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED84E4E813C74EBE586838E5F6500F2997CA97B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532018   (714746) от 19.02.2022
+
+Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric London (2022-02-05) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murphy Brown & Nu NRG - Aloa-P
+02. Mr Sam - Lyteo (Rank 1 Remix)
+03. Basic Dawn - Pure Trust (NU NRG Remix)
+04. Nick Lunn & YOMC pres. Technopunk - Energize (Paul Van Dyk Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91E47314BDECCC627379DD7F85E5DFCE8B55465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286108   (714923) от 01.03.2019
+
+Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Chillout>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Silence (Intro Mix)
+02. Cradle (Extended Mix)
+03. Hive (Original Mix)
+04. One Look (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Trance, ChilloutПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434DD6196961003E8D1E0D28BFC2DDD8C0727126
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286280   (714927) от 01.03.2019
+
+Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You (Original Mix) (07:58)
+02. Siren (Original Mix) (07:48)
+03. Rain (Original Mix) (02:58)
+04. Crying Skies (Original Mix) (02:59)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBC65F933A75C7B098473F2EDD1DF07999BF430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286084   (714931) от 01.03.2019
+
+Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight (04:46)
+ 02. Roll Together (03:58)
+ 03. Are You Even Real (05:12)
+ 04. False State of Mind (04:09)(   Читать дальше...   )Жанр: Dub, Downtempo, IDM, AmbientПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A15B381E71A32ADC8005F96B39FCAE789C346F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400827   (715023) от 07.08.2020
 
 Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
@@ -448,249 +691,6 @@ CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60FC1C408E0914952676EB0F684B51305A64F53D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130297   (716418) от 01.05.2017
-
-Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Higher (1:31)
- 02/10. Merci (2:58)
- 03/10. What Do You Need (4:00)
- 04/10. Time to Stay (3:47)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057007   (716571) от 28.02.2019
-
-Zentriert ins Antlitz (E.M.I.T.R, Innovation Reality) - Discography 16 Releases (2003-2019) [FLAC|Lossless|tracks+.cue, tracks] <Industrial, EBM, Ambient, IDM, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re-Dreamer (05:42)
- 02. Sunlights Falling (07:38)
- 03. Tearswitcher (04:16)
- 04. The Teaser (03:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, EBM, Ambient, IDM, Downtempo, Techno, Electro •Продолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391A27F1C8D7AED1852C9C1BE88071C315009C7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130466   (716647) от 01.05.2017
-
-Astral Waves - Genesis (2017) [MP3|320 Kbps] <Experimental Electronic, Downtempo, Tribal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Believer (feat. Patrick Bernard) 13:06
-2. Ashura II 07:36
-3. Rain of Shooting Stars II 08:39
-4. La Danse du Feu 08:38(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Tribal, Progressive TranceПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6C3AA2BF151CD724A82215632A18EDBBD490D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532048   (716756) от 18.02.2022
-
-Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Deep House, Soulful House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebas Ramis/Tutsi Girl Play House - Body & Soul (Guri Slowdown mix) (05:00)
-02. Jask feat. Jocie - Beautiful (Jask's mix) (07:52)
-03. Peggy Gou - It Makes You Forget (05:20)
-04. Colette/Gettoblaster - Butterflies (Numbers Game remix) (05:20)(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EE2B6CCCA69E472BD16BB93502C6E5F2C7C62C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286042   (716939) от 28.02.2019
-
-VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driftmoon & Geert Huinink – The Creation (Intro Mix)(Live)
-02. Astrosphere – Zephyr (Live)
-03. Astrosphere & Re:Locate – Crown Royal (Live)
-04. Driftmoon – Odyssey (Epic Mix) (Live)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AADBEEC58569BE40EE5532374921AE1A75B4D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285987   (716945) от 28.02.2019
-
-VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofa King – From the Inside (06:28)
-02. Dj Counselling – Mitcham Tuxedo (04:57)
-03. Nineteen96 – How to Love Me (06:37)
-04. Sofa King – Whispers (05:56)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 04:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4A4F3BDFD611AAB3C01DF0874520B540924B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285899   (717064) от 28.02.2019
-
-VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide – Atacama (Original Mix)
-02. Nitrous Oxide & Maria Nayler – The Beauty of the Night (Original Mix)
-03. Nitrous Oxide – Tsukuba (Original Mix)
-04. Nitrous Oxide – Infinity (Secret Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218911   (717518) от 12.04.2018
-
-Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dive (05:20)
-02. The Course Of The Flight (08:25)
-03. Harmony Of Silence (06:32)
-04. Gates of Babylon (06:30)(   Читать дальше...   )Жанр: Psybient, Breaks, DowntempoПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218931   (717665) от 12.04.2018
-
-Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Soundtrack, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Return (03:19)
- 02. Invincible (01:24)
- 03. The Fall (02:38)
- 04. No Way Out (01:26)(   Читать дальше...   )Жанр: Modern Classical, Soundtrack, AmbientПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
 ```
 
 

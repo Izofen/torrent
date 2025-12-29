@@ -1,3 +1,165 @@
+###  Публикация: 987123   (927772) от 16.02.2016
+
+VA - Acoustic Pop (2016) [MP3|320 kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Fix You
+02. Thom Cooper - Next to Me
+03. Landa - Hello
+04. Chloe Le Page - Middle of the Bed(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799A4D3893C4BB7BD576BCDAF8F13B4000D4E16B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094986   (927855) от 19.01.2017
+
+VA - Music For Everyone - Chillout & Lounge Vol.5 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927855.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agebeat – Sweet (Reprise) (Original Mix)
+2. Finkk – Orange Sunrays (Dub Mix)
+3. Emotional – So Free (Vocalchill Mix)
+4. Dream Machine – Paradise Islands Of Chill (Kandi Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, HouseПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C53D8FCE026571A9C7BF7768066907ED64CEE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986993   (927862) от 16.02.2016
+
+VA - Hot Dance Motion: Winter Show (2016) [MP3|320 kbps] <Dance, Club, Electro, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927862.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firebeatz - Had It
+002. Chris Packer - Random
+003. Marlon Roudette feat. KStewart - Everybody Feeling Something
+004. Julian Perrerra - Miracle(   Читать дальше...   )Жанр: Dance, Club, Electro, Pop, HouseПродолжительность: 08:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033622F9C85CFB8AEC8A9B7C1FC59F87185D6FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094701   (927885) от 19.01.2017
+
+VA - Games Rain: Chillout Party January (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Automatic Sound Pilot - Walking Into Silence (German Turbo Mix)
+002. Jack-o'-Lantern - Soul (Original Mix)
+003. Zellarai - Fear (Original Mix)
+004. 5th Groove - Riding the Waves (Next Project's Grand Voyage Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21DAC35742DB47EAFFF5B25F34C003DBE3408B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094780   (927912) от 19.01.2017
+
+VA - Chart Tunes - Indication Reality (2017) [MP3|252-320 Kbps] <Funky, Vocal, Dance, Bigroom, Progressive, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies Feat. Sandro Cavazza - Beautiful Life (Gareth Emery Remix) 03:40
+02. Nora En Pure - On The Beach (Original Mix) 05:38
+03. Empir3 Feat. Pit Bailay - Ride Like The Wind (Jane Vogue's Remix) 04:25
+04. Dario Trapani - Together (Radio Edit) 03:19(   Читать дальше...   )Жанр: Funky, Vocal, Dance, Bigroom, Progressive, HouseПродолжительность: 04:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B41A4145243E92CA3399A5E44D9A3D3D6471E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987046   (927923) от 16.02.2016
+
+VA - Игорь Козлов - Мальчики-налётчики (1990) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мальчики-налётчики
+02. Бабушка здорова
+03. Сонечкины именины
+04. Темница(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39342CB1D677EDB5282472392B906978EE374EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986959   (927965) от 16.02.2016
 
 VA - Essentials Dance Effects Skyline (2016) [MP3|251-320 кб/с] <Club, Disco, Electro, Bigroom, Progressive>
@@ -532,175 +694,6 @@ VA - Зимний шансон года. Версия № 5 (2016) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE84914F5B9F59B5DD2EF996D755D797E3C12A70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577999   (929644) от 14.03.2013
-
-Plexus (39 releases)(2011-2013) [MP3|320 кб/с]<Electronic, Ambient, Trance, Chill Out, Neo Classic, Downtempo, Psy Chill, Lounge, Enigmatic, Ethno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eguana - Intro (1:44)
-02. Eguana - Dawning (4:08)
-03. Eguana - The Elbowrooms of Cosmos (9:17)
-04. Eguana - The Ruin of the Galaxy (3:36)
-05. Eguana - Steaming (3:49)
-06. Eguana - Hidden Dreams (3:55)
-07. Eguana - Epilepsy (4:01)
-08. Eguana - Celestial Shepherd (3:50)
-09. Eguana - Insomnia (5:06)
-10. Eguana - My Dreams (4:25)Жанр: Ambient ~ Chill Out ~ DowntempoПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365406   (929881) от 07.03.2020
-
-VA - Свежий Русский Хит от ALEXnROCK часть 1 (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всю прекрасную половину человечества С наступающим женским днём! Всё что делаем мы мужчины, всё для вас и ради вас. Вы наше вдохновение и стимул для новых вершин! Всем любви и удачи!
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2020 год.01. Михаил Бублик — Дует Ветер
-02. Эдуард Хуснутдинов — Красавица Востока
-03. Красавцы Love Radio — Рандеву (D. Anuchin Radio Edit)
-04. Ани Лорак & Миша Марвин — Ухожу(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F063500391A65111EBDC199267A37738303AA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093485   (930001) от 17.01.2017
-
-VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые Галлюцинации - Зверь 2
-02. Крематорий - Супермаркет
-03. Би-2 - Лайки
-04. Lumen - Голоса мира(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094096   (930128) от 17.01.2017
-
-VA - Deep House Collection Vol.104 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Acid Eyes,A. Rassevich - I'm Moving (A. Rassevich Remix) 5:37
-002. Aiiso - Your Love Is an Echo (Original Mix) 5:32
-003. Alex Cruz feat. Gabbi Lieve - Sweet Child (Original Mix) 4:46
-004. Alok & Fractall Ft. Bea Jourdan - Don't Ya (Natema & Kary Remix) 7:08(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80F3BF89FD89AA6219E4EA1C929A65A80E27016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094141   (930145) от 17.01.2017
-
-VA - Pop-Rock Ballad: Love Stories (2017) [MP3|239~320 Kbps] <Pop, Rock, Lyric>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Chris De Burgh - Confession  3:01
-002.  Yello - Dark Side  4:17
-003.  Rae Sremmurd Feat. Gucci Mane - Black Beatles  4:52
-004.  Sia - Big Girls Cry  3:31(   Читать дальше...   )Жанр: Pop, Rock, LyricПродолжительность: 08:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E76588012B6774574894B39886C9574A36ADEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986380   (930237) от 14.02.2016
-
-VA - Молодежная 100-ка. Сборник популярной музыки (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Светлана Лобода - А Может К Черту Любовь 03:34
-02. Denis Kenzo & Sarah Lynn - Ashes 03:53
-03. Виктория Ланевская - Начать С Нуля 03:32
-04. Ольга Горбачева - Самый Лучший День 04:01(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B1634F16D5D5E31DAF3B3C919E83736AEA29FB
 ```
 
 

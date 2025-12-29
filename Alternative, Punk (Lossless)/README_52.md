@@ -1,3 +1,111 @@
+###  Публикация: 1287350   (703462) от 07.03.2019
+
+Taking Back Sunday ‎ - Twenty (2019) Compilation [FLAC|Lossless|tracks + .cue] <Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cute Without the 'E' (Cut from the Team) (03:31)
+02. You're So Last Summer (02:59)
+03. Timberwolves at New Jersey (03:23)
+04. A Decade Under the Influence (04:07)(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DA18C52EA56177A864804C341772ABC6D7A37D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287371   (703696) от 07.03.2019
+
+Sleaford Mods - Eton Alive (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Payzone (02:17)
+02. Kebab Spider (03:40)
+03. Policy Cream (03:29)
+04. O.B.C.T (04:05)(   Читать дальше...   )Жанр: Alternative Rock, Punk, Post RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46329F2AED89378E8C2B197B0137E3A80EC5D3E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402286   (703806) от 13.08.2020
+
+Biffy Clyro - A Celebration of Endings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. North of No South (04:05)
+02. The Champ (03:37)
+03. Weird Leisure (04:08)
+04. Tiny Indoor Fireworks (03:15)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DDCD762EAC962497EE69AC60A8C5F00075B06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381639   (705188) от 24.02.2022
+
+Mark Lanegan - Straight Songs of Sorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wouldn't Want to Say (05:46)
+02. Apples from a Tree (01:55)
+03. This Game of Love (04:48)
+04. Ketamine (02:40)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59892F04E39096362165362C6A92DEEE22B7291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025828   (705872) от 14.06.2016
 
 Paolo Nutini - Sunny Side Up (2009) [FLAC|Lossless|tracks] <Soft Rock, Pop Rock>
@@ -587,114 +695,6 @@ Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15C7239FDBE8954D2296D19665DCBAE4DAA32307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401056   (713497) от 08.08.2020
-
-In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crisis 01:19
-02. Worldwide Suicide 01:56
-03. Hellbringer (feat. Jamie Hails) 03:22
-04. Moving On 02:51(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5549081A4E9C854C42141D59660EC49435E61F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130198   (713918) от 02.05.2017
-
-Gorillaz - Humanz (2017) Deluxe Edition, 2CD [FLAC|Lossless|image + .cue] <Alternative Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlude: New World (1:23)
-02. The Apprentice (feat. Rag'n'Bone Man, Zebra Katz & RAY BLK) (3:55)
-03. Halfway To The Halfway House (feat. Peven Everett) (3:57)
-04. Out Of Body (feat. Kilo Kish, Zebra Katz & Imani Vonshа) (3:44)(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop |Продолжительность: 01:09:14 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27A1CB972AD4E986BD4B9D35CA99334E36D8CFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286114   (715079) от 01.03.2019
-
-Hozier - Wasteland, Baby! (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Cried Power (feat. Mavis Staples) (03:45)
-02. Almost (Sweet Music) (03:37)
-03. Movement (03:57)
-04. No Plan (05:31)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BC2B90E3F2FE8D42850E6C1AA456FCBA184A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286040   (715088) от 01.03.2019
-
-Pond - Tasmania (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daisy (06:20)
-02. Sixteen Days (02:53)
-03. Tasmania (04:04)
-04. The Boys Are Killing Me (03:46)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E4E06DBC95D3E8170D5C36B4CA1023E3A98E32
 ```
 
 

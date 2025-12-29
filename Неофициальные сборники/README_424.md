@@ -1,3 +1,57 @@
+###  Публикация: 1029816   (678611) от 28.06.2016
+
+VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
+02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
+03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
+04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029831   (678612) от 28.06.2016
+
+VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
+02. Digital Department -  Enzox 6:54
+03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
+04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135767   (678693) от 20.05.2017
 
 VA - 100-ка блатных душевных песен Шансона. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
@@ -352,6 +406,39 @@ magnet:?xt=urn:btih:1CCA6DACA298B1B8EE96648F8D5598231B94534E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508701   (679124) от 10.06.2012
+
+VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gipsy Kings - Bamboleo (3:25)
+2. Simply Red - The Right Thing (4:23)
+3. Mungo Jerry - In The Summertime (3:30)
+4. Sean Kingston - Beautiful Girls (3:47)
+5. DJ Jazzy Jeff & The Fresh Prince - Ring My Bell (3:47)
+6. R.I.O. - Miss Sunshine (5:24)
+7. The Sunclub - Fiesta (4:14)
+8. Skee-Lo - I Wish (4:13)
+9. Righeira - Vamos A La Playa (3:40)
+10. Elvis Presley - Mexico (2:00)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135729   (679238) от 20.05.2017
 
 VA - Хитовая весна на Europa Plus. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -601,106 +688,25 @@ magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290379   (679822) от 19.03.2019
+###  Публикация: 508696   (679688) от 10.06.2012
 
-Silent Circle - Touch In The Night (2018) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679822.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Silent Circle - Touch In The Night (Denis Osyanin Remix)Жанр: Club, DanceПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF9B4984CC2C43AC51E9DA54F6B622644428F51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029707   (679903) от 27.06.2016
-
-Enigma - The Collection (2016) 2 CD [MP3|320 Kbps] <New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angles Weep
-02. Just For the Day
-03. Dream On
-04. Snowin' Under My Skin(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 02:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12605FD8317E11182B3E2654C12CD01527F5B524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029608   (679984) от 27.06.2016
-
-VA - Русский Рок-н-ролл (2016) [MP3|192-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ноль - Этот русский рок-н-ролл
-02. Машина Времени - Старый рок-н-ролл
-03. Жар-Птица - Рок-н-ролл
-04. Пикник - Beлоcипeд(   Читать дальше...   )Жанр: RockПродолжительность: 04:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5F6820BD23B63A3223A84918E4B72A3E439DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029726   (680147) от 27.06.2016
-
-VA - Over 300 Summer Chillout, Lounge & Ambient Beats (2016) [MP3|320 Kbps] <Lounge>
+VA - Sexy Music Compilation *Selected by Carlo Cavalli* (2012) [MP3|320 кб/с]<House>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680147.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Counting Clouds - Footprints (Beach Mix)
- 02. Heni Lasut - Miracle
- 03. Churchen - Gate 66
- 04. El Txef A feat. Napoka Iria - Mugarrirantz(   Читать дальше...   )Жанр: Lounge, Chillout, Ambient BeatsПродолжительность: 1 день, 01:01:01
+01. Tease Me (feat. Mo-Man)Жанр: House, Deep HouseПродолжительность: 01:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0534D73D27787735F86BE13735FEF073EDD77CF1
+нет
 ```
 
 

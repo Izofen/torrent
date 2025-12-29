@@ -1,3 +1,117 @@
+###  Публикация: 1538274   (663368) от 20.03.2022
+
+Gary Eisenbraun - Sticks and Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luck Of The Draw
+02. Outta My Mind
+03. If You Don't Play By The Rules
+04. Whatcha See(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CEC8C2BEC50E716D462318188A24B4C54241CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224728   (663820) от 12.05.2018
+
+De-Phazz - Black White Mono (2018) [MP3|320 Kbps] <Nu-Jazz, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoiled (Feat. Pat Appleton)
+02. Esperance
+03. Love Vampire
+04. May(   Читать дальше...   )Жанр: Nu-Jazz, Acid Jazz, LoungeПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CF9C96CEF93A09E7B2553776BDDC1D4F88F480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340771   (663840) от 23.05.2011
+
+Bob James - Angels of Shanghai (2007) [FLAC|Lossless]<Contemporary Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_663840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration (4:13)
+02. Gulangyu Island (4:48)
+03. Endless Time (3:36)
+04. Theme 'Onara' from 'DAEJANGKEUM' (4:05)
+05. Dream With Me (4:59)
+06. Angels' Theme: The Invention of Love (4:58)
+07. The Magic Paintbrush (6:31)
+08. Melodia : A Quiet Place for Two (2:27)
+09. Butterfly Lovers (5:48)
+10. Dialogues: The Universal Language (4:54)(   Читать дальше...)Жанр: Contemporary Jazz, World FusionПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224794   (664017) от 12.05.2018
+
+Harry Allen Quartet - French Lullaby (2018) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait For You [06:37]
+02. La Mer [06:36]
+03. C'est Si Bon [05:15]
+04. The Summer Knows [05:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C94EF52E1DD253A4D62AE226E5E59FDE67A772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138301   (664267) от 29.05.2017
 
 VA - Jazz Chill Acoustic Classical Playlist (2017) [MP3|320 Kbps] <Jazz, Lounge>
@@ -263,6 +377,33 @@ Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340164   (664873) от 22.05.2011
+
+Bruce Willis - The Return Of Bruno (1987) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_664873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comin' Right Up [3:30]
+02. Respect Yourself [3:53]
+03. Down In Hollywood [5:20]
+04. Young Blood [4:09](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -560,141 +701,6 @@ Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48390C35968CD84E94C026994323CFF51031BC38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137892   (665717) от 28.05.2017
-
-Alice Babs - Alice and Wonderband (1959) 1993, RCA/BMG Ariola AB Sweden [FLAC |Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Words Blues (Hallberg-Babs) - 3:03
-02. Just A-Sittin' and A'Rockin' (Strayhorn-Ellington-Gaines) - 2:57
-03. Willow Weep for Me (Ronell) - 4:47
-04. I Didn't Know What Time It Was (Rodgers-Hart) - 2:42(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DE978F3B6C75A3103392E8E55525910098E3F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138090   (665718) от 28.05.2017
-
-Erik Friedlander - Block Ice & Propane (2007) [FLAC|Lossless|image + .cue] <Avant-Garde,  Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Rig
-02. Dream Song
-03. Airstream Envy
-04. Road Weary(   Читать дальше...   )Жанр: Avant-Garde,  Modern CreativeПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8544EB119BE3E9DFB4E4A466DEC5290190C13E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138222   (665723) от 28.05.2017
-
-Alice Babs - Illusion (1966) 2007, Vax Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for the Dreamer [02:41]
-02. Om jag an forstatt [03:10]
-03. Illusion [03:09]
-04. Om du sa vill [02:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DA9C79857574B8825476BC2381E8475F4816FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138232   (665724) от 28.05.2017
-
-Alice Babs - Swingflickan: Originalinspelningar fran aren 1939-1944 (2004) Naxos Nostalgia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joddlarflickan [03:19]
-02. Jag har en liten Radiola [02:44]
-03. Ett glatt humor [02:30]
-04. Varat gang [03:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37AC28A4DFF19000DFD32FA61EE94090DBCB8AF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224451   (666066) от 10.05.2018
-
-Emmet Cohen Featuring Ron Carter - Masters Legacy Series Volume 2 (2018) Cellar Live [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All of You [10:15]
-02. Opus One [08:43]
-03. Salute to Cedar: Hindsight [04:26]
-04. Salute to Cedar: Holy Land [07:18](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62DAFCAAC03F148E34047FE59C202DBBE7990EB
 ```
 
 

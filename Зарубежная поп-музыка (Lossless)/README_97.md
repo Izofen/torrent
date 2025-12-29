@@ -1,3 +1,57 @@
+###  Публикация: 1457948   (1023762) от 29.03.2021
+
+Thomas Anders - Cosmic (2021) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Pop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rider [00:03:53]
+02. Undercover Lover [00:03:41]
+03. Ready For Romance [00:03:49]
+04. Je Ne Sais Pas [00:03:21](   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D166024055D91ED8BE0C5712AC89A2B32BA44D90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458157   (1024066) от 28.03.2021
+
+VA - 50s 60s and 70s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Take Me Home, Country Roads (Acoustic) (03:21)
+02. John Burnsby - I Saw Her Standing There (Acoustic) (02:58)
+03. Shannon & Keast - Sixteen Tons (Acoustic) (02:39)
+04. Logan York - I Heard It Through the Grapevine (Acoustic) (03:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E13035781BE95A2C5CE395FD4FAE0EC441CA14F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457280   (1024377) от 26.03.2021
 
 Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -638,60 +692,6 @@ Ricchi e Poveri - Reunion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F926041B7CE9B568A9098B07319678E127F32F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451577   (1028219) от 03.03.2021
-
-VA - Pop Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - I Believe In You
-02. Jason Derulo - Whatcha Say (Acoustic)
-03. Jason Mraz - Live High
-04. Seal - Crazy (Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461ACB4048DEAC0E5EE1B2B6AFC9D296ECEB0BFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451326   (1028358) от 02.03.2021
-
-Star Sisters - Hooray For Hollywood  (1984) Reissue, 2005, 2000 FruitGum Corp[FLAC|Lossless|image + .cue] <Disco, Swing, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	A Tribute To Marilyn Monroe	4:21
--	My Heart Belongs To Daddy
--	I Wanna Be Loved By You
--	Diamonds Are A Girl's Best Friend(   Читать дальше...   )Жанр: Disco, Swing, Funk / SoulПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084F0CBA56CE9A964639C5757502C976C304C468
 ```
 
 

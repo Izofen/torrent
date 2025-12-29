@@ -1,3 +1,138 @@
+###  Публикация: 1027951   (694934) от 20.06.2016
+
+VA - Lobby Bar Lounge Vol.4: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UK One - Levitate
+02. James Walden - Guitar Dreams
+03. Michel Haimann - Rain
+04. Cinematic Lovers - Love in Verona(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70952BCFA1FD25C19F640D50C6CEE2300742F6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221392   (695016) от 24.04.2018
+
+VA - Весеннее созвездие хитов (3) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ася Пивоварова - Океаны
+002. Арбат New - Ангелом-Хранителем
+003. Оля Краснова - Та Самая Лов
+004. Серы - Патриаршие Пруды(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64188E704B5959C7B40063917ABF6784AADA543E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133265   (695031) от 12.05.2017
+
+VA - Шальной шансон в дорогу. Выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695031.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Ростовцева - Я Решила Тебя Не Любить 3:32
+002. Андрей Шпехт - Все Пути Сойдутся В Кабаке 4:11
+003. Централ - Соскучился 4:08
+004. Игорь Колюха - Сизый Дым 4:06(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F542F9ED1427833CFC9785D2283B3A0FC8B1EE73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221367   (695080) от 24.04.2018
+
+VA - Deep House Collection Vol.167 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695080.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A. Rassevich - No One Dares (QRVZH Remix)
+002. Alex Ranerro & Coeus - Enigma (Forteba Alternative Version)
+003. Alex Vortex - Say No (Original Mix)
+004. Alexander Orue - We Can Dance  (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1657BD7E1D6FD601FED15EDF2C211C81531DBD49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221324   (695105) от 24.04.2018
+
+VA - Natural Lounge (2018) [MP3|320 Kbps] <Lounge, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незатейливые мелодии, легкое, атмосферное звучание, как будто композиторы пытаются озвучить первые солнечные лучи на горизонте бескрайнего океана. Такую музыку подобрана в сборнике «Natural Lounge». Чтобы полностью насладиться этой музыкой, вам понадобится кресло или диван. Остальное всё произойдёт само собой.01. Ku You - Sandhand
+02. Thomas Sopper & Herr Schmidt - Wolken im Wind
+03. Grandbrothers - From a Distance
+04. Han Tronic - Tea del Mar(   Читать дальше...   )Жанр: Lounge, Downtempo, RelaxПродолжительность: 04:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A03E95B376F05BD5279750661EE1D3EB544369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133262   (695125) от 12.05.2017
 
 VA - Хитовая весна от Европы Плюс. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -558,141 +693,6 @@ VA - Popular Romantic Ballads (2018) [MP3|320 Kbps] <Pop, Rock, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DEB654FCB72CA687FE6F3F6D3B874A4018D9042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027682   (696652) от 19.06.2016
-
-VA - Twisted Up: Bass Buster Vol.06 (2016) [MP3|320 кб/с] <Dubstep, Drumm and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun Empire, State Of Mind - Twisted Up (Original Mix)
-02. Pegboard Nerds & NGHTMRE - Superstar (feat. Krewella)
-03. Bensley - Tiptoe (Original Mix)
-04. Marshmello - Alone(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 05:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A966669B8E1DAB6E2EC1B490060B2DF24A2E82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027416   (696664) от 19.06.2016
-
-VA - Chill House Diamonds Vol 4 (2016) [MP3|320 кб/с] <House, Future Jazz, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Vibe Orchestra - In the Choose (Night Voice Mix) [04:02]
- 02. Diego Dee - Sweet on My Suite (Dee Dee Mix) [03:46]
- 03. Fresh Fusion - Gentre Free (Original Mix) [03:40]
- 04. Electric Fantasy - Farfiza (Onda Nueva Chill Mix) [03:56](   Читать дальше...   )Жанр: House, Future Jazz, DowntempoПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD60DBF136A9E6ED1D0DE9B86311F92A90249F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027428   (696665) от 19.06.2016
-
-VA - Chill House Diamonds Vol.5 (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill Rhythms - Chill Possession - Possession Mix
-02. Antigua Blue - Blue Comodo - Deep Ocean Mix
-03. Anthony Maserati - Find the Piano - Quattroporte Deep Mix
-04. Brooklyn Lovers - Caster - Brooklyn Lovers Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4333B71B12A87EB8FD0E881592AA5BA436638120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027558   (696666) от 19.06.2016
-
-VA - Your Temptation: Downtempo Mediterranean Mix (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonoric Academy - Under Dress - Water Mix
-02. Meadowlark - Eyes Wide
-03. Oblique Style - Relax Yourself (Baia Mix)
-04. Interior Beats - Green Blink - Nigh O' Phonic Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51917B927E8C80B7BAF557111D7C76C47DED88C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133254   (696708) от 11.05.2017
-
-VA - Keep Moving: 100 Progressive Mix (2017) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afterboy A.K.A. Joseph Pecsvari - Girls In Deep 6:16
-002. Akrosonix - Casualties Of Love (Original Mix) 5:37
-003. Al - B - Give Me Your Love 4:26
-004. Alex Mel - Summer Skies (Feat. Michaelangelo) 4:11(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 10:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77529BA4A9DFC224AC9D86E9ACE5811F59EA3378
 ```
 
 

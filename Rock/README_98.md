@@ -1,3 +1,165 @@
+###  Публикация: 1446191   (1032988) от 08.02.2021
+
+The Rolling Stones - Love (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Hear You Sigh (Remastered)
+02. Loving Cup
+03. Tops (Remastered)
+04. Beast Of Burden (Remastered)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C3ED2AE938FA27FBD0ED5B9E426038E1074833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619114   (1033009) от 16.03.2023
+
+RPWL - Crime Scene (2023) [MP3|320 Kbps] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victim Of Desire [00:08:16]
+02. Red Rose [00:05:34]
+03. A Cold Spring Day In ґ22 [00:04:20]
+04. Life In A Cage [00:06:11](   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2114D2E06C445CFEF69757DAFD52A9519EAFF50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619265   (1033205) от 15.03.2023
+
+The Michael Wynn Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Rock, Funk / Soul, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of The Night (3:42)
+02. Don't Need Nobody (3:20)
+03. Shine On (4:58)
+04. Let Your Guitar Cry (4:00)(   Читать дальше...   )Жанр: Rock, Funk / Soul, Hard RockПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEB21B092DA4BFF085A0FF6E7C37D7594B58F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618944   (1033683) от 13.03.2023
+
+Topas - Topas (1980) LP [MP3|320 Kbps] <Electronic, Krautrock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricane (4:18)
+02. From Coast To Coast (4:32)
+03. Days Of Summer (4:47)
+04. Hello And Goodbye (4:40)(   Читать дальше...   )Жанр: Electronic, Krautrock, Classic RockПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA54C8AC17F15757145F4A28B4525E27A1B8706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445069   (1033754) от 05.02.2021
+
+Transatlantic - The Absolute Universe: Forevermore (2021) Extended Version, 2xCD [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033754.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Overture (08:12)
+ 02. Heart Like a Whirlwind (05:11)
+ 03. Higher Than the Morning (05:30)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A95D8684D16A0E7B53EB8770835DAE28BBF799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444813   (1034234) от 03.02.2021
+
+Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AZ1M (04:15)
+ 02. The Fish (03:57)
+ 03. Phantom Scimitar (05:49)
+ 04. The Fountain Of Enkidu (07:25)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43851A760CD4E9F019A1F4EED61A196C5B2E07F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444820   (1034235) от 03.02.2021
 
 The Besnard Lakes - The Besnard Lakes Are The Last of the Great Thunderstorm (2021) [MP3|320 Kbps] <Art Rock, Psychedelic Rock>
@@ -533,171 +695,6 @@ Chris Norman (ex-Smokie) - Close Up (2007) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9380C3F28AB83C8141534F1C1703D2B03D981F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613951   (1039099) от 20.02.2023
-
-Steve Hughes - 3 Albums (2022-2023) [MP3|320 Kbps] <Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - More Channelings - Book One
-2022 - More Channelings - Book Two
-2023 - Visions of the Star Water CavesЖанр: Neo Progressive RockПродолжительность: 3 CD, 02:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C935C203A662032F848512504EB1555D91D73E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439978   (1039338) от 15.01.2021
-
-Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Scene (02:35)
- 02. Mountains (07:29)
- 03. Captive To The Moon (14:16)
- 04. Nobody Watches The Sunrise (05:22)(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Jazz RockПродолжительность: 01:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED364FB7408390D9B0C939C097F880AE10DC6BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613457   (1039579) от 18.02.2023
-
-Shocking Blue - The Blue Box (2017) 13CD (2017) [MP3|320 Kbps] <Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Not There
-02. You Really Got Me
-03. Shocking You!
-04. Radar Love(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 08:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89AB100327BCC27C1F4D7432A836586936BCDA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439799   (1039596) от 14.01.2021
-
-Crack The Sky - Tribes (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribes (04:37)
- 02. Another Civil War (05:22)
- 03. Dear Leaders (05:02)
- 04. Blowing Up Detroit (04:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8F8569BB61847106347DF3DB5EB8C429E45FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439621   (1039605) от 14.01.2021
-
-Osi - Free (2006) Deluxe Edition, Remastered, 2021 [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sure You Will (03:46)
- 02. Free (03:23)
- 03. Go (04:16)
- 04. All Gone Now (05:15)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121FCB355BC5D35D9B6E73D5409CCEB4EE324458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257759   (1039676) от 13.01.2021
-
-The Black Keys - Discography (2002 - 2010) [MP3|320 kbps]<Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Busted [02:33]
-02. Do the Rump [02:37]
-03. I'll Be Your Man [02:20]
-04. Countdown [02:38](   Читать дальше...   )01. Everlasting Light [03:23]
-02. Next Girl [03:18]
-03. Tighten Up [03:31]
-04. Howlin' For You [03:11](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D5DFD7ACD1A34BEECA53F6C4C3A534FFBDF87D
 ```
 
 

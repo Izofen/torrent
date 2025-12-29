@@ -1,3 +1,165 @@
+###  Публикация: 1118565   (811811) от 26.03.2017
+
+VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Sarah Decourcy - Face Of Summer
+002. Paul van Dyk & Ronald van Gelderen - Everyone Needs Love
+003. Somna - Awakening (Assaf Remix)
+004. Xten - Love Is The Answer (Air Project Remix Radio Edit)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 07:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFAD34C027537A79286E76BC28391FDE27CC395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197938   (811880) от 09.01.2018
+
+VA - Billboard Year End Hot 100 Singles Chart (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ed Sheeran  -  Shape Of You  3:54
+002.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
+003.  Bruno Mars  -  That's What I Like  3:27
+004.  Kendrick Lamar  -  HUMBLE  2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AAB9CF449CD68F8F6473C1A72B523CC313714F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008916   (812050) от 20.04.2016
+
+VA - KissFM top 40 Апрель (2016) [MP3|320 кб/с] <Electro House, Dance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont - Ocean Drive (3:26)
+ 02. Alan Walker - Faded (3:32)
+ 03. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers (3:52)
+ 04. Ben Delay - The Boy Is Mine Feat. Alexandra Prince (Alternative Mix) (6:32)(   Читать дальше...   )Жанр: Electro House, Dance, TranceПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DF6109FF897A20B64325103B9ED0A578FFCB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008932   (812060) от 20.04.2016
+
+VA - Electro Life 42 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Electro Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3LAU ft. Bright Lights - How You Love Me (Charming Minds Remix)
+02. Alan Walker - Faded (Julian Calor Remix)
+03. Artik & Asti - Один на миллион (Thaellysson Pablo & Hudson Leite Remix)
+04. Axwell & Ingrosso - Dream Bigger (Original Instrumental Mix)(   Читать дальше...   )Жанр: Electro House, Electro Progressive, Dubstep, HouseПродолжительность: 02:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA76DF57073E77FA6D9D281F83C403E949BEDAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008967   (812061) от 20.04.2016
+
+VA - Весенний хит супер популярный 4 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812061.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sasha Mars - Забудь Меня
+002. Sia - Blinded By Love
+003. Тамара Викберг - Фата В 24
+004. Katie Louise - Too Far Gone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1787FAA94B4B3D61B26AE7F70615A3CCB2422715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008998   (812065) от 20.04.2016
+
+VA - Радио Шансон. Слушать подано №5 (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. И. Кучин - Черноокая
+002. Евгений Коновалов и Любовь Шепилова - Как мне жаль
+003. Дмитрий Суслов - Мадам Морячка
+004. Геннадий Зачетный - Особа приблатненная(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A802D099ED4F329333281DDF13D00D3B96F31874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008926   (812179) от 20.04.2016
 
 VA - Miami Sweet Fever: Deep And Techno House (2016) [MP3|320 кб/с] <Deep, Techno House>
@@ -533,168 +695,6 @@ VA - Elite Lounge: April Relax (2016) [MP3|320 кб/с] <Lounge, Chillout, Relax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0AD0B5250C2EEEDC05371BB1A7A11B86BADF1DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711820   (813819) от 14.04.2014
-
-VA - Italo Super Hits vol. 1 - 17 (2014) Часть 1[MP3|171 - 320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ann Lee - I Get The Feeling (Digimax Remix Alex Daal Edit) (07:49)
-02. Brian Ice - Inside My Lonely Nights (vocal version) (06:05)
-03. C. C. Catch - Jump In My Car (Baart'B Bootleg) (04:38)
-04. Cairo - Ilyen a Nyar (Crag P. Italo Disco Remix) (04:00)(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Synth-Pop,SpacesynthПродолжительность: 43:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9111B90846184F5B151D9C837FE6407383F1B001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008661   (813934) от 19.04.2016
-
-VA - LUXEmusic: Dance Super Chart Vol. 64 (2016) [MP3|320 кб/с] <Club House, Dance, Deep House, Electro House, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - P.I.M.P. (DJ Krupnov & DJ All Inclusive feat DJ O'Neill Sax Radio Edit) [03:12]
-02. Adele - Hello (DJ Denis Rublev Remix) [04:25]
-03. Aisha - Новое поколение (DJ Andy Light & DJ O'Neill Sax Radio Remix) [03:49]
-04. Anton Liss feat. Гейдар Багиров - Океаны (Radio Edit) [03:45](   Читать дальше...   )Жанр: Club House, Dance, Deep House, Electro House, HouseПродолжительность: 03:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2BDFEA738293E20D044E79199DE172BA61E7CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008850   (813935) от 19.04.2016
-
-VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mr. Fingers - Qwazars [06:17]
-002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
-003. Borrowed Identity - Mary Jane [07:12]
-004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008880   (813945) от 19.04.2016
-
-VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Demegni – A New Love
- 02. Luna Lounge – Luna Serenade
- 03. Andrea Cardillo Project – Buona vita
- 04. Vincenzo Ricca – Chill Thrill(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008712   (813946) от 19.04.2016
-
-Андрей Дубов - Начинается путь (2016) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аленушка
-02. Белый парус
-03. Вестница прошлого
-04. Дальняя дорога(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF590FC6762C1B75C7861D38D45C0E0666D8855
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 777003   (814090) от 14.04.2014
-
-Simply Red - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop, Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise 2003
-02. Close To You 1999
-03. Stars 1991
-04. Fairground 1995(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E80FB1305D96C739DDEC406C429D1D9F4FADAB
 ```
 
 

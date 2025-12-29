@@ -1,673 +1,657 @@
-###  Публикация: 1526181   (738803) от 23.01.2022
+###  Публикация: 1128215   (728898) от 24.04.2017
 
-Сто к одному (23.01.2022) WEBRip [H.264/720p-LQ]
+VA - Universal Language Lounge Anthems Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738803.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:26
+01. Gary Cools - Watching From Above
+02. Darius Dubois - Big Ban
+03. James Walden - Europa - Alternative Version
+04. Den Wood - Music Takes Me Higher(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79CAAA921A686F9972347F8212D3182AC90F1F88
+magnet:?xt=urn:btih:FEB2AD83BC7791B345CFA30146FA494094B93481
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526192   (738804) от 23.01.2022
+###  Публикация: 1284494   (728899) от 21.02.2019
 
-PDF Converter Master 6.2.1 fix [Multi/Ru]
+SQL Dynamite 2.1.3.5 [En]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738804.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Converter Master, мощный, легкий в использовании. Приложение имеет все необходимое для преобразования PDF файлов в другие форматы документов. Программа имеет чрезвычайно простой и понятный интерфейс, который позволяет легко конвертировать PDF файлы в 6 распространенных форматов документов (DOCX, DOC, PPTX, RTF, TXT и IMAGE).
-Вы можете конвертировать PDF в Word, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+Программа исследует объекты базы данных различных типов (определяемых пользователем функций, хранимых процедур, триггеров, представлений, таблиц и индексов, внешних и первичных ключей, типов, синонимов, последовательностей, типов) для поиска вхождений искомого текста по их именам и по их содержанию, а также. Поиск можно вести с учетом или без учета регистра.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED2A5360D9989EC8920BEE27C3FF0137151B76E2
+magnet:?xt=urn:btih:1C109D65BFFE0DCBD44E7D3E043EE2CBCFE9558B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526201   (738805) от 23.01.2022
+###  Публикация: 1128284   (728900) от 24.04.2017
 
-PDF to Numbers Converter 6.2.1 fix [Multi/Ru]
+VA - Sunset Chillout Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738805.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С помощью PDF to Numbers Converter для Mac вы можете быстро конвертировать PDF-файлы в файлы .numbers, что позволяет легко редактировать или создавать великолепные электронные таблицы в Numbers. Мы ежедневно получаем множество файлов PDF, контрольный список, счет-фактуру, прайс-лист, финансовый отчет и многое другое. PDF хороший, но не редактируемый, почему бы не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+01.  New Electronic Symphony - Water  3:33
+02.  Miraflores - The Color Of Your Wings  5:54
+03.  Schwarz & Funk - Laid Back  6:09
+04.  Still Cutt - 60  3:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:12:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E1D73A0B874D6B75F3BDA7C53652684058E213
+magnet:?xt=urn:btih:A2B6F27670A8A0E9CAD13098B0C9276D39FCB1F7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526253   (738806) от 23.01.2022
+###  Публикация: 1284202   (728901) от 21.02.2019
 
-Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Said the Whale - Cascadia (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738806.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carpathos Rising
-02. Chosen Sentinels
-03. Moonshiner
-04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
+01. Wake Up (03:34)
+02. UnAmerican (03:00)
+03. Love Don't Ask (03:13)
+04. Cascadia (03:40)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
+magnet:?xt=urn:btih:5F855DCC643E308A56C936416EC88EAB09EAC3E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526264   (738807) от 23.01.2022
+###  Публикация: 1128283   (728902) от 24.04.2017
 
-Клоун Коко и день физкультурника / KoKo's Field Daze (1928) TVRip [H.264]
+VA - The Sound Of Trance Vol.03 (2017) [MP3|320 Kbps] <Trance>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738807.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Америке тоже было ГТО! Да-да, чесслово. Сами посмотрите как бодренько занимается физкультурой вся эта компания - Макс, Коко и Фитц.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:31
+01.  Dave Pearce & Farius - Sundar (Original Mix)  5:56
+02.  Suncatcher & Exolight - Memory Of You (Extended Mix)  7:47
+03.  Loutaa - In Your Eyes (feat. Linnea Schossow) (Extended Mix)  4:40
+04.  James Dymond - Show The World (Extended Mix)  7:46(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C6630DAE1B69777F54D0595CFCF02EACA87B089
+magnet:?xt=urn:btih:E474FEBE162D2848F8E35E050E9EA3529BBCA58D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526202   (738808) от 23.01.2022
+###  Публикация: 1284438   (728903) от 21.02.2019
 
-PDF to Pages Converter 6.2.1 fix [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблемы с редактированием PDF? Хотите редактировать содержимое PDF в Pages? С помощью PDF to Pages Converter для Mac вы можете быстро и легко преобразовать ваш PDF-файл в редактируемый файл страниц и сохранить исходное форматирование, содержимое за считанные секунды. Таким образом, вам не нужно тратить часы на перепечатывание или переформатирование файла вручную. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCFD026DF387063143306CB447C340EE7CEEDB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526134   (738809) от 23.01.2022
-
-Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorelords of War (03:53)
-02. Driven by Ravenous Hunger (02:36)
-03. Casket Malediction (03:02)
-04. Lick the Oculus (03:28)(   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76F80DD4FC67BB6AE2E38A109D4A9EC6B41C797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526063   (738810) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - Vulnerable (Denis Kenzo Edit) (4:17)
-02. Beat Service, Sarah Lynn - Dream Weaver (Radio Edit) (4:03)
-03. Radion6, Katty Heath - Beautiful Nothing (Radio Edit) (2:59)
-04. 4 Strings, Denise Rivera - In The Middle of a Dream (Radio Edit) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526077   (738811) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Katty Heath - Tale of Us (3:36)
-02. Aldous - Wait For Me (3:02)
-03. Bruce Cullen, Paula Alcasid - Upside Down (3:43)
-04. Costa, Jessie Lee Thetford - Distant World (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC15772E977FF84B0D500B3768A5123AAA943B93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526240   (738812) от 23.01.2022
-
-VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Amoralea (5:58)
-02. Paulsen & Stryczek - Havana Postcard (3:03)
-03. Leo de la Rosa - Desnudos Tú Y Yo (3:23)
-04. Marco Bianchi, Franky Harper - Oye Como VA (3:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62CAA0F9102FA36E0CA94CC427481088443209F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526212   (738813) от 23.01.2022
-
-Screenshot Editor 2.3.3 fix [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screenshot Editor (Редактор скриншотов) поможет вам легко сделать скриншот и прокомментировать его с использованием набора полезных инструментов разметки.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5471F0C6A796B31456C31D33195B93955AFDB3BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526135   (738814) от 23.01.2022
-
-Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
+VA - I Can See Clearly Now - Top-Oldies Cover-Versions Vol. 2 (1994) 2 CD [MP3|320 Kbps] <Rock, Pop, Cover>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738814.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Touch Me (Hold My Hand) (4:01)
- 02. BAYNK, Tinashe - Esther (3:12)
- 03. BAYNK, Cosmo's Midnight - How Does It Feel? (3:39)
- 04. BAYNK, Drama - 1 Chance (3:22)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:55
+CD1
+1.	Here Come My Baby–The Tremeloes
+2.	Love Me Tonight–Joe Dolan
+3.	Remember Then–Sha-na-na(   Читать дальше...   )Жанр: Rock, Pop, CoverПродолжительность: 01:53:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D87CE67873927F60C18D41282117058BFC32AE4
+magnet:?xt=urn:btih:743165575BD18DCB867A1CD7C5FAD585282FEC5F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526216   (738815) от 23.01.2022
+###  Публикация: 1128333   (728904) от 24.04.2017
 
-VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribeca - First to Say Goodbye (Original Mix) (5:34)
-02. Roberto Bronco - Breath (Original Mix) (4:05)
-03. Houie D. - Silence (Be.Me.Ti.Lou) (5:11)
-04. Ingo Herrmann - Soulmate (Original Mix) (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B648B5ED05FA0782AAA8410F1B1E158186830F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526074   (738816) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa, Ana Criado - The Secret Garden (3:30)
-02. Aurosonic, Stine Grove - In Euphoria We Rise (3:29)
-03. Dark Matters, Jess Morgan - I Don't Believe In Miracles (Shogun Remix) (4:16)
-04. Beat Service, Cathy Burton - Love Is Your Home (Radio Edit) (3:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB6141C542FADC2703237CF7CFE5E59D29C924B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526065   (738817) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
-02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
-03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
-04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526076   (738818) от 23.01.2022
-
-VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Kate Louise Smith - From Dust To Ground (3:28)
-02. Costa, Ana Criado - The Secret Garden (3:30)
-03. Frainbreeze, Claudiu Adam, Yentl - Trust The Water To Settle (3:33)
-04. Aurosonic, Ellie Lawson - Becoming (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526114   (738819) от 23.01.2022
-
-Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
+Erroll Garner - Ready Take One (1967 - 1971) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738819.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Avalon [2:53]
-02. I'm Confessin' [3:07]
-03. Bugle Call Rag [2:50]
-04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
+01. High Wire [03:48]
+02. I Want to Be Happy [03:01]
+03. I'm Confessin' (That I Love You) [05:03]
+04. Sunny [03:20](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:06:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
+magnet:?xt=urn:btih:1F747D1A2709D1BE3FDDBF08B8A494A446CFD79D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526083   (738820) от 23.01.2022
+###  Публикация: 1284400   (728905) от 21.02.2019
 
-VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
+Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738820.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JazzInCase - Bon bon (4:51)
-02. Ely Bruna - Dolce Vita (2:55)
-03. Bomba Titinka - Treno a bebop (2:52)
-04. Just Bubbles - Rising for the Moon (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:49
+01. Airmid (04:31)
+02. The Sandshaper (03:59)
+03. Dust & Cloud (04:10)
+04. The Falcon in the Snow (04:32)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 01:10:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E54DD9158EF5AECC57128ABBDC44797B42D81D8
+magnet:?xt=urn:btih:AD25CBCD7517C8966114E35B8F25F8DF010B8ECA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526069   (738821) от 23.01.2022
+###  Публикация: 1128326   (728906) от 24.04.2017
 
-VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
+Sidney Bechet, Claude Luter, Andre Reweliotty - Bechet Souvenirs (1951, 1952) 2017, Sony Music [FLAC|Lossless|image + .cue] <Dixieland, Revival>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738821.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
-02. Costa, Sarah Lynn - The Water's Edge (3:51)
-03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
-04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
+01. Kansas City Man Blues [03:43]
+02. Of All the Wrongs You've Done to Me [03:23]
+03. Apex Blues [03:08]
+04. Together [03:05](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:15:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
+magnet:?xt=urn:btih:7D8A55BE89D9ECDFC5C2E358A17B3CA9A38FB199
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526189   (738822) от 23.01.2022
+###  Публикация: 1284426   (728907) от 21.02.2019
 
-Mirror for Hisense TV 3.8.3 [En]
+SmallCubed MailSuite 1.0.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738822.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отображение экрана для телевизоров Hisense
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Hisense. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Hisense с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+С MailSuite это новый плагин для Mail, который включает в себя 4 основных продукта MailTags, Mail Act-On, Mail Perspectives и SigProТип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: SmallCubedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71C365880A00B630EA737E363DF50736120E4308
+magnet:?xt=urn:btih:B4F7DDEE3A9961182AD1F8CBDFDC36772F56A9EC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526068   (738823) от 23.01.2022
+###  Публикация: 1128329   (728908) от 24.04.2017
 
-VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
+Mel Torme - Mel Torme's Finest Hour (2001) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738823.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
-02. Costa, Cathy Burton - Always (3:38)
-03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
-04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
+01. A Stranger In Town [03:01]
+02. The Christmas Song [03:08]
+03. Mountain Greenery [02:23]
+04. The Hut Sut Song [02:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
+magnet:?xt=urn:btih:0EF341FA430E1D26334B8770CCAE40ECA8742B40
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526005   (738824) от 23.01.2022
+###  Публикация: 1128368   (728909) от 24.04.2017
 
-Cats in Boots - Kicked & Klawed (1990) [APE|Lossless|image + .cue] <Sleaze Rock>
+Волейбол. Кубок ЕКВ 2017. Женщины. Полуфинал. 1-й матч. Галатасарай (Турция) — Динамо-Казань (Россия) (28.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728909.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2017 года
+Кубок ЕКВ среди женщин 2017. Полуфинал. 1-й матч
+Галатасарай (Стамбул, Турция) — Динамо-Казань (Казань, Россия)
+Стадион: Burhan Felek Voleybol Salonu (Стамбул, Турция), 1000 зрителей(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C8F83C27EE07CBD9EC1CA277CB0AC7ADE2963E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530408   (728910) от 11.02.2022
+
+CrystalDiskInfo 8.15.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728910.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F381D3A6ACBF312A33C680CBD9695276D83766E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530430   (728911) от 11.02.2022
+
+И просто так... / And Just Like That... The Documentary (2022) WEB-DL [H.264/1080p]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о съемках нашумевшего продолжения «Секса в большом городе». Кэрри, Миранда и Шарлотта успели не только наломать дров в сиквеле, но и напомнить о величии оригинального проекта. «И просто так… Документальный фильм» расскажет о том, какая атмосфера царила на съемочной площадке, покажет процесс работы над сценарием, а также немного поразмышляет о (   Читать дальше...   )Производство: СШАЖанр: ДокументальныйРежиссер: Фабьен КонстантПеревод: Многоголосый профессиональный (Amedia)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530532   (728912) от 11.02.2022
+
+VA - Москва златоглавая II - VIII (1995 - 1998) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 07:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23EDDF7D308EBCE6F4F6D50066E58A56ACECDC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530632   (728913) от 11.02.2022
+
+VA - СЛОТ XX Tribute (2022) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738824.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shot Gun Sally
-02. Nine Lives (Save Me)
-03. Her Monkey
-04. Whip It Out(   Читать дальше...   )Жанр: Sleaze RockПродолжительность: 00:48:17
+1. Эпидемия - Мёртвые звёзды
+2. 7000$ - Бой!
+3. ПОЛ ПУНШ - Они убили Кенни
+4. Винтаж - Москва(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:26:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:105DABAA60620E953AA4B48FD260E32D692E0D14
+magnet:?xt=urn:btih:B4B61EF65958CFF6F66946301CCDAA3CF4C5D8ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526236   (738825) от 23.01.2022
+###  Публикация: 1530545   (728914) от 11.02.2022
 
-VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Дого - Дрессировка Собак v7.19.1 [Ru] (обновляемая)
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738825.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Philip Aniskin, Alexsandra Mell - Too Close to You (4:54)
-02. Velvet Dreamer, Tim Gelo - Eternal Beauty (5:08)
-03. LastEDEN - Hot City Walk (3:18)
-04. Miss Luna, Neshia - Smile (Florito Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:56
+Собака - лучший друг человека. Приложение Дого - это личный дрессировщик вашей собаки в вашем кармане. Получите доступ к 100+ упражнениям от Дого, игр, более длительный программ тренировок и личную обратную связь от кинологов.Тип издания: Пиратка (VIP)Релиз состоялся: 5 февраля 2022 г.Разработчик: DogoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20297BFD690959D26B73889599071B6009FE893C
+magnet:?xt=urn:btih:7CAD6C0D4CC98600A29EFECDA73932C4E19F49B1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526295   (738826) от 23.01.2022
+###  Публикация: 1530618   (728915) от 11.02.2022
 
-EdgeView 3 v3.2.2 [En]
+Людмила Улицкая | Бумажный театр. Непроза (2020) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свою новую книгу Людмила Улицкая назвала весьма провокативно – непроза. И это отчасти лукавство, потому что и сценарии, и личные дневники, и мемуары, и пьесы читаются как единое повествование, тема которого – жизнь как театр. Бумажный, не отделимый от писательского ремесла.
+“Реальность ускользает. Всё острее чувствуется граница, и вдруг мы обнаруживаем, как важны (   Читать дальше...   )Жанр: Современная русская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D0DF1EA412B61CA2E9950ABE890A5FCFE10F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530603   (728916) от 11.02.2022
+
+Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738826.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7808EB39F91A61A1CB77AD47995BB26BA60AB471
+magnet:?xt=urn:btih:B45273DAE725E915D91D137D64D6C30D9000D2B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526180   (738827) от 23.01.2022
+###  Публикация: 1530521   (728917) от 11.02.2022
 
-Cisdem Video Converter 7.0.2 [En]
+Роджер Желязны | Долина проклятий (2021) [MP3, Puffin Cafe]
 
->>Архив торрентов
->>Архив 4Apple
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738827.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Скачать онлайн-видео, Rip DVD или конвертировать видео между всеми форматами & устройств на Mac.
-Cisdem Video Converter является решением все в одном для видео развлечений. Cisdem VideoConverter будет полезен если вы конвертируете видео & аудио файлы в любом формате, записываете DVD фильмы или скачиваете видео с YouTube, Google, Yahoo, и т.д Он самый стабильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.12.2021Разработчик: © 2021 Cisdem Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+Неудержимый Черт Таннер, один из немногих, побывавших в самых опасных местах Америки, попадает в такую передрягу, из которой даже ему будет трудно выйти живым. Черта отправляют в Бостон, дорога к которому лежит через Долину Проклятий...Жанр: Фантастика, постапокалипсисПродолжительность: 02:26:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05A6941751140892603C3FCD445B3920B2134311
+magnet:?xt=urn:btih:2AF2920579B4228DD7FE0C524F111C6ECDC98984
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526226   (738828) от 23.01.2022
+###  Публикация: 1530480   (728918) от 11.02.2022
 
-iCompta 6 v6.0.53 [Multi]
+Неделя отпуска / Une semaine de vacances (1980) BDRip [H.264]
 
->>Архив торрентов
->>Архив 4Apple
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738828.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2021 LyricAppsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
+Учительница французского языка, сомневаясь в себе и своём призвании, берёт неделю отпуска из-за переутомления, потратив её на размышление о своей жизни и карьере... Фильм - номинант на Золотую пальмовую ветвь 33-го Каннского международного кинофестиваля.Производство: Франция, Antenne-2 (A2), Little Bear, Sara FilmsЖанр: драмаРежиссер: Бертран ТаверньеАктеры: Натали Бай, Жерар Ланвен, Флоре Фицджералд, Мишель Галабрю, Жан Дасте, Marie-Louise Ebeli, Philippe Delaigue, Geneviève Vauzeilles, Филипп Леотар, Филипп НуареПеревод: профессиональный многоголосый (Ren TV), любительский одноголосый (Сибирский)Субтитры: русские (DrO0d), французские, английскиеПродолжительность: 01:43:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B8B71E3B759021EE9F9CF18A0AF17D0B7E6DA11
+magnet:?xt=urn:btih:34A8E1BA48D3A42443FF4C2952D2CCF6E6183BB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530593   (728919) от 11.02.2022
+
+Новая горничная слишком привлекательна / The new maid is too much of a flirt (1912) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавный и милый фильм о том как в некий пансион поступила работать новая горничная. Но она была уж слишком хороша. И все мужчины принялись с пылом волочиться за ней. Пришлось ей в сговоре с хозяйкой "остудить" их пыл.
+А горничная действительно хороша. Фигуристая такая... И улыбка и смех у нее очень славные. Искренне, без наигранности.Производство: Италия, Società Anonima Ambrosio (предположительно)Жанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Нильде Баракки (предположительно)Перевод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E2DC96FF2B115C13CA7DCC4FE7AD0508D23D5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530503   (728920) от 11.02.2022
+
+Sakurasou no Pet na Kanojo | The Pet Girl of Sakurasou | Кошечка из Сакурасо [2012, TV, 24 эп.] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728920.jpg" />
+</div>
+
+
+###  Подробнее
+
+В старшей школе искусств университета Суймэй есть множество общежитий, а есть доходный дом «Сакура». Если в общежитиях действуют строгие правила, то в «Сакуре» можно все, недаром ее местное прозвище – «сумасшедший дом». Так как в искусстве гений и сумасшествие всегда где-то рядом, то обитатели «вишневого сада» - талантливые и интересные ребята, слишком уж выбивающиеся (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, комедия, фэнтезиРежиссер: Исидзука АцукоПеревод: kuroЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 серии по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7126B118395505C582D91749080561E18DE25819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530441   (728921) от 11.02.2022
+
+Работа с древесиной! / Wood Job!: Kamusari nana nichijo / Wood Job! (2014) BDRip [H.264/720p] [АVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728921.jpg" />
+</div>
+
+
+###  Подробнее
+
+По книге "Оставайся мягким ~Высокогорья Камусари~" автора Миура Сион. У Хирано Юки пошла полоса неудач: он проваливает вступительные экзамены и, к тому же, его бросает девушка. Совершенно случайно ему на глаза попадается рекламное объявление о приёме на работу... в лес. На брошюре красивая девушка пленяет его своей улыбкой, и городской мальчик решает рискнуть (   Читать дальше...   )Производство: Япония, Tokyo Broadcasting System (TBS), Toho Company, Mainichi Broadcasting System (MBS), NikkatsuЖанр: комедия, приключенияРежиссер: Синобу ЯгутиАктеры: Масами Нагасава, Сёта Сомэтани, Нана Сэйно, Хидэаки Ито, Юки Фурукава, Акира Эмото, Юка, Кэн Мицуиси, Наоми Нисида, Ёсимаса КондоПеревод: авторские (Андрей Дольский; Александр Смирнов), любительские одноголосые (D.I.M.; aleksei80)Субтитры: русские (ФСГ Kingdom Loli-Pop Stars!), английскиеПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530505   (728922) от 11.02.2022
+
+Неделя отпуска / Une semaine de vacances (1980) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учительница французского языка, сомневаясь в себе и своём призвании, берёт неделю отпуска из-за переутомления, потратив её на размышление о своей жизни и карьере... Фильм - номинант на Золотую пальмовую ветвь 33-го Каннского международного кинофестиваля.Производство: Франция, Antenne-2 (A2), Little Bear, Sara FilmsЖанр: драмаРежиссер: Бертран ТаверньеАктеры: Натали Бай, Жерар Ланвен, Флоре Фицджералд, Мишель Галабрю, Жан Дасте, Marie-Louise Ebeli, Philippe Delaigue, Geneviève Vauzeilles, Филипп Леотар, Филипп НуареПеревод: профессиональный многоголосый (Ren TV), любительский одноголосый (Сибирский)Субтитры: русские (DrO0d), французские, английскиеПродолжительность: 01:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B34B75F0A6486AC298219E1F45E9C311A2C3EE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530417   (728923) от 11.02.2022
+
+Miyakawa-ke no Kuufuku | The Miyakawa Family's Hunger | Голодные сёстры Миякава [2013, ONA, 10] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда твоя сестра - единственный источник дохода в семье, которая к тому же спускает все деньги на игры и мангу, приходиться стать взрослее и брать хозяйство в свои руки, даже если ты младшеклассница. Спинофф известного аниме Lucky Star, который представляет из себя отдельную историю в их вселенной.Производство: OrdetЖанр: комедияРежиссер: Ямамото ЮтакаПеревод: Sa4ko aka KiyosoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7E30FF8489C412629E5134ABFE1D330EC62EFB
 ```
 
 

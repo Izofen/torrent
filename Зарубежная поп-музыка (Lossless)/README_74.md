@@ -1,3 +1,57 @@
+###  Публикация: 1509939   (792755) от 14.11.2021
+
+Al Bano & Romina Power - Original Album Classics (2019) 5xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792755.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Romantica:
+01. Sharazan (4:26)
+02. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
+03. It's Forever (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 04:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509842   (792830) от 14.11.2021
+
+VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (4:19)
+02. Band Aid 30 - Do They Know It's Christmas? (3:48)
+03. Sam Smith - Have Yourself A Merry Little Christmas (2:50)
+04. Justin Bieber - Mistletoe (3:03)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274561   (793047) от 07.01.2019
 
 Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Dance, House>
@@ -641,62 +695,6 @@ Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 121678   (798896) от 02.11.2021
-
-Патрисия Каас (Patricia Kaas) - 15 альбомов (1988-2008) [FLAC|Lossless]<Pop, Jazz, Rock>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1988 - Mademoiselle Chante
-1990 - Scene de Vie
-1991 - Carnet De Scene (Live))
-1993 - Je Te Dis Vous(   Читать дальше...   )Жанр: Pop, Jazz, RockФормат: FLAC + .cueПродолжительность: 16:14:20
-
-Голос… такой пленительный и мелодичный. Голос, неуловимые интонации которого выражает порой страдание и боль, а порой надежду и любовь. Кажется, он вырывается из глубины души и захватывает нас целиком, без остатка. Голос Патрисии Каас, ставший для нас таким родным и знакомым, уникален и неповторим.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666794ED9A4BD964208AE03322AF5029F025A541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507013   (799034) от 02.11.2021
-
-Duran Duran - Future Past (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799034.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Когда мы впервые пришли в студию в конце 2018 года, я пытался убедить ребят, что все, что нам нужно сделать, это написать два или три трека для EP", - сказал вокалист Duran Duran Simon Le Bon. "Четыре дня спустя, когда у меня было ядро ​​из более чем 25 сильных песен, которые все заслуживали внимания, я понял, что мы засядем в студии надолго, (   Читать дальше...   )01. Invisible
-02. All Of You
-03. Give It All Up (feat. Tove Lo)
-04. Anniversary(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C6E65FC1FF79C4B8CBE5A44486D7F94C386F2F
 ```
 
 

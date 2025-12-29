@@ -1,3 +1,63 @@
+###  Публикация: 1524455   (743627) от 16.01.2022
+
+Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone is Love (2:33)
+ 02. Home Again (3:04)
+ 03. My House And The River (2:56)
+ 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783781   (743906) от 05.05.2014
+
+Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона
+1. Я мысленно вхожу в Ваш кабинет (М. Волошин) М. Бади ("Арсенал")  5:04
+2. Из сафо (VII век до н.э.) , перевод В. Вересаева) Наталья Капустина (Вокальная группа "Современник")  5:17
+3. Из вагантов (XI - XIII вв.) , перевод Л. Гинзбурга) Игорь Иванов ("Надежда")  3:02
+4. Приглашение к путешествию (Ш. Бодлер , перевод И. Озеровой) А. Барыкин ("Самоцветы")  4:05
+5. Доброй ночи (П. Б. Шелли) М. Бади ("Арсенал")  3:45
+2 сторона
+1. По волне моей памяти (Н. Гильен , перевод И. Тыняновой) В. Андрианов ("Лейся , песня")  3:45
+2. Сентиментальная прогулка (П. Верлен , перевод А. Эфрон) С. Беликов ("Аракс")  3:57
+3. Сердце моё , сердце (И. В. Гёте , перевод В. Левика) А. Лерман (Вокальная группа "Добры молодцы")  3:58(   Читать дальше...   )Жанр: ArtRock, SchlagerПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665050   (745721) от 05.06.2013
 
 Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternative rock, Progressive rock>
@@ -465,6 +525,30 @@ magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 204208   (757696) от 28.05.2010
+
+Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless]<Alternative Rock, Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522392   (758525) от 07.01.2022
 
 Александр Розенбаум - Нарисуйте Мне Дом... (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Vocal>
@@ -623,87 +707,6 @@ B1 Голубая Распсодия (Rhapsody In Blue)(   Читать даль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017139   (763133) от 16.05.2016
-
-Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Last Moment (Na Poslední Chvíli)
-A2	Early Evening Blues (Blues Navečer)
-A3	Gold And Diamonds (Zlato A Stříbro)
-A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394384   (763679) от 05.07.2020
-
-Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763679.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Hooray! Hooray! It's A Holi-Holiday
-(Frank Farian, Fred Jay)
-B Ribbons Of Blue
-(Forsey)Жанр: DiscoПродолжительность: 00:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394588   (763680) от 05.07.2020
-
-Gary Moore - White Knuckles (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763680.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Nuclear Attack
-A2 White Knuckles/Rockin' & Rollin
-A3 Run To Your Mama (Live)
-A4 You(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
 ```
 
 

@@ -139,6 +139,39 @@ magnet:?xt=urn:btih:2D5A544804C78D557C3ED7D50289F00CE3995B7D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508302   (677184) от 11.06.2012
+
+VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coldplay - Paradise
+2. Nickelback - Lullaby
+3. Dead By April - Mystery
+4. Takida - You Learn
+5. Walk Off The Earth - Somebody That I Used To Know
+6. Sons Of Midnight - The Fire
+7. Train - Drive By
+8. Daughtry - Crawling Back To You
+9. The Fray - Heartbeat
+10. Seether - Tonight(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536199   (678388) от 10.03.2022
 
 Bryan Adams - So Happy It Hurts (2022) [MP3|320 Kbps] <Pop Rock>
@@ -680,33 +713,6 @@ Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1462C91266CCE7F3FCD72C87A422F6A3D07A160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289002   (690070) от 14.03.2019
-
-VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr Feelgood – The Blues Had a Baby and They Named It Rock ‘N’ Roll (No. 2)
-02. Graham Bond – Neighbour Neighbour
-03. Gerry and The Pacemakers – My Babe
-04. The Animals – Around and Around(   Читать дальше...   )Жанр: Rock, Blues, FolkПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C95D1E7A20052BE603EC5FD8087F9A54D733494
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 996744   (879517) от 14.03.2016
+
+VA - Massive House Future Running (2016) [MP3|255-320 кб/с] <Bigroom, Club, Progressive, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Stone & Daser - Freak (And You Know It) (Edit) 03:14
+002. DVBBS - Never Leave (Radio Edit) 03:07
+003. D-wayne - Never Had (Radio Edit) 02:58
+004. Fight Clvb - HITA (Original Mix) 03:50(   Читать дальше...   )Жанр: Bigroom, Club, Progressive, TropicalПродолжительность: 10:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3340CF03CDD4260E6B8B75C6A851C172C7248D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996407   (879519) от 14.03.2016
+
+VA - Ethno Chillin: Best World Lounge and Ethno Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devankali - African Sunrise
+02. St Project - Hot Desert Wind
+03. Luigi Seviroli - Ethnical Views - Full Mix
+04. Brass - Mantra and Tantra(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE24B9B303C9D05350082CF62177AFEBC7DC96E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373281   (879927) от 06.04.2020
+
+Era - 100% Era (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Album Version)
+02. Ameno
+03. Enae Volare Mezzo
+04. The Mass (Album Version)(   Читать дальше...   )Жанр: Enigmatic, New age, PopПродолжительность: 05:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DCCCB8C36AF539F79EF58C90F4EEE8660A73E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373346   (879933) от 06.04.2020
+
+Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Think You Know How to Love Me
+02. Living Next Door to Alice
+03. It's Your Life
+04. Don't Play Your Rock 'N' Roll to Me(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0667662AE92EB5C13305A707E10ABDADC502EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104694   (879934) от 15.02.2017
+
+2 Unlimited - No Limits! (1993) [MP3|320 Kbps] <Techno, Euro House, Eurodance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No Limit  3:44
+02.  Ritmo Tribal  3:40
+03.  Mysterious  4:23
+04.  Faces  3:49(   Читать дальше...   )Жанр: Techno, Euro House, EurodanceПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55B667230C244CB37EA60C87CEC25627D72FFF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104436   (879956) от 15.02.2017
+
+VA - Music For The Perfect Wedding (2017) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  David Stanhope - J.S. Bach Suite No.3 in D, BWV 1068 (Arr. August Wilhelm)  3:28
+02.  David Measham & West Australian Symphony Orchestra - Boccherini Quintet in E Major, Op.11, No.5, G.275  3:04
+03.  Leonard Dommett & Melbourne Symphony Orchestra - Offenbach Les Contes d'Hoffmann Act 2 (Instrumental) (Barcarolle)  3:58
+04.  Anna McDonald & Diana Doherty (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46DB61C5B0B1C3AE3E93586246935B2CB23353A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104706   (879982) от 15.02.2017
 
 VA - Саундтреки к Фильму 'Притяжение' (2017) [MP3|320 Kbps] <Soundtrack>
@@ -533,165 +695,6 @@ VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495300   (880717) от 12.09.2021
-
-VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Thulane Da Producer - Winter Is Coming
-002. Spate - Crescent
-003. Dam Swindle - Pain Tomorrow
-004. Jo Paciello - It's In Your Mind(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340F15992927D126038049DEBE9C94F9FC17512D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495315   (880720) от 12.09.2021
-
-VA - Golden Summer Party (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabrielle Aplin - Kintsugi
-002. Michael Schulte - What Heroes Do
-003. Dermot Kennedy - Paradise
-004. Chris Galmon - Life Line(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68242ADDCD0ECA1573372318E70CA9A9226BA1F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495321   (880726) от 12.09.2021
-
-VA - Positive Frequency: Really Techno Sound (2021) [MP3|320 Kbps] <Clubbing Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Filipe Barbosa - Chlorine
-002. Niki Snow - Voices From Space
-003. Rodrigo Ferran - Mitosis
-004. Flux Flocks - Devoted Moon(   Читать дальше...   )Жанр: Clubbing Techno, Tech House, ElectroПродолжительность: 11:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB46A8D2F5A8E52F70D260F1243B272EB6ACC585
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297234   (880887) от 21.02.2011
-
-VA - Дискотека по Украински (2010) [MP3|128-256 kbps]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 5:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F564BC07B9EA1061D9C3C0F2A3F572B15FF93912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996267   (880953) от 13.03.2016
-
-VA - Smooth Jazz Vocal Grooves (2016) [MP3|320 кб/с] <Smooth Jazz, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicholas Cole - So Good 4:16
-2. Lin Rountree - Givin' You Love 4:02
-3. James Vargas - Say You Will 5:34
-4. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth Jazz, JazzПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EDBD8D099668849FBC1884CD1BB03BE5D1C80D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996143   (881057) от 13.03.2016
-
-VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheryl Cole - I Dont Care
-02. Александр Балыков - Лето (DJ Nejtrino & Kirill Clash Extended Remix)
-03. Olly Murs - Tomorrow
-04. Major Lazer Feat. Ariana Grande - All My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
 ```
 
 

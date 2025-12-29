@@ -1,3 +1,30 @@
+###  Публикация: 972319   (981816) от 06.01.2016
+
+VA - Зимний Союз (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Марсель - Как Жаль
+002. Carlprit Feat. Jaicko - Only Gets Better
+003. Betty Who - Dreaming About You
+004. Owl City - My Everything(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487D4A03AA25AB476B7CE33302DBE4967F0216C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612840   (982501) от 04.02.2013
 
 VA - Лучшие танцевальные шлягеры 50х-60-х, [4 CD] (2003-2004) [MP3|320 kbps]<Retro, pop>
@@ -782,39 +809,6 @@ VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF6AB9B0BDDA8D6DCBB91DB6071C80741065403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604639   (996163) от 18.01.2013
-
-VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luchian Cris feat. Loly - All My Love
-02. The Weeknd - Enemy
-03. Scooter - What Time Is Love
-04. The Weeknd - Twenty Eight
-05. Sergio DN feat. Khristeen - Can You Feel (Radio Edit)
-06. Adam Lambert - Trespassing (Vanity Machine Remix)
-07. Andy M. feat. Ellise - Beautiful Day (Radio Edit)
-08. Anastacia - Dream On
-09. Anna Lesko - Ia-Ma (Radio Edit)
-10. Delerium feat. Jael - Light Your Light(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 676574   (679873) от 06.07.2013
+
+Проекты - VideoHive - Wellness Resort Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для элегантной демонстрации логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C697669AF9C89E2C010ACB64EBA6D361128085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675785   (679874) от 06.07.2013
+
+Проекты - VideoHive - White Floral Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа или слогана в белом цветочном стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E474B07F3A06DD1C2597376936B70039EDEB56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 675807   (679967) от 06.07.2013
 
 Проекты - VideoHive - International Typography [AEP]
@@ -579,54 +627,6 @@ magnet:?xt=urn:btih:7D87406BF7E9E079D8FF5F14C514FD7B5C1B35FE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:240D31ED697DDCD5ACEE261CD47D600E5A87C1BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796540   (683253) от 15.06.2014
-
-VideoHive – My Wild Journey - 6967328 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для After Effects - My Wild JourneyФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52C3CF17CC31C7A44FFDBCAA4B2D309B6EB0067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796539   (683329) от 15.06.2014
-
-VideoHive – High Tech Supremacy - 3162798 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для After Effects - High Tech SupremacyФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B92540B99311C49B146C1671A04CB457300704
 ```
 
 

@@ -1,3 +1,201 @@
+###  Публикация: 604386   (996454) от 17.01.2013
+
+VA - Свежие Клубные Новинки Клубов Москвы (2013) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_996454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A-Dessa - Fire Реня (DJ Iksiy Remix)
+2. Addicted Craze - Fighting (Justin Corza Meets Greg Blast Remix Edit)
+3. Alexandra Stan - Lemonade (Cahill Radio Edit)
+4. Amelie - Esta Noche (Asher Aluk Remix)
+5. Antillas, Blinders, Jenson Vaughan - Top Of The World (Original Mix)
+6. Anton Pavlovsky feat. Anisa - Без Тебя
+7. B.K. - Sex (DJ Zhukovsky Official Remix)
+8. Bob Sinclar - Groupie (Club Mix)
+9. Danceboy vs. Cary August - Drive By (Tale. Dutch Edit)
+10. DJ Ella feat. Ricky J - Welcome To The Club (Jan Wayne Remix Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEFAE821584D4EBC4695D30C54EAADE2D13C71E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604325   (996455) от 17.01.2013
+
+VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_996455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Кулькова - Я Искала Тебя (02:16)
+02. Сплин - Орбит Без Сахара (02:19)
+03. Мумий Тролль - Утекай (02:22)
+04. Tiana - Новогодняя (02:23)
+05. Dress Code - Новогодний гопачек (02:27)
+06. Татьяна Овсиенко - Новый год! (02:28)
+07. Елена Ваенга - Желаю (02:33)
+08. Евгений Осин - Плачет девушка в автомате (02:35)
+09. Ирина Дубцова feat. DJ Slider - Ешь, Молись, Люби (02:36)
+10. Марина Девятова - Кабы не было зимы (02:36)(   Читать дальше...   )Жанр: PopПродолжительность: 30:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003B956953C7EFD1C3073BD6BEC43210506C9457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604156   (996474) от 17.01.2013
+
+VA-Super Dance Hits DFM (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fidel Wicked - Rock The Disco (Radio Edit)
+02. Deep Zone Project - Made For Loving You (Radio Edit)
+03. Alyssa Reid feat. Snoop Dogg - The Game (Uk Radio Edit)
+04. LaRoxx Project - Boom Boom (Radio Edit)
+05. Eros Ramazzotti - Un Angel Como el Sol Tu Eres
+06. Eric feat. Natalia - Daydreamer (Radio Edit)
+07. 3OH!3 - Youngblood
+08. Edward Maya pres. Mayavin - Friends Forever
+09. DJ Stretch feat. Di Land - I Need You (Radio Edit)
+10. Pink - Try(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610F35C7A6CAAA510DD64876E75A671890547C13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604023   (996493) от 17.01.2013
+
+VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996493.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Егор Сесарев - Громчемузыка
+ 002. Дилайс - Без Тебя
+ 003. Пицца - Город помнит нас
+ 004. Стас Борисов - Зима
+ 005. Руки Вверх - Счастлив Без Тебя
+ 006. Оксана Краски - А девочке хочется
+ 007. Пара нормальных feat. Риал Камеди Новый Год
+ 008. Т9 - Ты здесь
+ 009. Ksenona - Далеко-далеко
+ 010. Дима Билан И Ева - Малыш(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD7E4F4EB2B9472E0DFAD5197BC27704256310E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602753   (996624) от 16.01.2013
+
+VA-Golden Romance Collection (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996624.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 03:58:11
+1. Within Temptation (feat. Keith Caputo) - What Have You Done (5:13)
+2. Savage - Don't Cry Tonight (extended) (6:51)
+3. Timbaland (feat. Katy Perry) - If We Hever Meet Again (4:52)
+4. DJ BoBo - Secrets Of Love (3:18)
+5. Adele - Someone Like You (4:47)
+6. Schiller (feat. Heppner) - I Feel You
+7. Adele - Set Fire To The Rain
+8. Morandi - Colors(   Читать дальше...   )Жанр: PopПродолжительность: 06:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBF2B48AEC9A112CB1AD67FA8370C9C9AB30C5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603595   (996658) от 16.01.2013
+
+VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иракли - Иракли - Осень (ремикс) (03:10)
+02. Анна Седюкова - Анна Седюкова - Что я наделала (03:21)
+03. Ёлка - Ёлка - Хочу (03:26)
+04. Леонид Агутин & Tomas N'evergreen - Леонид Агутин & Tomas N'evergreen - Ай яй яй (03:29)
+05. Новые Самоцветы - Новые Самоцветы - Помнишь Модерн Токинг (03:42)
+06. Анжелика Агурбаш - Анжелика Агурбаш - До звезды (03:05)
+07. USB & Сергей Жуков - USB & Сергей Жуков - Скажи, зачем (03:49)
+08. Юлия Савичева feat. DJ Feel - Юлия Савичева feat. DJ Feel - Я с тобой (03:39)
+09. Тимур Родригез - Тимур Родригез - Я верю в твою любовь (02:50)
+10. МакSим - МакSим - Это же я (03:03)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C288A75F564FD8A5447F4CB5A2018B54EE5618D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604143   (996742) от 16.01.2013
 
 VA-Cупер новая сотка хитов Dfm (2013) [MP3|256 кб/с]<Pop>
@@ -653,203 +851,6 @@ VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601514   (998067) от 11.01.2013
-
-VA - Electro Life 21 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Dubstep, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii vs. Nicky Romero - I Could Be The One (Original Mix)
-02. Baby Alice - Sexy (Fresh Blast Dj's Remix)
-03. Bryce ft. J-Malik - Nothing Can Hold Us Back (Fresh Blast Radio Edit)
-04. Cocosiy (Coco Jumbo) & assNaut - Robocop (Original Mix)
-05. DJ Amor - Frame Of Mind (Original Mix)
-06. DJ Smash & DJ Vengerov - Только вперед (DimixeR & DJ Viduta Remix)
-07. Eric Prydz - Every Day (Original Mix)
-08. Greysound - Don't Stop (Original Mix)
-09. Jean Elan & CJ Stone ft. Jonny Rose - Feel Ur Love (Original Mix)Жанр: Electro House, Dubstep, House, Synth-PopПродолжительность: 03:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BFE6A2C0A92A722D19D77D79B531D2E1507E7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601828   (998108) от 11.01.2013
-
-VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998108.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:01. Sugarfree - Cleptomania
-02. Francesco Renga - Angelo
-03. Povia - I Bambini Fanno Oh
-04. Zero Assoluto - Svegliarsi La Mattina
-05. Daniele Silvestri - La Paranza
-06. Simone Cristicchi - Ti Regalero' Una Rosa
-07. Fabrizio Moro - Pensa
-08. Giusy Ferreri - Non Ti Scordar Mai Di Me
-09. Arisa - Sincerita'
-10. Malika Ayane - Come Foglie(   Читать дальше...   )Жанр: popПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601431   (998120) от 11.01.2013
-
-VA - Simply Dubstep December 2012 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12th Planet -Jail Break (04:43)
-02. 12th Planet -MMXII (04:00)
-03. 12th Planet & Antiserum -Ghost (04:44)
-04. 12th Planet & Flinch -The End Is Near Part 1 (Dirtyphonics Remix) (05:18)
-05. 12th Planet & Flinch -The End Is Near Part 1 (Felguk Remix) (04:46)
-06. 12th Planet & Flinch -The End Is Near Part 1 (04:16)
-07. 12th Planet & SPL -Ratchet Strap (Big Gigantic Remix) (03:46)
-08. 12th Planet & SPL -Ratchet Strap (UZ Remix) (04:00)
-09. 50 Cent -Disco Inferno (DJ Chixer Remix) (03:18)
-10. Ajapai -The Golden Ring of Fire (Original Mix) (04:41)Жанр: DubstepПродолжительность: 08:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45B3054EF7DA00486A1FA9D6E25D7B69F7BA2B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600477   (998328) от 10.01.2013
-
-VA - 200 лучших хитов от радио Отрыв (Часть 1) (2013) [MP3|256 кб/с]<Pop, Rock, Falk, Rap and more>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Эдуард Нехаев - Когда на душе
-002. Григорий Лепс - Самый Лучший День
-003. Павел Воля и Город 312 - Мама, мы все стареем
-004. Мастер зеркал - Аномалия
-005. Звери - Солнце за нас
-006. 7Б - Полковник
-007. Mar-Go - Запретная любовьь
-008. 2517 - Побег
-009. SEX - Все Будет!!!
-010. Денис Шишкин (Outsider) - Пойдем на крышу(   Читать дальше...   )Жанр: Pop, Rock, Falk, Rap and moreПродолжительность: 11:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE589DB84F427371EC13B2749F65DD3007AC931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600897   (998401) от 10.01.2013
-
-VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Без ума
-02. Бурановские Бабушки - Party
-03. Indira - Я буду верить
-04. Тамерлан И Алена Омаргалиева - Лондон
-05. DAS feat. Лера Туманова - Чувствовать Пульс
-06. Ирина Дубцова - Что тебе я сделала
-07. Евгения Поликарпова - Неважно
-08. Нюша - Queen Of The Night
-09. Глюкоза И Макс Барских - Адреналин
-10. D.Lemma - Лирика(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600889   (998518) от 09.01.2013
-
-VA - Песни на стихи Сергея Есенина (2010) [MP3|160-320 кб/с]<Шансон, поп>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Монгол Шуудан - Москва (4:27)
-2. Андрей Бандера - Русь (4:10)
-3. Александр Малинин - Мне осталась одна забава... (4:10)
-4. Александр Новиков - Пускай ты выпита другим… (4:08)
-5. Альфа - Гуляка (3:20)
-6. Заметался пожар голубой... (3:36)
-7. Сергей Любавин - Прощание с Айседорой (4:08)
-8. Игорь Слуцкий - Думы (3:49)
-9. Не жалею, не зову, не плачу... (4:38)
-10. Коля Шлевинг - Письмо Матери (4:44)(   Читать дальше...   )Жанр: Шансон, попПродолжительность: 02:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732DF569D9ED65583F329EBB71EABF911D6B348F
 ```
 
 

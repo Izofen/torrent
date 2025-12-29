@@ -1,3 +1,28 @@
+###  Публикация: 1471475   (1015120) от 20.05.2021
+
+Microsoft Windows 10.0.18363.1556, Version 1909 (Updated May 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1556.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02198C6DF4D902360D2868F1AE40FED38FB1157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471477   (1015123) от 20.05.2021
 
 Microsoft Windows 10.0.19041.985, Version 2004 (Updated May 2021) - Оригинальные образы от Microsoft MSDN [En]
@@ -619,31 +644,6 @@ Microsoft Windows 10.0.19042.804 Version 20H2 (Updated February 2021) - Ориг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA69A04D7C5A8DBFDB77BC2787AA099B3A4E139F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448796   (1030327) от 19.02.2021
-
-Microsoft Windows 10.0.19042.804 Version 20H2 (Updated February 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.804.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374D93C74ACD75D007BA85B73DEE6DD7B1D4D6DC
 ```
 
 

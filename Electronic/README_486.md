@@ -1,3 +1,351 @@
+###  Публикация: 977278   (965547) от 21.01.2016
+
+VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cut Up Boys - Shine (a cappella) vs. The Creeps (Get on the Dancefloor) (Vandalism remix) (Booty Luv vs. Freaks) (6:14)
+02. The Cut Up Boys - Let Me Think About It (a cappella) vs. The Creeps (Ida Corr vs. Fedde Le Grand vs. Camille Jones vs. Fedde Le Grand) (5:16)
+03. The Cut Up Boys - Rapture (a cappella) vs. Love on My Mind (feat. Amanda Wilson) (iiO vs. (   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A26BD8878D73EEEC4455610404697A8FEC3545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359084   (966133) от 10.02.2020
+
+VA - Erotica Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Peter Pearson - A Dream in Your Eyes (Original Mix)
+02 Michael e - It's Like Floating (Original Mix)
+03 La Estación Del Mar - A Sax in the City (Original Mix)
+04 Mo'jardo - The Way She Moves (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BC246164A1F0432E482872A22B9BED78BB96F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359181   (966281) от 10.02.2020
+
+Aidan Baker & Gareth Davis - Invisible Cities II (2020) [FLAC|Lossless|Web-DL|tracks] <Experimental, Drone, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden (13:40)
+02. Eyes (8:28)
+03. The Dead (8:17)
+04. Continuity (5:49)(   Читать дальше...   )Производство: Karlrecords - KR073Жанр: Experimental, Drone, Ambient, Dark Jazz, PostrockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AFCAAA5A0F87E7AD5421E88509B68559A9A053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358873   (966285) от 10.02.2020
+
+Rupesh Cartel - Mainland (2005) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966285.jpg" />
+</div>
+
+
+###  Подробнее
+
+2.01 Days Like This 3:45
+2.02 If I Ever Grow (Shattuck Plaza) 5:14
+2.03 Nowhere Fast 4:27
+2.04 Retainer (Quarks) 7:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37254F892E8975847D50BCDCB0AE8A4BCCCA800E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977457   (966469) от 20.01.2016
+
+Scooter - No time to chill (1998) [FLAC|Lossless|image + .cue] <Rave, Happy Hardcore>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Last Warning (0:56)
+02.How Much Is The Fish? (3:45)
+03.We Are The Greatest (5:08)
+04.Call Me Mañana (3:54)(   Читать дальше...   )Жанр: Rave, Happy HardcoreПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97043F41A2552C1EFBE5EC87287FA0E2984B638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977202   (966722) от 20.01.2016
+
+Banks - Goddess (2014) Deluxe Version [FLAC|Lossless|tracks + .cue] <Electronic, trip-hop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alibi (3:48)
+02. Goddess (4:03)
+03. Waiting Game (3:28)
+04. Brain (4:42)(   Читать дальше...   )Жанр: Electronic, Trip-HopПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B820760C208083E18BE32496B148C509A3538BCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958773   (967124) от 09.02.2020
+
+Plaster - Discography 12 Releases (2011-2019) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Downtempo, Minimal, Experimental, Techno, Leftfield>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mongrel (07:18)
+ 02. Harden (06:46)Тип издания: CD, WebЖанр: IDM, Downtempo, Minimal, Experimental, Techno, Leftfield •Продолжительность: 05:19:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10518A58CE1DE1A1581FC90808BFF92A0DAB60D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358617   (967138) от 09.02.2020
+
+Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia (Original Mix) (5:35)
+ 02. Lush Dance (Original Mix) (4:30)
+ 03. The Police (Original Mix) (3:58)
+ 04. Music Box (Original Mix) (5:38)(   Читать дальше...   )Жанр: Electronic, Deep House, DownbeatПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B073873EB893074FC9AC1918D5BB18CFBFEF2B08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149234   (967174) от 09.02.2020
+
+Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NatsQ - Before (E) (Original Mix) (04:19)
+ 02. Textural Being - Experience (NatsQ "Colored Club" Remix) (05:16)
+ 03. Textural Being - Experience (DeepWarmth Remix) (08:23)
+ 04. Textural Being - Experience (Cristiano Campos Remix) (08:38)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Ambient, Techno •Продолжительность: 10:05:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358856   (967236) от 09.02.2020
+
+Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dance-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Monkey Business (Radio Edit) [3:10]
+ 02 - Monkey Business (Prins Thomas Discomiks) [8:46]
+ 03 - At Rock Bottom [3:17]
+ 04 - Monkey Business (Friend Within Remix) [5:45]Жанр: Synthpop, Dance-popПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4000C8E667651E09A386B47424F3844205125785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358450   (967309) от 09.02.2020
+
+VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967309.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Candy Winterfeld - Tonestar 4:01
+2. Brian Chesnik - Butch 4:01
+3. Bouks - Lifeform 4:01
+4. Bollen - Tiptop 4:01(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 06:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1EDED43A70B0108172D4F522FBD9E4097A90C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358657   (967312) от 09.02.2020
+
+VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert - So True (Original Mix) 03:50
+02. Aldous - Control (Original Mix) 03:31
+03. Kyau & Albert - Meteorite (Em Kole Remix) 04:29
+04. Francesco Sambero - Chekaty (Original Mix) 03:30(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358527   (967316) от 09.02.2020
+
+La Roux - Supervision (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21st Century (04:15)
+02. Do You Feel (05:00)
+03. Automatic Driver (05:05)
+04. International Woman of Leisure (04:18)(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB24DDAD9CF4AE5EDAE1B8EF6291AB3CB885BA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358836   (967417) от 09.02.2020
 
 P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce, Instabil [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Tech House>
@@ -355,364 +703,6 @@ VA - The Cult of Lounge (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A716991A8402E33BFC881908FA82F19D9282F0CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817967   (969166) от 17.01.2016
-
-Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляемая)[MP3|128 кб/с]<Hardcore>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Koozah - Stand up
-02) DJ Mad Dog - Rewind #TiH (Xcite remix)
-03) Piecemaker - Brutal deluxe
-04) Alien T feat. MC Alee - Our light #TiH(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB97AECF3805D96F0F01EABC295F44CFA689B160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688671   (969168) от 17.01.2016
-
-John Askew - 2 Albums , 10 Compilations (2005 - 2015) [FLAC|Lossless|CD-WEB|tracks/image+.cue]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beirut (3:34)
-02. Nothing Left Between Us (feat. Senadee) (6:26)
-03. Blue (6:14)
-04. 667 (feat. Activa) (5:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8ECB8A349B2B35F472547D043FE38C62FFEBF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358265   (969636) от 07.02.2020
-
-VA - Erotica, Vol. 4 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladi Strecker - Pure Water (Over The Blue Mix) (10:19)
-02. Michael E - Over The Hills And Far Away (6:26)
-03. Velvet Dreamer feat. Tim Gelo, Michael Buk - Cold Sky (5:19)
-04. Simon Le Grec - About Us (Delor Mix) (6:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5D11B8779A25CE4AFE110B651A62CE2D90882B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358267   (969640) от 07.02.2020
-
-VA - Erotica, Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Dream in Your Eyes (Original Mix) (6:27)
-02. Michael E - It's Like Floating (Original Mix) (4:45)
-03. La Estacion Del Mar - A Sax In The City (Original Mix) (3:29)
-04. Mo'jardo - The Way She Moves (Original Mix) (3:54)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3443D3BF4EBC9904CA1D34B4CB3DFA6304AC9826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358319   (969703) от 07.02.2020
-
-The Avener - Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Electro, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Avener - Heaven (02:19)
-02. The Avener - Fly (Feat. SPELLES) (03:43)
-03. The Avener - Beautiful (Feat. Bipolar Sunshine) (03:09)
-04. The Avener - Mute Your Mind (Feat. M.I.L.K.) (03:54)(   Читать дальше...   )Жанр: EDM, Deep House, Electro, Nu DiscoПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817D7E0F7A28B11B7D8AB0CD13C046F22CB6CA15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358418   (969708) от 07.02.2020
-
-Cubering - Mirage (2020) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage (05:20)
- 02. IDL (06:08)
- 03. Dejavu (08:57)
- 04. Dot (05:41)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE29262AAD713F08D1EC885DFCD79976D0422745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976024   (969727) от 17.01.2016
-
-VA - Holiday Hit Mix '97 (1997) 2CD [FLAC|Lossless|image + .cue] <House, Techno, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught In The Act (2) - Babe (4:15)
-02. Alexia - Uh La La La (3:38)
-03. DJ BoBo - It's My Life (3:48)
-04. Garcia - Bamboleo (Radio Edit) (3:40)(   Читать дальше...   )Жанр: House, Techno, Euro HouseПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F313A277ED119591EB2BF6E726284F2DE7A1B9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358221   (969759) от 07.02.2020
-
-VA - Ninthwave Records 2000-2002 (Promo CD) (2003) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 –Ganymede City Dweller 3:55
-02 –Nasa Nexterday 4:40
-03 –Ganymede Neon Rain 3:46
-04 –Ganymede This Wasn't The First Time 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:55:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C1713425855B116FB00F0289235608EB384E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358328   (969761) от 07.02.2020
-
-Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969761.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Prologue II 1:49
-2 The Great Exodus 3:50
-3 Once Again 5:23
-4 Mystic Forest 4:41(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F390D61CD3DD6AF6DC7A00107F53424A2B9CCBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358272   (969767) от 07.02.2020
-
-Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Contract 3:22
-2 One Pair Of Hands 4:04
-3 Contract (Breach Mix) 7:10
-4 Childhood's Faith 3:44(   Читать дальше...   )Жанр: Synth-pop, TranceПродолжительность: 00:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617300   (969884) от 14.02.2013
-
-VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offshore (Hayley Parsons & Future Disciple Remix) - Futuristic Polar Bears
-02. Sweet Dreams (Timo Juuti & Hector 87 Remix) - Avicii
-03. Rock That Beat (Original Mix) - Duher
-04. Armada (Luke Tolosan & Max Tiger Dirty Remix) - Luke Tolosan
-05. Bingo (Frankox Remix)Жанр: HouseПродолжительность: 03:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744896   (970121) от 12.01.2014
-
-Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Touch (Prototype)
-02. Respected
-03. The Prisoner
-04. I’ve Said Too Much(   Читать дальше...   )Жанр: SynthPop, New WaveПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5695E28BCD1C6D3A0CED341B0E5D1605104ADA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168010   (970144) от 20.01.2010
-
-VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Danger - 4h30 (F.O.O.L Remix) (5:42)
-2. Danny Soundz - Jack It Up (Original Mix) (5:09)
-3. Defunct! Feat. Mr Eyez - Drop the Bomb (Original Mix) (6:11)
-4. DJ Fenix feat. Supafly - Reason to live (Original rmx) (7:37)
-5. Foundation - Boogie Wonderland (Noll & Kliwer Travolta Remix) (5:39)
-6. Franklin & Navaro - I Need Love (Electro Banger Remix) (4:30)
-7. John Revox vs EasyTech - Sexy Ole (Disco Fanatics Bootleg) (5:26)
-8. Michael Feiner - The Feeling (Jean Elan Remix) (6:16)
-9. Ray Guarano - Killing Me (Original Club Mix) (7:55)
-10. Re-Deux - Another Lonely Night (Rev-Players Extended Remix) (6:06)(   Дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
 ```
 
 

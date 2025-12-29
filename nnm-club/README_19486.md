@@ -1,674 +1,677 @@
-###  Публикация: 1507629   (798275) от 05.11.2021
+###  Публикация: 1202886   (789104) от 31.01.2018
 
-Jean‐Michel Jarre - Welcome To The Other Side - Live in Notre-Dame VR (2021) [AAC|~345 Kbps] <Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opening (VR Live) (3:30)
-02. Oxygene 2 (VR Live - JMJ Rework of Kosinski Remix) (4:33)
-03. The Architect (VR Live) (3:23)
-04. Oxygene 19 (VR Live) (3:46)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6038A7FC5B01D5BD649334D9D3C9BA00B5340021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507738   (798276) от 05.11.2021
-
-Firefox Browser 94.0.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577ED5A0C3BB72A6664041765CD28998BB1BAAE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507758   (798277) от 05.11.2021
-
-Microsoft Edge 95.0.1020.40 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3EF401D60712E98BBDC28474AB2217CC6522C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507727   (798278) от 05.11.2021
-
-The Byrds - The Very Best Of The Byrds (1988) [FLAC|Lossless|tracks + .cue]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So You Want To Be A Rock 'N' Roll Star 2:06
-02. Goin' Back 3:26
-03. Wild Mountain Thyme 2:30
-04. Nothing Was Delivered 3:21(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9D7235ECAAAC375563428CB00BAC5A0C7384B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507021   (798279) от 05.11.2021
-
-Ричард Докинз | Расширенный фенотип (2011) [M4А, Игорь Ломакин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798279.jpg" />
-</div>
-
-
-###  Подробнее
-
-с момента публикации трудов Докинза теория Ч.Дарвина о происхождения видов часто именуется Теорией Дарвина-Докинза.
-Об Авторе:
-Кли́нтон Ри́чард До́кинз — английский этолог, эволюционный биолог, учёный и популяризатор науки. Заслуженный сотрудник Нью-колледжа. С 1995 по 2008 год работал профессором Оксфордского университета в составе Саймонского профессората (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 15:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B3C2339CD20D04556D253AF0808DA9279CA083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507699   (798280) от 05.11.2021
-
-Хоккей. НХЛ 2021-2022. Филадельфия Флайерз - Питтсбург Пингвинз (04.11.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798280.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 ноября 2021, пятница. 02:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 037 зрителей (91% при вместимости 18 673)
-Главный судья: Марк Жоанетт (Вердун, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239530DBD7F15C7348FE23C4BE4AEE53A589D981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507695   (798281) от 05.11.2021
-
-Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Флорида Пантерз (04.11.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798281.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 ноября 2021, пятница. 02:00 МСК
-Стадион: Би-Би-энд-Ти-центр (Санрайз, США), 12 542 зрителя (65% при вместимости 19 434)
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Гислейн Эбер (Батерст, Канада)Телекомпания: NBCS-WSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3621E39FA5E0FE6CB7CC4E54B2F47D24039B7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507697   (798282) от 05.11.2021
-
-Araxis Merge Pro Edition 2021.5644 fix [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2021Разработчик: AraxisПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18838759CE672618844BC68C0C1BFB1330DBB524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507454   (798283) от 05.11.2021
-
-Бизнес-Мастер, К. Бордунос | Управление денежными потоками. Семинар. Диск-3 (2008) DVD5
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация «Бизнес-Мастер» образовалась в 1996 году под нарастающую потребность рынка в ускоренной подготовке персонала квалифицированному ведению бизнеса.
-Фактически, организация привлекла на тех или иных условиях бывших корпоративных тренеров и менеджеров по обучения крупнейших мультинациональных компаний в Украине, таких как Wrigley, Coca-Cola, Henkel, Uniliver, (   Читать дальше...   )Производство: Бизнес-МастерЖанр: Бизнес семинарПродолжительность: 01:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AF110EA568907EE47499FEC2285A30AE50E352
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507453   (798284) от 05.11.2021
-
-Бизнес-Мастер, К. Бордунос | Управление денежными потоками. Семинар. Диск-4 (2008) DVD5
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация «Бизнес-Мастер» образовалась в 1996 году под нарастающую потребность рынка в ускоренной подготовке персонала квалифицированному ведению бизнеса.
-Фактически, организация привлекла на тех или иных условиях бывших корпоративных тренеров и менеджеров по обучения крупнейших мультинациональных компаний в Украине, таких как Wrigley, Coca-Cola, Henkel, Uniliver, (   Читать дальше...   )Производство: Бизнес-МастерЖанр: Бизнес семинарПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53764F47EDFA48D49EE9223251B76C2C65801E2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507455   (798285) от 05.11.2021
-
-Бизнес-Мастер, К. Бордунос | Управление денежными потоками. Семинар. Диск-2 (2008) DVD5
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация «Бизнес-Мастер» образовалась в 1996 году под нарастающую
-потребность рынка в ускоренной подготовке персонала квалифицированному
-ведению бизнеса.
-Фактически, организация привлекла на тех или иных условиях бывших корпоративных тренеров и менеджеров по обучения крупнейших мультинациональных компаний в Украине, таких как Wrigley, Coca-Cola, Henkel, Uniliver, (   Читать дальше...   )Производство: Бизнес-МастерЖанр: Бизнес семинарПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7DB4EB0C3EA13204E193A529E78E12DECB5436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507742   (798286) от 05.11.2021
-
-Eclipse - Wired (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roses On Your Grave (3:23)
-02. Dying Breed (3:11)
-03. Saturday Night (Hallelujah) (3:15)
-04. Run For Cover (5:09)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFA2BC0A9C823448D48D588F88F90ACE016FC06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507811   (798287) от 05.11.2021
-
-Пропавшие найдены / Lost and found (1926) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динки Дудл и его верный пес ввязались в очередную авантюру. И художнику приходится их выручать, рискуя собой. Настоящий герой! Или ненастоящий? И вообще, было ли все это наяву?...Производство: США, J.R. Bray StudiosЖанр: Рисованная анимация, ДетскийРежиссер: Walter LantzАктеры: Walter LantzПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EC011FD395DDF526B508139D0EFAFED54DC82B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507838   (798288) от 05.11.2021
-
-Geekbench 5 v5.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: © Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD4CC28D78C9794A32D3DD45EA253FB08537A6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507617   (798289) от 05.11.2021
-
-CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kbps] <Progressive House, Deep House>
+The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798289.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sima - X0X Dub (Sworn Virgins Remix)
-02. RUFUS DU SOL - Next To Me (Adana Twins A Night At Revolver Version)
-03. Toni Rios ft. Niveska - Closer To You (Sascha Dive S2 Remix)
-04. gardenstate & Bien - The Best Part (Patrice Baumel Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:28:20
+01. Solitary Rooms (12:49)
+02. Night Falls (11:00)
+03. Patience (10:17)
+04. There Will Be Time (10:21)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:54:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFDDA354A88D13CFB276115614F2E881598319B1
+magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507725   (798290) от 05.11.2021
+###  Публикация: 1202877   (789105) от 31.01.2018
 
-Cat Stevens - Teaser And Firecat (1971) Reissue, 1987 [FLAC|Lossless|tracks + .cue]<Folk Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wind
-02. Rubylove
-03. If I Laugh
-04. Changes IV(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC4CC4F1B4E9F5EA99AB42FCF58B11F07AFB154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507700   (798291) от 05.11.2021
-
-Renamer 6.0.6 fix [Ru/En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Renamer - это приложение для пакетного переименования файлов в macOS, которое позволяет быстро и удобно переименовывать множество файлов. Вам понравится красивый пользовательский интерфейс , новые полезные усовершенствования, которые делают переименование файлов еще проще, и, конечно, множество способов переименования файлов. Поддерживает ID3 и EXIF.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2020Разработчик: Incredible Bee Ltd.Поддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88150173DC095A52B51828F251DC7E502D82BEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507555   (798292) от 05.11.2021
-
-Свято-Серафимо-Саровский мужской монастырь (изд.) | Свято-Серафимо-Саровский мужской монастырь [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798292.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Стяжи дух мирен и тысячи вокруг тебя спасутся" - эти слова преподобного Серафима Саровского определяют главное призвание человека - стать чадом Божиим по благодати, стяжать Божественный дух и сосредоточить его в себе. С этой целью приходят люди в обитель, чтобы через отречение от собственной воли покориться воли Христовой.
-
-На Воронежской земле был основан (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBF2BF005B1FD8B46FCD6D8F308F72C4170F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507500   (798293) от 05.11.2021
-
-VA - Live @ ABGT 450, (The Drumsheds London, United Kingdom) (2021-09-04) [MP3|320 Kbps] <Progressive House, Trance>
+Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798293.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
-01. Ben Bohmer feat. lau.ra - Erase
-02. Powel - Chapek 9
-03. Fehrplay - ID(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 09:55:38
+01. Travel Memoirs (04:20)
+02. Sundown Night (04:06)
+03. Garden Birds (04:56)
+04. Night Walks (04:06)(   Читать дальше...   )Жанр: Ambient, AbstractПродолжительность: 00:47:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
+magnet:?xt=urn:btih:A66EA6D90FF585F4B94F01C14350ACC915BBB9E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507603   (798294) от 05.11.2021
+###  Публикация: 1202811   (789106) от 31.01.2018
 
-Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business (SWACQ Remix)
-02. FETISH - The Door
-03. Kriss Reeve & Repiet - Anybody
-04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507807   (798295) от 05.11.2021
-
-Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Perfect Dehumanisation (The Answer?) (5:26)
-02 - Eternity Too Short (4:33)
-03 - Mother War (4:09)
-04 - Nihility (Anti‐Human Manifesto) (5:00)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA0BB8DCBFCE813CBAC22E0F99C79B346FE3D26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507762   (798296) от 05.11.2021
-
-Maverick - Maverick (2005) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Awakening (01:05)
-02. Black Leather Man (05:17)
-03. Hammer Blood (02:50)
-04. Let There Be Light (04:15)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48AB457441926A87D845E018521FCFC6269D895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507823   (798297) от 05.11.2021
-
-Murasaki 2.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Murasaki - это приложение для чтения книг в формате EPUB, которое имеет простой пользовательский интерфейс и различные функции (Не может открывать EPUB с DRM-шифрованием)Тип издания: macOS SoftwareРелиз состоялся: 21.07.2021Разработчик: © 2021 Genji AppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA858A7FA2898EDC0E4D712FDB377C526EA5DAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507611   (798298) от 05.11.2021
-
-Djs From Mars - Swiss Virtual Nights, Summer Festival 2021, Switzerland (2021-08-20) [MP3|320 Kbps] <House, Electro House, Electro Pop>
+Northaunt - Night Paths (2017) The Last Bleak Days Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798298.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sonic One - Punk! (TWOLOUD Remix) (Intro) w/Fedde Le Grand Put Your Hands Up For Detroit (Acappella)
-02. Riton & Nightcrawlers & Mufasa & Hypeman vs. Storm - Friday Storm (Djs From Mars Bootleg)
-03. Masked Wolf vs. Hardwell - Spaceman In The Ocean (Djs From Mars & Mo27Da Bootleg)
-04. Joel Corry X MNEK vs. Alice Deejay - Head & Heart vs. Better (   Читать дальше...   )Жанр: House, Electro House, Electro PopПродолжительность: 00:29:31
+01. I Don't Regret Anything (05:51)
+02. Skjelletering (05:07)
+03. Blood Trail (02:46)
+04. Beneath The Ice (05:39)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 01:05:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67B49E8146E0F1386DEAAAB3F7BC1BAF5F425C24
+magnet:?xt=urn:btih:4CEEB4BD5E5D1BB1B7FF3C413E153A305CED084C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507765   (798299) от 05.11.2021
+###  Публикация: 1202843   (789107) от 31.01.2018
 
-Maverick - Natural Born Steel (2012) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, Power Metal>
+Julien Neto - Le Fumeur De Ciel (2005) Type [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Glitch, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798299.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Distress (00:30)
-02. The God Inside (03:43)
-03. I've Got To Be Free (04:48)
-04. Diamond Dust (05:25)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:46:03
+01. I (One) (03:20)
+ 02. Sketch (04:05)
+ 03. VI (Featuring Keith Kenniff) (04:13)
+ 04. IV (Keats) (04:29)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Glitch, DowntempoПродолжительность: 00:43:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59E06C87CAB0CDDD104C0478481B9C82703710A2
+magnet:?xt=urn:btih:642A33C905CFB9AF8962A7451C4227EB20C089A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507774   (798300) от 05.11.2021
+###  Публикация: 1202859   (789108) от 31.01.2018
 
-Archspire - Bleed the Future (2021) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+Markus Guentner - Doppelgaenger (2009) Sending Orbs [FLAC|Lossless|tracks+.cue] <Ambient>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798300.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drone Corpse Aviator (3:46)
-02. Golden Mouth of Ruin (4:05)
-03. Abandon the Linear (4:36)
-04. Bleed the Future (3:48)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:31:34
+01. Angelpunkt (06:24)
+02. Das Haus Steht Leer (07:07)
+03. Doppelgaenger (08:32)
+04. Flimmerfrequenz (07:12)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98027B16BEFBBB6AF411AB096DBCBF5F0F44B3DD
+magnet:?xt=urn:btih:85C9133688F7863701E239FB6CFBCD9C313251A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203026   (789109) от 31.01.2018
+
+VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nerso  -  Spectral Waves (Original Mix)  6:17
+02.  Sean Tyas  -  People (Extended Mix)  8:07
+03.  Ace Ventura & Ryanosaurus  -  Still Searching (Original Mix)  7:57
+04.  Animato & Pettra  -  Feelings (Original Mix)  7:46(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036985501846AC7F92637E93C1794A2C680FCDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202947   (789110) от 31.01.2018
+
+VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick V - Taste Of Time (Original Mix)
+02. Nikolauss - Star 48 (Original Mix)
+03. Amber Traill - Ibiza Space (Exouler Remix)
+04. Attila Syah - Malang Rain (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18DF9F47933DBB81E27998B20E01BC02A419BE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202976   (789111) от 31.01.2018
+
+VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Schwery  -  Schizophrenia (Original Mix)  7:22
+02.  Michael Lami  -  Machinarium (Original Mix)  4:07
+03.  O$O  -  Utbrudd (Original Mix)  5:03
+04.  Purecloud5  -  It's Not Too Late (Original Mix)  7:37(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415CC40E7B33F36553518E63552A9A49753ACD9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202856   (789112) от 31.01.2018
+
+Marcus Fischer - Loss (2017) 12k [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturna (03:45)
+02. Veering (04:37)
+03. Strand (06:17)
+04. Loss (04:46)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609BBBF711FF6AE0F46CFDD9BD46D8E304CEEBE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202810   (789113) от 31.01.2018
+
+Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Мужчины. Гонка преследования (27.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789113.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 января 2018 года, суббота. 15:00 МСК
+Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
+Мужчины. Гонка преследования 12,5 км
+Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F16482A555283D0FF904BCEB41E132822963F63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202898   (789114) от 31.01.2018
+
+Ю. А. Жуков | Эти семнадцать лет... (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя журналиста-международника, обозревателя газеты «Правда» Юрия Жукова знакомо читателям. Настоящая книга родилась из непосредственных впечатлений автора, побывавшего в разных странах, на разных континентах. В ней во многом нашли отражение гигантские перемены, происшедшие в мире, в политической жизни народов за время от первых послевоенных лет и до наших дней.Жанр: История, политология, журналистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD94F7F38006C5F5A1B2CC7528A70CF7BE473A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202879   (789115) от 31.01.2018
+
+Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Abstract, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 05:00 Hrs (06:52)
+02. A Test For Tapes And Memories (06:02)
+03. Enarso Lipathe (05:23)
+04. Green Fountain (03:32)(   Читать дальше...   )Жанр: Ambient, Field Recording, Abstract, MinimalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9499270D3BF760D93DF27A8F2D8F60C1BD340F8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202822   (789116) от 31.01.2018
+
+Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Towers (12:52)
+02. Varying Distances (03:08)
+03. Twilight Arcade (08:31)
+04. Automata (05:16)(   Читать дальше...   )Жанр: Ambient, MinimalПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF87875573FA94F281CB88D72E50BFE82AF0677
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202830   (789117) от 31.01.2018
+
+Fonica - Ripple (2003) Tomlab [FLAC|Lossless|tracks+.cue] <Abstract, Leftfield, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soar (01:06)
+ 02. Twang (04:13)
+ 03. Whirr (05:58)
+ 04. Perch (05:10)(   Читать дальше...   )Жанр: Abstract, Leftfield, Experimental, AmbientПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D83E742D38CA752E7F8658D23BAC66ECD8FD475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202789   (789118) от 31.01.2018
+
+Лыжные гонки. Кубок мира 17-18. 6-й Этап. Дрезден (Германия). Спринт. Свободный стиль. Финалы (13.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789118.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 января 2018 года, суббота. 14:20 МСК
+6-й Этап Кубока Мира по лыжным гонкам 2017-2018.
+Дрезден (Германия).
+Женщины, Мужчины. Спринт. Свободный стиль. ФиналыТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F401B0360E9E1D4A80952258077A2F857D45FDBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202842   (789119) от 31.01.2018
+
+Jeroen van Rooij - Building Memories (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Building Memories (05:53)
+ 02. Dreams of Legends (04:55)
+ 03. Anxiolytica (04:42)
+ 04. Continuation of Despair (08:19)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EED5848E1586156D02D13A98C17BC848A1CB53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202755   (789120) от 31.01.2018
+
+VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike La Funk - Alive (Extened Mix) (feat. Lyla Bull)
+02. Reggie Steele - Higher (BPM Experience Vocal Mix)
+03. Lesamoor - All You Got To Do (Samy K Remix) (feat. Fat Groovyz Band)
+04. Disk Nation - Kandido (David Grant Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE945A5CB3CFF67D9B38BAF4EA382858FF8E5B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202837   (789121) от 31.01.2018
+
+James Murray - Killing Ghosts (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footsteps (06:55)
+ 02. Grace (05:11)
+ 03. First Hand (07:34)
+ 04. Soldier, Returned (08:12)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109D56E5AFCEB31B28D5716FD5CA2D26669D58AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202899   (789122) от 31.01.2018
+
+Amesha Spenta - Amesha Spenta (2011) audiotrauma [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Industrial, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frantic (02:57)
+02. Void (04:25)
+03. Prognosis (03:35)
+04. Eneagram (05:23)(   Читать дальше...   )Жанр: IDM, Ambient, Industrial, ExperimentalПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7083B5FFC9C83B5E88AC9D3FBAE62A41527F615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496440   (789123) от 20.11.2021
+
+Утраченный символ / The Lost Symbol (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDRezka, DniproFilm
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой профессор Гарварда Роберт Лэнгдон получает приглашение выступить с лекцией в Капитолии. Незадолго до мероприятия он узнает, что его наставника Питера Соломона похитили. Злоумышленники оставили на месте преступления отсеченную руку Соломона. Чтобы спасти друга и остановить глобальный заговор, профессору религиозной символогии предстоит расшифровать «утраченное (   Читать дальше...   )Производство: США / CBS Studios, Imagine Entertainment, Imagine Television, Universal TVЖанр: боевик, триллер, драма, детектив, приключенияРежиссер: Дэн Трахтенберг, Матиас Хендл, Борис МойсовскиАктеры: Эшли Цукерман, Эдди Иззард, Вэлори Керри, Сумали Монтано, Рауль Банеджа, Бо Напп,, Рик Гонсалес, Кинэн Джолифф, Сэмми Ротиби, Лаура ДеКартереПеревод: Многоголосый профессиональный (HDRezka Studio, DniproFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced), украинские (Forced), английскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FD88A5C1C5D9B470FEAABDDA449D7A6E54414B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599017   (789124) от 20.11.2021
+
+Звездные Врата: Полная коллекция / Stargate: Full collection (1994-2008) BDRip (от LostFilm)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрыта прежде неизвестная цель "Шеврона 9", команда попадает на корабль древних, называемый "Судьба", построенный миллионы лет назад для распространения звездных врат по галактике. Команда, возглавляемая доктором Николасом Рашем и полковником Эверетом Янгом, оказывается в ловушке на корабле древних, потому что они не могут изменить запрограммированный (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Микита и др.Актеры: Роберт Карлайл Луис Феррейра Дэвид Блу Брайан Смит Джамил Уолкер Смит Элейна Хаффман Элиз ЛевекПеревод: Многоголосый закадровый -Формат: AVIПродолжительность: 40 серий по ~00:43:00 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1378F705F3C81FC785BAA143D9C5B976BA10E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508383   (789125) от 20.11.2021
+
+Аркейн / Arcane: League of Legends (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) Iyuno-SDI Group
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал основан на видеоигре League of Legends.
+История разворачивается в утопическом краю Пилтовере и жестоком подземном мире Зауне и рассказывает о становлении двух легендарных чемпионов Лиги и о той силе, что разведёт их по разные стороны баррикад.Производство: США / Fortiche Production, Riot GamesЖанр: мультфильм, фантастика, фэнтези, боевик, драмаРежиссер: Паскаль Шаррю, Жером Комбе, Арно ДелордПеревод: Дублированный (Iyuno-SDI Group)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FC7025503C61E0BC5F982E29F7C8097AC8BF86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511164   (789126) от 20.11.2021
+
+Windows 10 Pro 21H2 19044.1348 x64 ru by SanLex [Ru] (2021.11.19)
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Windows_10_Pro_consumer_editions_21h2_Russian_x64 "розничного клиента" - для более приватного и комфортного пользования. Отключены или удалены нежелательные службы сбора телеметрических данных, рекламные модули и всё, что влияет на приватность и дискомфорт (в пределах возможного) + оптимизировано для игровой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E38905E3FFF7905FD8DCDFB6954F03E3CD6BAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509840   (789127) от 20.11.2021
+
+Microsoft® Windows® 11 Professional VL x64 21H2 RU by OVGorskiy 11.2021
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789127.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новой версии операционной системы Windows 11 Pro VL x64 от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", гаджеты для рабочего (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46098BC73A265AD9867E8A7293F5765D9C811DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502961   (789128) от 20.11.2021
+
+Во все тяжкие / Breaking Bad (2008-2013) WEBRip [H.264/1080p-LQ] (сезон 1-5, серии 1-62 из 62) Пучков
+
+>>След.
+>>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался «варкой мета», но накануне, (   Читать дальше...   )Производство: США / High Bridge Productions, Gran Via Productions, Sony Pictures TelevisionЖанр: триллер, драма, криминалРежиссер: Мишель МакЛарен, Адам Бернштейн, Винс ГиллиганАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митти, Боб Оденкёрк, Джанкарло Эспозито, Джонатан Бэнкс, Стивен Майкл Квезада и др.Перевод: Одноголосый авторский (Пучков)Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9057121C7E9BD255FA0CB736AB886A9E58A77676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453659   (789129) от 20.11.2021
+
+Пила 3Д / Saw 3D (2010) BDRip [H.264] [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жертвы Пилы, выжившие в предыдущих испытаниях, обращаются за психологической помощью к товарищу по несчастью Бобби Дагену. Но когда его собственные темные тайны всплывают на свет, развязывается новая волна террора.Производство: США / A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: ужасы, триллер, детектив, криминалРежиссер: Кевин ГротертАктеры: Костас Мэндилор, Шон Патрик Флэнери, Тобин Белл, Кэри Элвес, Бетси Расселл, Дин Армстронг, Чэд Донелла, Джина Холден, Лоуренс Энтони, Наоми Сникус и др.Перевод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E373D7AF13C464AA42953754860970C747B97D92
 ```
 
 

@@ -1,3 +1,162 @@
+###  Публикация: 1368279   (909101) от 20.03.2020
+
+VA - Electronic Fantasy Box (2020) [MP3|320 Kbps] <Electronic, Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909101.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tourist - Wild
+002. Alogique - Clockwork
+003. Dj Oil - Addis
+004. Boss Axis - Goliath(   Читать дальше...   )Жанр: Electronic, SyntheticПродолжительность: 12:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5174FB27A12FCC132F9A146B0F00E6E9B8D13D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368358   (909197) от 20.03.2020
+
+El Mental - Средневековая Дичь (Compilation) (2020) [MP3|~245 Kbps (V0)] <National Neo Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fort Boyard [00:02:40]
+02 Happy New Year ( Abba Cover) [00:01:59]
+03 Teardrop ( Massive Attack Folk Cover) [00:01:15]
+04 Валькирия [00:02:53](   Читать дальше...   )Жанр: National Neo FolkПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DAF08B880A2B21856B7CD3FE53F66D0DF66481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368421   (909203) от 20.03.2020
+
+VA - Rock Against Coronavirus (RAC) (Compilation) (2020) [MP3|~245 Kbps (V0)] <Metalcore, Electronic, Rapcore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dog Pound - С Меня Хватит [00:03:27]
+02 Facer - Добро пожаловать в ад [00:02:49]
+03 Mjоd - Мелодия Смерти [00:03:24]
+04 R1a1 & Лера Славная - Новый рассвет [00:02:56](   Читать дальше...   )Жанр: Metalcore, Electronic, RapcoreПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAF810F0D8AF2BD0AB47A47F8E3D91FF9977473
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368280   (909235) от 20.03.2020
+
+VA - Beatport Goa Trance: Electro Sound Pack #31 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909235.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atacama - Outer Rim
+002. Owntrip - Soul Memory
+003. Conwerter - Ancient Knowledge
+004. Djcybertsai - Journey Inward(   Читать дальше...   )Жанр: Psychedelic, Goa Trance, ElectroПродолжительность: 11:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8C42583EEA64B04596AF44A2B36621AE599BB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635428   (909441) от 26.03.2013
+
+VA - Now Thats What I Call Music 84 (2CD) (2013) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii & Nicky Romero - I Could Be the One (Nicktim Radio Edit)Жанр: Pop, DanceПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FBDB38C1B2ABAE8BEFB14951E9742E3151532E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990604   (909596) от 26.02.2016
+
+VA - Заводной музон в дальнюю дорогу 2 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S E V E R - С Тобой Или Одному (One Love) 03:36
+02. Selena Gomez ft Fetty Wap - Same Old Love 03:25
+03. Мохито - Слезы Солнца 03:24
+04. Jakwob Feat. Rationale - No Place Like Home 03:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F85F29A3132BD3BE2F7F6A3DE0E367B2048072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990587   (909642) от 26.02.2016
 
 VA - Autumn Blues: Rock Version (2016) [MP3|320 кб/с] <Rock Blues>
@@ -530,168 +689,6 @@ VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098091   (910918) от 29.01.2017
-
-VA - Музыкальное потрясение зимы на Русском радио выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910918.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. M.A.R.S Sounds - Как В  Первый Раз 2:53
-002. Ирма Нойман - Я Буду 2:51
-003. Доминика Feat. Suncreepers - Океаны 3:04
-004. Митя Фомин Feat. Fomka - Мобилка 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D827EBBEF0ED734687DD820BD111AA5107AB3E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758812   (910942) от 20.02.2014
-
-VA - Lounge At The Seashore 5 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910942.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. For Found Future - Hypnotic Dreams
-002. Spacediver - Rainbow Colours
-003. Lana Del Rey - Summertime Sadness
-004. Laid Back - Rocketship To Mars(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB940620AD924644087ACECCF15A48BAEAC61F34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098231   (910991) от 29.01.2017
-
-VA - Empire Records - Club Hit 7 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spada & Elen Levon - Cool Enough (Extended Mix)
-02. Blondee & Marc Werner ft. Fabienne Rothe - Wonderful Days
-03. Andy B. Jones & Matty Menck Feat. Ela - World To Life (Matty Menck Remix)
-04. Robert Kofler - Dream Path (Radio Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698D30DC12421F6957F4BBF0E3EAE4D8BB0C6CB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098212   (910994) от 29.01.2017
-
-VA - Empire Records - Dancenudisco 6 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodybangers - SUNGLASSES At Night (Extended Mix)
-02. Fontaine Ivory - California Dreamin
-03. Tuff City Kids - Labyrinth (Original Mix)
-04. Schiller feat. Heppner - Dream Of You (Filatov & Karas Extended Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFCE0C68C749CAE11031604B4731AB1D66C2117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634731   (911095) от 25.03.2013
-
-VA - The Official UK Top 40 Singles Chart (24-03-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard Hot 100.
-Существует и «братский» хит-парад альбомов — UK Albums Chart.
-Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E518443CA0E6564D0E4AA750B36B44D5110891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990240   (911428) от 25.02.2016
-
-VA - Лучшие хиты дискотек. 50/50 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 30.02 - Я Верю
-002. Flo Rida - My House
-003. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
-004. Lawson - We Are Kings(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A7023E8DFB21A4965ECFFB28DF3BBA3E70CE3F
 ```
 
 

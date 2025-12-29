@@ -1,3 +1,81 @@
+###  Публикация: 1498981   (851019) от 30.09.2021
+
+Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Wave, Alternative Rock, Post-Punk
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110767   (851754) от 03.03.2017
+
+Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851754.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Walking Back To Me (3:43)
+A2. Your Love Is All (4:10)
+A3. Stop (4:56)
+A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Производство: A&M Records - 395 195-1Жанр: RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001585   (852186) от 29.03.2016
+
+VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald - A Tisket, A Tasket
+02. Ella Fitzgerald - Undecided
+03. Ella Fitzgerald - Flying Home
+04. Ella Fitzgerald - Smooth Sailing(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110192   (853604) от 02.03.2017
 
 Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vinyl-Rip] <Rock>
@@ -623,89 +701,6 @@ B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104385   (879773) от 15.02.2017
-
-Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip] <Jazz, Easy listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is A Tramp With Luther Vandross (3:24)
-02. What Now, My Love? With Aretha Franklin (3:15)
-03. I've Got A Crush On You With Barbra Streisand (3:25)
-04. Summer Wind With Julio Iglesias (2:32)(   Читать дальше...   )Жанр: Jazz, Easy listeningПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104616   (879781) от 15.02.2017
-
-Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что говорят о Бет Харт (Beth Hart)? Да всякое, (особенно критики-женщины старались), но все сходились в одном - такое бешеной энергетики, невероятной страстности при абсолютной естественности, такой феноменальной рок-блюз певицы не помнят уже давно.
-
-Бет Харт (Beth Hart) родилась в Лос-Анджелесе в 1972 году. Игре на фоно научилась очень рано, бросила играть классику (   Читать дальше...   )A1. Might As Well Smile 4:01
-A2. Tell 'Em To Hold On 4:24
-A3. Tell Her You Belong To Me 5:56
-A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104307   (879940) от 15.02.2017
-
-VA - RETROспектива, часть XI: Эстрадные оркестры XI (1934-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный септет п.у. П. Моруа - Чику-Чику Но Фуба (румба-фокстрот)
-02. Симф. оркестр ВР п.у. А. И. Орлова - Полонез (танец)
-03. Оркестр БДТ п.у. К. П. Кондрашина - Мазурка (танец из оперы С. Монюшко ''Галька'')
-04. Инстр. квартет п.у. Б. Тихонова - Русский перепляс (танец)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A86471AA2E43AAD43C0436559FE39120740400
 ```
 
 

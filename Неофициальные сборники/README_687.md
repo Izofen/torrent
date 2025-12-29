@@ -1,3 +1,165 @@
+###  Публикация: 1606486   (1044382) от 22.01.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 20.01.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+02. Inna feat. Melon & Dance Fruits Music - Hello Hello (2:43)
+03. Gayle & Blackbear - Fmk (3:09)
+04. Alok feat. Sigala & Ellie Goulding - All By Myself (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6939BBA25519BAF7BD3B7B0F29AC033282348B14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606090   (1044593) от 20.01.2023
+
+VA - Music News vol.239 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044593.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alina Eremia - Burning Red (02:30)
+ 002. A.V.G - Один (01:45)
+ 003. A.V.G - Она Кайф (02:44)
+ 004. A.V.G feat. Tatar - Ножевой (01:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BC58153490FF4F9CE7339F3E6D5FE846254DEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605747   (1044664) от 19.01.2023
+
+VA - Ностальгия 7 NNM-Remix (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ляпис Трубецкой - Яблони (Ayur Tsyrenov Extended Remix) (6:10)
+02. Света - А Ты Не Мой (Andy Light & DJ ModerNator Work-Up) (5:54)
+03. Полина Ростова - Несчастливая (MY Remix) (5:50)
+04. Татьяна Овсиенко - Я Буду Лететь За Тобой (Maxim Andreev Nu Disco Mix) (5:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD458B4B3111A13AAE060A4507B2FE0B56D3829
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605801   (1044736) от 19.01.2023
+
+VA - The Jazz Inspiration (2023) [MP3|320 Kbps] <Jazz, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Joris - Eventide [01:20]
+002. Lucy Yeghiazaryan - Love Isn't Everything [01:21]
+003. S.W. - Mr. Sanders [01:24]
+004. The Sorcerers - End Credits [01:46](   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 09:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50850214394EF7E3B89E2971C8215D9A030A60BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605571   (1044820) от 18.01.2023
+
+Sarah Connor - Compilation (2023) [MP3|320 Kbps] <Pop, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatcha Wearing? (Interlude)
+02. Bounce
+03. Cold as Ice
+04. French Kissing (Radio Edit)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 03:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BDD1F00BF04B84BC13FA1972E95DDC55A3E75D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601269   (1044910) от 17.01.2023
+
+VA - В машине с музыкой Vol.326 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Гребенщиков  - Кораблекрушение (03:46)
+02. Birdy - Wings (Radio Edit) (03:49)
+03. Руслан Алехно  - А Мы Будем Счастливыми (03:05)
+04. Calvin Harris & Dua Lipa - One Kiss (R3hab Remix) (03:11)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B13F9FE8F7474A9FB25E7A995D0BEA73684071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604464   (1044924) от 17.01.2023
 
 VA - Музыка для машины Vol.2 (2022-2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -533,168 +695,6 @@ VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A976EAAC31803F8C3D61473D653842BFA04B399
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602851   (1045909) от 07.01.2023
-
-VA - German Top 100 Single Charts 06.01.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta & Bebe Rexha - I'm Good (Blue) (2:55)
-002. Peter Fox - Zukunft Pink (feat. Inez) (3:50)
-003. Nina Chuba - Wildberry Lillet (2:11)
-004. Sam Smith & Kim Petras - Unholy (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F531E14233EC355BC0BE22AADC3703A2E6DD5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601973   (1045995) от 06.01.2023
-
-VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bb Chung King & the Buddaheads - Still the Rain
-02. Bb Chung King & the Buddaheads - Hear it From You
-03. Bleu Jackson - Some Never Learn
-04. The Buddaheads - Big Time Baby(   Читать дальше...   )Жанр: Blues & RockПродолжительность: 02:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77403EBBEEC2B079A90E3A6A9B3AD8BDD9B7D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601290   (1046323) от 02.01.2023
-
-Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hole in My Soul
-02. I'll Be the One
-03. My Oh My
-04. Pressure Under Fire(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144118943C4C4F825BD296639DADE54C234DE032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839418   (1046666) от 30.11.2025
-
-Валерий Кипелов - Voice Of Rock - Compilation (1985-2024) [MP3|320 Kbps] <Heavy metal, Hard rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жить Вопреки ❂ Жить Вопреки 2011
-02. Вавилон ❂ Вавилон EP 2004
-03. Тореро ❂ Путь Наверх Live 2003
-04. Огненная Дуга ❂ Часы Судного Дня EP 2021(   Читать дальше...   )Жанр: Heavy metal, Hard rockПродолжительность: 10:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451024278C6593B5FFA516A5D9DB67650EA874D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839600   (1046719) от 29.11.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 28.11.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HUNTRX, EJAE, AUDREY NUNA, Rei Ami, KPop Demon Hunters Cast - Golden (3:14)
-02. Ravyn Lenae - Love Me Not (3:33)
-03. Sombr - 12 to 12 (4:03)
-04. Sabrina Carpenter - Tears (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB21FB8104F840561A8184670FACCC9A84F0D1E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839842   (1046746) от 01.12.2025
-
-VA - Pop Radiomania (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Lion's - 1M80 Minimum (02:58)
- 002. Niexshadow - All I Got Was Goodbye (02:21)
- 003. Kimbai - Contre Moi (02:38)
- 004. Ren Avisse - Hot Tea (02:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F3B91085863E96BD3BFA98431328602F475757
 ```
 
 

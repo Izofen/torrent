@@ -1,3 +1,165 @@
+###  Публикация: 1017957   (759274) от 18.05.2016
+
+VA - Созвездие весеннее - 7 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ladyhawke - A Love Song
+002. The Jigits - В Эту Ночь
+003. Shakira - Try Everything
+004. Артем Пивоваров - Стихия(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D433EBD7BED32F59B92E57F4B94DFD71CE4FB1BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018022   (759285) от 18.05.2016
+
+VA - Pure Deep Sexy (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miki Leris - Test My Lemonade
+02. Helly Larson - Plastic Dreams
+03. Rochelle Vincente Von K - One Starry Night - Deneha's Full Moon Remix
+04. Cosmic Beets - Tsaka(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BFFACA611B49ED0BE088503A341B5365773906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215165   (759463) от 25.03.2018
+
+VA - Перфоратор: Сборник Русского Рока (2018) [MP3|320 Kbps] <Рок, Альтернатива>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Северный Флот  -  Революция на вылет  4:10
+002.  Вячеслав Бутусов  -  Бедная птица  4:06
+003.  Северный флот  -  Время любить  4:15
+004.  Аквариум  -  Двери травы  3:13(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC3213D6C4E5C90890D3F70F69E0F6684B4673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215317   (759609) от 25.03.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759609.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK121 Joe Satriani - Summer Song
+122 Ozzy Osbourne - Zombie Stomp
+123 3 Doors Down - Kryptonite
+124 Aerosmith - Cryin'(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720D2FDCE4D5680B006C6DF1AA2015ECDD21797B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215154   (759611) от 25.03.2018
+
+VA - Rap Trap Nation Play (2018) [MP3|320 Kbps] <Rap, Trap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Lewis - Clockwise (feat. Nick Row)
+02. Carnage & Lil Pump - i SHYNE
+03. Keys N Krates - My Night (feat. 070 Shake)
+04. Getter x Ghostemane - Beware, the Sirens(   Читать дальше...   )Жанр: Rap, TrapПродолжительность: 00:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35C3DAB5FA8E03DBABCE25A81B91416DE48CE15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215125   (759624) от 25.03.2018
+
+VA - Rock Blues And Thousands Of Colors (2018) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759624.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Imany  -  I Long For You  3:18
+002.  Barry Goudreau's Engine Room  -  Need  3:54
+003.  Kenny Wayne Shepherd  -  How Low Can You Go  3:00
+004.  Rosedale  -  Man, I Don't Want You Around  3:00(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5602AFDFB8337896160C14C9CD24390E384F8854
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215148   (759722) от 25.03.2018
 
 VA - Record Super Chart #529 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -530,168 +692,6 @@ VA - Beatport Tech House: Sound Pack #390 (2021) [MP3|320 Kbps] <Tech House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:784D4A13EF909A35608652FBE7FF6021D79E309E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522077   (760354) от 06.01.2022
-
-Ysa Ferrer - Compilation (2019) [MP3|320 Kbps] <Pop, Pop-rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tant qu'on s'aime
-02. Les Yeux Dans Les Yeux
-03. Imaginaire Pur
-04. Made In Japan(   Читать дальше...   )Жанр: Pop, Pop-rockПродолжительность: 01:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049B85E12781E9D750B7D8D8680BB0F52499D30F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522171   (760358) от 06.01.2022
-
-VA - The Techno Streaming Sound (Vol.1) (2021) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непредсказуемый музыкальный стиль! Все композиции сборника электронной музыки "The Techno Streaming Sound" характеризуются синтезом коротких и длительных периодов, неожиданным замедлением и ускорением ритма. Еще занятнее посмотреть танцы исполняемые под музыку этого стиля, это ритм и энергетика переданная языком движений. Такие выступления запоминаются (   Читать дальше...   )001. Donato Dozzy - Wooden Dolls Don't Cry
-002. Gonzalo Md - Valkyr Uv
-003. Astronomical Telegram - Ahora Ii
-004. Psyko Punkz - Embody Love(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 10:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADC9F4DE4399EF00B7997CA2407A36C9FA4F2AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522159   (760360) от 06.01.2022
-
-VA - Beatport Electro House: Sound Pack #391 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 391-й музыкальный релиз от Beatport в стиле Electro House вошло большое число прекрасных замыслов, которые в лучшем виде добрались до слушателя. Композиции, составляющие танцевальный сборник, занимательны и чрезвычайно легки для слуха. Каждый на релизе отыщет ту самую запоминающуюся мелодию что будет крутиться в голове творя отличное настроение.001. Croatia Squad - Drop That Skirt
-002. Gabriel Pinheiro - Different Now
-003. Ronnie Spiteri - Demons
-004. Alban Berisha - Mirage(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640AE275E15B154E450F21EE2006C9A2B9297C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394883   (760387) от 07.07.2020
-
-VA - Music News vol.26 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760387.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ARi & Sam Vii - Под Шашлычок (03:48)
- 002. 6ix9ine - YAYA (02:30)
- 003. Alanis Morissette feat. Elizabeth Stanley & Original Broadway Cast Of Jagged Little Pill - Smiling (03:52)
- 004. Alessandro Casillo - Russian Roulette (02:05)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CB81B5683FD90BA7C66A3E2D3E738CD0BB0E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394823   (760393) от 07.07.2020
-
-VA - Beatport Deep House: Electro Sound Pack #123 (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Edvard Hunger - Warning Of Dance
-002. Jack Trump - Trumpet And Sax
-003. Kosta - Deep Down
-004. Deep Massive - Minor Swing(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF51E962A4CFF5D918018A8BF7FB01E60442F3B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280576   (760421) от 03.02.2019
-
-VA - Trance Collection Vol.75 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
-02. Gayax & Calvin O'Commor - Only The Beginning (Extended Mix) 7:03
-03. Misja Helsloot - Let's Get Back (Original Mix) 5:23
-04. Binary Finary - 1998 (20th Anniversary Extended Remix) 7:19(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 09:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4C76CCE0EEB8382D5C393DEA095303AECA5523
 ```
 
 

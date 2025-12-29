@@ -1,3 +1,57 @@
+###  Публикация: 1030414   (674568) от 30.06.2016
+
+VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
+02. Joan Osborne - Saint Teresa
+03. Elton John - I Guess That's What They Call It The Blues
+04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136495   (674623) от 22.05.2017
+
+Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Amor (3:20)
+2. Nathalie (3:54)
+3. Pobre Diablo (2:54)
+4. To All The Girls I've Loved Before (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536537   (674806) от 12.03.2022
 
 VA - Disco Dance (2022) [MP3|320 Kbps] <Disco, Funk, Soul>
@@ -644,60 +698,6 @@ VA - Comes The Fall - Adult Casual Vocals (2018) [MP3|320 Kbps] <Pop, Dance, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A0D82EB7E1EEC0BE0FEB28FF06A119DFD38D0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135700   (678575) от 20.05.2017
-
-VA - Dieter Bohlen Die Megahits (2017) Premium Edition 3CD  [MP3|320 Kbps] <Eurodance, Europop, Eurodisco>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Modern Talking - You're My Heart, You're My Soul (Mix '84) 3:23
-02.  Chris Norman - Midnight Lady 4:10
-03.  Deutschland Sucht Den Superstar - We Have a Dream (Radio Edit) 3:58
-04.  Alexander Klaws - Take Me Tonight (Radio Edit) 4:01(   Читать дальше...   )Жанр: Eurodance, Europop, EurodiscoПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C9EBF98583ED850F69EEF22368F220B77AB860
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290393   (679833) от 19.03.2019
-
-Arabesque - The Best - Легенды Дискотек 80-х (2006) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friday Night
-02. City Cats
-03. Hello, Mr. Monkey
-04. In The Heat Of Disco Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BC7C7B5120DD3DD9E89F3EBB197772BB43C8E7
 ```
 
 

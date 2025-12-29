@@ -1,3 +1,218 @@
+###  Публикация: 1287647   (701207) от 08.03.2019
+
+Worakls - Orchestra (2019) [MP3|320 Kbps] <Electro, Techno, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikki (05:31)
+02. By The Brook (06:53)
+03. Caprice (05:11)
+04. Entrudo (06:04)(   Читать дальше...   )Жанр: Electro, Techno, HouseПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9C8C55CE2C196317702A80E1DA3AD84727A933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132425   (701242) от 09.05.2017
+
+VA - The New Chill & Lounge Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  McEndoz - Sea  4:33
+02.  Deep Emos - One Ness  5:57
+03.  Kabala Cafe - Margarita  4:20
+04.  St Project - Blue Sky  4:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D24A27AE4F23C91DA0DA0F5FCBF314A827D034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026597   (702308) от 16.06.2016
+
+VA - Floating Spirals III (Compiled by E-Mantra) (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauge & Baba Gnohm - Rejsen (10:48)
+02. Suduaya & E-Mantra - Nerida (07:14)
+03. Cosmic Replicant - Drop Sens (07:30)
+04. CJ Catalizer - The 10th Surface (10:14)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021354153E667521950311B3181F020FA1185D16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026699   (702311) от 16.06.2016
+
+VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Caster - Change (feat Leo)
+02. Juloboy & Toly Braun - I Remember
+03. Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria remix)
+04. Nora En Pure - U Got My Body (Return Of The Jaded remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50D464B15B0D97CD03082AC3B3755D14917E1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220607   (702447) от 20.04.2018
+
+KUBA - Animalia (2018) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Broken Beat, Dub, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain In The Face (05:09)
+ 02. Whatever It Takes (05:56)
+ 03. By The Foot Of Your Mountain (06:19)
+ 04. The Woman Who Made The Rain Come (05:39)(   Читать дальше...   )Жанр: Downtempo, Broken Beat, Dub, Psychill, AmbientПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D0E80E9C8E4769D561B9C22A7CA7C99BC62111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220612   (702458) от 20.04.2018
+
+Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osmosis I (04:17)
+ 02. Osmosis II (07:58)
+ 03. Osmosis III (06:28)
+ 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220606   (702552) от 20.04.2018
+
+Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Reactor (06:24)
+ 02. Starsa (06:46)
+ 03. Waterfall (06:13)
+ 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220665   (702553) от 20.04.2018
+
+Marfen - Around The Garden (2018) [MP3|320 Kbps] <Electronic, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Iris (07:01)
+2. Lilac (06:30)
+3. Rio (06:34)Жанр: Electronic, Progressive HouseПродолжительность: 00:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D78616EE6480CC7A43E01CFDD5FBC1AAD55E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132386   (702818) от 08.05.2017
 
 VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
@@ -480,223 +695,6 @@ VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B86045C422D5F22F947FCB327E10F7D230E6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220538   (704507) от 19.04.2018
-
-VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pen T. - Feel Me
-02. Page Two - Deeper
-03. Qamil Stello - Ring My Bell
-04. Phatt - Donter(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0342340E582C6B9CA4DD6E55714786A2CB0069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220541   (704509) от 19.04.2018
-
-VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proluction - Back To You (Original Mix)
-02. Kucki - Dream On (Original Mix)
-03. myni8hte - Paths We Walked (Original Mix)
-04. HyperPhysics - Moonrise (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F6B88DFAE289C48BCCC69D04F8E13A89C58C9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220362   (704511) от 19.04.2018
-
-VA - Recoverworld Radio 019 (Mixed by Para X) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. feat. Elyse G. Rogers – Strong Enough (Para X Remix)
-02. KoRay – I Feel Love (Original Mix)
-03. Sly One vs. Jurrane – Everything to Me (Opt-In Remix)
-04. The Avains – Infestation (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3415A19A36125444E6A8C860BE611DB12B44B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131919   (704593) от 07.05.2017
-
-Sexy Suicide - Intruder (2016) [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально группа называлась "Neon Romance", и была основана весной 2014-го года в Сосновце. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя несколько месяцев к группе присоединяется Марика Томчик, которая становится официальной вокалисткой.
-В течение некоторого времени ребята трудились над своим (   Читать дальше...   )01. Kiss of Winter
-02. Shame of Device
-03. Diary of Moon
-04. Afterlife(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202E3A224C406F1FFB42559E3F409A403CA2338E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287335   (704693) от 06.03.2019
-
-Didier Marouani & Space - Legend (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: SynthpopПродолжительность: 05:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D034CF5DBCB58C459742049F27D59FF6B50E16D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287309   (705069) от 06.03.2019
-
-Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287086   (705203) от 06.03.2019
-
-Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Never Undo (3:45)
- 02/10. Blaze Away (featuring Roots Manuva) (4:04)
- 03/10. Love Dub (3:49)
- 04/10. It's Summertime (3:39)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE44CA123AED2894787036C19E0CFA819073627
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999662   (705206) от 06.03.2019
-
-Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Shades (08:01)
- 02. Outside Is Light (07:42)
- 03. Vocation In Motion (07:02)
- 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
 ```
 
 

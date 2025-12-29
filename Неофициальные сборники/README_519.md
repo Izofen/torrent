@@ -1,3 +1,162 @@
+###  Публикация: 1201601   (791982) от 25.01.2018
+
+Boris Brejcha - Best of (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Minimal, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Gum [8:56]
+02. Welcome Stranger [9:07]
+03. Monster In The Box [7:15]
+04. Die Lustgrotte [7:07](   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 05:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D503535E1A898E96E57770EB87CBEDF7B21F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201687   (791986) от 25.01.2018
+
+VA - Музыка, с которой мы выросли (зарубежная). Выпуск 2 (1969-1993) [MP3|320 Kbps] <Rock, pop, disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - It Came Out Of The Sky (1969) 02:57
+02. Creedence Clearwater Revival - Travelin' Band (1970) 02:11
+03. Led Zeppelin - Bron-Y-Aur Stomp (1970) 04:18
+04. The Sweet - Santa Monica Sunshine (1971) 03:28(   Читать дальше...   )Жанр: Rock, pop, discoПродолжительность: 06:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634F21A7B6C0BF3910842B2F3465BA656030A69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201680   (791989) от 25.01.2018
+
+VA - German Top 100 Single Charts 26.01.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Camila Cabello - Havana (feat. Young Thug)
+004. Eminem - River (feat. Ed Sheeran)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CB71F8CF77A1429D14310B8B004FA2F0DB9C40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274653   (792005) от 08.01.2019
+
+Виктор Павлик - Город Зеленого Цвета (2019) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Город Зеленого Цвета - Виктор Павлик (Ivan ART Extended Remix)Жанр: Club, DanceПродолжительность: 00:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AAC9247F6B033315417736092568CBBE5C0BE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274793   (792073) от 08.01.2019
+
+Daft Punk - This Is Daft Punk (2019) [MP3|320 Kbps] <Electronic, Pop, Disco, Funk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 One More Time
+02 Get Lucky (Feat. Pharrell Williams, Nile Rodgers)
+03 Harder, Better, Faster, Stronger
+04 Instant Crush (Feat. Julian Casablancas)(   Читать дальше...   )Жанр: Electronic, Pop, Disco, FunkПродолжительность: 02:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524A7E939344440B3F6AAE2DA85D6A65598183E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201506   (792108) от 25.01.2018
+
+VA - Reverse Time: New Age Compilation (2018) [MP3|256-320 Kbps] <New Age, Ambient, Electro>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Molly Valentine - Narzista
+002. Jill Garcia - Tiny Life
+003. Arjen Schat - Snurks
+004. Andrew Kinsella - Healing Waters(   Читать дальше...   )Жанр: New Age, Ambient, ElectroПродолжительность: 13:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EB5BCBC1B2C244D3B5B860AC54AD46CCAE78DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274736   (792117) от 08.01.2019
 
 VA - 50 Best of Rock 2018 (2019) [MP3|320 Kbps] <Rock>
@@ -536,168 +695,6 @@ VA - Beatport Trance  Pack (07.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7AC76FA654F9FF2A8994A95027DAE3354FDBDF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387004   (792581) от 31.05.2020
-
-VA - Record Super Chart 638 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-02. El Capon - Shut Up Chicken 2:31
-03. Topic & A7S - Breaking Me 2:47
-04. Little Big - Hypnodancer 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF5FCA38F088F81A559CE62EDAB95A5E14FC4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201328   (792656) от 24.01.2018
-
-VA - Deep House Collection Vol.154 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Monkeyzz feat. Louise Mambell - Ghost (Original Mix) 3:50
-02. Abriviatura IV - Bringing Me Down (Original Mix) 5:17
-03. Adisyn - Digital Heart (Original Mix) 7:02
-04. Alan Junior - Train Of Love (Original Mix) 5:41(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27239ACB8CD0D63E544F577D992D4BF4C2EA266E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201281   (792666) от 24.01.2018
-
-VA - Empire Records. Enigma Alive vol.2 (2018) [MP3|320 Kbps] <New age, Enigmatic, Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aithra - Shadow Play
-02. Narcotic Chill - On The Last
-03. Ryan Farish - Walk With You
-04. Alexey Medvedev - Sentir el Color(   Читать дальше...   )Жанр: New age, Enigmatic, FolkПродолжительность: 03:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3823DE2B4C743FA5BC86908872D553A6105E509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274448   (792734) от 07.01.2019
-
-VA - Deep House Collection Vol.195 (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792734.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Airia - Firefly (Original Mix)
-002. Al L Bo - Supernow  (Kastomarin Mix)
-003. Alex Spite - Forget Tonight (Original Mix)
-004. A-Mase, Sharliz - My Love  (A-Mase Ocean Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 14:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B14394BE8FA884DBBE2748C4A636501EE83F5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201275   (792868) от 24.01.2018
-
-VA - Eurodance (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  B.G. The Prince Of Rap  -  Never Give Up (B.M. Project Eurodance Remix) (feat. Timi Kullai & Chrizz Morisson)  4:26
-02.  Latisha Van Simon  -  Let's Make Love (Mumdy Dance Remix)  4:21
-03.  89Ers  -  Blue (Club Radio Edit)  3:27
-04.  Advisory  -  Everynight (DJ Albyno 'S Mix)  5:15(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5161C18605DA2E32A2DC338043E8931318BAC2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201426   (792873) от 24.01.2018
-
-VA - Night Air: Funk Disco Set (2018) [MP3|320 Kbps] <Soul, Funk, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Erykah Badu  -  On And On  3:45
-002.  Marvin Gaye  -  What's Going On  3:55
-003.  Brian Mcknight  -  Anytime  3:52
-004.  Soul Ii Soul feat. Caron Wheeler  -  Keep On Movin'  3:37(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 06:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD8C9A09447F57D4455D9A6A0D0D2BBA7142A0D
 ```
 
 

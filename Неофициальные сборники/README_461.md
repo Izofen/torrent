@@ -1,3 +1,165 @@
+###  Публикация: 1023292   (726629) от 04.06.2016
+
+VA - Alterportal HITS 16 Vol. 92 - April (2016) [MP3|248-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devour the Day - The Bottom
+02. Everything In Slow Motion - I Am Laid Low
+03. Saliva - Tragic Kind Of Love
+04. Tremonti - Unable to See(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8949B67E3C22F9F35E5DBF158415A56EAA4DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530921   (726656) от 13.02.2022
+
+VA - Beautiful Interior Lounge Sounds (2022) [MP3|320 Kbps] <Lounge, Downtempo, Relax, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунж музыка вобрала в себя музыкальные оттенки различных стран и городов мира, лаунж лучше всего передает атмосферу и уютно-меланхолическое настроение нашей планеты. В связи с такой его космополитичностью, многие лаунж-композиции включают в себя инструменты и характерные особенности разных народов мира. Этот стиль можно назвать роскошным и в большой мере комфортным.001. Melania - Resta Cu' Mme
+002. Thunderball - The Moon, The Sky
+003. Johannes Huppertz - By The Way
+004. Thievery Corporation - 2001 Spliff Odyssey(   Читать дальше...   )Жанр: Lounge, Downtempo, Relax, ChilloutПродолжительность: 08:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B432B443999A710D431DC9A4DFC1FB5FAF9681B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023148   (726674) от 04.06.2016
+
+VA - Мы с тобой (2016) [MP3|256 кб/с] <Chanson, Pop>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726674.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Кондрат — Мы с тобой
+002. Абкадиров Руслан — Не расстанемся
+003. DJ Slon и Katya — Ай диги дай
+004. Гревцев Дмитрий — В моей душе зима(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044FB82BDC8AD192FFC00FABCC7E1AC0D1CFDC55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022966   (726683) от 04.06.2016
+
+VA - Молодежная клубная тусовка (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isaak Thurber - Overdrive (Original Mix)
+02. House Native - Whe the Wife's Away - Club Mix
+03. Khrebto - Mad Citizens (Extended Mix)
+04. Jane Vogue & Steve Cypress - Paris Latino (Jane Vogue Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CCDCA3C874B16A98C8A010EBEF89F12687B7DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022658   (726857) от 03.06.2016
+
+VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 33 ) (2016) [MP3|256-320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thomas Anders - You're My Heart, You're My Soul (New Hit Version) (03:28)
+02 Chilly - We Are The Popkings (DMC Mikael Remix) (04:49)
+03 Gazebo - I Like Chopin (DM Remix) (05:06)
+04 Groove Addiction - Live Is Life (Phill Kay Remix) (05:23)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A51BBDC870B8284704B396E4F7F6EBE4E01E192
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128517   (727066) от 25.04.2017
+
+VA - Русские Хиты. The Best Russian Ballads 250 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727066.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Баста - Выпускной (Медлячок)  5:35
+002.  Наргиз feat. Максим Фадеев - Вдвоём  3:33
+003.  Григорий Лепс - Я Поднимаю Руки  3:52
+004.  Ани Лорак - Просто Скажи  3:52(   Читать дальше...   )Жанр: PopПродолжительность: 15:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF46DDF25913CBA41D03B75E0CD86C04999A7E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022668   (727114) от 03.06.2016
 
 VA - Новая Русская Дискотека - 4 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
@@ -533,168 +695,6 @@ VA - Future Feelings Club Disco House (2016) [MP3|128-320 кб/с] <Electro, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DA10A7EB557CBF2D61D5B57064E57F266CA0A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022695   (727857) от 03.06.2016
-
-Deem Beat - Concept Techno Cannel (Podcast NO 001) Mix (2016) [MP3|320 кб/с] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Senseless Live - Under My Wing (Original Mix)
-2. Sabb, Boy. An - Not Feeling That Fine (Zoo Brazil Remix)
-3. Ańii- Desert God (Original Mix)
-4. Touchtalk - Anticipation (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8E842D3FB6433A55CB852457DA6772381C8AF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022642   (727860) от 03.06.2016
-
-VA - Need You Tonight! Sweet and Smooth Sounds for a Perfect Moment (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Garcia - Room Without Walls
-02. Pablo Daniel - All Night Down the Road
-03. Mikis Theodorakis - On the Road
-04. Dubdiver - La Ninfa(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE190628F977C444FF5B5789E585CED7F66AC688
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530811   (727866) от 12.02.2022
-
-VA - All White Party: Deep House Mix (2022) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727866.jpg" />
-</div>
-
-
-###  Подробнее
-
-В определенной степени бодрящий и в то же время достаточно размеренный электронный микстейп музыки в формате Deep House в представляемом Вашему вниманию сборнике "All White Party". Треки сборника создают непринуждённую атмосферу комфорта и позитива.001. French Boss - Every End Has
-002. Soul Button - Temeraire
-003. Dysfonik - Falling In Love (
-004. Vincent Floyd - Trail Of Tears(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476206F28A64B58CB5192CCD43A3203B4A13AEE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128448   (728288) от 24.04.2017
-
-Бутырка - Новое и лучшее (2017) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Субботник
-02. Золотая свадьба
-03. Любимая моя
-04. Свиданка(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E50DC82DA9E87DBE17D0271B13AEE000347B0CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128209   (728290) от 24.04.2017
-
-VA - Greatest Ever! Rock The Collection Vol.2 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Rainbow - Love's No Friend  4:53
-002.  Madness - Baggy Trousers  2:47
-003.  Ugly Kid Joe - Everything About You  4:15
-004.  Atomic Rooster - Tomorrow Night  3:15(   Читать дальше...   )Жанр: RockПродолжительность: 09:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4EA67BF517C3670336FFED371563F60F0EDE9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127885   (728301) от 24.04.2017
-
-VA - Disco '80s Зарубежное (2017) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part One:
-
-01. Eddy Huntington - Physical Attraction 5:01
-02. Mozzart - Jasmin China Girl 3:44(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 13:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1667CBE021AB8627C1DAB080A6E8A71974A968FB
 ```
 
 

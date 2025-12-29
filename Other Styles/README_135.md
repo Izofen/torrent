@@ -1,3 +1,488 @@
+###  Публикация: 1387645   (789983) от 04.06.2020
+
+Leonard Cohen - The Complete Columbia Albums Collection (2011) 17 CD [FLAC|Lossless|tracks + .cue] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонард Коэн - канадский поэт, писатель, певец и автор песен. Леонард Коэн сначала прославился как поэт и писатель и только после, став известной личностью в литературных кругах, вышел на сцену в качестве исполнителя авторских песен. В конце 60-х певец покорил публику глубоким, бархатным и невыразимо печальным голосом. Коэн стал одним из основоположников фолк-музыки. (   Читать дальше...   )01. Lover, Lover, Lover (7:44)
+02. Bird on the Wire (6:09)
+03. Chelsea Hotel (3:32)
+04. Heart With No Companion (5:07)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C01A895FF1E54B993077CB0F4762412EF2E2FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510683   (790119) от 18.11.2021
+
+Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <Electronic, Abstract, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Moriendi (5:54)
+Cello - Stefán Örn Arnason
+02. Charon (2:29)
+03. Sudurgata (3:26)(   Читать дальше...   )Жанр: Electronic, Abstract, AmbientПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3BFC58593617C91556C0E6732A1AFDB9CB0F9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510779   (790332) от 18.11.2021
+
+Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albatross (2:58)
+02. Bilitis (3:22)
+03. Lara's Theme (2:22)
+04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9DE01F390AB7489B384010C95E56AFF5CED88C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510784   (790341) от 18.11.2021
+
+Gary Ryan - The Best Of Lounge: L.A. Lounge (2001) [MP3|320 Kbps] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seemless (4:00)
+02. Jupiter Perris (5:02)
+03. Contraflow (4:41)
+04. The Beauty Of Then (3:49)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FA79FFFE9C5A22FA4BE92E0A51663B5C81E5CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510787   (790342) от 18.11.2021
+
+Peter Ellis - The Best Of Lounge: New York Lounge (2001) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel (4:41)
+02. Boy Meets Girl (Blind Date Part 1) (5:27)
+03. Lots To Say (5:13)
+04. Confessions (4:56)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B01ECB090292C76B9D3E53E008B256B521C810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387275   (790623) от 03.06.2020
+
+The First Nations - Heart and Soul of the Native Indians (2016) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Song
+02. How the West Was Lost
+03. Winter Ceremony
+04. The Counterclockwise Circle Dance(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15F26649748E3249A05AE181A4161EDAEAC4356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386829   (790672) от 03.06.2020
+
+Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001 [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мерл Хаггард – американский композитор и певец в стиле кантри. “I’m a Lonesome Fugitive” – его 3-й студийный альбом и первый, попавший в хит парад Billboard 200 (на 165-е место:).
+Одноименная песня “I’m a Lonesome Fugitive“, открывающая этот альбом – первая его песня, которая годом ранее, выпущенная в качестве сингла, возглавила кантри хит парад.01. I'm a Lonesome Fugitive (2:56)
+02. All of Me Belongs to You (2:40)
+03. House of Memories (2:47)
+04. Life in Prison (3:02)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108C08B93B0B9E6B50CD5A4068485E057AEF71CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510460   (790799) от 17.11.2021
+
+Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight
+02. IntuitionЖанр: Ambient, Relax, HealingПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201908   (790939) от 27.01.2018
+
+Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790939.jpg" />
+</div>
+
+
+###  Подробнее
+
+[10:20] 01. Denali
+[08:06] 02. Shishaldin
+[08:35] 03. Malaspina
+[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202049   (790969) от 27.01.2018
+
+Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Amends (04:01)
+02. The Sun Will Not Rise Tomorrow (03:10)
+03. You Spoke (02:25)
+04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201949   (790970) от 27.01.2018
+
+Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of The Fall (3:37)
+ 02. Lady (4:11)
+ 03. Living A Dream (3:43)
+ 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275133   (791096) от 10.01.2019
+
+Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets of the Sea
+02. Reverence
+03. River of Dreams
+04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275215   (791117) от 10.01.2019
+
+Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centering Meditation
+02. Morning Air
+03. A Peaceful Drift
+04. Cosmic Waters(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF09B49903541118B8A2DE5F5508EB244DB66C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274819   (791120) от 10.01.2019
+
+Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unknown (5:06)
+ 02. Leaving The Darkness Behind (4:47)
+ 03. Amazing Grace (4:54)
+ 04. Second Chances (3:00)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0812B98000FB701D0FC89039620AB235A11EAF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201852   (791441) от 26.01.2018
+
+Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul, Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cómo Me Quieres (3:45)
+02. Lady and Man (4:18)
+03. Maria También (3:11)
+04. August 10 (4:25)(   Читать дальше...   )Жанр: Funk / Soul, Folk, World, & CountryПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201780   (791509) от 26.01.2018
+
+Calexico - The Thread That Keeps Us (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The World With You 03:08
+02. Voices In The Field 03:26
+03. Bridge To Nowhere 03:07
+04. Spinball 01:11(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24A5638D4EE36C1ABFE19EF562C0319D0153ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201875   (791557) от 26.01.2018
+
+Бузулук - Гордись, Русская Слава! (2008) [MP3|320 Kbps] <Folk, Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гордись,гордись, русская слава (4:31)
+02. Вдоль по линии Кавказа (4:50)
+03. На речке Камышинке (4:26)
+04. Со горы горы (2:56)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CA4E4D11752C322E5B43DC2B0D0B9908D6F24D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201874   (791560) от 26.01.2018
+
+Бузулук - Славьтесь, славьтесь казаки! (2006) [MP3|320 Kbps] <Folk, Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На речке было на Лазорьевой (3:45)
+02. На сухом было пруду (4:25)
+03. Ни сокол с орлом солеталися (3:42)
+04. 25 июня (3:15)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477F4856A312FCEBA45343CF0BEF1711C98E653C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386860   (791807) от 01.06.2020
 
 Sungha Jung - Sungha Jung Cover Compilation 1-5 (2019) [MP3|~245 Kbps (V0)] <Acoustic, Fingerstyle Guitar>
@@ -209,492 +694,6 @@ Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274529   (792989) от 07.01.2019
-
-Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792989.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mirage (8:38)
-2. Morin Huur (6:18)
-3. La Foret (10:18)
-4. Manganu (8:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57804793C46FC70E9F3191FED4777BEA8695102B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122637   (793188) от 06.04.2017
-
-Percy Faith - The Real... Percy Faith And His Orchestra (2016) 3CD [FLAC|Lossless|tracks + .cue] <Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Blue on Blue
-2. Anyone Who Had a Heart
-3. Spanish Harlem(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE510117F92AEF7D27D94588A5DCA2C8B1CA645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122258   (793360) от 06.04.2017
-
-Cliff Martinez - The Knick / Больница Никербокер: Season 1,2 (Original Series Soundtrack) (2014-2015) [FLAC|Lossless|tracks + .cue, tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dearest John (03:54)
-02. It's My Eye (02:05)
-03. If Anyman Thirst (03:17)
-04. Sonia (00:51)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:35:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D938E6B25DB78FAB73216483A878FDDA058ED348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122531   (793417) от 06.04.2017
-
-Darkher - Realms (2016) [MP3|320 Kbps] <Dark Folk, Gothic, Doom>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Waker
-02. Hollow Veil
-03. Moths
-04. Wars(   Читать дальше...   )Жанр: Dark Folk, Gothic, DoomПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8890DFF9443730A26B448887A63479635C83B511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122212   (793419) от 06.04.2017
-
-VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collision (02:53)
-02. Scrap Yard (01:42)
-03. Leverage (01:50)
-04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAE367E77C4017A3E9D113CABE731C2835AD206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122959   (793425) от 06.04.2017
-
-Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hommage To Buddha Dhamma Sangha
-02. Perfecting the Ten Paramitas
-03. Calling The Lama
-04. Long Mantra Of Avalokiteshvara(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D302C3E60E80DED6BA4F24F88A2EDD80976C219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122963   (793427) от 06.04.2017
-
-Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hommage To Buddha Dhamma Sangha
-02. Perfecting the Ten Paramitas
-03. Calling The Lama
-04. Long Mantra Of Avalokiteshvara(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C19711572EEDFE794368392E6124DDEFD5964B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122646   (793428) от 06.04.2017
-
-Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ch'ien (Heaven) 8:03
-02. K'un (Earth) 8:25
-03. Chen (Thuder) 5:41
-04. Sun (Wind) 8:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CC1E06657E2373CFAE353BCB7402D0F69645EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122210   (793430) от 06.04.2017
-
-VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collision (02:53)
-02. Scrap Yard (01:42)
-03. Leverage (01:50)
-04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BE5CFB191E8CB9EF052F8E0F19E0466DB921BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012203   (793443) от 01.05.2016
-
-Henry Jackman - Первый Мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siberian Overture (02:56)
-02. Lagos (02:10)
-03. Consequences (02:21)
-04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012205   (793453) от 01.05.2016
-
-Henry Jackman - Первый мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siberian Overture (02:56)
-02. Lagos (02:10)
-03. Consequences (02:21)
-04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2312EABBB59485A65EDEC90C57AB4B258FB3824F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386398   (793465) от 30.05.2020
-
-Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Iron (3:58)
-02. A Hundred And Sixty Acres (1:42)
-03. They're Hanging Me Tonight (3:07)
-04. Cool Water (3:12)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430A788DFD86FCCDB9B9BC3E1856D948C8C2BDAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386296   (793469) от 30.05.2020
-
-The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kentucky
-02. I'll Be All Smiles Tonight
-03. Let Her Go, God Bless Her
-04. What Is Home Without Love(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122749   (793507) от 06.04.2017
-
-VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 Kbps] <Lounge, ChillOut, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodo Schopf - Misha (07:28)
-02. Jojo Rose - Summer (04:45)
-03. HP. Hoeger - Calm Down (05:20)
-04. El Petit Jardi - Sunlight Through Leaves (05:29)(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 02:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DE897944C4F47715A374F1531762E0308FBF79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122769   (793513) от 06.04.2017
-
-VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native American Music Consort — Most Comfort Melodies for Spa
-02. Spa Music Paradise Zone — Breathe & Beneficial Rain
-03. Soothing Music Academy — Hypnotic Music
-04. Bedtime Stories Unit — Music for Spa(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE281C1E923A75A42A3F7C7809350A58828F72FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382808   (793522) от 13.11.2021
-
-Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ethnic/Folk-RockПродолжительность: 00:55:09
-
-01. Пташечка
-02. Снежочки(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012626   (793557) от 01.05.2016
-
-Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (1988) [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody For A Soul
-02. Love's Memories
-03. Sadness Or Happiness
-04. Liliane's Melody(   Читать дальше...   )Жанр: New Age, Easy Listening, ElectronicПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5067B5AB794EE198CFF130D2CD4B221D495F5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386533   (793568) от 30.05.2020
-
-Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got A Tiger By The Tail (2:13)
-02. Trouble And Me (1:56)
-03. Let The Sad Times Roll On (2:16)
-04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
 ```
 
 

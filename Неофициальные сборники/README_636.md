@@ -1,3 +1,165 @@
+###  Публикация: 977436   (965679) от 21.01.2016
+
+VA - Trance Desire Volume 60 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Simz feat. Emma Lock - Untimate Love (Original Mix) (07:53)
+02. Gareth Emery feat. Bo Bruce - U (Original Mix) (05:28)
+03. Mark Bester feat. Love Dimension - The Voice (Original Mix) (05:32)
+04. Proyal feat. Ai Takekawa - The Orbit (Biotones & Max Farewell Remix) (04:19)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EBFB136FE225E38BFE3AF0EFC6B8091D1AD8C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976136   (965729) от 21.01.2016
+
+2011stress - With eyes closed again (NNM) (2016) [MP3|320 кб/с] <Electronic, Synth-pop, Classical Crossover>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turquoise
+02. Drowning in your eyes
+03. Bubble - Mania 2
+04. Jane Bond(   Читать дальше...   )Жанр: Electronic, Synth-pop, Classical CrossoverПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5DFE8FE3BF34E1CD5BED18EE5A75B9E16D754B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977580   (965737) от 21.01.2016
+
+VA - Sentimental Tropics (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965737.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominique Langham - In the Middle of the Night
+002. Water on Mars - Biscaya - Realaxing Beach Moments remix
+003. Ayuthya - Dreamy Mood
+004. Phono Sounds Invation - Shores of Eternity - 100 % Downbeat Sunset Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0731C8EB831CA6F646723CBCBDD4C483CF50A21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977449   (965768) от 21.01.2016
+
+VA - An Endless Drive (2016) [MP3|320 кб/с] <Club, House, Electro, Trance, Tech>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965768.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brenton Mattheus, Ian G, Matierro - Flash feat. Brenton Mattheus
+002. Herve Pagez - Paaarty (Original Mix)
+003. KURA - Makhor (Original Mix)
+004. Alexandre Bergheau & Geert Huinink - Desert Wings (Original Mix)(   Читать дальше...   )Жанр: Club, House, Electro, Trance, TechПродолжительность: 08:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CCB8A6F24B6B4EF5361534AB8C73183F2883E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358908   (965826) от 10.02.2020
+
+VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Grant David Project - Imagine
+002. Larry Scottish - Summer Rains (Extended Mix)
+003. Mangalia - Minimatt (Original Mix)
+004. Laakkinen - Forever (Extended)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDC9BC9DCE30FD47FF61698A8288065CDEF9B78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358984   (966074) от 10.02.2020
+
+VA - Instrumental Romantic Jazz: Smooth And Chill (2020) [MP3|320 Kbps] <Smooth Jazz, Chill Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gianluigi Trovesi - Umberto
+002. Gogo Penguin - Ocean In A Drop
+003. Planty Herbs - Nothing Lasts
+004. Third I - Stone Of Destiny(   Читать дальше...   )Жанр: Smooth Jazz, Chill InstrumentalПродолжительность: 09:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6715D6F0BC71B772BFFB8F0D6ED1A742AF528BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358979   (966082) от 10.02.2020
 
 VA - Dive Into My World (2020) [MP3|320 Kbps] <New Age, Ambient, Relax, Meditation>
@@ -551,186 +713,6 @@ VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E08E25BAD8F614A05E9AE5215737E3B95ACECBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614745   (967804) от 16.02.2013
-
-VA- Dubstep Planet 4 (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01..  Sub Focus ft. Kenzie May -  Falling Down (xKore Remix)  (5:04)
-02..  Zomboy -  Nuclear (Hands Up)  (5:16)
-03..  Skrillex & Alvin Risk -  Imma Try It Out  (3:50)
-04..  Sub Focus ft. Kenzie May -  Falling Down (VIP Mix)  (4:36)
-05..  ShockOne -  Chaos Theory (Dubstep Mix)  (3:26)
-06..  Flatland Funk ft. Tory D -  Lose Control (Callum B Remix)  (5:43)
-07..  Pixel Fist -  Shots & Straps  (4:20)
-08..  Skrillex & Damian Marley -  Make It Bun Dem (Teddy Killerz Remix)  (4:40)
-09..  Pegboard Nerds -  Self Destruct (Original Mix)  (3:33)
-10..  Bombs & Bottles -  I Will Take You There (RoughMath Remix)  (5:29)(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068298B06EF182F0A6A22FE14A35AA7D6AEBA12A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977019   (967835) от 19.01.2016
-
-VA - Morning Chill Out (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominique Langham - In the Middle of the Night
-02. Ayuthya - Dreamy Mood
-03. Philippe Bestion - Quiet Awakening 1
-04. Bruno Philip - Moment of Peace(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616B40F1F7D7EF8436F715A08F8F8157E762CCB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976856   (967837) от 19.01.2016
-
-VA - Private Lounge Cafe, Vol. 3 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill out Activity - Awentura - Original Mix (05:26)
-02. Red Sea Grooves - Freezone - Original Mix (04:22)
-03. Drummachill - Criterio - Original Mix (04:41)
-04. RD Project - Qotto - Original Mix (04:01)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A1D973F3AEAABAD4C8B46D598FFB5301AF342F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976873   (967868) от 19.01.2016
-
-VA - Luxury Chill Grooves - Cool Winter Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charly'n Black - C17H21N04 (03:28)
-02. Stuce The Sketch. Kim - Chillin' - Stuce The Sketch (03:20)
-03. Dub Mars - Always And Everywhere (05:52)
-04. Florent Campana - Et Dieu Pour Tous (03:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559BF223F2A8DA12F0E83B72D25C51AFFEE926F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618351   (967913) от 16.02.2013
-
-VA - Club Dubstep №28 (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Litov - You by Tim Ismag (Litov Remix)
- 02. MitiS - Identity
- 03. Moxix, Mojo - Shaolin Funk (Quartus Saul ft. Maksim Remix)
- 04. Phrenik, Kezwik - Ready For Impact (feat. PLS DNT STP) (Original Mix)
- 05. Quartus Saul - Dream Sequence (Original Mix)
- 06. Reflux Ft. Romy Harmony - Prometheus (Fidgi edited)
- 07. Roksonix - Ready To Rumble
- 08. SirensCeol - Perpetual Motion
- 09. Team Brooklyn ft. Chihiro - Friend No More
- 10. Those Usual Suspects feat. Erik Hecht - Can't Hold On (Phetsta Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EEA2EE783557E155DECD8A00DE52AA9B1EED19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618438   (967923) от 16.02.2013
-
-VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grimblee - Mutilated Gore
- 02. Camo and Krooked feat. Shaz Sparks - All Fall Down
- 03. Jet Fly feat Nika p.m. - I Can Fly ( Dub Step Radio Mix)
- 04. Friction - Led Astray (Culprate Remix)
- 05. Knife Party - Internet Friends Original mix
- 06. Delilah - Breathe Emalkay Remix
- 07. BreakNoise – Re-Think (Arkasia Remix)
- 08. Ellie Goulding - Lights Bassnectar rmx
- 09. Emily Browning - Sweet Dreams (DJ WaY Dubstep Remix)
- 10. Ellie Goulding – Hanging On (Sound Remedy Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C16C4F06281A92BCEE01933642DB1F986FA858E
 ```
 
 

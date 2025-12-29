@@ -1,3 +1,138 @@
+###  Публикация: 1132673   (698787) от 10.05.2017
+
+VA - Cosmical Odissey: Synthetic Musical Mix (2017) [MP3|192-320 Kbps] <Spacesynth, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698787.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3Rd Planet - Planet Rock 6:32
+002. Amandi - Digital Attack 5:57
+003. Aphelion - Endless Flight 6:35
+004. Digital Oblique - White Planet 5:43(   Читать дальше...   )Жанр: Spacesynth, Synthwave, ElectronicПродолжительность: 08:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8CFD323A67DAE9E21BC20A7E0D21BEEF30A7CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132639   (698788) от 10.05.2017
+
+VA - Synthetics Drive (2017) [MP3|192-320 Kbps] <Synthpop, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mflex - Shining Echoes 7:01
+002. Robert Marlow - Smile (Reset Remix By Angst Pop Feat. Technomancer) 4:54
+003. Dynatron - Fireburner 3:58
+004. Rossetti's Compass - My Beloved (Abi's Electro Mix By Angst Pop Feat. Technomancer) 3:16(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 10:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2D1B35DD6437F3479ACA77D60CED7E627EDEE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132647   (698791) от 10.05.2017
+
+VA - 100-ка популярных весенних хитов от Европы Плюс. Версия № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698791.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Belak - Невыносимая 2:58
+002. Галамартовна - Ермакова 3:12
+003. Андрей Леницкий - Она 4:10
+004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29DD7AABF8EAA33254FDA33CF40A8A35E7C55F1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221087   (698806) от 22.04.2018
+
+VA - Spring Essentials: April House (2018) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698806.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Patrick Topping - Be Sharp Say Nowt (Original Mix)
+002. Shashaf - Monkey Fun (Original Mix)
+003. KDA & Patrick Cash - Hate Me (Original Mix)
+004. Bicep - Metro (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F8FFB6966C4A6C6C4ED4F7E7F3D70898DD5378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132965   (698860) от 10.05.2017
+
+VA - Топовая сотня весенняя от Хит FM. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наташа Турбина - Маша 3:09
+002. Иван Тетенов - Море Магнит 3:20
+003. Ласковый Шепот - Не Говори Мне 4:47
+004. Константин Легостаев - Религия Любви 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4C83224D5BB9AA3515C1E008E77F8C08D48946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132643   (698872) от 10.05.2017
 
 VA - Звездная тусовочка. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
@@ -557,141 +692,6 @@ VA - The Official UK Top 40 Singles Chart 14.08.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707011803C1E8C8484F46FF8269DFCDDA54889D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287910   (699863) от 09.03.2019
-
-VA - Metasphere: The Sound Of Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699863.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kliment - Metasphere
-002. Altered State - Final Boss
-003. Mental Broadcast - That Moment (Original Mix)
-004. Sixsense - Locked In(   Читать дальше...   )Жанр: Psychedelic, Psy TranceПродолжительность: 12:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F584CD3C37431ADBF4D41F7A79E2CC0C4B85C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287890   (699867) от 09.03.2019
-
-VA - Point Of No Return (2019) [MP3|320 Kbps] <Trance, House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699867.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alаn Mоrris - Cаrbоnаtе (Extеndеd Mix)
-002. Alеxаndеr Dуоmin - Pоint Of Nо Rеturn
-003. Xzаtiс - Child Of Fоrеvеr (Originаl Mix)
-004. Zоul And Fееl - Swееt Esсаре (Extеndеd Mix)(   Читать дальше...   )Жанр: Trance, House, ClubПродолжительность: 10 :51 :43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFE826225F4E5DD607F7E2554556CCBEC088973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287766   (699873) от 09.03.2019
-
-VA - EDM: Electronic Galaxy (2019) [MP3|320 Kbps] <Electronic, House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Sterio - Silence (Original Mix)
-002. Newball - Lost Canvas
-003. The Space Cadets - Interstella Acid Splash
-004. Ever Seein Eye - Beat Dat(   Читать дальше...   )Жанр: Electronic, House, Dance, ClubПродолжительность: 10:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E082866300050F7BD2CF6A199B045FAAEA9165
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026995   (700077) от 17.06.2016
-
-VA - Invitation To The Blues (2016) [MP3|320 кб/с] <Blues, Rock, Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Summers Band - Rainmaker
-02. Marc Reece - Wintertime
-03. Kenny Wayne Shepherd - One Foot On The Path
-04. Bob Hart - Lovin' You Is All My Heart Can Do(   Читать дальше...   )Жанр: Blues, Rock, CountryПродолжительность: 05:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1CAC40B2E88AB9342D1093DCC60B4916830DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026958   (700193) от 17.06.2016
-
-Аркадий Северный - Золотая Коллекция Шансона. том 1 (2001) [MP3|320 кб/с] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление А. Розенбаум
-02. Годы Мчатся
-03. Облака
-04. Ночь(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6E58CD65A2F1113A9C64531AF1B40C1F9D16A6
 ```
 
 

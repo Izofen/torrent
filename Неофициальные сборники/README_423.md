@@ -1,3 +1,30 @@
+###  Публикация: 1029844   (678321) от 28.06.2016
+
+VA - Absolute Jazz (2016) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sante Palumbo Trio - The Look of Love (06:10)
+02. Carlo Nicita Trio - Summertime (Take 2) (05:42)
+03. The Fantastic Jazz Quartet - Take Five (06:05)
+04. Urban Lovers Jazz Quartet - The Shadow of Your Smile (06:11)(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C54B938D69E486CDB972165ADFDE467DB6755B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029722   (678324) от 28.06.2016
 
 VA - Nude Mix #4 (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep>
@@ -379,6 +406,31 @@ magnet:?xt=urn:btih:0DDA515FA1C4BE4FE8087EE9E5CE633FE654CAA9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506623   (678517) от 10.06.2012
+
+VA - Club Music for DJ's Summer 9CD (2012) [MP3|320 кб/с] [Обновляемый] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Tasty - Music For A Fashion Generation (Original Mix) (7:37)
+2. Alfonso Padilla - Happy Friday (Superskank Remix)Жанр: Dance, ClubПродолжительность: 04:53:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135662   (678591) от 20.05.2017
 
 VA - Зайцев.Нет: Топ Новинки За Май (2017) [MP3|320 Kbps] <Pop>
@@ -641,60 +693,6 @@ VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029816   (678611) от 28.06.2016
-
-VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
-02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
-03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
-04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029831   (678612) от 28.06.2016
-
-VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
-02. Digital Department -  Enzox 6:54
-03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
-04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
 ```
 
 

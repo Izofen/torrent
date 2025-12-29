@@ -1,3 +1,168 @@
+###  Публикация: 975034   (974584) от 13.01.2016
+
+VA - Melancholy Longe (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974584.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zara James - Happy
+002. Exotic Liar - Fresh Fruits
+003. 351 Lake Shore Drive - Rising Stars
+004. Arctic Light - Symphony of Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384ECDDF7ACDC8001C2747502699983FA208D005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357059   (975044) от 02.02.2020
+
+VA - Новинки с разных популярных MP3 сайтов.Ver.92 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+1.Alex Marvel - Let's Rock (Original Mix) (3:28)
+2.Arash feat. Helena - One Night in Dubai (Alexander Holsten & Andrey Vertuga Remix) (2:13)
+3.ARIA - Bleu Chanel (Nitrex Remix) (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912298C9B3B988EBD864B35E5662E3BDFB43DB90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357264   (975178) от 02.02.2020
+
+Александр Галич - Тематический сборник (2020) 5 CD, Remaster SMRP, De-Noised[MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Шуточные и Сатирические песни
+------------------------------------------
+01-У жены моей спросите, у Даши (1970) (03:33)
+02-Спи, Семён, спи (1970) (02:10)(   Читать дальше...   )Жанр: Авторская песня, Песни под гитару, СтихиПродолжительность: 01:10:20
+01-Ударение, ударение (Философский этюд) (1968) (00:26)
+02-Прилетает по ночам ворон (1969) (00:42)
+03-Я не сумел понять Тебя в тот раз (Песня о Тбилиси) (1970) (04:24)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C74DB093A8B863A3347E48B59A1CBDFC1B19713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357133   (975288) от 02.02.2020
+
+Schiller - Hit Collection (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ruhe (Fernseh-Fassung)
+02 Ruhe (Langspiel-Fassung)
+03 Distance (Feat. Kim Sanders)
+04 Dream Of You (Feat. Heppner)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 07:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C06AE75101665921E443AC2648E9406172EA3CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357119   (975374) от 02.02.2020
+
+VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Bieber - Sorry
+002. The Chainsmokers - Closer
+003. Taylor Swift - Shake It Off
+004. The Weeknd - Can't Feel My Face(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59B48754AB73CFC6E3D43955EFF0EFF5117509C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357026   (975544) от 02.02.2020
+
+VA - Record Super Chart 623 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto 3:57
+02. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+03. SAINt JHN - Roses (Imanbek Remix) 3:58
+04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41BBF16BB12735BC37141B34D6F96D36F5C9248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974251   (975565) от 12.01.2016
 
 VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
@@ -572,180 +737,6 @@ VA - Хулиганская душа (2013) [MP3|128 кб/с]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4300FE2543D3E6D46EF55C06FA02ED32F2525458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613092   (976736) от 09.02.2013
-
-VA - Drum and Bass Pro V.7 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Receptor - Strike For Oil (Original Mix)
-02. Modest Intensions - What Lies Ahead
-03. Wickaman & RV - The Chant
-04. Jrumhand - The Slow Train South
-05. Current Value - Hydrolic
-06. Neonlight - Frozen Tape (Rregula & Dementia Remix)
-07. Daughter - Youth (Hybrid Minds Bootleg)
-08. Macky Gee - I Am Madman (VIP)
-09. Toez - On My Mind Feat. Janice Tsao (Original Mix)
-10. Trei - Misfits(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D7147EB02F1E0BB62399FB0F2BBC89BEA3DD34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356886   (976759) от 01.02.2020
-
-VA - Лучшие Trance треки Ver.13 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. & Nadi Sunrise - The Prayer (Original Mix) 5:38
-02. Steve Dekay - Labyrinth (Extended Mix) 5:35
-03. C-Systems feat. Hanna Finsen - In Front Of Me (Extended Mix) 5:42
-04. Cold Blue - Frozen (Club Mix) 7:57(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Tech-TranceПродолжительность: 05:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C145E5170374C1B87634194AABB776C686B5C48C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356773   (976766) от 01.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 31.01.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. Billie Eilish - Everything I Wanted 4:05
-03. Rompasso - Paradise 2:51
-04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B09B65EB5F8D32F5A143D98AC3725EC869438B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356620   (976774) от 01.02.2020
-
-VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duoscience - Wonderland
-002. Boombassbrothers - Pompadour
-003. Digital - Abducted
-004. Tubba T - The Light Of The Day (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA15315FDB150F1C37305CCF3D38894CAA82103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356845   (976863) от 01.02.2020
-
-VA - The Official UK Top 40 Singles Chart 31.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Before You Go
-02. The Weeknd - Blinding Lights
-03. Roddy Ricch - The Box
-04. Eminem - Godzilla(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580529C2F4FE64B5788F73AC08F94A2124C215F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615362   (976899) от 09.02.2013
-
-VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amex & Bartlett Bros. feat Lizzie Curious - A New Dawn (Fabio XB Rework)
-02. Armin van Buuren feat Ana Criado - I'll Listen (Original Mix)
-03. Armin van Buuren pres. Gaia - Stellar (DNS Project Remix)
-04. ATB & Dash Berlin - Apollo Road
-05. ATB & Amurai feat Melissa Loretta - Heartbeat
-06. Cerf, Mitiska & Jaren - Beggin' You (Armin van Buuren Remix)
-07. DJ HaLF Ivan Flash - The Sound Of Disco (DJ PLSCH Remix)
-08. Fabio XB Feat. Micky Vi - Make This Your Day (Original Vocal Mix)
-09. Frank Lamboy - No Fear (extended mix)
-10. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
 ```
 
 

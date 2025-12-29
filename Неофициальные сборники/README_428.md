@@ -1,3 +1,111 @@
+###  Публикация: 1029164   (684537) от 25.06.2016
+
+VA - 85 Dance Summer Hits (2016) [MP3|254-320 кб/с] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Moss & Gandalf Bosch -  Wanted (Extended Version) 5:21
+02. Finger & Kadel -  Kalinka (Radio Edit) 3:20
+03. Ferry Sander feat. Eira G -  Stay 3:30
+04. Jorn Van Deynhoven -  We Can Fly (Extended Mix) 6:52(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 07:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0703641931CD79A43686C374136739A1512A3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134927   (684583) от 17.05.2017
+
+VA - Platinum Smooth Jazz (2017) [MP3|320 Kbps] <Smooth Jazz, Blues Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spyro Gyra - Surrender 4:48
+002. Alain Debaisieux - Evening Bosendorfer 2:01
+003. Ginger Tunes - Blue Bossa 4:22
+004. Yellowjackets - Bright Lights 6:54(   Читать дальше...   )Жанр: Smooth Jazz, Blues InstrumentalПродолжительность: 07:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF2EB3ADB8EBDC2F40924D0B8D5978C35C3ADEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134928   (684585) от 17.05.2017
+
+VA - Chill Melodic Dubstep (2017) [MP3|320 Kbps] <Dubstep, Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684585.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Govinda - Bright Star Ft.Laura Hahn 5:07
+002. Morillo - Jungle Patrol Ft. Pawz 3:41
+003. Drrtywulvz - Black Hole 4:20
+004. Filastine - Halcyon 4:04(   Читать дальше...   )Жанр: Dubstep, ChillstepПродолжительность: 05:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D2B1D6A4EAE823FB59C4B1CE09D1AF60F8C43E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029096   (684652) от 25.06.2016
+
+VA - Flaix FM Summer 2016 (2016) [MP3|320 кб/с] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italobrothers -  Kings And Queens (Video Edit) 3:22
+02. KSHMR & Marnik -  Bazaar 2:52
+03. Dimitri Vegas And Like Mike VS W&W -  Arcade (Radio Edit) 3:44
+04. Hardwell Feat. Jake Reese -  Run Wild (Original Mix) 4:06(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1689A5805F0572DB18597CC8095A01CBA34D4E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222477   (684680) от 29.04.2018
 
 VA - Сборник - Звезды Шансона. Лучшее. Том 1 (2018) MP3 от DON Music (2018) [MP3|320 Kbps] <Шансон>
@@ -590,114 +698,6 @@ VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222404   (685293) от 29.04.2018
-
-VA - German Top 100 Single Charts 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Dua Lipa - One Kiss
-002. Ariana Grande - No Tears Left To Cry
-003. Marshmello & Anne-Marie - FRIENDS
-004. Olexesh - Magisch (feat. Edin)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BE1D6C2F411A68F31B207FE4061BEB739CCDF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795882   (685726) от 14.06.2014
-
-VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Room Reunion - Storm Rages On
-02. die Apokalyptischen Reiter - Wo Es Dich Gibt
-03. Body Count - Talk Shit, Get Shot
-04. Seventh Day Slumber - Goodbye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028670   (685771) от 24.06.2016
-
-VA - Club Dance Ambience Vol.73 (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dimitri Vegas, Like Mike & Steve Aoki vs. Ummet Ozcan -  Melody (DJ Alliance Remix) 5:07
-002. Don Diablo Ft. DYU -  Drifter (Original Mix) 3:00
-003. Chris Isaak -  Wicked Game (Adimass Kinin Bootleg) 5:09
-004. Alan Walker -  Faded (Jordi Reyes Remix) 3:45(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD2866FF45A57595D6F34CFA62B83360E338799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403869   (686041) от 22.08.2020
-
-VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Atomic
-02. Gossip - Heavy Cross
-03. Lita Ford - Kiss Me Deadly
-04. Hole - Celebrity Skin(   Читать дальше...   )Жанр: Rock, Hard Rock, Hard 'N' HeavyПродолжительность: 05:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
 ```
 
 

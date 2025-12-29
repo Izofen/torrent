@@ -1,3 +1,168 @@
+###  Публикация: 669241   (719214) от 17.06.2013
+
+VA - 100 Hits Rock Classics (5CD) (2012) [MP3|256 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic RockПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E42EBB2D96369865931B41CFA9E33DCA9F48A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891675   (719756) от 26.04.2015
+
+VA - Essential Rockabilly. The Mercury Story (2012) 2CD [MP3|320 кб/с]<Rockabilly, Rock‘n’Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curtis Gordon - Sitting On Top Of The World (01:53)
+02. Narvel Felts - Cry Baby Cry (01:54)
+03. Roy Moss - You Nearly Lose Your Mind (01:59)
+04. Eddie Bond - Slip, Slip, Slippin' In (02:08)(   Читать дальше...   )Жанр: Rockabilly, Rock‘n’RollПродолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0314C89BA2603F5E67C9457CB4374372C93BB76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024021   (719841) от 07.06.2016
+
+Pink Floyd - Wall In Progress 1978-1979 (1979) [MP3|320 кб/с] <Progressive rock, Art rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Flesh?
+02. The Thin Ice
+03. Another Brick In The Wall (Part I)
+04. The Happiest Days Od Our Lives(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7760FC0C7D9C9691FDCB09CA9C1A60BFA0063DE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218729   (721385) от 10.04.2018
+
+Mgzavrebi - Krebuli (The Best) (2018) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Me Movigone
+2. Gaigvidza Bunebam
+3. Dzala Ertobashia
+4. In Vino Veritas(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D69FB90E0DCB748E0BF1A192D8F0290C9DE8F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 207073   (723188) от 05.06.2010
+
+SAM GOPAL - Escalator (1969) [MP3|320 kbps]<Old Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_723188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Embrace (3:20)
+02. The Dark Lord (3:40)
+03. The Sky Is Burning (2:30)
+04. You're Alone Now (3:41)
+05. Grass (4:03)
+06. It's Only Love (4:18)
+07. Escalator (2:49)
+08. Angry Faces (4:03)
+09. Midsummer Night's Dream (2:14)
+10. Season Of The Witch (4:27)(   Читать дальше...   )Жанр: Old Psychedelic RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023477   (724548) от 05.06.2016
+
+Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer (9:18)
+02. Broken (7:08)
+03. Slave (8:39)
+04. Sleepwalker (7:05)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgressiveПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B819C0F53C7B8C6601A0F7618075CBAA0BBAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023636   (724655) от 05.06.2016
 
 Billy Satellite - Billy Satellite 1 (1984) Re-release, 2000, ATM Records [MP3|320 кб/с] <Rock, Melodic Rock, AOR>
@@ -536,169 +701,6 @@ The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C5E23618BC320DB3A050ECB00E5759CBF096D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127276   (740914) от 20.04.2017
-
-Antares - Sea of Tranquility (1979) Reissue CD, 1994, Mellow Records [MP3|320 Kbps] <Space Rock, Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Leaving (5:28)
-02. My Girl Friend (6:14)
-03. Apollo 11 (3:38)
-04. Galaxy (3:36)(   Читать дальше...   )Жанр: Space Rock, Prog Rock, Symphonic RockПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76123EA299F613B76BDFD33212895420CAA1E85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283000   (740976) от 15.02.2019
-
-Trubetskoy - Зашевелит бит (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом «Зашевелит бит» - это второй номерной альбом коллектива из столицы Беларуси. Продолжая шлифовать свой упругий рок-н-рольный саунд, музыканты пригласили отвечать за большинство текстов совсем не рокера.
-Продюсером всего альбома впервые, включая времена «Ляпис Трубецкого», выступил гитарист группы Руслан Владыко. Вместе с ним над звуком трудился Дмитрий Коршакевич, (   Читать дальше...   )01. Бит
-02. Повезло
-03. Маё сэрца
-04. Две жизни(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7600D87AE079C4B32F3600B213286C763C709247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021343   (740985) от 29.05.2016
-
-VA - Girls! The Ultimate Female Rockin' Rollin' Jivin' Album (1990) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugaloos - Rock Love (01:52)
-02. Bugaloos - Say Yeah (01:56)
-03. Bugaloos - Rock Me Robert (02:19)
-04. Bugaloos - Two Hearts Two Kisses (02:06)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D7A276DAFD82D56B1B59BAF684F07ED523D6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021516   (740990) от 29.05.2016
-
-Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trailer    03:17
-02. Dreams of Flying    03:58
-03. Beautiful Blue    06:36
-04. Beautiful World    03:08(   Читать дальше...   )Жанр: Rock, Country Rock, Folk RockПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F012C5AFC0534CD1E60A560504010233B94C3AC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283057   (741054) от 15.02.2019
-
-Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Head Games (Live)
-2. Feels Like the First Time (Live)
-3. Cold as Ice (Live)
-4. Hot Blooded (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283120   (741153) от 15.02.2019
-
-Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special To You (3:19)
-02. Act Of Love (3:02)
-03. She's A Big Girl Now (3:07)
-04. Stranger (3:24)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
 ```
 
 

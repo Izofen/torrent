@@ -1,3 +1,165 @@
+###  Публикация: 997826   (871874) от 18.03.2016
+
+VA - В Машине 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Milen - Желанная
+002. Arpi - You Are
+003. James Bay - Hold Back The River
+004. Чи-Ли - Ангел На Моем Плече(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9375B8A4A2E9B96C69106D6C17C5BCC30A002414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997738   (871879) от 18.03.2016
+
+VA - KISS FM - TOP 40 Март (2016) [MP3|320 кб/с] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont - Ocean Drive (3:26)
+ 02. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers (3:52)
+ 03. Calvin Harris & Disciples - How Deep Is Your Love (3:32)
+ 04. DNCE - Cake By The Ocean (DJ Vano Remix) (3:24)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 02:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817085C2C8BD99106A738CEFBBDF2081179351BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997847   (871966) от 18.03.2016
+
+VA - Jazz Loungebar Vol.5 - A Smooth & Jazzy Lounge Trip (2016) [MP3|320 кб/с] <Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Dilemma (Jazz Loungebar Mix) - Jazzy James Jr.
+02. Smooth Chillin' (Endless Waves Mix) - Vladi Strecker
+03. No Clouds (Deeper Mix) - Skindive Inc.
+04. Belavista Boulevard (Del Sol Mix) - Stereo Gringos(   Читать дальше...   )Жанр: LoungeПродолжительность: 04:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF7350B310B1572300D13D3DD4E513907CE7444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997823   (871971) от 18.03.2016
+
+VA - Italo and Space Disco (2016) [MP3|320 кб/с] <Italo Disco, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hyboid - Space Age Gigolo
+002. Yuriy Sosnin - The Galaxy
+003. Dance with the Dead - Signals
+004. DJ Roland - Klarnet Mix(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 06:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FB9C8557B55ABC447BEA9CF0FB400AF63C0DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997800   (872032) от 18.03.2016
+
+VA - The Best Of Retro Promenade (2016) Volume I [OGG|389-557 кб/с] <Retro Synth, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MUSCLE - The Pump
+02. Compilerbau - Walking Outer Space
+03. Arcade High - Heat Wave (feat. Morissa Trunzo)
+04. Mirror Kisses - Bleed(   Читать дальше...   )Жанр: Retro Synth, SynthwaveПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06E968726B8B42118B314999DE55103EBAF22BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997842   (872033) от 18.03.2016
+
+VA - Top 100 EDM USA- March Party (2016) [MP3|128-320 кб/с] <Club, Electro, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christopher S & Lecrema - Rebel's Mind (Radio Edit)
+002. Turbotronic - Doomchit Doomchit (Radio Edit)
+003. Evo.com - Musicsingle
+004. Teknova - La Fiesta (Original Mix)(   Читать дальше...   )Жанр: Club, Electro, Dance, HouseПродолжительность: 08:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E2E6DD060D775575992B7F9105A8A5665699BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998037   (872035) от 18.03.2016
 
 VA - 100 Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
@@ -533,168 +695,6 @@ VA - Музыка в твою машину (2016) [MP3|204-320 кб/с] <Pop, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523A15010226AD8D830ECE5EAD635A8AE521DB13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765274   (872982) от 13.03.2014
-
-VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Years Hollow - For Life (Feat. Clint Lowery)
-02. Rave The Reqviem - Exhale
-03. Fuel - Cold Summer
-04. An Early Fall - Soma(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374390   (872985) от 10.04.2020
-
-VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dayseeker - Already Numb
-002. Dylan Leblanc - I See It In Your Eyes
-003. Temples - It's All Coming Out
-004. Scott Lavene - Modern World(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 06:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496411   (873012) от 17.09.2021
-
-VA - Hip Hop Caramel (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Madlib - Sound Ancestors
-002. Josylvio Ft. Lijpe - Day One
-003. Lil Peep - Beat It
-004. Sullynomad - Cult Classic(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 08:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8CCE485FC8252BDF66C2F78AEEF8814AA8269E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496212   (873014) от 17.09.2021
-
-VA - Mega Hits Austria (2021) [MP3|320 Kbps] <Dance, Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Follow You
-02. Glockenbach, ClockClock - Redlight
-03. twocolors - Lovefool
-04. Rea Garvey, Vize - The One(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 05:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09A68664D15B3C547ABFBC55B10F1A6A54EF4EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496449   (873026) от 17.09.2021
-
-VA - The Sedated Harmony (2021) [MP3|320 Kbps] <Vocal House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873026.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Riot Ten & Whales - Save You
-002. Yves V - Echo
-003. Belcampo - Your Kissing
-004. Laminin Music - Moments Of Bliss(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 07:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8197D781DE746837423E90D5B72872D8A14529E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496441   (873030) от 17.09.2021
-
-VA - Summer Escape: Deep House Mixtape (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Magitman - Knock About
-002. Joe Morris - Moments In The Snow
-003. Gmj - Rite Of Passage
-004. Xxxy - Eroma(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410A6149EDB3BBDD3989AA1E518EA8B459FF3731
 ```
 
 

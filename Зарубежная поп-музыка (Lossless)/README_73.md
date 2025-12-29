@@ -1,3 +1,57 @@
+###  Публикация: 1276953   (787252) от 18.01.2019
+
+Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schritt fur Schritt
+02. Repeat
+03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512442   (787404) от 24.11.2021
+
+Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
+01. When Will I Be Famous (3:59)
+02. I Owe You Nothing (3:36)
+03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203585   (787671) от 03.02.2018
 
 Julio Iglesias - Dois Coracoes (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
@@ -642,60 +696,6 @@ VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509939   (792755) от 14.11.2021
-
-Al Bano & Romina Power - Original Album Classics (2019) 5xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792755.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Romantica:
-01. Sharazan (4:26)
-02. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
-03. It's Forever (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 04:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509842   (792830) от 14.11.2021
-
-VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (4:19)
-02. Band Aid 30 - Do They Know It's Christmas? (3:48)
-03. Sam Smith - Have Yourself A Merry Little Christmas (2:50)
-04. Justin Bieber - Mistletoe (3:03)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
 ```
 
 

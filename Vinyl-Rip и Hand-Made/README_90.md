@@ -1,3 +1,57 @@
+###  Публикация: 1204978   (783986) от 08.02.2018
+
+Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Everything You Got (4:38)
+ 02. Damn Your Eyes (4:34)
+ 03. Black Coffee (4:15)
+ 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203660   (785217) от 04.02.2018
+
+Pink Floyd - Atom Heart Mother (1978) EMS-80320 [FLAC|Lossless|tracks] <Rock Style, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A.1	Father's Shout
+A.2	Breast Milky
+A.3Mother Fore
+A.3	Funky Dung(   Читать дальше...   )Жанр: Rock Style, Psychedelic RockПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418BC6E4078AC7E347422BA10A68C233C907467B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203687   (785232) от 04.02.2018
 
 Чайф - Пусть Все Будет Так, Как Ты Захочешь (1995) [FLAC|Lossless|tracks] <Blues Rock, Acoustic>
@@ -641,60 +695,6 @@ A4 Absolutely Nothing's Changed(   Читать дальше...   )Жанр: Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:038B0E144940142EC43CE5A263CC3D512A3093BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273388   (799785) от 02.01.2019
-
-Emmylou Harris - Profile / Best Of Emmylou Harris (1978) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799785.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 One Of These Days
-A2 Sweet Dreams
-A3 To Daddy
-A4 (You Never Can Tell) C'est La Vie(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C912588F76AD77B972B28D6AC0495A4E262DE1A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273390   (799891) от 02.01.2019
-
-Marie Wulfing - Get Out Of The Boat (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, White Gospel>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-01. Cast All Your Cares On Him
-02. God Loves Me, I Don't Need More!
-03. The Storm Clouds Rumble / He Has The Victory!(   Читать дальше...   )Жанр: Pop, White GospelПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBCF76AFBA1CF33BC4DFA438A69B03F457F4233
 ```
 
 

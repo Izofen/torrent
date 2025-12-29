@@ -1,3 +1,189 @@
+###  Публикация: 1538558   (661275) от 22.03.2022
+
+Moxy - 6 albums (1975-2015) [FLAC|Lossless|image + .cue | tracks + .cue ] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда канадской хард-рок сцены группа Moxy образовалась в 1974 году на обломках Leigh Ashford, коллектив, взяв себе имя Moxy, приступил к записи дебютного сингла Can't You See I'm A Star. Многообещающий звук позволил подписать контракт с Polydor Records. Свою дебютную пластинку, которую записывали в Калифорнии, группа продюсировали сами, В той же студии записывался (   Читать дальше...   )--------------------------
+
+01. Midnight Flight (3:35)
+02. Can't You See I'm a Star (3:36)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 04:25:35|
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE3038F4F9A62175911C34ED64F3CDBB10D2487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538768   (661280) от 22.03.2022
+
+In Loving Memory - The Withering (2022) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stellar Runaway (8:10)
+02. Lead Clouds (7:38)
+03. The Dance Of Moons (8:26)
+04. Dawn Of Misery (7:38)(   Читать дальше...   )Жанр: Melodic Doom Metal, Death MetalПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3652EB83DC86D2FD84B2D849B0D85CB5868A9840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138996   (661309) от 01.06.2017
+
+Сhris De Вurgh - Fоotstерs + Fоotstерs 2 (2008, 2011) 2CD [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Steps (1:09)
+02. Turn, Turn, Turn (3:29)
+03. The Long And Winding Road (3:35)
+04. Africa (4:16)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7A6822423EA5F50A1097A12A2898B79C7688E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341048   (661340) от 25.05.2011
+
+Волга-Волга - 6 Альбомов (2002-2009) [MP3|128-320 kbps]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk-RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC1DF5D05AE25C3D794146312433E40D3AB7D98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538577   (661373) от 22.03.2022
+
+Airacobra - Midwestern Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Midwestern Steel
+2.Nailed to the Thieves Cross
+3. Airacobra
+4. You Belong to the Earth(   Читать дальше...   )Жанр: Blackened Heavy MetalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9AB73FBD8426B0C4D87054E0BB2D1E51EC43A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538638   (661380) от 22.03.2022
+
+Antonio Giorgio - Between Light & Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gothic Church (Chambers of Gold) (00:05:39)
+02 - Gates of Doom (00:01:57)
+03 - Hell on Earth (Land of the Dead) (00:06:01)
+04 - Brutal Planet (00:04:51)(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F29B6874411ACAB1AA1BDD78534A17A2D17FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538634   (661381) от 22.03.2022
+
+Achelous - The Icewind Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Northern Winds (00:06:06)
+02 - Flames of War (00:04:07)
+03 - Savage King (00:04:52)
+04 - Mythril Hall (00:04:19)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E9180E2A7A3354A5A85E9351C7DCB5274BC82E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538833   (661383) от 22.03.2022
 
 Sandstorm - Zeitgeist (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -503,201 +689,6 @@ Unkempt Herald - Diatribe (2015) [MP3|320 кб/с]<Heavy Metal, Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73022D3248A0909AE94A5DF97AF94DD9179E1ADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538499   (662457) от 21.03.2022
-
-Humanotone - Humanotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Caerás (00:07:54)
-02 - Wild Indian (00:03:50)
-03 - La Verdad (00:09:41)
-04 - Lucidez (00:06:33)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AEE2738EB8FE2E5337FB9BDDD907C3BF56C120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538479   (662458) от 21.03.2022
-
-Poisonfog - Spellcaster's Revenge (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Mighty Wizard (00:06:51)
-02 - Void Bringer (00:07:47)
-03 - Astral Ride (00:05:37)
-04 - Oath of the Druids (00:05:01)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D70D3A06A4D0EEFD2D3BC57C91ACADD37BCC466
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224946   (662703) от 13.05.2018
-
-Arctic Monkeys - Tranquility Base Hotel & Casino (2018) [MP3|320 Kbps] CD <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Treatment (05:54)
-02. One Point Perspective (03:28)
-03. American Sports (02:38)
-04. Tranquility Base Hotel & Casino (03:31)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB983DE51F612A5FF37F0034B0E96D69270FFC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225120   (662756) от 13.05.2018
-
-RSO (Richie Sambora & Orianthi) - Radio Free America (2018) [MP3|320 Kbps] <Rock, Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making History [04:30]
-02. We Are Magic [04:13]
-03. Rise [03:29]
-04. Take Me [04:36](   Читать дальше...   )Жанр: Rock, GuitarПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83009B25D58FBFAC02101AA928371AED0A5B85A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340404   (662781) от 24.05.2011
-
-Zero Degree - Surreal World (2011) [MP3|320 kbps]<Melodic death metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Door to the Unknown (0:52)
-02. Tomorrow Dies Today (5:11)
-03. Frozen Alive (5:03)
-04. The Storm and the Silence (5:16)
-05. Grapes of Wrath (5:40)
-06. Whispering Age (3:54)
-07. Virus (5:09)
-08. Disease (5:08)
-09. Surreal World (5:03)
-10. Where Angels Die (4:08)(   Читать дальше...)Жанр: Melodic death metalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9495AAEC97B7EDCBA591A2795165821C1E1BC499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225094   (662827) от 13.05.2018
-
-ЕжеВикА - Оберег (2018) [MP3|320 Kbps] <Folk Rock, Art Folk, Neofolk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна
-02. Оберег
-03. Зимушка-зима
-04. Рябина(   Читать дальше...   )Жанр: Folk Rock, Art Folk, NeofolkПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEFA1F947C5AFAB1E095BF99E90E364010B0528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225070   (662881) от 13.05.2018
-
-Angel - Sinful (1979) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Take Your Love
-2. L.A. Lady
-3. Just Can't Take It
-4. You Can't Buy Love(   Читать дальше...   )Жанр: Rock, Hard Rock, GlamПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E299D6E9FE695E0D51B2CB42CD2E8E204A6585
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1282591   (743609) от 13.02.2019
+
+VA - Rock Blues Swacc Night (2019) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bеrniе Mаrsdеn - Au Rеvоir Pеbblе Mill
+002. Dаnа Gillеsрiе - Bluеs Linе
+003. Dеmiаn Bаnd - Kill Thе Mаtаdоr
+004. Thе Bасkdооrmеn - Mуstеrу Lоvеr(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09 :13 :42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C3AF58390B630D14103EFE642D27712FF34395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282605   (743617) от 13.02.2019
+
+VA - Billboard Hot 100 Singles Chart 16.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - 7 rings
+002. Marshmello - Happier
+003. Halsey - Without Me
+004. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECC74432DC5988E40A720D2E7F39F34FDF3CF11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524581   (743631) от 16.01.2022
+
+VA - Music News vol.160 (2022) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. La La Life - My First Kiss (03:05)
+ 002. Alex Hosking & Majestic - Need Your Love (Jonasu Remix) (02:14)
+ 003. Alice Cooper - $1000 High Heel Shoes (03:25)
+ 004. Alice Cooper - Drunk And In Love (03:50)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 13:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9746A97A313A53226E86FEAEF182FCBBDC7F6E26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524435   (743635) от 16.01.2022
+
+VA - The Official UK Top 100 Singles Chart 14.01.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GAYLE - abcdefu
+002. Adele - Easy On Me
+003. Carolina Gaitán - La Gaita - We Don't Talk About Bruno
+004. Lauren Spencer-Smith - Fingers Crossed(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B198D6018E5C8AAB8673861FDE5BAFDDACB7B653
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020453   (743693) от 27.05.2016
+
+VA - Hot hits Car international (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ellie Goulding - Don't Need Nobody
+002. Troye Sivan - The Quiet
+003. Fais Feat. Afrojack - Hey
+004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C01BC64B5094EA46B6E3009B14D5F895FAA2AFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020874   (743694) от 27.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 20 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flo Astaire - Monkey Monkey ( 1986 )
+02. Alan Cook - Bad Dreams ( 1986 )
+03. Queen Of Times - Holiday ( 1999 )
+04. Mike Mareen - Here I Am ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020594   (743697) от 27.05.2016
 
 VA - Extra Trance (episode 11) (2016) [MP3|320 кб/с] <Trance>
@@ -533,165 +695,6 @@ VA - Sun Goes Down: Chill Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD993D36B07790B053F7433D8CB4221B5CDB63C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020885   (743955) от 27.05.2016
-
-VA - Tropical Island Paradigm (2016) [MP3|236-320 кб/с] <House, Progressive House, Indie Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Club Mix) 05:51
-02. Tyler Ace & Renegade - Colombia (Radio Edit) 03:02
-03. Trvpers - Boeing (Radio Edit) 03:05
-04. Joe K Ft. Jonny Rose - Together Again (Vee Brondi & Pontifexx Remix) 04:22(   Читать дальше...   )Жанр: House, Progressive House, Indie DanceПродолжительность: 07:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C63F2A496106CF7AC5EA924197981B34C6B6D3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396951   (744016) от 17.07.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 17.07.2020 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Salt [3:00]
-02. NRD1 - All Good Things (Come To An End)
-03. twocolors - Lovefool
-04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAD8D53EE67A56B2F9E33235759B224AA0C8731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783349   (744054) от 05.05.2014
-
-VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396843   (744076) от 17.07.2020
-
-VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744076.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Davide Alpino - Atlantis (Original Mix)
-002. Scheffwell - I Just Want To Party
-003. Empire B - Beautiful Life
-004. Brown Sneakers - Am I Wrong(   Читать дальше...   )Жанр: Club HouseПродолжительность: 08:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D5F7224089470895B964C51AE90161066A5381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715421   (744321) от 20.04.2015
-
-VA - Persian Music Non Stop Mix vol.1-23 (2013-2014) [MP3|320 кб/с]<Club House, Dream House, Dance, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Non Stop Mix vol.23
-01. Intro - Dj Ikonnikov
-02. Mohsen Amiri - Hashieh
-03. Javad Arab & Abas Balochi - Harfato Rok Bezan
-04. Hamidreza Alikhani - Bemoon(   Читать дальше...   )Жанр: Club House, Dream House, Dance, Pop |Продолжительность: 18:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D86267ED1B8AA2DE03DAC75F6C1D74D1F90360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217087   (744353) от 03.04.2018
-
-Scooter - The Logical Song (2017) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744353.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Logical Song
-2. Alex Mistery
-3. Up MusicЖанр: Deep HouseПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BF77559B54DEF0A494BA3B22A1E4C78A86FA3C
 ```
 
 

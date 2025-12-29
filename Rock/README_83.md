@@ -1,3 +1,163 @@
+###  Публикация: 1007306   (823018) от 14.04.2016
+
+Santana - Santana IV (2016) [MP3|320 кб/с] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yambu
+ 02. Shake It
+ 03. Anywhere you Want To Go
+ 04. Fillmore East(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EED788C5875A96E349CFA74EECE49F9F8C7A136
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196872   (823512) от 29.04.2010
+
+The Blues Magoos - Discography (1966..1992) [MP3|320 kbps]<Psychedelic Rock, Garage Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psychedelic Rock, Garage Rock, BluesПродолжительность: 05:10:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196829   (823582) от 29.04.2010
+
+It's A Beautiful Day - 5 Альбомов (1969-1973) [MP3|320 kbps]<Progressive Rock, Psychedelic Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская рок-группа, образованная в 1967 году в Сан-Франциско, Калифорния певцом и скрипачом-виртуозом Дэвидом ЛаФламме и исполнявшая психоделический прог-рок с элементами джаза, фолка и симфонической музыки.
+Группа, в первый состав которой, помимо Дэвида ЛаФламме вошли его жена Линда (клавишные), Патти Сантос (вокал), Хэл Вагенет (гитара), Митчелл Холман (бас-гитара) (   Читать дальше...   )1969 - It's A Beautiful Day
+1970 - Marrying Maiden
+1971 - Choise Quality Stuff
+1972 - At Carnegie HallЖанр: Progressive Rock, Psyhedelic Rock, Folk RockПродолжительность: 03:21:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996786   (824211) от 19.03.2017
+
+Chuck Berry - Gold (2005) 2CD, Compilation [MP3|320 кб/с]<Rock and Roll, Rhythm and Blues, Chicago Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824211.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:22] 01. Maybellene
+[03:05] 02. Wee Wee Hours
+[02:24] 03. Thirty Days
+[02:45] 04. You Can't Catch Me(   Читать дальше...   )Жанр: Rock and Roll, Rhythm and Blues, Chicago BluesПродолжительность: 02:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFE0BEBFD59D977B192970E9584DB2AFC982E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502738   (824728) от 16.10.2021
+
+The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across The Universe (1970 Glyn Johns Mix) [00:03:31]
+02. I Me Mine (1970 Glyn Johns Mix) [00:01:45]
+03. Don’t Let Me Down (Single Version / 2021 Mix) [00:04:08]
+04. Let It Be (Single Version / 2021 Mix) [00:03:52]Жанр: RockПродолжительность: 5CD, 02:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F41B40CCD3EB6156C9688233916A861FEE2453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196292   (825989) от 01.01.2018
+
+Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320 Kbps] <Country Rock, Pop Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotta Love 3:12
+02. Rhumba Girl 3:50
+03. Give A Little 2:57
+04. Angels Rejoiced 2:27(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BalladПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196191   (825993) от 01.01.2018
 
 Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US [MP3|320 Kbps] <Pop Rock, Soul>
@@ -531,174 +691,6 @@ VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31485ED32D2CC92E45FC45AE7881ADCC5B765811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879961   (833184) от 20.03.2015
-
-Mark Knopfler - Tracker (2015) limited Deluxe Edition [MP3|320 кб/с]<Rock, Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughs And Jokes And Drinks And Smokes
-02. Basil
-03. River Towns
-04. Skydiver(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8C36DCD327A948583DF3DA0D33DC7624C30C56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501674   (833752) от 11.10.2021
-
-Jacky Chalard - Avec Un Pied Dans Le Rock 'N Roll (1977) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady, Baby, Rock'N Roll (3:57)
-02. On S'Tire Aux USA (4:17)
-03. Docteur Mabuse (3:02)
-04. Ardeche (3:08)(   Читать дальше...   )Жанр: Electronic, Prog Rock, DiscoПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9823C331CCF9C415EF1C29FB5D8752A44440AB35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501608   (835246) от 10.10.2021
-
-Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock City (3:19)
-02. That's Not Normal (4:46)
-03. Show Me Something More (4:50)
-04. Empire Man (4:28)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B6F9671DBFE7FF7604EC4122058332D77EB785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004692   (836161) от 07.04.2016
-
-Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 кб/с] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Blue Sky
-02. Evil Woman
-03. Don't Bring Me Down
-04. Sweet Talkin' Woman(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380125   (836383) от 01.05.2020
-
-The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Apples In Stereo - американская рок-группа, связанная с Elephant Six Collective. Группа в значительной степени является продуктом ведущего вокалиста/гитариста/продюсера Роберта Шнайдера, который пишет большинство музыки и текстов группы. Звучание группы сравнивают с психоделическим роком от The Beatles и The Beach Boys в 1960-е годы, а также таких групп как Electric (   Читать дальше...   )Список альбомов:
-1995 - Fun Trick Noisemaker
-1997 - Tone Soul Evolution
-1999 - Her Wallpaper Reverie(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 04:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310242   (837381) от 18.03.2011
-
-Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Mona Lisa [03:46]
-02. Let's Kill Tonight [03:33]
-03. Hurricane [04:25]
-04. Memories [03:25]
-05. Trade Mistakes [03:36]
-06. Ready To Go (Get Me Out Of My Mind) [03:37]
-07. Always [02:33]
-08. The Calendar [04:43]
-09. Sarah Smiles [03:33]
-10. Nearly Witches (Ever Since We Met…) [04:16]Жанр: RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
 ```
 
 

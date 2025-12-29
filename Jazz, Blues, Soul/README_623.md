@@ -1,3 +1,489 @@
+###  Публикация: 1601441   (1046437) от 01.01.2023
+
+Jeanette Berger - Live in Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Knows (Live in Studio) (3:46)
+02. Shine (Live in Studio) (4:37)
+03. The One (Live in Studio) (5:04)
+04. Human People (Live in Studio) (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838F0F2A519752F7980560CCD7B1631626E6035C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601465   (1046441) от 01.01.2023
+
+Stan Mosley - No Soul, No Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Back To Collect (4:12)
+02. Blues Man (No Soul, No Blues) (3:40)
+03. I Can't Get Next To You (4:10)
+04. This Train (1:26)(   Читать дальше...   )Жанр: R&B, Soul, BluesПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8A0EE4580B6BB597554575A75A1DECB5C25EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601447   (1046442) от 01.01.2023
+
+Randall Breneman & Lincoln Grounds - Gun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul & Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edge Of Destruction (2:58)
+02. Trouble (3:34)
+03. Wake Up (2:48)
+04. Gun (3:06)(   Читать дальше...   )Жанр: Blues, Soul & FunkПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2390AFE7F975C3D8B8999E7C19977F7ACF959237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601461   (1046445) от 01.01.2023
+
+Sancho - A Good Time Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boring Autumn Rain (4:49)
+02. Lucky Man (3:49)
+03. I Love You (4:07)
+04. You Can Stop (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7DDFADFDE7420AAD2AA2115BE7FD4C6397AB1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601445   (1046446) от 01.01.2023
+
+Nalani Rothrock - The Rock House Sessions (Extended Cut) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Close My Eyes (4:43)
+02. Fool for You (3:36)
+03. Just Before I Go (3:19)
+04. Hold On (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0381F6E88EC6EF7D2F90D58364E01E9F23D9CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601455   (1046448) от 01.01.2023
+
+Rob Galbraith - What's A Half Step Among Friends? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Been Down (live in studio) (4:35)
+02. One Way Lovin (live in studio) (5:33)
+03. Oh Me Oh My (4:40)
+04. One Room Country Shack (5:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5008E6A0138BAB9CF191DA4E668E0BEEEA236BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601467   (1046449) от 01.01.2023
+
+The Hangan Brothers - Mars Market (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slippery Road (5:32)
+02. Blues for Christmas (4:29)
+03. Jive-7 (3:07)
+04. Mercy (Might Not Be Enough) (4:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49601E5A5FFE491F26D92D01B06D755B179E2BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601470   (1046450) от 01.01.2023
+
+Zavala Sol - Zavala Sol (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Lovin Blues (3:46)
+02. Momma Says (3:54)
+03. 25 to Life (3:34)
+04. Big Legged Woman (5:49)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B17E605A0169091C65C6B85AA7048B86D7F599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601452   (1046454) от 01.01.2023
+
+Randall Breneman & Lincoln Grounds - Hell For Leather (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul & Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things You Forget (2:45)
+02. Get It Got It Gone (3:23)
+03. Gasoline Road (3:07)
+04. Deadpan Rain (3:31)(   Читать дальше...   )Жанр: Blues, Soul & FunkПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803D2B3C7953DB621ED19776E096857FC1A98D49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601625   (1046456) от 01.01.2023
+
+Eric Reed - Everybody Gets The Blues (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Gets the Blues [3:49]
+02. Cedar Waltzin'/Don't You Worry 'Bout a Thing [8:23]
+03. Naima [5:28]
+04. Martha's Prize [7:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9438A4AFCFB9E9F96F59D4846E8B25807248C814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839767   (1046793) от 30.11.2025
+
+Magnolia Boulevard - Magnolia Boulevard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Funk, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's About Damn Time (4:08)
+02.  On My Own (4:42)
+03.  Spellbound (4:47)
+04.  Strong Willed Women (4:47)(   Читать дальше...   )Жанр: Blues, Funk, Southern RockПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDEDAF0359A487861EBF7DD8C23C6487DD66386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840426   (1047245) от 05.12.2025
+
+Women In Jazz - Women In Jazz (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Uno Punto Uno (with Rosa Brunello) 04:32
+02 - The Epic (with Plumm) 04:02
+03 - Ghostly Shade Of Pale (with Amy Gadiaga) 03:18
+04 - At Home (with Lily Carassik) 04:46(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDAAAE340D179F40BF98DE28CA2BBE79CC057DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840622   (1047355) от 06.12.2025
+
+Katie Melua - Piece by Piece (2005) 2025 Remaster, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shy Boy (2025 Remaster)
+02. Nine Million Bicycles (2025 Remaster)
+03. Piece by Piece (2025 Remaster)
+04. Halfway up the Hindu Kush (2025 Remaster)(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614300A60C35825F98E50665047B9C8EE2C8A73F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841736   (1048227) от 12.12.2025
+
+Luke Morley - Walking On Water (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Natural High (3:36)
+02.  Walking On Water (4:18)
+03.  Breathe (3:36)
+04.  Texas (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4205FC19AFA261E6EBB15CDE71C25B974F930A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841732   (1048233) от 12.12.2025
+
+Kip London - The Last Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hurricane (2:39)
+02.  Drinking Tonight (3:58)
+03.  What's the Matter Now (4:03)
+04.  Jitterbug Swing (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD02BE50E582538E913B8BBA90AA3785B63B1C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841728   (1048235) от 12.12.2025
+
+Kent Burnside - Hill Country Blood (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daddy Told Me (3:26)
+02.  Hill Country Blood (4:23)
+03.  Crawling King Snake (4:35)
+04.  I Heard (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E48261E5479F89A73BFD6E08D7C2874241F3AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841725   (1048236) от 12.12.2025
+
+Jeremy Edge - The Black Sheep (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Black Sheep (4:01)
+02.  Stoned America (3:55)
+03.  Austin Valley (4:28)
+04.  Moments (2:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E005D4C9EBA96DB94FDF0A20143EC8EB653F75E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841719   (1048237) от 12.12.2025
+
+Christone "Kingfish" Ingram - Hard Road (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Truth (2:34)
+02.  Bad Like Me (3:33)
+03.  S.S.S. (3:57)
+04.  Nothin’ But Your Love (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48563403B5C0EB03F6527EC0DC0CFACA731D5AC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841716   (1048238) от 12.12.2025
 
 Chambers DesLauriers feat. Annika Chambers & Paul DesLauriers - Our Time To Ride (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -209,492 +695,6 @@ Omar And The Howlers - Downtown Boogie (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B4F43670C0427167809946D479B87D3D0A09E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842052   (1048338) от 14.12.2025
-
-Mud Morganfield - Deep Mud (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bring Me My Whiskey (4:16)
-02.  Big Frame Woman (3:54)
-03.  Strange Woman (5:38)
-04.  Don't Leave Me (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF814C25FED17CEABCC6735164CFF9076D0B4230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842050   (1048339) от 14.12.2025
-
-Mozzpit - Luke Gibson (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Welcome to the MOZZPIT (1:14)
-02.  Virginia (5:13)
-03.  Windy Mountain (3:27)
-04.  Been Burnt (2:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C937C3AF201652DCA4CF1222A7C4981ED0572927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842048   (1048340) от 14.12.2025
-
-Marcus King - Darling Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On & On (3:02)
-02.  Here Today (2:57)
-03.  Honky Tonk Hell (3:16)
-04.  Heartlands (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88CBFADF87E579089446102FE2AF0CA153EE5E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842160   (1048572) от 14.12.2025
-
-VA - Jacktown USA (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jacktown Sons - Hold Up (3:32)
-02.  Dexter Allen - Hooked (4:52)
-03.  Eddie Cotton - Delivered By The Blues (5:19)
-04.  Four Washington - Dancing In Our Love (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E1EC44E030FB1876E1105BB8401480701EE6D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842158   (1048573) от 14.12.2025
-
-Tricia Danieli - Breakthrough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alien (4:30)
-02.  The Other Side (3:55)
-03.  Tequila on the Rocks (3:18)
-04.  Breakthrough (4:22)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7634AD422B7AF2D8074A5B81C4637E874E3E9A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842157   (1048574) от 14.12.2025
-
-Tim Wolf - Down And Under (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thief Of Joy (3:03)
-02.  Don't Be Comin' Round Here (3:24)
-03.  I'm Just Getting Started (3:32)
-04.  Scars And Stripes (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DA983E84F553CD16C5633D1E76AB9AF3949D20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842389   (1048711) от 15.12.2025
-
-Cuby and the Blizzards - Live On 2 Meter Sessions (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Another Day, Another Road (2:59)
-02.  Five Long Years (5:05)
-03.  So Many Roads  (4:27)
-04.  Too Blind to See  (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F4D9260B76AD881EFFA0CD32BFCB6245C151A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842848   (1048834) от 17.12.2025
-
-Sp3 - Almost blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk, Roots Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lot 'o Rain (4:30)
-02.  Fire on the Hill (4:32)
-03.  Ragtime Suzie *2 (4:02)
-04.  Angelina (5:08)(   Читать дальше...   )Жанр: Blues, Folk, Roots RockПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A80AE49A3F19B28F63236F32CD1DDA261BEB6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842846   (1048835) от 17.12.2025
-
-Ryder Voltage - County Line Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  County Line Blues (3:19)
-02.  Rough Weather (2:25)
-03.  Damn The Day (4:05)
-04.  Wild Boy (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEA717D85E00180809B918A459FCD1FDDF3B5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842845   (1048836) от 17.12.2025
-
-Roberto Testini - Blues Guitar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chasin' Wheels (3:25)
-02.  City Shadows (3:32)
-03.  Cruel Game (3:33)
-04.  I was born in Milan (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF60748C509472B1EDBA8E93DCC73E4F9AD5F4F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842839   (1048838) от 17.12.2025
-
-Parker Benton - Steppin' Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Who's Waking Up (4:12)
-02.  Don't Leave Me Waiting (3:28)
-03.  Something Other Than You (3:21)
-04.  Operator (3:19)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66653DA9424D61F7D6A983417FDE81259BD05CFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842833   (1048841) от 17.12.2025
-
-Omar And The Howlers - It Came From the Swamp (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mississippi Hoo Doo Man (6:00)
-02.  Pushin' Fire (5:04)
-03.  Born on the Bayou (6:00)
-04.  Party Girl (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E50DE6BB8CE467E4DD434D05F47ABB87E20828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842832   (1048842) от 17.12.2025
-
-Mina Agossi - Dynamic (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Is You Is Or Is You Ain't My Baby (3:35)
-02.  This Bitter Earth (5:20)
-03.  C'est Une Île (4:03)
-04.  What A Difference A Day Makes (4:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3600CC09711244033C6863E91FBE8442511D63CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842946   (1049049) от 17.12.2025
-
-William Gard Gaffney - You Can't Take it With You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be Careful (8:21)
-02.  More Than Trouble (5:21)
-03.  Queen of the Street (4:46)
-04.  Can't Go On (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F2AA9E463AF53CA197E545D21FA4A538BE5BDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842945   (1049050) от 17.12.2025
-
-The Lowdown Saints - Hard Player (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Good Stuff Boogie (3:03)
-02.  Pusherman (3:23)
-03.  Need My Baby (4:25)
-04.  It Takes Two 2 Play The Game (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572A9CF276BA41D2633ED64DC3046F300876C66A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842942   (1049051) от 17.12.2025
-
-The Family Jukebox - How the Moon Was Strung up on a Nail and Nine Other Cocktails (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  How the Moon Was Strung up on a Nail (4:58)
-02.  All I Do Is Dream of You (3:37)
-03.  Remembering Maggie Campbell (3:25)
-04.  In Love with a Ghost (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECECE72D0D37FE48F16166CA4634EA46E84CF08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842940   (1049053) от 17.12.2025
-
-The Blueskings & Herbie Blues - Say Hi (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Say Hi (5:37)
-02.  Jungle Call (2:56)
-03.  Sweet Desire (3:37)
-04.  Blackbird (1:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463F0518AEBB7D73F245A92A56C73FE4A79AAA57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842935   (1049056) от 17.12.2025
-
-The Blues Kid Combo - Gaston's Guitar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Devil lady (4:20)
-02.  The king of the six strings (3:50)
-03.  I gotta go to school (3:15)
-04.  Pretty face (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EA17068A5A0A840C40D2A2CE7F8472C78BC17A
 ```
 
 

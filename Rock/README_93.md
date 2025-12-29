@@ -1,3 +1,181 @@
+###  Публикация: 601338   (998107) от 11.01.2013
+
+Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998107.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:19] 01. Cockpit - Mission To Rock
+[02:48] 02. Cockpit - At A Loose End
+[03:06] 03. Cockpit - White Flag
+[03:10] 04. Cockpit - Shot In Hell
+[03:38] 05. Cockpit - Gun For HireЖанр: RockПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F82FF72CA92738B7A3A6FFD990BA3AD9605BD4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600995   (998377) от 10.01.2013
+
+Alex  Band - After The Storm (EP) (2012) [MP3|224 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Back (03:44)
+02. Shape Of Your Heart (03:27)
+03. King Of Anything (03:44)
+04. Get Up (03:33)
+05. Right Now (03:17)Жанр: RockПродолжительность: 00:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD124F16CC1F92EA3B8EF83C9D52F1E7048E28B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600775   (998414) от 10.01.2013
+
+Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Away (04:09)
+02. Shadows In The Night (04:31)
+03. Tomorrow (05:04)
+04. Without You (05:11)
+05. Ready To Promise (04:51)
+06. L.I.E.S. (03:30)
+07. Dream Of It All (03:32)
+08. Believe (03:57)
+09. Tell Me (04:05)Жанр: Hard RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AC82F53B7B36C969B9A243D157CDFF1BDC0631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599258   (999406) от 06.01.2013
+
+Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fall From The Grace Of Love (3:44)
+02.  Girls In Black (3:36)
+03.  Wash Away (4:16)
+04.  I Believe In You (3:56)
+05.  You Don't Have Me (3:45)
+06.  Money (4:09)
+07.  Someday (4:10)
+08.  Heal Me (7:21)
+09.  Over You (4:06)
+10.  Road To Forever (4:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599248   (999433) от 06.01.2013
+
+Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bankrupt (4:32)
+02.  Tied Up (3:44)
+03.  Die Singing (3:23)
+04.  The Guilt (4:52)
+05.  Hello Animosity (4:38)
+06.  Travelers (4:40)
+07.  Live And Let Live (4:10)
+08.  Keep Thinking (5:11)
+09.  All We Need (3:38)
+10.  Uneasy Chair (3:45)(   Читать дальше...   )Жанр: 70's RockПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B2CD18DA222E8096D87DEFC4B2E9A5F33DF383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598511   (999602) от 05.01.2013
+
+Black Cat Bones - Barbed Wire Sandwich (1969) [MP3|320 kbps]<Heavy Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Blues-RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F980C59C70ECF331B414B776C6B7DC3B3DA88106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597471   (1000199) от 03.01.2013
 
 Jace Everett - 4 CDs (2006..2011) Discography [MP3|320 kbps]<Country Rock, Blues Rock>
@@ -548,168 +726,6 @@ Paul Weller - Fat Pop, Volume 1 (2021) Limited Deluxe 3CD Edition [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F0B4C1410DA7A7BA04713DE72F63A5E76D1D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481714   (1008173) от 04.07.2021
-
-Sonic Aftermath - 2 Albums (2016-2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death and Taxes [00:03:16]
-02. Purgatory [00:03:39]
-03. Problem [00:02:54]
-04. Turn It Down [00:04:01](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2CD, 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0598896BF8C1F423CE13B2A4923DB509BE9EE74C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481716   (1008181) от 04.07.2021
-
-Hollow Drifter - Echoes of Things to Come (2021) [MP3|320 Kbps] <Psychedelic Rock >
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue (00:01:24)
-02 - Panacea (00:06:51)
-03 - Misanthropy (00:05:07)
-04 - Brain Cartographer (00:07:39)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B10AE7B170E7767BFEDD14B8BC734E6AEE1918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481515   (1008271) от 03.07.2021
-
-Lynyrd Skynyrd - Nothing Comes Easy 1991-2012 (2021) [MP3|320 Kbps] <Southern, Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smokestack Lightning [00:04:27]
-02 - Keeping the Faith [00:05:16]
-03 - Southern Women [00:04:14]
-04 - Pure and Simple [00:03:07](   Читать дальше...   )Жанр: Southern, Blues Rock, Classic RockПродолжительность: 04:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6447E96E8F0448D69EBAF4EA88D74EAA02DF21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481365   (1008344) от 03.07.2021
-
-Clutch - Songs of Much Gravity... 1993-2001 (2021) [MP3|320 Kbps] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Shogun Named Marcus [00:02:52]
-02 - El Jefe Speaks [00:03:49]
-03 - Binge and Purge [00:06:29]
-04 - 12 Ounce Epilogue [00:02:49](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 03:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4E9AF38F7F86C602216F643842284310AF03D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481143   (1008443) от 02.07.2021
-
-Santana - Splendiferous Santana (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novus (feat. Placido Domingo)
-02. Eres La Luz
-03. Aye Aye Aye
-04. Con Santana (feat. Ismaila & Sixu Toure)(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DF167AE5F056D78972BA24BBC75AABE03277F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480138   (1008954) от 28.06.2021
-
-J Lee and The Hoodoo Skulls - 3 Albums (2018-2021) [MP3|320 Kbps] <Blues Rock, Heavy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Blue [00:02:57]
-02. Beggars Soul [00:03:08]
-03. Let Your Hair Down [00:03:17]
-04. Come Home [00:02:53](   Читать дальше...   )Жанр: Blues Rock, Heavy RockПродолжительность: 3 CD, 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD87B4FFE80BF5A909D8B064B601B9C7C2DFC12
 ```
 
 

@@ -1,3 +1,167 @@
+###  Публикация: 1224007   (669893) от 07.05.2018
+
+VA - Manuel Le Saux Pres.Extrema Maxima (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. McAree & Clancy – Fracture (Radio Edit)
+02. Claire Willis & Andres Sanchez – These Three Words (Radio Edit)
+03. TLR – Chemistry (Radio Edit)
+04. Ariette Florence & Syntouch – Unspoken Words (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A92A0C32E9522C17B05B9A87F2C6D9BC655A09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224037   (669896) от 07.05.2018
+
+VA - Recoverworld Radio 020 (Mixed By Para X) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Para X - Rising Star (Chilled Mix)
+02. Sentien - Journey of Life (Original Mix)
+03. Daniel Scott - Cynosure (Original Mix)
+04. DJ Mystic - Trancemate (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E931C67B0EC1C9975025558436167285145FB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223869   (669897) от 07.05.2018
+
+Willie Graff & Darren Eboli - The Tribeca Tapes (2018) Music For Dreams [FLAC|Lossless|WEB-DL|tracks] <Downtempo, House, Dub>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Flight (06:35)
+ 02. First Light (07:21)
+ 03. Second Sun (07:04)
+ 04. Moon Tan (06:01)Жанр: Downtempo, House, DubПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0CE79632B9B2FB90D5E3A8E57B9828E2CAD2F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224014   (669899) от 07.05.2018
+
+VA - True Uplifting Vol. 3 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UDM - Highlight (Extended Mix)
+02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
+03. Tycoos - 717 (Extended Mix)
+04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791012936B7970810B9EC741CFC09DACF3F186B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030801   (670150) от 02.07.2016
+
+VA - Get Physical Music Presents: Most Wanted 2016, Pt. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Le Roi - I Get Deep (feat. Roland Clark)  (07:30)
+02. Robosonic - Drowning (feat. Son Little)Жанр: Deep House, Tech HouseПродолжительность: 04:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD676F8AA3A69A223A4D7901549D99E9C3E68C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510275   (670213) от 14.06.2012
+
+Akshan - The Tree Of Life (2012) [FLAC|Lossless]<Psychill, Ambient, Downtempo, Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Akshan - The Tree Of Life (2012)
+Год: 2012
+Жанр: Psychill, Ambient, Downtempo, Trance
+Продолжительность: 01:19:32Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: image+.cueТрек лист:
+01. Aborigen's Dream (09:17)
+ 02. Adagio For The Braves (10:00)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030967   (670249) от 02.07.2016
 
 VA - Ibiza Sunset Dreams Vol.2 (Compiled & mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -530,167 +694,6 @@ VA - Live @ Trancemission Heartbeat, A2 Arena Saint Petersburg, Russia 2019-02-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:190CA1322F87F0F8DF6359003C1701AEBBE0CDC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030627   (672290) от 01.07.2016
-
-Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Wind (2:27)
-02. Visions (2:43)
-03. Reminiscence (2:02)
-04. A New Way (2:01)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50A2BB0C8F1D9CFEF0CA6A0E49903FE4D0A6D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291076   (672326) от 23.03.2019
-
-VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Downtempo, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672326.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Henry Green - Shift
-02. Vanilla - Snowdance
-03. Eli & Fur - Something Was Real(   Читать дальше...   )Жанр: Lounge, Chillout, Downtempo, ElectronicПродолжительность: 02:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C071613123C6A84E13D0EE328FD1E8B042B8F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291258   (672333) от 23.03.2019
-
-VA - Relax Your Mind - Electronic Chillout (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gordon Bleu - Schleswig Holstein (Original Mix) 6:32
-02. Beach Hoppers - City Light (Original Mix) 3:59
-03. Niente feat. Gilianne Lazcano & Almus - Blind Like You (Original Mix) 2:26
-04. Dubdiver - Sarsura (Original Mix) 6:11(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747B69EC346EC13094F5C613918B149D9083E840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291058   (672340) от 23.03.2019
-
-VA - London Relax Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Winder - Donner Bisquits (Original Mix) 5:09
-02. For VIP - Hanvi (Original Mix) 6:13
-03. Gomer Charlier - Exodus Right (Sun Chill Mix) 3:42
-04. Jazzagroove - Pubblicita (Original Mix) 5:07(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, ElectronicaПродолжительность: 03:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A47A9FB27367404F0175706660C6D03F97AD16B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030772   (672412) от 01.07.2016
-
-Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (06:31)
-02. Brooklyn Shuffle (05:03)
-03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291263   (672457) от 23.03.2019
-
-Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_672457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need To Get High (05:33)
-02. Spirals (04:46)
-03. I Found You (05:13)
-04. Five Moons (feat. Chela - extended mix) (06:43)(   Читать дальше...   )Жанр: Electronic, Tech HouseПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
 ```
 
 

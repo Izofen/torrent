@@ -1,3 +1,165 @@
+###  Публикация: 1008106   (818102) от 17.04.2016
+
+VA - Epic Chart Favorites Empire (2016) [MP3|320 кб/с] <Progressive House, Electro House, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fish House - Venture (Original Mix) 03:23
+02. Fedde Le Grand - The Noise (Original Mix) 03:42
+03. Quintino - Scorpion (Hardwell Edit) 03:32
+04. Conrad Moon - Rave 04:00(   Читать дальше...   )Жанр: Progressive House, Electro House, BigroomПродолжительность: 05:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD01FA445811CD9B00032A707F5945A84808CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117219   (818559) от 22.03.2017
+
+VA - Привет из СССР (2017) [MP3|192-320 Kbps] <Поп, Шансон, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818559.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Муслим Магомаев - Лучший город Земли 2:30
+002. Голубые гитары - Ветер северный 1:59
+003. Добры молодцы - Прощальный вальс 3:43
+004. Лев Барашков - Главное, ребята... 2:50(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 01:02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE1803A094135C8267783BB234D64B5A68B77A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196943   (819056) от 05.01.2018
+
+VA - Eurodance & Pop (2017) [MP3|320 Kbps] <Disco, Dance, 2 Step и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxmelody - Be Junior (Original Mix) 2:46
+02. Aviator Feat. Camii - Me And U (Original Mix) 4:30
+03. Eduardo Espada - We Will Together (Original Mix) 4:15
+04. The Gravity - High With The Wind (Original Mix) 4:38(   Читать дальше...   )Жанр: Disco, Dance, 2 Step и другиеПродолжительность: 09:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56F103EF254DDBD2D40B3B7A87A4E6FB7A6745E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503346   (819074) от 19.10.2021
+
+VA - Tik Tok Треки выстрелили осенью 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SKAYA - В далёком 2030 (2:29)
+002. Настя Каменских - Ничего не говори, я танцую ты смотри (3:38)
+003. Макс Барских - Just Fly (3:07)
+004. Chebanov - Ночь (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1A5EFE9382227794F2F1EC55DE4298B3D8EA5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503278   (819086) от 19.10.2021
+
+VA - Beatport Uplifting Trance: Sound Pack #357 (2021) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicholson - Hit & Miss
+002. Lr Uplift - Please Don't Cry
+003. Christopher Corrigan - Levitation
+004. Yusuke Teranishi - 2am(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE780D7741A4F88F2D9327986EB21CD97D3B3181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117213   (819110) от 22.03.2017
+
+VA - Painting With Dreams: Trance Euphoria (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airlab7 - Le Fruit de la Grisaia (Miroslav Vrlik Remix)
+002. Andrew Modens & DJ Bratan - Be Good (Vocal Trance Mix)
+003. The Cracken - Saturn (Original Mix)
+004. X-Den Project - Open Fire (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, ClubПродолжительность: 10:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0070FE7D73FFD4DFA0251C7F352D2F8F2ACB04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382481   (819129) от 11.05.2020
 
 VA - International Jazz Day (2020) [MP3|320 Kbps] <Jazz, Instrumental, Smooth Jazz>
@@ -533,168 +695,6 @@ VA - Best Electronic Of All Time (2020) [MP3|320 Kbps] <Electro, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70C6B8A53957A3A20CEC63C8B79E120E53AF9DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116917   (820802) от 21.03.2017
-
-VA - 100 Popular European Hit (2017) [MP3|320 Kbps] <Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820802.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zara Larsson - So Good
-002. Yvonne Catterfeld - Irgendwas (feat. Bengio)
-003. Adele - Water Under The Bridge
-004. Robbie Williams - Love My Life(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 05:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B939AD24DA8BC1806419D463DFFC42DDC9539B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116951   (820808) от 21.03.2017
-
-Albert Collins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Texas Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iceman
-02. If Trouble Was Money
-03. When The Welfare Turns Its Back On You
-04. I Got That Feeling(   Читать дальше...   )Жанр: Blues, Texas BluesПродолжительность: 04:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C5D97345D3DFB6DB54C6087E2868FADD1C32A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382227   (820871) от 10.05.2020
-
-VA - New Wave Of Disco (2020) [MP3|320 Kbps] <Disco, New Generation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelica Rose - My Love Is Always Forever
-002. Kinsuby feat. Demetrius - No Fool
-003. Domineeky - Slow Ragga Flava
-004. Limelight - Say You, Say Me(   Читать дальше...   )Жанр: Disco, New GenerationПродолжительность: 09:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F636F142C577BAD1C6FAF6E03FA1F20879B0F35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381558   (820872) от 10.05.2020
-
-VA - Life under the rubble - collection (2020) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abuser - Creations (05:01)
-02. Accept - Stalingrad (05:59)
-03. Accuser - Perish By Oblivion (04:06)
-04. Agent Steel - Illuminati Is Machine (05:01)(   Читать дальше...   )Жанр: MetalПродолжительность: 07:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA2098A79493DAD310B22B218759CB25E443B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382235   (820876) от 10.05.2020
-
-VA - Beatport Trance: Electro Sound Pack: #76 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820876.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Infect Insect - Boiler Of Thoughts
-002. Aj Gibson & Claire Willis - Reach The Sun
-003. Division Zero - Resystance (Extended Mix)
-004. John Askew - Electraglide (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045595A98E3A27B3A0958FD3CB8D58724A083E19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116920   (820912) от 21.03.2017
-
-VA - Top 100 DJ Vocal Trance (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820912.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam Morris feat. Katty Mcgrew - I See You (Igor Dyachkov Remix)
-002. Andre Visior & Cathy Burton - Daylight (Andre Visior 2017 Remix)
-003. Andy Duguid feat. Leah - Don't Belong (Sied Van Riel Remix)
-004. Angel Falls, Andrew Henry - Forever Is A Lie (Original Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2190D36B9682774061A69994CDAFA92BC73AA323
 ```
 
 

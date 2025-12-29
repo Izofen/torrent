@@ -1,3 +1,165 @@
+###  Публикация: 1488414   (1002042) от 11.08.2021
+
+VA - The Lives Rock (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002042.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. El Pistolero - El Pistolero
+002. Poorstacy - I Can't Sleep
+003. Magic Castles - Valley Of Nysa
+004. The Offspring - This Is Not Utopia(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 08:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471C394618854C66EF343403B39B076077C978EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488411   (1002046) от 11.08.2021
+
+VA - The Hypnotic Nights (2021) [MP3|320 Kbps] <Relax, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002046.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lilli - Endless Summer
+002. Nae-tek - Leading Edge
+003. Domestic Technology - Chase The Sun
+004. Luc Forlor - Deception(   Читать дальше...   )Жанр: Relax, Chillout, LoungeПродолжительность: 08:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B496FBDF382FF66A616E6599B11A66D6FE9F0AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488407   (1002054) от 11.08.2021
+
+VA - Jungle Cruise: Bass Sounds Music (2021) [MP3|320 Kbps] <Jungle, Drum & Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dreaman - Gabriel
+002. Re8ma - My Mind
+003. The Brainkiller - To Night
+004. Ly Da Buddah - Lemon Punch(   Читать дальше...   )Жанр: Jungle, Drum & Bass, Electro BassПродолжительность: 09:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6D3C2E97BC79CBF2FCFA7187309E022485A05A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488399   (1002060) от 11.08.2021
+
+VA - Electro Voice: Mixtape Techno (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Perdu - Dystopia feat. Tjade
+002. Meyer Bergy - Retrograde
+003. Room 99 - Breathe
+004. Boglin - Sea Kelp(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 11:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84AFE0BDAA66B90E045C9B560BE7855F655A359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488398   (1002069) от 11.08.2021
+
+VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Chill Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002069.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Patrick Cowley - Moving Bodies I
+002. Handshaking - Countryside Mailbox
+003. Mmyylo - Inurhead
+004. Mike Rish - In The Woods(   Читать дальше...   )Жанр: Synthetic, Chill Electronic, SynthwaveПродолжительность: 11:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A132BBB07B69CECE93E85DEFBEFB5F031CD2304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488397   (1002071) от 11.08.2021
+
+VA - Beatport Deep House: Sound Pack #329 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rai - Andromeda
+002. Paul Cutie - Tell Me Now
+003. Ollie Remington - Rift
+004. Adam Sleyer - Got To(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBEFE92CCE98A975E4513E25267AA081C75C07E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351343   (1002148) от 10.01.2020
 
 VA - не Громкие новинки недели 51 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -533,168 +695,6 @@ VA - Amaranth: Deep House Electro Mix (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23E59B030BD03AE0D34419928348D226BC12197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350765   (1002964) от 07.01.2020
-
-VA - Yoga And Deep House Meditation Music (2020) [MP3|320 Kbps] <Downtempo, New Age, Ambient, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002964.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bijoy - I Dream Of You
-002. Celer - Wishes To Prolong
-003. Living Room - Portuguese Beach Cafe
-004. Dub Mars - Lost In Thought(   Читать дальше...   )Жанр: Downtempo, New Age, Ambient, ChilloutПродолжительность: 07:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709A3D6C2408CA19D6899C055E301EE970979CB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350762   (1002977) от 07.01.2020
-
-VA - Excalibur: Trance Original Mix (2020) [MP3|320 Kbps] <Trance, Progressive , Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002977.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fischer & Miethig - Oxygenious
-002. Mindsoundscapes - Excalibur
-003. K.E.K A - Impulse (Extended Mix)
-004. Martin Graff - Mantissimo (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive , Uplifting TranceПродолжительность: 09:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DB3ADE1523D1AEAF2612974B387E0FA11135A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350677   (1002986) от 07.01.2020
-
-VA - Techno Friday: With Special Guest (2020) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002986.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wardogg - Last Call (Original Mix)
-002. Delphunk - Mucho
-003. Loren Lewis - Vandal (Hypnotic Mix)
-004. Oziriz - Cheerful (Original Mix)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 13:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9D4D30EEFD95CA5B45C24EBF8150D984DF8F6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350885   (1002994) от 07.01.2020
-
-VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002994.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe De Renzo - Long Trip
-002. Af Double - Redemption
-003. Agoria - Hélice
-004. Sebastian Groth - Snow Leopard(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 15:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492F07413472B6388959FE7A9DE53BBCC55F1A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350764   (1003006) от 07.01.2020
-
-VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jose Vilches - Groove Music (Original Mix)
-002. Jp Lantieri - Intimacy (Original Mix)
-003. Jerome Isma-Ae - Opium (Quivver Remix)
-004. Eimear - Wake Up (Talamanca Remix)(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350678   (1003020) от 07.01.2020
-
-VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Domi Re - The Locals (Original Mix)
-002. Astropilot - Breathe (Sirius Music Remix)
-003. Roger Rabbit - Breath (Original Mix)
-004. Liquid Ace - Neurochemistry (Indianix Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
 ```
 
 

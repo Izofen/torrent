@@ -1,3 +1,57 @@
+###  Публикация: 1483360   (1006882) от 13.07.2021
+
+VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
+2. Joanie Loves Chachi - (Nice Dream) (3:23)
+3. Thom Cooper - Your Power (3:59)
+4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482401   (1007587) от 08.07.2021
+
+ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ring Ring (German Version) (03:10)
+2. Intermezzo No. 1 (03:46)
+3. Waterloo (French Version) (02:44)
+4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481739   (1008168) от 04.07.2021
 
 VA - Calming Acoustic Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -641,60 +695,6 @@ Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473187   (1013842) от 28.05.2021
-
-Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Haze (3:39)
- 02. Hi (ft. Wu-Tang Clan) (2:51)
- 03. Just Want to Be Liked (3:01)
- 04. Unbelievable (3:31)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6E424E6D6B59EC943C69CBFA7DD5A2F96D1425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472686   (1014202) от 26.05.2021
-
-My Brothers And I - Love Is (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unrealistic Expectations (00:03:36)
-02. Own The Night (00:03:29)
-03. Long Distance (00:03:14)
-04. Look At You (00:02:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D9A07B8FD111866CCE23EBA053B6B706133EEC
 ```
 
 

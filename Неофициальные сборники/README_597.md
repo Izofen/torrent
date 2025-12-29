@@ -1,3 +1,165 @@
+###  Публикация: 992444   (900742) от 02.03.2016
+
+VA - Europa Plus Украина Тор 40 February 4th week (2016) [MP3|320 кб/с] <Pop, Dance, Club, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardkiss - Doctor Thomases (04:08)
+02. Alan Walker - Faded (03:33)
+03. Felix Jaehn feat. Polina - Book Of Love (03:19)
+04. Burak Yeter ft. Danelle Sandoval - Tuesday (04:06)(   Читать дальше...   )Жанр: Pop, Dance, Club, RemixПродолжительность: 02:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4173AE3E61A7082698495761E3FC2FADDA0C98B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992379   (900832) от 02.03.2016
+
+VA - Золото Русского Диско - 12 (2013) [MP3|256-320 кб/с] <Pop сборники>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комиссар - Ты уйдёшь
+02. Стелла - Позови
+03. Тест - Сны
+04. Левостороннее движение - Посмотри, на кого ты стал похож(   Читать дальше...   )Жанр: Pop сборникиПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C8FCEF1A3E612E8425765781A9F1407EDBC039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992569   (900842) от 02.03.2016
+
+VA - Золото Русского Диско - 16 (2014) [MP3|256-320 кб/с] <Pop cборники>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комиссар - Наше время пришло
+02. Стелла - Вот и всё
+03. Рок-Острова - Лишь только солнце
+04. Стеклянные крылья - Мой мальчишка(   Читать дальше...   )Жанр: Pop cборникиПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F48C15FB4750F7D81EFC816BDAC8BCDB452347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099983   (900899) от 03.02.2017
+
+VA - Promo DJ Top 100 Remixes Winter 2017 (2017) [MP3|320 Kbps] <House, Big Room House, Electro House, Club House, Pop, Future House, Chillout, Deep House, Vocal House, Drum & Bass, Breaks,  ...
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900899.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sergey Sirotin & Golden Light Orchestra - Around The World (Johnny Beast Remix)  05:41
+002. Alan Walker - Faded (Amice Remix)  04:34
+003. Iowa - 140 (Ivan Spell Extended Mix)  04:16
+004. Dua Lipa - Be The One (Like Post Remix)  05:03(   Читать дальше...   )Жанр: House, Big Room House, Electro House, Club House, Pop, Future House, Chillout, Deep House, Vocal House, Drum & Bass, Breaks, DubstepПродолжительность: 07:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F5F9B474ED9C08E10B9E98B02955CE9402533E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992572   (900908) от 02.03.2016
+
+VA - Золото Русского Диско - 17 (2015) [MP3|128-320 кб/с] <Pop cборники>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MILEN - Эхо дискотек
+02. Юля Шатунова - Лето
+03. Кашемир - Наше лето
+04. Алекс Шер - И тебе повезёт (128 kbps)(   Читать дальше...   )Жанр: Pop cборникиПродолжительность: 01:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45344DCBC790D03FAB6E06654439AFE8959D5691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991801   (900925) от 02.03.2016
+
+VA - Fitness Mania Vol. 4 (2016) [MP3|320 кб/с] <Club, Dance, House, Euro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pogee - Do It To Me (Radio Edit) (Feat. Barbara) 03:12
+02. Jomoney - Back2love (Jomoney Radio Edit) (Feat. Angelique) 04:04
+03. Marco Fratty - Mama (Marco Fratty Radio Edit) 03:45
+04. Mab - I Say Yeah (Edit Mix) 03:22(   Читать дальше...   )Жанр: Club, Dance, House, EuroПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86779031B0BCE3B211E474D0BD6C008762B9C8E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992570   (900962) от 02.03.2016
 
 VA - Radio Eurodance: Big Format Club House Mix (2016) [MP3|128-320 кб/с] <Club House, Dance, Electro>
@@ -536,168 +698,6 @@ VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A12A297D4EC7382C3132D93856787581F42CCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369579   (902022) от 24.03.2020
-
-VA - Hi Games Vol.6 (Chiptune, Drum and Bass Edition) (2020) [MP3|224-320 Kbps] <Chiptune, Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anamanaguchi - Helix Nebula
-02. Rymdkraft - Pulvermoose
-03. Cerror - Megaphone
-04. Rymdkraft - A Mole Odyssey(   Читать дальше...   )Жанр: Chiptune, Drum and BassПродолжительность: 02:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F845424F78DBEA791A66EF8FB3CAC5F187BF2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369557   (902024) от 24.03.2020
-
-VA - Enemy Of Silence (2CD) (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902024.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Hrmülja - Morbid Visions
-02. The Balls - Bliss Point(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBB22D2799F66CD16C41D731019671AB124601C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369565   (902120) от 24.03.2020
-
-VA - Hi Games Vol.5 (Chiptune Edition) (2020) [MP3|249-320 Kbps] <Chiptune>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. +TEK - Orange Rain
-02. FearofDark - Flame Repellent
-03. FearofDark - Get A Brian Morans
-04. Phonetic Hero - Super Bravo Boys DX(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A67CC71B95BD37264DE4A362DACA6BDA51CC56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992094   (902153) от 01.03.2016
-
-VA - Русские Народные Песни (2015) [MP3|256 кб/с] <Pop сборники>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лидия Русланова - Златые горы
-002. Сергей Захаров - Тройка
-003. Русская песня - Маруся
-004. Надежда Крыгина - Комарики(   Читать дальше...   )Жанр: Рор сборникиПродолжительность: 05:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24F958B11E60946C7B2304E88BCB84BA0ADFBC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992108   (902182) от 01.03.2016
-
-Виктория Калистратова - Я люблю своего мужа (2016) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я люблю своего мужа
-02. Бриллиантовая
-03. Люби меня до старости
-04. Удача-Попутчица(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8C1065637B9F52E0F996AC5951980570760AB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867174   (902196) от 08.02.2015
-
-ДДТ - Коллекция легендарных песен (2014) [MP3|320 kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прекрасная любовь
-02. Что такое осень
-03. Дождь
-04. Ветер(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB7CDA896129C15774427A2999DA8C4CC5706F6
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1206979   (781293) от 16.02.2018
+
+VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Eminem - River (feat. Ed Sheeran)
+003. Bausa - Was du Liebe nennst
+004. UFO361 - Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435E0E8BD0A5BC3E971CD3CA46181F8658445395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206936   (781326) от 16.02.2018
+
+VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Estiva & Justin Oh - Reach For The Sky
+002. Marc Van Gale - Mumbai Taxi (Original Mix)
+003. Emanuele Braveri - Destination Summer (Original Mix)
+004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206889   (781330) от 16.02.2018
+
+VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
+2. Kajis feat. Ylona - Way Back Home (Taival Remix)
+3. RAMiNiO - Confession (Extended Mix)
+4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391242   (781458) от 19.06.2020
+
+VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limit - Tell Me
+02. Dynamic Destruction - Bubbles
+03. Rebuilder - Follow Me
+04. Changer - Locals (Original Mix)(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 05:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206662   (781716) от 15.02.2018
+
+VA - Heavy Manuscript: Hard Compilation (2018) [MP3|320 Kbps] <Heavy, Power Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Exocrine - Garden Of Flesh
+002. Kings Of Disorder - Murdered One
+003. Absolva - Never Back Down (Acoustic)
+004. Pretty Maids - Was That What You Wanted(   Читать дальше...   )Жанр: Heavy, Power MetallПродолжительность: 19:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE77455AEA85A324CEBD425E1DB1E8D6D2142250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206905   (781722) от 15.02.2018
+
+VA - Peoples Choise: Pop Rock Retrospective (2018) [MP3|320 Kbps] <Pop Rock, Retro 80's>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Maggie Macneal  -  When You're Gone  4:30
+002.  Hollies  -  Sandy  4:00
+003.  Ike & Tina Turner  -  Baby Get It On  3:14
+004.  B.T. Express  -  Do It  5:50(   Читать дальше...   )Жанр: Pop Rock, Retro 80'sПродолжительность: 06:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFDA7892AFCF99CDCCD8D330AC0EAC3E416DD88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206758   (781734) от 15.02.2018
 
 VA - Psychedelic Bass (Compiled by ZeByte) (2018) [MP3|256-320 Kbps] <Psydub, Psychill, Psyglitch>
@@ -538,168 +700,6 @@ VA - Suspended Dreams: Weekend Picks Deep House (2020) [MP3|320 Kbps] <Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905D2C7DF5F830C6C82A120196423F436A3D8A02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390621   (782669) от 16.06.2020
-
-VA - не Громкие новинки недели 71 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nemiga - Метро (5:24)
-2. ТвояVina - Безумие (4:28)
-3. Хаким - Молчи (4:25)
-4. Сергей Пискун - Маски Сброшены (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC6D061AF9517F604EEF00FE96DCD079B7965CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390522   (782675) от 16.06.2020
-
-VA - Beatport Techno: Electro Sound Pack #102 (2020) [MP3|320 Kbps] <Techno, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dan Rubell - Utopian Visions
-002. Dome & Der Holtz - Rhythm
-003. Gianni Serra - Dance With Me
-004. Sandro M. - Crazy Girl(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 11:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516144BC3A62F976BDB3110A8461636B3570FEDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206010   (782802) от 12.02.2018
-
-VA - Club Night Vol.5 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782802.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Giuseppe Ottaviani  -  Till The Sunrise (Extended Mix)  6:57
-002.  Bobina feat. Denise Rivera  -  Siente (Extended Mix)  6:10
-003.  Don Diablo feat. Dave Thomas Junior  -  Killer (Extended Mix)  5:16
-004.  Arash feat. Helena  -  Dooset Daram (Filatov & Karas Extended Mix)  5:13(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE36E9A19C200FE7171AACCE1F00469A6FCE98E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206066   (782859) от 12.02.2018
-
-VA - New Age Style - Enigmatic 28 (2018) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness Part I (Armandox 2017 Version) (5:10)
-02. Martin Floracks - The Spirit Of Music (5:00)
-03. Amure - No War (6:50)
-04. Empire Of Love - Heart Of Fire (original mix) (4:38)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D22CA9BB229C0A1C9B4F31E7FFA413121A04B5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205918   (782967) от 12.02.2018
-
-VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782967.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jenya Alexanov - Trap'n'jazz (Original Mix)
-002. Viktor Astakhov - Dreams Lake (Original Mix)
-003. Selena - Can't Stop the Feeling (Original Mix)
-004. Max Fischer - Brussels (Original Mix)(   Читать дальше...   )Жанр: Eurodance, Club, HouseПродолжительность: 09:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE9822ED986178FC9B8A7E97CD0496B8721718E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205829   (782971) от 12.02.2018
-
-VA - Underside 5 LP (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block Control - Collaps [4:58]
-02. Fatloaf & oneBYone - Roller [4:14]
-03. Paimon & Place 2b - Complete Me [4:39]
-04. Limtek - July [4:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6BD393483C0A372165BEA13BD06F3746759A2E
 ```
 
 

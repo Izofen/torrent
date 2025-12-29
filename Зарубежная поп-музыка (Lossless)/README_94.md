@@ -1,3 +1,57 @@
+###  Публикация: 1353542   (990698) от 19.01.2020
+
+Halsey - Manic (2020) [FLAC|Lossless|tracks] <Indie, Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley (3:06)
+02. clementine (3:54)
+03. Graveyard (3:02)
+04. You should be sad (3:25)(   Читать дальше...   )Жанр: Indie, Pop, AlternativeПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A46C2759E06B70FE22A86C3CEC779B830F09CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353613   (990699) от 19.01.2020
+
+a-ha - Stay On These Roads (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/20. Stay on These Roads (Early Version) (4:40)
+02/20. The Blood That Moves the Body (Demo) (3:39)
+03/20. Touchy! (Original Mix) (4:37)
+04/20. This Alone Is Love (Demo) (5:01)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4777B16D43A747DE825F5B16F6A9F53E3419022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353204   (992687) от 17.01.2020
 
 Morgan Myles - Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -648,60 +702,6 @@ VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483360   (1006882) от 13.07.2021
-
-VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
-2. Joanie Loves Chachi - (Nice Dream) (3:23)
-3. Thom Cooper - Your Power (3:59)
-4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482401   (1007587) от 08.07.2021
-
-ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ring Ring (German Version) (03:10)
-2. Intermezzo No. 1 (03:46)
-3. Waterloo (French Version) (02:44)
-4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
 ```
 
 

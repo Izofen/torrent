@@ -1,3 +1,165 @@
+###  Публикация: 1504684   (810344) от 24.10.2021
+
+VA - Top 100 Hardstyle Dance Energy (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810344.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Devastate feat. MC Sharkey - Terrabeat
+002. Freeboy - Down To Reduce
+003. Simon Perry - Don't Let Me Down
+004. Basic Beatz - I Think We're Alone Now(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC513D684A9FFE1C8777D477C2BBE21B89EB598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504826   (810351) от 24.10.2021
+
+VA - Record Super Chart 23.10.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
+02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
+03. Minelli - Rampampam (3:20)
+04. Tiesto & KAROL G - Don't Be Shy (2:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079254DCF7C7A088A4A71611AFEDEEED9DBC015D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504681   (810417) от 24.10.2021
+
+VA - The Stars Align: EDM October Mixtape (2021) [MP3|320 Kbps] <Electro, Dance, Clubbing, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810417.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nana K. - Old's Cool
+002. Davide Squillace - Smart Dance Stupid Floor
+003. Andaro - Sick & Tired
+004. Beatfreak - Our Dying Outcry(   Читать дальше...   )Жанр: Electro, Dance, Clubbing, HouseПродолжительность: 07:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0513745C061BFC6182143B2DB7C7BBAABF4BEF3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504572   (810420) от 24.10.2021
+
+VA - Music News vol.142 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danna Paola - A Un Beso (03:37)
+ 002. Abreu feat. Evelina & Nelli Matula - Levoton Tytto (03:25)
+ 003. Aiwa - Больше Не Напишу (02:48)
+ 004. ALE - Spune Tu (03:11)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F399FF3EE00D34748789BCF732C1BBE3CDA05279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504286   (810425) от 24.10.2021
+
+VA - Season of the Halloween Witch (2021) 3CD[MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Simone - I Put A Spell On You
+02. Michael Jackson - Thriller (Single Version)
+03. Ray Parker Jr. - Ghostbusters
+04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 09:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEE120A36E36908FCF5C7A5F62E8AFE2C9E4BA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504189   (810466) от 24.10.2021
+
+VA - Cool Hype EDM Mixtape (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810466.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter - Rave Teacher
+002. Simon Fava - Take It Down
+003. Marshmello - Hitta
+004. Cascada - One Last Dance(   Читать дальше...   )Жанр: EDM, Club, Dance, HouseПродолжительность: 09:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230720EB1340E79504E0ED6C9B3C965FBCDE643F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504179   (810470) от 24.10.2021
 
 VA - Blow The Speakers: EDM Party Vol.03 (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
@@ -533,168 +695,6 @@ VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C98481CAEE7EA998D68C243E700B7D7F81E0414
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118565   (811811) от 26.03.2017
-
-VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811811.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Sarah Decourcy - Face Of Summer
-002. Paul van Dyk & Ronald van Gelderen - Everyone Needs Love
-003. Somna - Awakening (Assaf Remix)
-004. Xten - Love Is The Answer (Air Project Remix Radio Edit)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 07:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFAD34C027537A79286E76BC28391FDE27CC395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197938   (811880) от 09.01.2018
-
-VA - Billboard Year End Hot 100 Singles Chart (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811880.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ed Sheeran  -  Shape Of You  3:54
-002.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
-003.  Bruno Mars  -  That's What I Like  3:27
-004.  Kendrick Lamar  -  HUMBLE  2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AAB9CF449CD68F8F6473C1A72B523CC313714F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008916   (812050) от 20.04.2016
-
-VA - KissFM top 40 Апрель (2016) [MP3|320 кб/с] <Electro House, Dance, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Dumont - Ocean Drive (3:26)
- 02. Alan Walker - Faded (3:32)
- 03. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers (3:52)
- 04. Ben Delay - The Boy Is Mine Feat. Alexandra Prince (Alternative Mix) (6:32)(   Читать дальше...   )Жанр: Electro House, Dance, TranceПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DF6109FF897A20B64325103B9ED0A578FFCB0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008932   (812060) от 20.04.2016
-
-VA - Electro Life 42 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Electro Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3LAU ft. Bright Lights - How You Love Me (Charming Minds Remix)
-02. Alan Walker - Faded (Julian Calor Remix)
-03. Artik & Asti - Один на миллион (Thaellysson Pablo & Hudson Leite Remix)
-04. Axwell & Ingrosso - Dream Bigger (Original Instrumental Mix)(   Читать дальше...   )Жанр: Electro House, Electro Progressive, Dubstep, HouseПродолжительность: 02:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA76DF57073E77FA6D9D281F83C403E949BEDAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008967   (812061) от 20.04.2016
-
-VA - Весенний хит супер популярный 4 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sasha Mars - Забудь Меня
-002. Sia - Blinded By Love
-003. Тамара Викберг - Фата В 24
-004. Katie Louise - Too Far Gone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1787FAA94B4B3D61B26AE7F70615A3CCB2422715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008998   (812065) от 20.04.2016
-
-VA - Радио Шансон. Слушать подано №5 (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812065.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. И. Кучин - Черноокая
-002. Евгений Коновалов и Любовь Шепилова - Как мне жаль
-003. Дмитрий Суслов - Мадам Морячка
-004. Геннадий Зачетный - Особа приблатненная(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A802D099ED4F329333281DDF13D00D3B96F31874
 ```
 
 

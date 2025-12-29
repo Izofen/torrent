@@ -133,6 +133,39 @@ magnet:?xt=urn:btih:F77599DE3DB48342D99D21CBA68D41F6A342DE84
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514041   (659125) от 23.06.2012
+
+Bill Stewart - Think Before You Think (1998) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_659125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think Before You Think
+02. Faces
+03. Dewey Said
+04. When You're Smiling
+05. Goodbye
+06. Processional
+07. I'm Gettin' Sentimental Over You
+08. Rain
+09. Deed-Lee-Yah
+10. Little Niles1998Жанр: Post-BopПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903186   (659217) от 30.05.2015
 
 John Petters Swing Band - Sing Sing Sing (2013) [MP3|320 кб/с]<Jazz, Retro Swing, Big Band>
@@ -241,6 +274,39 @@ magnet:?xt=urn:btih:51D436560AC3120CEC77BA54783C93C67BF1760A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514059   (659277) от 23.06.2012
+
+Bill Tole And His Orchestra - On The Move (1990) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_659277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tole Road
+02. It Had To Be You
+03. I'm Walkin'
+04. Them There Eyes
+05. What's New
+06. Exactly Like You
+07. Don't Worry About Me
+08. Front Page Rag
+09. I'm So In Love With You
+10. How Little We Know(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139645   (659285) от 03.06.2017
 
 Adi Barar Band - Hold On! (2017) [MP3|320 Kbps] <Blues Rock>
@@ -290,6 +356,39 @@ Gina Sicilia - Tug Of War (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD3B11C4A4528BFCFAAD9DE999A0F2D80B234FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514035   (659348) от 23.06.2012
+
+The Bill Perkins Big Band - Our Man Woody (1999) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_659348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're In Love With Me
+02. I've Got The World On A String
+03. Tenderly
+04. I Got It Bad And That Ain't Good
+05. 9:20 Special
+06. My Funny Valentine
+07. Blue Lou
+08. I've Got A Lot Of Living To Do
+09. Sweet Lorraine
+10. Blues For Woody1999Жанр: Big BandПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -614,87 +713,6 @@ Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221B1BF0F201C2B597BDE4D0A30388D612DD37E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538982   (660331) от 23.03.2022
-
-Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Time [6:18]
-02. Jitterbug Waltz [5:22]
-03. Out South [5:28]
-04. Tin Tin Deo [4:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD75948E074A2282A8A6D25A081D8E80D51E228
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902931   (660364) от 29.05.2015
-
-Bobby Hutcherson - Live At Montreux (2012) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton's Bail [13:44]
-02. The Moontrane [10:49]
-03. Farallone [13:25]
-04. Song Of Songs [14:04]Жанр: Jazz, Post-BopПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A64020C83768CE4AE44213B6CFE78D25742027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225362   (660748) от 15.05.2018
-
-Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Strings Attached
-02. Follow Me
-03. Selfie Face
-04. My Mood(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E91AC22BE0CD76DF8D3ADD90BF2DB98DD6FB61
 ```
 
 

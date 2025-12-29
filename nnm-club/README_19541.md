@@ -1,649 +1,680 @@
-###  Публикация: 1506430   (799763) от 31.10.2021
+###  Публикация: 1202367   (790540) от 28.01.2018
 
-Embarcadero RAD Studio 11.0 Alexandria 28.0.42600.6491 + Patch 1 October 2021 [En]
+Томас Мертон | Одинокие думы (2003) [FB2]
 
->>Архив торрентов
->>Архив Программ
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799763.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Описание: Embarcadero RAD Studio - наиболее полная платформа разработки приложений для Android 32-64 bit, Windows 10, Mac OSX 32-64 bit, iOS 32-64 bit и Linux64, а также и мобильных устройств IoT. RAD Studio обеспечивает самый быстрый способ создания и обновления интенсивно работающих с данными и сильно взаимодействующих приложений с визуально насыщенным пользовательским (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский, Японский
+Томас Мертон (1915-1968), монах Ордена траппистов, - один из самых значительных духовных писателей XX века. Знаменитым его сделала вышедшая в 1947 году автобиография под названием «Семиярусная гора». Затем последовали ставшие духовной классикой сборники эссе о духовной жизни - «Семена созерцания», «Человек - не остров», дневник «Знамение Ионы», сборники статей «Спорные (   Читать дальше...   )Жанр: Духовная литератураФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDFA72FD6AE4FDD420A71E3BF813302190B9A0E3
+magnet:?xt=urn:btih:45DC81A35BF023D2593CF8D0D5A54534A4C61049
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344687   (799764) от 31.10.2021
+###  Публикация: 1202247   (790541) от 28.01.2018
 
-Daff Moon Phase / Фазы Луны v3.0.9 [Ru/Multi]
+Macgo Mac Blu-ray Player Pro 3.2.18 [En]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799764.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Изображения фазы Луны с высокой точностью соответствует реальному для данного момента времени. Настройка уведомлений, можно задать уведомления о будущих событиях (восход, закат, верхний транзит и тд). Календарь (   Читать дальше...   )Тип издания: AdFree (без рекламы)Релиз состоялся: 30.10.2021Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2018Разработчик: MacgoПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Ангийский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79F2996CA6FE736B53EDA3403DE2F17D0F29A9AA
+magnet:?xt=urn:btih:9A3DAB4C8B72163D79757738C29502DEDB0E6677
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 462600   (799765) от 31.10.2021
+###  Публикация: 1202287   (790542) от 28.01.2018
 
-А.Н. Афанасьев | Народные Русские Сказки [1863] [PDF]
+Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Bell
+2. Wheels
+3. Midnight Angel
+4. Woman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73ADBA9164E7DDD2C6B197A31B3916D6D7468455
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202179   (790543) от 28.01.2018
+
+VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+03.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30
+04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202318   (790544) от 28.01.2018
+
+VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stuce The Sketch  -  Silver Days (feat. Wenawedwa) (Original Mix)  4:15
+02.  Maximus & Trilogy  -  Du Ar (Original Mix)  4:06
+03.  Alexandra Hampton  -  Love (feat. Ahbee) (Original Mix)  3:32
+04.  Praful  -  One Day Deep (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202014   (790545) от 28.01.2018
+
+Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acoustic, Alternative, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust Layers (04:34)
+02. Another Time (04:28)
+03. Sunlight Daze (03:09)
+04. Island Shore (04:27)(   Читать дальше...   )Жанр: Indie, Acoustic, Alternative, SurfПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202338   (790546) от 28.01.2018
+
+VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
+02.  Marc Hartman  -  French Melody (Original Mix)  3:35
+03.  Jens Buchert  -  On The Run (Original Mix)  4:39
+04.  Lazy Hammock  -  Is This Love (Original Mix)  4:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202278   (790547) от 28.01.2018
+
+VA - Chill House Session vol.2 (2018) [MP3|320 Kbps] <Downtempo, Ambient, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - The Rain (Vocal Radio Mix)
+02. Dj Absinth - Morning Sun
+03. Superluminal - Make It Better (Original Mix)
+04. Joxephad - Infinity(   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CACCB81C4BFCD6DCF15BEAB0312623AEE170150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202106   (790548) от 28.01.2018
+
+VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - When You're Gone (Intro Mix)
+02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
+03. FAN FAVORITE: InnerSync - Magnificence
+04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202133   (790549) от 28.01.2018
+
+VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Smith - Kick Back (Original Mix)
+02. Bryan Kearney presents Karney - Smiler (Original Mix)
+03. Jordan Suckley & Kutski - Surveillance (2nd Phase Remix)
+04. David Forbes - Panic Room (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 05:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C332CAA2B32165FDE53CCE89462DD563D39050B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202326   (790550) от 28.01.2018
+
+VA - Balearic Lounge: Fresh Nu Lounge Music Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Giacomo Bondi  -  Analogic  4:09
+02.  Iffar  -  Glazed (Instrumental)  3:00
+03.  Philippe Rozes  -  Evade Business  3:18
+04.  Francesco Gazzara  -  Balearic  4:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4B177412B0E377CFE9333422B19D4B92F490E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202205   (790551) от 28.01.2018
+
+Михаил Круковский | Родная жизнь (1910) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799765.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Блестящий историк, этнограф и фольклорист Александр Николаевич Афанасьев (1826-1871) посвятил свою жизнь бережному изучению устного народного творчества. Он собрал и обработал множество русских сказок, легенд и былин, сохранив их для будущих поколений. Афанасьевский сборник «Народные русские сказки» – выдающееся издание не только отечественной, но и мировой фольклористики. (   Читать дальше...   )Жанр: Детская литература, история, раритетФормат: PDF
+Рассказы о Родине, о земле нашей русской, о бескрайних просторах родного края.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB55D358FC118DB627734278F14E1F44FDE97F85
+magnet:?xt=urn:btih:3F4E2C74FDC64BE6DCF926CA2B9D442376534AB4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273405   (799766) от 02.01.2019
+###  Публикация: 1202157   (790552) от 28.01.2018
 
-ScAnDroid Experiment's - Rhythms of Nature (2019) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Downtempo, Easy Melody>
+Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + .cue] <Viking Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under The Twelfth Moon
+02 - The Drawl Of Naiad
+03 - Vastland Of The Eternal TormentsЖанр: Viking Black MetalПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2692894A08AE449862B2CF45F1E154ADBD6576B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202189   (790553) от 28.01.2018
+
+VA - Inspiring Sunrise World (2018) [MP3|320 Kbps] <Melodic, Euphoric, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dim3nsion  -  Agarimo (Extended Mix)  7:27
+02.  Omnia & Alex Sonata  -  Titans (Extended Mix)  5:48
+03.  Sam Laxton & Noire Lee  -  Thunderstorm (Extended Mix)  5:30
+04.  Denis Kenzo feat. Clara Yates  -  Other Side (Extended Mix)  6:11(   Читать дальше...   )Жанр: Trance, Melodic, Euphoric, Blissful, Energy, Tuneful, HarmonicПродолжительность: 03:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4442A6BBAFA032808F6B8C81A754E059CF761F1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202385   (790554) от 28.01.2018
+
+VA - Smooth Summer Lounge And Chill House (2018) [MP3|320 Kbps] <Downtempo, Chill House, Lounge>
 
 >>Electronic
->>Experimental Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799766.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rhythms of Nature (Intro)
-02. Almost New Year Thoughts
-03. On The Neighbor's Cart (Original Mix)
-04. Ipsa Vetus Fabula (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Easy MelodyПродолжительность: 01:12:35
+01.  Oscar Stringz  -  Diversity (Original Mix)  6:46
+02.  Popy Zeddil  -  All Night Long (Original Mix)  5:37
+03.  Mephia  -  Esperanto (Original Mix)  5:05
+04.  Riddle Of Monogamy  -  Crossing Boundaries (Original Mix)  6:55(   Читать дальше...   )Жанр: Downtempo, Chill House, LoungeПродолжительность: 01:27:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B1F8107F6228C401E936059F7C8C633FCC89CC
+magnet:?xt=urn:btih:A0C7691F5AEBEC398482FF12EF796CA8D93C4A8F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273555   (799767) от 02.01.2019
+###  Публикация: 1202123   (790555) от 28.01.2018
 
-Полуночная жара / In the Heat of the Night (1967) BDRip [H.264/720p]
+Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799767.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В шестидесятые годы в Америке к неграм относились совсем по-другому, нежели сейчас. Расовые предрассудки существовали во всех слоях общества, даже среди полицейских. Обстоятельства складываются так, что белый шериф из провинциального городка вынужден объединить усилия в расследовании чудовищно жестокого убийства с чернокожим детективом из Филадельфии.
-Их взаимная (   Читать дальше...   )Производство: США / The Mirisch CorporationЖанр: Драма, криминал, детектив, экранизацияРежиссер: Норман ДжуисонАктеры: Сидни Пуатье, Род Стайгер, Уоррен Оутс, Ли Грант, Ларри Гейтс, Джеймс Паттерсон, Уильям Шэллерт, Би Ричардс, Питер Уитни, Кермит Мёрдок ...Перевод: Профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый), авторскийСубтитры: Русские, английскиеПродолжительность: 01:50:04
+01. Ekleipsis - Devourer of Gods - 05:06
+02. Bloodline of the Wolves -04:29
+03. Soaring - 05:00
+04. Sol Sister -04:11(   Читать дальше...   )Жанр: Pagan Metal
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A33817B61975BE0CB7443303788CAF5846337954
+magnet:?xt=urn:btih:BE25003D18C29DFD9E52839A2805419C7900B969
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273618   (799768) от 02.01.2019
+###  Публикация: 1202376   (790556) от 28.01.2018
 
-Ларри Смит, Рейчел Фершляйзер (под ред.) | Жизнь в шести словах (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли уместить целую жизнь в шесть слов? Авторы этой книги – знаменитые и безвестные – доказали, что можно. Эта книга – чудесный хор сотни голосов, сотня маленьких окошек в человеческую жизнь – по шесть слов каждое. Как бы они ни звучали – шокирующе, странно, дурашливо или печально, – они всегда увлекательны, они вдохновляют, и от них совершенно невозможно оторваться.Жанр: Афоризмы и цитатыПеревод: Элеонора МельникФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAC2BF460184D658CB63205B511C74F520820DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273492   (799769) от 02.01.2019
-
-The Gakuen Choujotai | Школа супер девушек [1991, OVA, 1 из 1] DVDRip 472p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три девушки, обладающие экстрасенсорными способностями, нашли группу поддержки правосудия под названием «Gakuen Choujotai» (Школа Супер Девушек). Психокинез Юми, телепат О-Кей и Май, обладающая сверхчеловеческой силой - они все ещё неопытны в использовании этих сил. Тем временем подозрительная организация «Общество исследования психической силы» тайно работает над (   Читать дальше...   )Производство: Студия Magic Bus / マジックバスЖанр: приключения, мистикаРежиссер: Дэдзаки СатосиПеревод: Нарру; AlexMalkavianЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 45 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495A49623E4045CF2E9D7224C9F3C8CE94067C57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273653   (799770) от 02.01.2019
-
-Athentech Perfectly Clear + Essentials v3.6.3.1398 x64 [En]
+Robert Rich - Live At The Gatherings 2015 (2017) Industry8 [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799770.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+01. The Other Side of Twilight (11:04)
+02. Filaments (4:35)
+03. Majorana (10:30)
+04. Scintilla (3:38)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:46:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE8C17246B0C545C63FB6AA3860ADEE84CF9692A
+magnet:?xt=urn:btih:D656A81A29E9DDE0CF2F38D6FFFFF57C792D6F0F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273584   (799771) от 02.01.2019
+###  Публикация: 1202202   (790557) от 28.01.2018
 
-Л.Г. Матвеева, О.А. Чернова (ред.) | Прикладная информатика в экономике: теория и практика (2013) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструменты анализа инвестиционных проектов и сопряженных с ними рисков предложены авторами этой книги. Рассмотрены вопросы, связанные с управлением развитием информационных технологий на предприятии и оценкой их эффективности в экономических системах. В пособии рассмотрены основные понятия и роль информационных технологий в системе факторов современного экономического (   Читать дальше...   )Жанр: Информатика, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B994329048FF296AB35AA5AABF4778E8DE05D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273400   (799772) от 02.01.2019
-
-Дмитрий Емец | Космический пират Крокс-1. Тайна «Звёздного странника» (2018) [MP3] (Владимир Левашёв)
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вопреки запрету родителей ты самовольно решил присоединиться к космической экспедиции, то уж будь уверен: тебя ждут серьезные неприятности! Так и случилось с Андреем и его другом роботом Баюном. Уже в космосе они обнаруживают, что попали совсем на другой корабль, который к тому же запрограммирован на самоуничтожение. Горе-путешественникам удается избежать страшной (   Читать дальше...   )Жанр: фантастика, детская литератураПродолжительность: 06:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35597530CAA5B44BF19CEEC31F50BD1FC2AC0D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273643   (799773) от 02.01.2019
-
-Aiseesoft Data Recovery 1.1.12 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Data Recovery - это мощное и безопасное программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные / потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.
-Aiseesoft Data Recovery (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76593FE65963A9BEFC31D3DAD31287658624A0E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273637   (799774) от 02.01.2019
-
-Photo Supreme 4.3.2.1834 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ED8D54662818811573250BB18D78B8567B9D7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273579   (799775) от 02.01.2019
-
-Joe Bonamassa - Rockin' Christmas Blues (2019) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas, Blues
-02. Bring Back My Cadillac
-03. Christmas Boogie ( One Little Kiss)
-04. Christmas Date Blues(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E97912BADDFE60F2614F2928355FDC2388C3E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273449   (799776) от 02.01.2019
-
-Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House, Techno>
+101 - Phatty Acids (2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799776.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Part Eleven (03:27)
-02. Part Three (03:48)
-03. Part Fourteen (04:50)
-04. Part Seven (03:24)(   Читать дальше...   )Жанр: Electronic, Tech House, TechnoПродолжительность: 00:57:28
+01. Dreams (03:52)
+ 02. Darkness Upon Beautiful Souls (04:15)
+ 03. Amino Acid (04:48)
+ 04. Fatty Acid (03:32)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:51:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ED11472E59961CF47CCFA7578E88E987C12E7F8
+magnet:?xt=urn:btih:42D6F351749E5CBB2EC2A2AE81F8B46E9F8115DF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273104   (799777) от 02.01.2019
+###  Публикация: 1202327   (790558) от 28.01.2018
 
-Мэтт Ричардс, Марк Лэнгторн | The Show Must Go On. Жизнь, смерть и наследие Фредди Меркьюри (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском! Самая подробная и откровенная биография легендарного вокалиста группы Queen – Фредди Меркьюри. К премьере фильма «Богемская рапсодия!
-
-От прилежного и талантливого школьника до звезды мирового масштаба – в этой книге описан путь одного из самых талантливых музыкантов ХХ века. Детские письма, архивные фотографии и интервью самых близких людей, (   Читать дальше...   )Жанр: Мемуары, Биографии, МузыкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CBF05BE067B4D211CABBD6BA73B144F78F6ECA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273604   (799778) от 02.01.2019
-
-VA - We Chill Series: Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music - 8 Releases (2012-2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
+Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lossless|tracks] <House, Electro House>
 
 >>Electronic
->>Easy listening
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799778.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2012 - We Chill (Top 40 Chill Out Tracks)
-2013 - We Chill • Vol. 1 (Top 50 - Best Of Chillout / Lounge / Cafe / Bar)
-2014 - We Chill • Del Mar. Vol. 2 (50 Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music)
-2014 - We Chill • Del Mar. Vol. 3 (50 Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 30:49:32
+01.Feel Alright (3:27)
+02.Mad About You (4:26)
+03.Get Up! Push Up! (3:49)
+04.In The Sunshine (5:23)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:02:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63496519F17C763060588392EDC278A366E41DDC
+magnet:?xt=urn:btih:EDB4ACED75C85ACFA558D9CFEBD8DE1552C12437
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273500   (799779) от 02.01.2019
+###  Публикация: 1202200   (790559) от 28.01.2018
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Словакия — Финляндия (29.12.2018) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799779.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 декабря 2018, воскресенье. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-Словакия — Финляндия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029EED954ED864F0118F30450D5866F6AE2FBE24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273636   (799780) от 02.01.2019
-
-Cafe del Mar - Cafe del Mar Dreams X (2018) [MP3|320 Kbps] <Lounge, Chill Out>
+Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House>
 
 >>Electronic
->>Easy listening
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799780.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kaia (Cafe del Mar Edit) - Nancy Noise
-02. Southern Freeez (Mudd's Mix For Emma ) - Zee Erf
-03. Jasmine - Hampshire & Foat
-04. Petrified (SKL Floating Mix) - Flunk(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 00:50:07
+01. En Route (07:51)
+ 02. The Place (07:26)
+ 03. Flick (03:50)Жанр: Dub Techno, Tech HouseПродолжительность: 00:19:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CF3EF3233C0FE6A7F5A350D8351F4BAF2907ECD
+magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273456   (799781) от 02.01.2019
+###  Публикация: 1202214   (790560) от 28.01.2018
 
-С. А. Алексеев (сост.) | Гражданская война в Сибири и Северной области (1927) [PDF]
+Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
->>Разное (категория книг)
->>Публицистика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799781.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четвертый том воспоминаний белогвардейцев охватывает, так сказать, разгар белогвардейщины — 1919 г. Воспоминания эти касаются главным образом Сибири и Северной области, хотя в этом же томе имеются и воспоминания Маргулиеса, относящиеся к югу. Мемуары четвертого тома рисуют белогвардейское движение в самых разнообразных его фазах. В воспоминаниях Маргулиеса, например, (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: PDF
+01. Point of Departure [05:25]
+02. Kinch [05:47]
+03. I Can See You from Here [05:35]
+04. Jack in the Back [17:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:713680537A4B84D835D04E90E394A040F46B883A
+magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273632   (799782) от 02.01.2019
+###  Публикация: 1202215   (790561) от 28.01.2018
 
-Privacy Eraser Free 4.46.0 Build 2744 + Portable [Multi/Ru]
+Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mel's Drive In [07:54]
+02. Circle Dance [01:35]
+03. The Rising [09:17]
+04. Hearth [07:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610BF80441FA6C0C557EAD2B88EC20687F2DA47F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202084   (790562) от 28.01.2018
+
+Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Женщины. Спринт (26.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799782.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+26 января 2018 года, пятница. 16:00 МСК
+Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
+Женщины. Спринт 7,5 км
+Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:14:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:953A1C41BCFB3FBBA9A731752D0E4AA795653D40
+magnet:?xt=urn:btih:7F3301EE3BB806B1C7A2F3B006401435A37B0FB0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271713   (799783) от 02.01.2019
+###  Публикация: 1134425   (790563) от 03.06.2020
 
-О том, как Колька и Петька летали в Бразилию (1998) SATRip
+Prey (2017) [Ru/Multi] (10966486/dlc) Repack xatab [Digital Deluxe Edition] (обновляемая)
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799783.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По рассказам Д. Хармса "Сказка", "О том, как Колька и Петька летали в Бразилию".
-О том, как неисправимому фантазеру Кольке ничего не стоит оказаться там, где очень хочется. О том, как обычные сосны превращаются в экзотические пальмы, а воробьи — в колибри. О том, как Колька рад показать всю эту красоту Петьке, да тот не все видит, потому, что (   Читать дальше...   )Производство: Беларусь / БеларусьфильмЖанр: Короткометражный, детскийРежиссер: Рената ГрицковаАктеры: Степан Галай, Вадим Жук, Александр Кашперов, Георгий Волчек, Леонид Осененко, Виктор Гудинович, Валерий Зеленский, Анри Наскидянц, Юрий Марецкий, Франц ЛисСубтитры: ОтсутствуютПродолжительность: 00:24:59
+Действие Prey происходит в 2032 году. Вы обнаруживаете себя на лунной орбите, на борту космической станции «Талос-1». Эксперимент, в котором вы участвовали, должен был навсегда изменить человеческую расу, но привел к катастрофическим последствиям. Станцию захватили враждебные пришельцы, которые теперь ведут на вас охоту. Раскрывая мрачные тайны «Талоса» и собственного (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3943E8B60A417EA60DC56E7B6340A39828E1790
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273453   (799784) от 02.01.2019
+###  Публикация: 1387683   (790564) от 03.06.2020
 
-Д. М. Погоржельский (сост.) | Вчера Вьетнам, Лаос, Кампучия. Сегодня Гренада, Ливан. Завтра... Преступления американского империализма продолжаются (1985) [DJVU]
+Kaspersky Free 2020 20.0.14.1085 (k) RePack by KpoJIuK [Ru/En]
 
->>Разное (категория книг)
->>Публицистика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799784.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы сборника — ученые и журналисты-международники — на конкретных фактах разоблачают терроризм как составную часть государственной политики США на международной арене, политики, несовместимой с общепринятыми нормами права и морали, создающей угрозу миру и международной безопасности.Жанр: История, политология, экономика, журналистика, публицистикаФормат: DJVU
+Kaspersky Free — бесплатный Антивирус Касперского с облачными технологиями Kaspersky Security Network. Решение предлагает файловый антивирус, веб-антивирус, VPN, защиту от сетевых атак и мониторинг активности.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE22DAE226F0D0AA3DFCA775F039F45FBF0A9540
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273388   (799785) от 02.01.2019
+###  Публикация: 1387593   (790565) от 03.06.2020
 
-Emmylou Harris - Profile / Best Of Emmylou Harris (1978) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799785.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 One Of These Days
-A2 Sweet Dreams
-A3 To Daddy
-A4 (You Never Can Tell) C'est La Vie(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C912588F76AD77B972B28D6AC0495A4E262DE1A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790098   (799786) от 23.05.2020
-
-Во все тяжкие / Breaking Bad (2008-2013) BDRip [H.264] (сезон 1-5, серии 1-62 из 62) (LostFilm)
+Total Commander PowerUser v.72 Portable by HA3APET [Ru]
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799786.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался «варкой мета», но накануне, (   Читать дальше...   )Жанр: Драма, Триллер, КриминалРежиссер: Мишель Максвелл МакЛарен, Адам Бернштейн, Винс ГиллиганАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, Ар Джей МиттПеревод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: РусскийПродолжительность: ~00:47:00 серия
+Мощнейший программный комплекс на базе Total Commander 9.51 для системных администраторов и продвинутых пользователей, в котором грамотно подобраны программы и плагины. Две конфигурации в одной сборке для PowerUser и для HomeUser. Подробное описание и состав читайте ниже.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27E78E3DA00768EC723336D9F15EAC60FB89695A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383707   (799787) от 23.05.2020
-
-Предок (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Лапин решает всерьез взяться за воспитание своего десятилетнего сына, когда неожиданно осознает, что мальчика воспитывают исключительно женщины: дома мама, в школе — женский педагогический состав. Но оказывается, что все не так просто, и процесс воспитания нужно начинать с себя. Никакие педагогические техники не помогут решить пресловутый вопрос отцов и детей, (   Читать дальше...   )Производство: Россия / Artlight, Инвада фильмЖанр: КомедияРежиссер: Максим ЗыковАктеры: Максим Деричев, Дмитрий Гущин, Карина Разумовская, Никита Тарасов, Федор Лавров, Даниил Радионов, Яков Киселевич, Ульяна Медведюк, Светлана Колпакова, Марат ХисамовПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B7A0B98E8F31C5507395A24F467CEF92A51AB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833038   (799788) от 23.05.2020
-
-Евгений Карташов | Быстрая ретушь с Retouch Panel (2014) [ISO]
-
->>След.
->>Другие мультимедийные материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональному фотографу или просто ретушеру часто приходится обрабатывать фотографии людей. Если вы занимаетесь ретушью фото, то вы понимаете сколько может уходить времени на одну фотографию или на весь фотосет. Это может затягиваться от нескольких часов до дней и даже недель. Но можно ли как то сократить и упростить время обработки фото? Конечно обработку фото (   Читать дальше...   )Жанр: Обучающие видеурокиФормат: ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB249F19235429A804050A09960C8DAA282F92BE
+magnet:?xt=urn:btih:1E78BA50375DE399E7F9DED954882574312103D2
 ```
 
 

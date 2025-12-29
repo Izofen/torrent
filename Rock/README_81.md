@@ -1,3 +1,165 @@
+###  Публикация: 1120714   (801798) от 31.03.2017
+
+The Beatles - Abbey Road And Beyond (2016) 6CD Box Set [MP3|320 Kbps] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beatles - самый знаменитый и влиятельный рок-коллектив, привнесший больше инноваций в поп-музыку, чем любая другая группа в 20 веке. Они синтезировали то лучшее, чем мог похвастаться ранний рок-н-ролл, выработав на его основе свой оригинальный и впечатляющий стиль. Они создали прецедент самодостаточной рок-группы, творческой лаборатории и исполнительской мастерской (   Читать дальше...   )DISC 1 - The Lost Decca Audition Tapes
+DISC 2 - The Lost Abbey Road Tapes 1962-'64
+DISC 3 - The Lost BBC Tapes And Much More...
+DISC 4 - New York, Miami And PhiladelphiaЖанр: Pop, RockПродолжительность: 04:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2F9753C26B9550DE005AC1CEDA223CF5A5F189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199206   (801837) от 15.01.2018
+
+Обійми Дощу - Сон (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остання мить (08:37)
+02. Крила (10:10)
+03. Разом (07:33)
+04. Темна ріка (11:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E59AB7EE22DEA63ACE8A843F063AF8CC33C4B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010785   (802074) от 25.04.2016
+
+Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. In The Flesh (03:41)
+02. The Thin Ice (02:29)
+03. Another Brick In The Wall Part 1 (03:29)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2CCB99E299F4B46B4DA56DB83A2EE100947053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120467   (802117) от 31.03.2017
+
+OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfall (04:45)
+Desire (03:16)
+The First Cut (03:25)
+Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199117   (802933) от 14.01.2018
+
+Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 Kbps] <Psych-Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prologue
+2. Right On, Fight On
+3. Portobello Shuffle
+4. Marilyn(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5239B6CF52F50B4BCD83AD5C2F5E3786CE4F747D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505794   (802934) от 28.10.2021
+
+Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Pie - Medley (5:20)
+02. Babe Babe (2:36)
+03. Guitar Boogie (3:02)
+04. My Darling (2:52)(   Читать дальше...   )Жанр: Rock & Roll, PopПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C79BA4E346A1281EC1C8F6866E14FA7FB5B93E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199021   (802935) от 14.01.2018
 
 William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rockabilly>
@@ -527,168 +689,6 @@ The Rolling Stones - Tattoo You (1981) 40th Anniversary, Super Deluxe Edition, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C59573B8E3FBF314B53532DD9D58F4A1E58130A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008868   (813677) от 19.04.2016
-
-Eric Clapton & Friends - The Breeze: An Appreciation of JJ Cale (2014) [MP3|320 кб/с] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me The Breeze (03:08)
-02. Rock And Roll Records (feat. Tom Petty) (02:20)
-03. Someday (feat. Mark Knopfler) (03:48)
-04. Lies (feat. John Mayer) (03:07)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46888929AE30B0679AD35A97A2EB4788B8BF6F6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383300   (813739) от 14.05.2020
-
-Le Systeme Crapoutchik - Le Systeme Crapoutchik (1975) Vinyl, LP, Album [MP3|320 Kbps] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813739.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. La Vie D'artiste
-A2. Il Neige
-A3. Le Mutant
-A4. Judy(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9BBC79CA8F8E3021CDD157BAA86B78170D12AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197622   (813917) от 08.01.2018
-
-Bahroma - Дом (2017) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Камень
-02. Магия
-03. На Юг
-04. Ломаными ритмами(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38D0BA51C9E4AB42824DB10A85AC480292D4D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197759   (813922) от 08.01.2018
-
-Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Hard Rock, Punk Rock, Blus Rock, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flash
-2. Mama Don't You Get Me Wrong
-3. Won't You Make Up Your Mind
-4. Something New(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Psych-Rock, Blues Rock, Rock 'n' RollПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDA7762D14125EE22F6215D1F4DBEFCE292B9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118036   (815047) от 24.03.2017
-
-The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Soft Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nanana [03:29]
-02. Fell In Love With An Alien [03:24]
-03. An Angel [03:54]
-04. Stand By Me [03:31](   Читать дальше...   )Жанр: Pop-Rock, Soft Rock, FolkПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98415A6341735513FA756EC8A6CA3B324FA41BAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008325   (816035) от 18.04.2016
-
-April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like To Rock (04:24)
-02. Say Hello (02:59)
-03. Tonite (04:13)
-04. Ladies Man (03:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E465BBADAD69A500947EE17565B1E12DAC9C52
 ```
 
 

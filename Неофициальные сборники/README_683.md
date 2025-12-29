@@ -1,3 +1,165 @@
+###  Публикация: 1613366   (1039592) от 18.02.2023
+
+VA - Music News vol.246 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039592.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bebe Rexha - Heart Wants What It Wants (03:02)
+ 002. 2xA - Falling Apart (02:31)
+ 003. 3333 feat. Джарахов - Трезвым (02:57)
+ 004. a.Ja - Крылья (02:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B820120803A22A57F3469396C1650EAF4AA5D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612606   (1039621) от 18.02.2023
+
+VA - Музыка для машины Vol.8 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мурат Гамидов  - Сам Себе Друг (03:09)
+02. Ninety One  - Synbaim (03:57)
+03. Мария Запольская  - Обними (02:48)
+04. Алик Бендерский  - Приезжай Ко Мне На Север! (03:34)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F669E5733CAB3074F0EFADD968BF5E339FB1113E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613437   (1039625) от 18.02.2023
+
+VA - After Work: Weekends Friends Party (2023) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039625.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roger Sanchez - 2Gether
+002. Nooneknowsandy - Dream Circle
+003. A Mase - Love Story
+004. Thaylo - Best Of Mind(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 11:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEEF18246D02B0DCE227D3525534BEEAFB3F974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613258   (1039631) от 18.02.2023
+
+VA - Keep On Dancing: Dance Disco Party (2023) [MP3|320 Kbps] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mindbuster - A Little Miracle
+002. Aldo Lesina - Castles & Dungeons
+003. Alan Strani - Vita Digitale
+004. Kristoff Mx - Keep On Dancin(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 12:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851F481ACC7A9D5891BB011762E42AE4C352CD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613252   (1039660) от 18.02.2023
+
+VA - The Drum Sound Immersion (2023) [MP3|320 Kbps] <DnB, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sharlene Hector - Life
+002. State Of The Nation - Super Soldier
+003. Frenquency - Fruity
+004. Stuss - Roses(   Читать дальше...   )Жанр: DnB, Bassline, Jungle, ElectroПродолжительность: 11:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96547D2367B6102D13DC91FD93CBF52AE2069DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439161   (1040060) от 12.01.2021
+
+VA - Rap NNM 2021 (Русский Выпуск 3) [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3EED - Игра (1:45)
+02. 5УТРА - Рядом (3:05)
+03. 6IXMANE - WiFi (1:27)
+04. Aarne Platina - Ne v tuse 71591967 (1:53)(   Читать дальше...   )Жанр: RapПродолжительность: 04:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CB6BEAFCD373BA6364244A90092F86B4B5B296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439294   (1040110) от 12.01.2021
 
 VA - Flowers Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient, Lounge, Downtempo>
@@ -533,168 +695,6 @@ VA - Music News vol.62 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:540B91E41612DA56F023F5A09E8E64C6983A60D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438260   (1041059) от 08.01.2021
-
-VA - Radio Discomania (2021) [MP3|320 Kbps] <Pop, Italo-Disco, Euro-Disco, Synthdance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MarcelDeVan - Day of Dreams, Pt. 2 (3:45)
-02. Italove - The Mirror (Radio Edit) (4:09)
-03. Fresh Fox - Don't Stop The Night (4:08)
-04. Silent Circle - Night Train (Radio Edit Remastered) (3:52)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Euro-Disco, SynthdanceПродолжительность: 03:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7EAD783F78139BED3FFC764C4A7283F4AACFD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611317   (1041329) от 11.02.2023
-
-VA - Музыка для машины Vol.7 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5Утра - Рядом (Luna Abn & Mght Remix) (02:16)
-02. Soldout  - Холодный Дым (02:52)
-03. Ангалия - За Любовь Мою (03:51)
-04. Moonsound Feat. & Na-No & Bubblezz - High (02:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095F0176803C66D5B101237E0F6F83DE5729D16F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611115   (1041362) от 11.02.2023
-
-Davit Barqaia - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia
-02. Frozen Heart
-03. Don T Cry
-04. No War(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB7ACB17208ABF3967736E4B1B478C6B81F0997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611114   (1041378) от 11.02.2023
-
-VA - Pop Punk Motivation (2023) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - American Idiot
-02. Simple Plan - Addicted
-03. All Time Low - Blinding Lights
-04. My Chemical Romance - Teenagers(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 02:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95746C3D3F4A2EAF06944A4DEC79CE1BD22F1D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610859   (1041380) от 11.02.2023
-
-Ivy Levan - Compilation (2023) [MP3|196-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dame Says (Final Audio)
-02. Biscuit
-03. Carol of the Bells
-04. Hot Damn(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3441F40FE7DD5CB06F45DCB13379A07BB00FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610851   (1041383) от 11.02.2023
-
-Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Life
-02. Down to the Bottom
-03. Flawless
-04. Get Up(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594995FD73F7861F34D2C312F632B6B2FF50C7B7
 ```
 
 

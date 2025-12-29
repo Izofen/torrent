@@ -1,3 +1,57 @@
+###  Публикация: 1093880   (932272) от 16.01.2017
+
+Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
+</div>
+
+
+###  Подробнее
+
+На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
+02. Heart Of The Sun
+03. Billy's Line
+04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985864   (932522) от 13.02.2016
+
+Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You (03:15)
+02. As Long as We're in Love (03:01)
+03. Breathe (03:07)
+04. She Knows Me (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985641   (932531) от 13.02.2016
 
 VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -715,66 +769,6 @@ Engelbert Humperdinck - Greatest Hits And More (2CD) (2007) [APE|Lossless]<Pop R
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753098   (938585) от 04.02.2014
-
-Dum Dum Girls - Too True (2014) [FLAC|Lossless]<Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Cult of Love   (2:14)
-02.  Evil Blooms   (2:36)
-03.  Rimbaud Eyes   (3:30)
-04.  Are You Okay?   (2:51)
-05.  Too True to Be Good   (3:04)
-06.  In the Wake of You   (2:40)
-07.  Lost Boys and Girls Club   (3:24)
-08.  Little Minx   (2:30)
-09.  Under These Hands   (3:29)
-10.  Trouble Is My Name   (4:02)Жанр: Indie-PopПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A19D62E53DE3701163839F8337C2A1E2719086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092545   (938869) от 12.01.2017
-
-Ria Mae - Ria Mae (2016) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Alternative Rock, Urban Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wherever We Go (03:05)
-02. Clothes Off (Single Version) (03:23)
-03. Ooh Love (03:25)
-04. If You Don't Love Me (03:32)(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Urban PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE10FBC34F61F31315E79D11C3B6A3653B84C7B
 ```
 
 

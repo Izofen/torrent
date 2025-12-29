@@ -1,3 +1,165 @@
+###  Публикация: 1135850   (677002) от 21.05.2017
+
+Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|image + .cue] <Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escape Gravity (October Reanimation) (4:41)
+ 02. Annie Can't Read In The Dark (4:27)
+ 03. Baby Firefly (October Reanimation) (3:47)
+ 04. Shame (October Reanimation) (4:49)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B9E063F2E85E3E947592EFED5FC0BA1F8A7248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220235   (677129) от 03.05.2018
+
+Waveshaper - 12 Releases (2013-2018) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Journey 2:32
+02. Future Vision 3:14
+03. The Engineer Part II 3:26
+04. Vector Dream 4:57(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 04:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627A745C4F26AB05D8143E89E5DF6E33C48413CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136037   (677157) от 21.05.2017
+
+VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder)(2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mixed by Talla 2XLC
+01. Robert Nickson - Heliopause (06:09)
+02. Talla 2XLC - Infinity (extended mix) (03:29)
+03. Alex Morph & Kim Kiona - Coming Home (vocal mix) (05:33)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA2B4BAF9229BBF796802C7B8257B3B329D0239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135925   (677272) от 21.05.2017
+
+Lazy Hammock - Natural High (2012) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of Those Days
+02. Which Way
+03. Closer to Me
+04. Speak to Me(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D3358951641806E2938BAD5A6016BC81574C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135561   (677274) от 21.05.2017
+
+VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. (0:00:32): Alternate High - Invisible Walls (Trancer)
+2. (0:05:03): Chapter XJ - Let It Go (Derek Palmer Remix) (Beyond the Stars)
+3. (0:10:37): PRE-RELEASE PICK: Twin View - Eris (illitheas Remix) (SSD)
+4. (0:16:15): Fresh Code - Another Chance (Beyond the Stars)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0130A770CD0D0829EC3A1DDC7D03A72D9A0E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223244   (677281) от 03.05.2018
+
+Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Sun (Original) (8:23)
+ 02. Burning Sun (DAVI Remix) (6:58)
+ 03. Burning Sun (Be Svendsen Remix) (8:41)
+ 04. Burning Sun (Just Emma's Just Take Me Back Mix) (10:30)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135707   (677282) от 21.05.2017
 
 VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -403,6 +565,33 @@ magnet:?xt=urn:btih:82404C843383073B6776A0A80ECD3B1DC0B6A225
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508762   (678289) от 10.06.2012
+
+The Prodigy - Their Law (2005) The Singles 1990-2005 [FLAC|Lossless]<Breakbeat, Hardcore, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firestarter :: 04:40
+02. Their Law :: 05:35
+03. Breathe :: 05:34
+04. Out of Space :: 05:00(   Читать дальше...   )Жанр: Breakbeat, Hardcore, Big BeatФормат: CD, CompilationПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029843   (678317) от 28.06.2016
 
 VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
@@ -506,195 +695,6 @@ VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029997   (678469) от 28.06.2016
-
-VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (2016) [MP3|320 Kbps] <Trance, Progressive House, Techno>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mauro Picotto - Eterea (Mark Sherry Remix)
-02. Mark Sherry & Dark Fusion Feat Jan Johnston - Deja Vu (Outburst Vocal Mix)
-03. Solarstone - Lost Hearts (Mark Sherry Remix)
-04. Mallorca Lee & Stephen Kirkwood - 2029 (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive House, TechnoПродолжительность: 06:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22E3EB39667DEA21B430BE0C1E2C5872B2ACD37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290575   (678477) от 20.03.2019
-
-Third Party - Together (2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher
-02. Free
-03. Remember
-04. Together(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C093CDBA6D55F4D79988B57D250F8E76D6AE588A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290434   (678481) от 20.03.2019
-
-Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoulder to the Bat (04:21)
-02. 100 Bar (03:02)
-03. Nest (03:19)
-04. A Juggling of Numbers (05:07)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA08AF10B354781549A4A0C0F147B19DEB42908C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029767   (678606) от 28.06.2016
-
-VA - Suanda Summer Vol.3 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Alexandra Badoi -  Did We Feel 5:20
-02. Aurosonic Ft. Nicol Cache -  Tell Me Why (Mhammed El Alami Remix) 6:05
-03. Kayat Ft. Clare Stagg -  The Calling 7:11
-04. Eximinds -  Archaea 5:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34F0942A9DC31CFB4EC4EEAAFC4693223CE965B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029973   (678607) от 28.06.2016
-
-VA - Soft Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bessi B. - Do You Remember Me (4:11)
-02. La Brisa Del Mar - Session One (6:03)
-03. Elaphe Guttata - Eulalie (4:30)
-04. Didascalis feat. Wrong Experience - Rainfall (5:23)(   Читать дальше...   )Производство: Sound DesignerЖанр: Lounge, Downtempo, ChilloutПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4166AB32DC659121DB467D7A16B183E482C661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029747   (678610) от 28.06.2016
-
-VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockhouse Crew - Love Extensions - Balearic Remix
-02. Patrick Blasa - Loose - Henrik Schwarz Remix
-03. Julia Messenger - Give This Up
-04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222733   (679253) от 02.05.2018
-
-Hazem Beltagui - VIVID (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made Of Light (In Memory Of Helena Copto) [05:09]
-02. Reasons To Love (Original Mix) [04:39]
-03. You Were Always Mine (Original Mix) [05:19]
-04. Fade Away (Original Mix) [06:14](   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 01:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34E0AFF2FD5042F10398EEEFA9C316E21EEA946
 ```
 
 

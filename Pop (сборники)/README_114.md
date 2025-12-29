@@ -1,3 +1,36 @@
+###  Публикация: 637305   (900391) от 31.03.2013
+
+VA - Хит парад русских Ди Джеев (2013) [MP3|224 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900391.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ALika Korol Lir feat. Dj Pomeha - Cпешу К Тебе (Radio Edit) (3:53)
+2. Anna Fox & Dj Val - Хочу Кричать (Dj Virus Remix) (5:03)
+3. Dj Niki feat. Ika - Так Люблю (Radio Edit) (3:17)
+4. Катя Чехова - Мечтая (Dj Slider & Dj Magnit Radio Record Mix) (2:59)
+5. Оксана Почепа - Стаи Птиц (Dj Audiophil Remix) (6:29)
+6. Dj Boyko & Dj Noiz Feat. Katy Queen - Между Нами (Radio Mix) (2:50)
+7. Dj Glushkov & Zimin feat. York - Улетаю (Radio Edit) (3:57)
+8. Lena Volna - Улететь (Dj Musagitoff Remix) (3:50)
+9. Ксения Суворова - Это Стоп (Dj Shamoff Remix) (5:09)
+10. Слава - Люди Любят (Dj Vengerov Remix) (3:19)Жанр: Dance, Club, PopПродолжительность: 06:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F7C6DB7383AA1035C96E9F304319C045BC06AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992379   (900832) от 02.03.2016
 
 VA - Золото Русского Диско - 12 (2013) [MP3|256-320 кб/с] <Pop сборники>
@@ -674,33 +707,6 @@ VA - Танцевальная зима. Снежная сотка. Версия 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D54A33826F6FEE82B4D98A827385C16F0D7DE986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368781   (905655) от 22.03.2020
-
-VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Samra & Capital Bra - Berlin
-03. Loredana - Angst (feat. Rymez)
-04. UFO361 - Bad Girls, Good Vibes(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 997045   (877193) от 15.03.2016
+
+VA - Favourite Classics (1999) S&V #12/1999 [FLAC|Lossless|tracks + .cue] <Baroque, Romantic, Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mendelssohn - A Misummer Night's Dream: Ouverture, Op. 21. (Neville Marriner) (12:21)
+02. Verdi - La Traviata: Prelude to Act 1 (Giuseppe Sinopoli) (4:31)
+03. Bizet - Carmen: Prelude to Act 1 (Silvio Varviso) (2:16)
+04. Ponchielli - La Cioconda: Dance of The Hours (Silvio Varviso) (9:35)(   Читать дальше...   )Жанр: Baroque, Romantic, ClassicalПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6573EDFDB3B849A535795690CB76B4960E209148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996840   (877199) от 15.03.2016
+
+Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade for piano No. 1 in G minor, Op. 23, CT. 2  10:11
+02. Ballade for piano No. 2 in F major, Op. 38, CT. 3  07:41
+03. Ballade for piano No. 3 in A flat major, Op. 47, CT. 4  07:52
+04. Ballade for piano No. 4 in F minor, Op. 52, CT. 5  12:03(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1476D7DAA5338279075CEF7090985B0476AD0899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997016   (877412) от 15.03.2016
+
+Rudolf Innig - Nowowiejski - Complete Organ Symphonies (1998) 3CD [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прoдолжительность: 01:08:32
+
+01. Preludio Festivo  08:32
+02. Intermezzo, Allegretto  03:56(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 03:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1039EF445822BD9A5C07EBD1F57A512C49FADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996796   (877420) от 15.03.2016
+
+Telemann - A Fagotto Solo (2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Andante  03:16
+02. II. Vivace  04:05
+03. III. Largo  03:33
+04. IV. Allegro  04:29(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0321CD6588DED8521D7DDEDB35F50798B69795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996405   (878423) от 14.03.2016
+
+Brahms - The Piano Concertos - Daniel Barenboim, Staatskapelle Berlin and Gustavo Dudamel (2015) [FLAC 2.0|96/24|WEB-DL|tracks] <Classics, Piano, Orchestra>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 1 in D minor Op. 15:
+1. Maestoso
+2. Adagio
+3. Rondo. Allegro non troppo(   Читать дальше...   )Жанр: Classics, Piano, OrchestraПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4AF9207049AD0CF200787419BB753D8710DD7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996307   (878581) от 14.03.2016
+
+Niccolo PAGANINI - Complete Chamber Music (2007) [MP3|320 кб/с] <Classical, Instrumental>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878581.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+Quartet No. 1 in A minor, Op.4/1, MS28 [21:41]
+Quartet No. 9 in D major, MS36 [21:42]
+Quartet No. 10 in A major, MS37 [23:53]Жанр: Classical, InstrumentalПродолжительность: 10:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BD97E07566B3B283BF4E69C3762BA94EBA0E4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996521   (878769) от 14.03.2016
+
+Giuseppe Verdi - Un ballo in maschera (2014) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Opera>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prelude
+01. Prelude (4:17)
+Act 1
+02. Act 1: "Posa in pace, a'bei sogni restora" (Chorus, Samuel, Tom) (1:35)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CABF062AFA5459962EDF1EFA9DDACE6CDC0DAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996700   (878902) от 14.03.2016
 
 Jenny Oaks Baker - Classic - The Rock Album (2014) [FLAC|Lossless|tracks + .cue] <Classical Crossover>
@@ -499,193 +688,6 @@ Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF9F47DACE6C74D65514BBC6B0F7DB29DCFA720
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995105   (886328) от 10.03.2016
-
-Ferenc Liszt - Complete Symphonic Poems - Arpad Joo (1994) [FLAC|Lossless|tracks+.cue] <Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zwei Episoden aus Lenaus Faust / Два эпизода из "Фауста" Ленау (1857-1866)
-1. I. Der nächtliche Zug / Ночное шествие (15:15)
-2.II. Der Tanz in der Dorfschenke (Erster Mephisto-Walzer) / Танец в деревенском кабачке (Мефисто-вальс № 1) (11:54)
-3. Zweiter Mephisto-Walzer / Мефисто-вальс № 2 (1880-1881) (11:41)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 04:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81158DF3CCBBC1AE0EBB16571E5378EF3B5BEA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995241   (886364) от 10.03.2016
-
-Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, InstrumentaI>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction I
-02. Running by the roads, running by the fields
-03. A summer by the sea II
-04. Tristesse/Escapism(   Читать дальше...   )Жанр: Modern Classical, InstrumentaIПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97082076B840997CCB13BD3277D4429F5D30F3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994874   (887421) от 09.03.2016
-
-И. С. Бах (J. S. Bach) - Полное собрание произведений (Hanssler 172 CD) (2000) [MP3|320 кб/с] <Classical>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Die Kompletten Werke, Volume 1 (4001-2): Kantaten, BWV 1-10, 12, 13 (feat. conductor: Helmuth Rilling)
-
-01. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': I. Coro 'Wie schön leuchtet der Morgenstern'
-02. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': II. Recitativo (Tenore) 'Du wahrer Gottes und Marien Sohn'Жанр: ClassicalПродолжительность: 178:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27600329A839B303F908AAC1BC34C2C593082741
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995042   (887778) от 09.03.2016
-
-Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с] <Classical, Concerto>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto RV 383a - I. Allegro 02:42
-02. Concerto RV 383a - II. Largo e cantabile 01:56
-03. Concerto RV 383a - III. Allegro 02:36
-04. Concerto RV 279 - I. Allegro 04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765DDF97F07BF92F41313A20E4EC56B4365E264B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995027   (887867) от 09.03.2016
-
-Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto No. 4 in D major for Violin, K. 218: I. Allegro
-02. Concerto No. 4 in D major for Violin, K. 218: II. Andante cantabile
-03. Concerto No. 4 in D major for Violin, K. 218: III. Rondeau. Allegro grazioso ...
-04. Concerto No. 5 in A major for Violin, K. 219 'Turkish': I. Allegro aperto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A1777A2BC882BF99F4384711909328B152F1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994760   (888083) от 09.03.2016
-
-Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruch: Violin Concerto No 1 in G minor, Op. 26 - Adagio
-02. Glazunov: Violin Concerto in A minor, Op 82 - Andante sostenuto
-03. Bach: Concerto for two Violins in D minor, bwv 1043 - Largo ma non tanto
-04. Medelssohn: Violin Concerto in E minor, Op. 64 - Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737024E42145D3094C8799119D67E44776F78AB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371822   (888404) от 01.04.2020
-
-Daniel Behle - George Petrou Gluck: Opera Arias (2014) [FLAC|Lossless|image + .cue] <Classical opera vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antigono, Wq 21
-1. "Quercia annosa sull'erte pendici" (Ed. Giovanni Secchi) 4:06Жанр: Classical opera vocalПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6033B6C7F86D7293C3A132F82A504757C0EAC27
 ```
 
 

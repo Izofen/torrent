@@ -1,3 +1,165 @@
+###  Публикация: 1218135   (725201) от 08.04.2018
+
+VA - Club Dance Ambience Vol.142 (2018) [MP3|320 Kbps] <Club House, Vocal House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abel Romez - XOXO (Original Mix)
+002. Anton Liss & Andrew Rai - Desert Night  (Original Club Mix)
+003. ATFC - I Feel The Earth Move (Original Mix)
+004. Basada feat. Camden Cox - Good Vibes (GonSu Extended Remix)(   Читать дальше...   )Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FCC3DD44A593DAFE70305FBBF9AF004F7FEE01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217979   (725202) от 08.04.2018
+
+VA - DFM Top 30 D-Chart 06.04.2018 [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Aoki feat. Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita 3:46
+02. Tiesto & Sevenn feat. Gucci Mane - BOOM 4:28
+03. Axwell & Ingrosso feat. Trevor Guthrie - Dreamer 5:05
+04. L.B. One feat. Laenz - Tired Bones 3:14(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C4EF815B9D017FBC4CA205A5B1A4A352ECEE36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218167   (725204) от 08.04.2018
+
+VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello & Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217968   (725207) от 08.04.2018
+
+VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725207.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello & Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A42FA4E6932A47EB29A5AC68A57428DB4619721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399487   (725218) от 02.08.2020
+
+VA - Beatport Synth Electronic: Sound Pack #140 (2020) [MP3|320 Kbps] <Synthwave, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dance With The Dead - Become Wrath
+002. Jairo Catelo - Timeless
+003. Anthony Rother - Observer
+004. Khrigar - Morning Drive(   Читать дальше...   )Жанр: Synthwave, SynthspaceПродолжительность: 08:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCD859DC722647A8E865CE8027F1903D0FBE75E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218000   (725293) от 08.04.2018
+
+VA - House of Mass Audience (2018) [MP3|320 Kbps] <Funky, Club, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Coda - Atraxa 7:56
+02. Betoko - Phantasy (Monkey Brothers Remix) 6:10
+03. Basil O'glue - Gigant (Styller Remix) 7:14
+04. Claudio Cornejo & Bastian Mark - Journey To The Pyramid (Berni Turletti Interpretation Mix) 8:37(   Читать дальше...   )Жанр: Funky, Club, Future HouseПродолжительность: 03:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFFDBBFDB524BDDE91BE49862471C4A31D4E760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023176   (725852) от 04.06.2016
 
 VA - Blues Rock Drive 2 [4CD] от DON Music (2016) [MP3|320 кб/с] <Blues, Blues Rock, Modern Electric Blues>
@@ -535,168 +697,6 @@ VA - Chillout Melodic Mixtape (2022) [MP3|320 Kbps] <Chillout, Relax, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EF4F9C038672FA0977C5424BF04E9936F55E8BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023292   (726629) от 04.06.2016
-
-VA - Alterportal HITS 16 Vol. 92 - April (2016) [MP3|248-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devour the Day - The Bottom
-02. Everything In Slow Motion - I Am Laid Low
-03. Saliva - Tragic Kind Of Love
-04. Tremonti - Unable to See(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8949B67E3C22F9F35E5DBF158415A56EAA4DF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530921   (726656) от 13.02.2022
-
-VA - Beautiful Interior Lounge Sounds (2022) [MP3|320 Kbps] <Lounge, Downtempo, Relax, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунж музыка вобрала в себя музыкальные оттенки различных стран и городов мира, лаунж лучше всего передает атмосферу и уютно-меланхолическое настроение нашей планеты. В связи с такой его космополитичностью, многие лаунж-композиции включают в себя инструменты и характерные особенности разных народов мира. Этот стиль можно назвать роскошным и в большой мере комфортным.001. Melania - Resta Cu' Mme
-002. Thunderball - The Moon, The Sky
-003. Johannes Huppertz - By The Way
-004. Thievery Corporation - 2001 Spliff Odyssey(   Читать дальше...   )Жанр: Lounge, Downtempo, Relax, ChilloutПродолжительность: 08:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B432B443999A710D431DC9A4DFC1FB5FAF9681B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023148   (726674) от 04.06.2016
-
-VA - Мы с тобой (2016) [MP3|256 кб/с] <Chanson, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726674.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кондрат — Мы с тобой
-002. Абкадиров Руслан — Не расстанемся
-003. DJ Slon и Katya — Ай диги дай
-004. Гревцев Дмитрий — В моей душе зима(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044FB82BDC8AD192FFC00FABCC7E1AC0D1CFDC55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022966   (726683) от 04.06.2016
-
-VA - Молодежная клубная тусовка (2016) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isaak Thurber - Overdrive (Original Mix)
-02. House Native - Whe the Wife's Away - Club Mix
-03. Khrebto - Mad Citizens (Extended Mix)
-04. Jane Vogue & Steve Cypress - Paris Latino (Jane Vogue Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CCDCA3C874B16A98C8A010EBEF89F12687B7DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022658   (726857) от 03.06.2016
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 33 ) (2016) [MP3|256-320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thomas Anders - You're My Heart, You're My Soul (New Hit Version) (03:28)
-02 Chilly - We Are The Popkings (DMC Mikael Remix) (04:49)
-03 Gazebo - I Like Chopin (DM Remix) (05:06)
-04 Groove Addiction - Live Is Life (Phill Kay Remix) (05:23)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51BBDC870B8284704B396E4F7F6EBE4E01E192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128517   (727066) от 25.04.2017
-
-VA - Русские Хиты. The Best Russian Ballads 250 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727066.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Баста - Выпускной (Медлячок)  5:35
-002.  Наргиз feat. Максим Фадеев - Вдвоём  3:33
-003.  Григорий Лепс - Я Поднимаю Руки  3:52
-004.  Ани Лорак - Просто Скажи  3:52(   Читать дальше...   )Жанр: PopПродолжительность: 15:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF46DDF25913CBA41D03B75E0CD86C04999A7E8
 ```
 
 

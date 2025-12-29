@@ -1,3 +1,165 @@
+###  Публикация: 1352070   (1000917) от 14.01.2020
+
+VA - 100 Hit Tracks Ultimate Driving Songs The Classics (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000917.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foreigner - Cold as Ice
+002. ZZ Top - Gimme All Your Lovin'
+003. Deep Purple - Black Night
+004. Roxette - Joyride(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 06:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF16D4870BE792B7563EE817F00CA3320DEAC668
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352434   (1000929) от 14.01.2020
+
+VA - Trance Nation Future Sound: Progressive Edition (2020) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000929.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Sherry - Yerba Del Diablo (Extended Mix)
+002. Armin Van Buuren - Revolution (Extended Mix)
+003. Hghlnd & Rigo Avila - Eden (Extended Mix)
+004. Tristan - Supernature (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C6E91E23717685E6E6FE0FB6C2609EB9C95500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351540   (1001005) от 14.01.2020
+
+VA - Сегодня на радио хиты FM Vol.8 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.#2 Маши - Лава (3:10)
+2.Ally Brooke - No Good (3:11)
+3.Alok, Dynoro - On & On (2:27)
+4.Anthony Keyrouz - Love Yourself (2:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B47A86A6D621DBE868192F196670D2211E890F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352250   (1001006) от 14.01.2020
+
+Steppenwolf - Greatest Hits (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Into The Wind
+02. A Girl I Knew
+03. Born To Be Wild
+04. Hootchie Cootchie Man(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208CBAE9A3D5E54C74793F66D869D49251E7D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351513   (1001035) от 14.01.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 10.01.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
+02. Tones And I - Dance Monkey 3:30
+03. FILV & Edmofo feat. Emma Peters - Clandestina 2:29
+04. Pascal Letoublon - Friendships 4:02(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C38904FF3202CE919B0B446C5770E8E4D0F962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352404   (1001041) от 14.01.2020
+
+VA - Free Spirit: Advanced Rock Collection (2020) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001041.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ashbury - Good Guitar
+002. Andrew Mcmahon - Ohio
+003. Wild Romance - You
+004. Disturbed - A Reason To Fight(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 10:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5B9247A76AA7906F90FADE1768EE338AC07AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352418   (1001042) от 14.01.2020
 
 VA - Astral Projection: Techno Edm Liveset (2020) [MP3|320 Kbps] <Techno, Electronic>
@@ -533,168 +695,6 @@ VA - Grooveyard Records: The Sound Of Guitar Rock - Best Of (2021) Volume Five [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF026A13E88C2F58D3B9E69ACFDB6851D10941DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488414   (1002042) от 11.08.2021
-
-VA - The Lives Rock (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002042.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. El Pistolero - El Pistolero
-002. Poorstacy - I Can't Sleep
-003. Magic Castles - Valley Of Nysa
-004. The Offspring - This Is Not Utopia(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 08:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471C394618854C66EF343403B39B076077C978EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488411   (1002046) от 11.08.2021
-
-VA - The Hypnotic Nights (2021) [MP3|320 Kbps] <Relax, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002046.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lilli - Endless Summer
-002. Nae-tek - Leading Edge
-003. Domestic Technology - Chase The Sun
-004. Luc Forlor - Deception(   Читать дальше...   )Жанр: Relax, Chillout, LoungeПродолжительность: 08:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B496FBDF382FF66A616E6599B11A66D6FE9F0AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488407   (1002054) от 11.08.2021
-
-VA - Jungle Cruise: Bass Sounds Music (2021) [MP3|320 Kbps] <Jungle, Drum & Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dreaman - Gabriel
-002. Re8ma - My Mind
-003. The Brainkiller - To Night
-004. Ly Da Buddah - Lemon Punch(   Читать дальше...   )Жанр: Jungle, Drum & Bass, Electro BassПродолжительность: 09:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6D3C2E97BC79CBF2FCFA7187309E022485A05A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488399   (1002060) от 11.08.2021
-
-VA - Electro Voice: Mixtape Techno (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Perdu - Dystopia feat. Tjade
-002. Meyer Bergy - Retrograde
-003. Room 99 - Breathe
-004. Boglin - Sea Kelp(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 11:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84AFE0BDAA66B90E045C9B560BE7855F655A359
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488398   (1002069) от 11.08.2021
-
-VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Chill Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrick Cowley - Moving Bodies I
-002. Handshaking - Countryside Mailbox
-003. Mmyylo - Inurhead
-004. Mike Rish - In The Woods(   Читать дальше...   )Жанр: Synthetic, Chill Electronic, SynthwaveПродолжительность: 11:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A132BBB07B69CECE93E85DEFBEFB5F031CD2304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488397   (1002071) от 11.08.2021
-
-VA - Beatport Deep House: Sound Pack #329 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rai - Andromeda
-002. Paul Cutie - Tell Me Now
-003. Ollie Remington - Rift
-004. Adam Sleyer - Got To(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFBEFE92CCE98A975E4513E25267AA081C75C07E
 ```
 
 

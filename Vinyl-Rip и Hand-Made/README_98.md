@@ -1,3 +1,63 @@
+###  Публикация: 680927   (985968) от 24.01.2020
+
+Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Static [4:10]
+A2. King For A Day [3:55]
+A3. I Wont Wake Up [3:45]
+A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609963   (986556) от 01.02.2013
+
+BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986556.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Nightflight To Venus [05:51]
+A2. Rasputin [06:08]
+A3. Painter Man [03:19]
+A4. He Was A Steppenwolf [06:56]
+A5. King Of The Road [02:37]
+B1. Rivers Of Babylon [04:22]
+B2. Voodoonight [03:32]
+B3. Brown Girl In The Ring [04:04]
+B4. Never Change Lovers In The Middle Of The Night [05:23]
+B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 721311   (986817) от 23.01.2020
 
 Машина Времени - Time Machine (2007) Germany Limited Edition [WavPack 2.0 24/192|image (Vinyl-Rip)] <Rock>
@@ -724,72 +784,6 @@ Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601499   (997997) от 11.01.2013
-
-Ольга Кормухина - За гранью слов (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангел 3:10
-02. Ночь 3:34
-03. Желтая Дорога 3:47
-04. Плывущее Кафе 4:01
-05. Мне Уже Легко 3:13
-06. Алена 4:01
-07. Прощай 3:45
-08. Будь Со Мной 3:37
-09. Эпилог 3:23
-10. Корабль 3:25Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601463   (998265) от 10.01.2013
-
-Чайф - 25 лет выдержки (2012) [WavPack 2.0 24/192 |image (Vinyl-Rip)]<Blues Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998265.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-01. Шаляй-Валяй 2:58
-02. Кот 3:33
-03. Вольный Ветер 3:38
-04. Белая Ворона 3:04
-05. Оранжевое настроение 3:50
-06. Ой-Йо 4:26
-07. Всему Свое Время 3:37
-08. Давай Вернемся 5:29
-09. Поплачь О Нем 5:17Жанр: Blues Rock, AcousticПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
 ```
 
 

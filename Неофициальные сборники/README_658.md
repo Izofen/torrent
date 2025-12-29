@@ -1,3 +1,165 @@
+###  Публикация: 1479534   (1009577) от 24.06.2021
+
+VA - Music News vol.110 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NAO - Messy Love (03:35)
+ 02. Adelen - Obsessed (02:41)
+ 03. Alex Dattilo feat. Nany & Obvius - Azucar (03:09)
+ 04. AMster - По Тебе (03:28)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D83D82AF5EE4C286789609DAE944EAE9365F1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479240   (1009578) от 24.06.2021
+
+VA - The Purgatory (2021) [MP3|320 Kbps] <Metal, Hard Rock, Core>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capra - Mutt
+002. Wolvencrown - A Shadow
+003. Like Moths To Flames - Basilisk
+004. Purgatory - Stack 'em Up(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 10:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4030AA51373E011A3729FDB64AEC0740FE2D7DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478730   (1009582) от 24.06.2021
+
+VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance, Hard Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiowarp - All Around Us (Original Mix) (FOOLS FOREST, 2009)
+02. Audiowarp - 31 Seconds (Original Mix) (MOON UP, 2009)
+03. Audiowarp - Summersonic (Original Mix) (Q-DANCE, 2010)
+04. Audiowarp - Power Of The Music (Original Mix) (BENEFACTOR, 2011)(   Читать дальше...   )Жанр: Hard Trance/TechnoПродолжительность: 02:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479337   (1009583) от 24.06.2021
+
+VA - Bassline Massive Project (2021) [MP3|320 Kbps] <Bass, Drum And Bass, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chisel - Boy
+002. DJ Vantigo - Looking For You
+003. Parallel - Communications
+004. Electronics - Retribution(   Читать дальше...   )Жанр: Bass, Drum And Bass, BasslineПродолжительность: 07:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9132BA6CE813F517F947519D03F98F66E870A7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479352   (1009588) от 24.06.2021
+
+VA - Beatport Disco House: Sound Pack #304 (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009588.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Probably Shouldnt - Canon
+002. Mirko Hirsch - You're Just
+003. Jerem A - Always Too Much
+004. DJ Skip - Fallin N Love(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369246D5C5F181AB50F7865E18AAB1281B242C10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479345   (1009589) от 24.06.2021
+
+VA - Beatport Tech House: Sound Pack #302 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009589.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jon Snow - What Is House
+002. Deetron - Count On Me
+003. Ron Flatter - Jolie Culotte
+004. Franksen - Wait Now(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB124DACF113C562BD727FD2AABF4A7127D25D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479354   (1009590) от 24.06.2021
 
 VA - Euphoric Progressive Trance (2021) [MP3|320 Kbps] <Progressive Trance>
@@ -533,168 +695,6 @@ VA - Beatport Ethnic House: Sound Pack #298 (2021) [MP3|320 Kbps] <Ethnic, Funky
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FBAE8EE4294B42CCC085302E4E643BBFBDA07A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477501   (1010949) от 15.06.2021
-
-VA - Music News vol.108 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010949.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kylie Minogue - Marry The Night (04:40)
- 002. Ai Mori - Друг (02:47)
- 003. Akim - Километры (03:34)
- 004. AnasteZiya - Мемуары (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036F69501B0B5BCA5BD9491C26AB27382554D7E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477590   (1010963) от 15.06.2021
-
-VA - All Out 10s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Grande - thank u, next (3:27)
-002. Bruno Mars - Just the Way You Are (3:40)
-003. Ed Sheeran - Shape of You (3:53)
-004. Lady Gaga - The Edge Of Glory (5:21)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 09:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697ECCE4D6633DBDE0275AAE5A752C34FCADC7FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477604   (1010971) от 15.06.2021
-
-VA - Elegant Jazz Music (2021) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Micah Gaugh - Walk Thru
-002. Jizue - Sabaku No Tsuki
-003. Nazareno Caputo - Abside
-004. Machomovers - Intro The Sky(   Читать дальше...   )Жанр: JazzПродолжительность: 09:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD2BFE7A0715AC8F790E19003BB52AEB28A6334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477306   (1011057) от 14.06.2021
-
-VA - Громкие новинки Июня (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маша Кольцова, Nikitata, Ваня Дмитриенко, Арина Ростовская - За кулисами (2:46)
-02. Zivert - Рокки (2:57)
-03. Maroon 5 - Lost (2:52)
-04. Marshmello - Shockwave (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A199D8C6ECF2BDE36000992A334BF2560E1250F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477394   (1011118) от 14.06.2021
-
-VA - Record Super Chart 12.06.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessa Barrett feat. jxdn - la di die (3:15)
-02. Inna - Flashbacks (2:57)
-03. Tiesto - The Business (2:44)
-04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A5684FA63E5E96795CEAA2D092C698B10F9DF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476697   (1011491) от 12.06.2021
-
-VA - Hot Summer Play (2CD) (2021) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Chillymouse - Try Me Out
-02. Vinyl Disciples - Self Control(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4E24859C1414CCE4C26E82F8760074D80B67B7
 ```
 
 

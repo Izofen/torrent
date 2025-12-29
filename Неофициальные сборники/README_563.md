@@ -1,3 +1,165 @@
+###  Публикация: 1498737   (847678) от 02.10.2021
+
+VA - I Can See Through You: 60s Psychedelic Rock & Garage Beat Rarities Vol.3 (2021) [MP3|320 Kbps] <Rock, Funk, Garage Rock, Soul>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazarus - In the Beginning
+02. The Geers - I Need You
+03. The Rugbys - Juditha Gina
+04. The Jerms - Green Door(   Читать дальше...   )Жанр: Rock, Funk, Garage Rock, SoulПродолжительность: 01:29:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF3ECCFF76A4A6B5A527CF0263B68290B8C0BE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111355   (847751) от 05.03.2017
+
+VA - Mega Дискотека 80-90-х В Современной Обработке (2017) [MP3|256-320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847751.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - Ha - The Sun Always Shines On TV ('500 Channels & Nothing's On' Instrumental Dub Mix) 7:10
+002. Aaron Ambrose feat. Paulina - Moonlight Shadow (Scotty Remix) 4:11
+003. Boney M - Happy Song (Dj Ikonnikov E.x.c Version) 6:36
+004. Clan Dj Team - The Groove Has Change (Sergey Zar Radio Mix) 4:43(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03093347F355144E73D884738DFD7C1E7F14C36A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111376   (847753) от 05.03.2017
+
+VA - Дискотека 80-90 х По-Новому Зарубежный выпуск № 43 (2017) [MP3|320 Kbps] <Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847753.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lian Ross - Say You'll Never(DJ NIKOLAY-D Remix ) 6:31
+002. DANUTA - Touch My Heart (DJ NIKOLAY-D & DJ RONNY Remix ) 7:01
+003. HEAVEN 42 feat. DJ NIKOLAY-D - Just Tonight(SUPER LONG Remix ) 9:42
+004. Angle Gold - Eat You Up (DJ NIKOLAY-D, DJ OLGA-D & DJ RONNY Remix ) 8:14(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231DE5F4656708DE0C49FFCE3B995F3B8CB61A64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378083   (847954) от 24.04.2020
+
+Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dio - I Speed At Night
+02. Dio - Rainbow In The Dark
+03. Black Sabbath - Falling off the Edge of the World
+04. Ronnie James Dio - Love Is All(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA27566A2B21A26922D3FB61B63A9A5F8F1061F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499555   (847965) от 02.10.2021
+
+VA - Promo Only Express Audio DFF February Week 02 (2021) [MP3|320 Kbps] <Hip-Hop, Dance, Synthpop, Contemporary R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G-Eazy Feat. Chris Brown & Mark Morrison - Provide (PO Clean Single Edit)
+02. Daya - Bad Girl
+03. Joy Oladokun - breathe again
+04. Riton x Nightcrawlers Feat. Mufasa & Hypeman - Friday (Dopamine Re-Edit)(   Читать дальше...   )Жанр: Hip-Hop, Dance, Synthpop, Contemporary R&BПродолжительность: 01:25:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB41D223CFF24CA86C8DFD4CC12FFE10B8856762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378078   (848031) от 24.04.2020
+
+Paul McCartney - 100% Paul McCartney (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I’m Amazed (Remastered 2011)
+02. Uncle Albert / Admiral Halsey (Medley / Remastered 2012)
+03. My Love
+04. Band On The Run (Remastered 2010)(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19B95D04681FFC65A3D41A1FC47ACE03E0CCE61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377981   (848041) от 24.04.2020
 
 VA - The purest Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -533,169 +695,6 @@ VA - Pure 90s Time Garden (2016) [MP3|320 кб/с] <Euro, Disco, Pop Rock, R&B, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F729B3570A0478AD1B4E09EB2CDC44EFDCFCE796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002409   (848921) от 31.03.2016
-
-VA - Fitness House.Musical Energy (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Nico Otten-Sueno (Radio Cut) 04:02
-02 Sonny Vice vs. Antiheroes-Rock 'n' Rolla (Radio Cut) 03:35
-03 Sam Slim-Break Your Spell (Radio Cut) 03:51
-04 Ian Solano-Quadzilla (Radio Cut) 04:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C74F0394A599289B80930E63D48861DC26FE094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002463   (848998) от 31.03.2016
-
-VA - Romantic Deep and Future House Beedroom Music (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crew 7 - Luv 4 Luv - Club Edit
-02. Konstantin Maria - Take A Chance - Kim Morgan & Tobstar Remix Edit
-03. Carlos Room - Rocket
-04. Arom Side - Are You Ready(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E95482DEE82D3DF4653417FBDDC403848538CB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002237   (849001) от 31.03.2016
-
-VA - The Sound Of Soul Heaven Miami (2016) [MP3|320 кб/с] <House, Club House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound of Soul Heaven Miami 2016 Mix 1 (Continuous Mix) [70:43]
-02. The Sound of Soul Heaven Miami 2016 Mix 2 (Continuous Mix) [71:02]
-03. The Sound of Soul Heaven Miami 2016 Mix 3 - Classics Mix (Continuous Mix) [71:31]
-04. The DangerFeel Newbies - What Am I Here For? (Kai KZR Alcé Late Night Mix) [07:05](   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 08:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDF2A4E2D8D45CCC4F42CA0DF455113E91B26A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002150   (849107) от 31.03.2016
-
-VA - Trance Сollection vol.40 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ABHISHEK Y2V-The Myst (Extended Mix) 05:21
-002 Abide-Perpetuity (Original Mix) 08:02
-003 Air Project-Memoirs (Original Mix) 06:51
-004 Alex Byrka & Jay Flora feat. Tanya Lindsgrey-Magic (Andrew Lang Remix) 06:23(   Читать дальше...   )Жанр: TranceПродолжительность: 10:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADC623E8AEBA28CF5B610833C87E53FD9203259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877249   (849160) от 11.03.2015
-
-VA - Billboard Top 25 Hot Rock Songs (14-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Billboard опубликовал  новые чаты за 14 марта 2015 года, из которых представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
-Топ создается в соответствии с ранжированнием в радиоэфире во всех форматах, а также на основе данных о продажах и потоковом воспроизведении треков. (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
-02. Fall Out Boy - Centuries  (3:52)
-03. Vance Joy - Riptide  (3:20)
-04. WALK THE MOON - Shut Up and Dance  (3:19)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90CAA2C89A9A3283626619E29EE201BAF95561D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876575   (849257) от 11.03.2015
-
-VA - 50 Оттенков Шторма (2015) [MP3|128 кб/с]<Chillout, Chillstep, Downtempo, Acoustic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifehouse - Storm
-02. LuQus feat. Magdalena Wolk - Cinders
-03. Movement - Us
-04. Holobody - Fantasy (Mariah Carey Cover)(   Читать дальше...   )Жанр: Chillout, Chillstep, Downtempo, AcousticПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6802934FD796E41B284D44FCE1EDC484D4F90CE
 ```
 
 

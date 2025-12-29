@@ -1,3 +1,165 @@
+###  Публикация: 1092577   (938632) от 12.01.2017
+
+VA - Our Musical Life Generation (2017) [MP3|212-320 Kbps] <Club, Hard House, Nu Disco, Dance, Bassline, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Life & Anabel Englund - El Diablo (Adana Twins Remix) 07:45
+02. Rene Amesz - City Streets (Original Mix) 06:46
+03. A & P - We All Go (Radio Edit) 03:35
+04. Blusoul - Code Talkers 08:28(   Читать дальше...   )Жанр: Club, Hard House, Nu Disco, Dance, Bassline, FunkyПродолжительность: 06:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D198B6A4DE6B26AE9CC93CC922BAFD00FEC427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092595   (938636) от 12.01.2017
+
+VA - Золото Русского Диско - 19 (2017) [MP3|160-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Илья Гусев - Долгие ночи
+02. Студия-80 - Середина сентября
+03. Александр Лукьянов - Падает снег
+04. Снежный август - Фиалки(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F4D653824C5D9EF52340C48357196637B389C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092488   (938644) от 12.01.2017
+
+VA - Interior Lounge: Relax Mix (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Living Room - The Essence  4:03
+02.  Enrico Donner - Xonado Por Voce  5:54
+03.  Soleil Fisher - Daydreaming (Chill Mix)  5:55
+04.  Clelia Felix - Music For Your Soul  3:53(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 04:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D4B847D5F35E6E780777CF152615B1AC6D155A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092396   (938646) от 12.01.2017
+
+VA - Gold Italo Disco: New Generation (2017) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938646.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amaya - Trapped (Vocal Version) 4:49
+002. Miko Mission - Universal Feeling (Vocal Version) 5:57
+003. Ryan Paris - Parisienne Girl (Eddy Remix) 7:43
+004. Savage - Save Me (Vocal Remix) 7:26(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 11:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68766559996B907F6F6871C1C811DAC8AA79323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984505   (938725) от 09.02.2016
+
+VA - Звездные хиты зимние. Сборник 3 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938725.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эльдар Далгатов - Все Сможешь Ты
+002. Walk The Moon - Shut Up And Dance
+003. Кристалл - Сгорает Ночь
+004. Alvaro Soler - El Mismo Sol(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F1A4D6B3F508BCA791F6497C5CBA27765C96D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092417   (938755) от 12.01.2017
+
+VA - Взрывной хит-парад. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Weeknd - Ordinary Life 3:42
+002. Авиатор - В Твоих Глазах 3:48
+003. Bolier & Natalie Peris - Forever And A Day 4:10
+004. Franky - Не Исчезай 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CB1D582B5B0C1C083EF68BC229922B9E3D9451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092468   (938761) от 12.01.2017
 
 VA - Pumpingland Vol. 92 (2017) [MP3|128-320 Kbps] <Club, Dance, House, Electro House>
@@ -530,168 +692,6 @@ VA - Dance Hits Collection Vol.8 (2017) [MP3|320 Kbps] <Eurodance , House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BF57D776528461EDB4AAC4B07754F07D7C280A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363901   (939534) от 01.03.2020
-
-VA - Record Super Chart 627 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 3:58
-02. Carla Morrison - Disfruto 3:57
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
-04. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1FD35EBE9191F93D272F3373F62F063D58D10E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363880   (939602) от 01.03.2020
-
-VA - The Official UK Top 40 Singles Chart 28.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Billie Eilish - No Time To Die
-03. Roddy Ricch - The Box
-04. SAINt JHN - Roses (Imanbek Remix)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6072D5CCB748EACF074BEE7B4F66200C2B7A2FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363891   (939612) от 01.03.2020
-
-VA - German Top 100 Single Charts 28.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. UFO361 - Rich Rich
-03. Samra - Schüsse im Regen
-04. Luciano - Mios mit Bars(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F5F0BB3D5A95DC257FB302592211863A5EB03F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092028   (939752) от 11.01.2017
-
-VA - Зимняя сотка хитовая (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939752.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. El'man - Танцуют Ангелы 3:00
-002. Не.Kurili Feat. Mansarda - Оскал 5:31
-003. Инфинити Feat. Гена Дудин - Воланчик 3:18
-004. Olstan Van Guard - Знаки 4:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FB2ACD2AE0642FEF415305B96A94C8EFE91826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092234   (939945) от 11.01.2017
-
-VA - Мир Волшебной Музыки (Sound Clinic - Just Relax Edition) (2017) [MP3|320 Kbps] <Relax, Trip-Hop, Instrumental Hip-Hop, Chillout, Lounge, Jazz-Hop, Jazzy, Chill-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2LATE - Bombin
-02. 2LATE - So What
-03. 2LATE - Spiritually Focused
-04. 2LATE - On Time(   Читать дальше...   )Жанр: Relax, Trip-Hop, Instrumental Hip-Hop, Chillout, Lounge, Jazz-Hop, Jazzy, Chill-HopПродолжительность: 39:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199C5195292F52B9064026E8AE67D70633A6A6DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092376   (940072) от 11.01.2017
-
-VA - 90s Ultimate Flowers Hits (2017) (2017) [MP3|320 Kbps] <Alternative, Country, Soundtrack, Hard Rock, Soul, R&B, Grunge, Heavy Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tragically Hip - Grace, Too 05:35
-02. Type O Negative - Love You To Death 07:08
-03. Shawn Mullins - Lullaby 05:31
-04. The Klf - What Time Is Love (Lp Mix) 05:17(   Читать дальше...   )Жанр: Alternative, Country, Soundtrack, Hard Rock, Soul, R&B, Grunge, Heavy MetalПродолжительность: 04:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D23DB224C0ADF216EDAEAEEAE4524DFE404C8A7
 ```
 
 

@@ -1,3 +1,200 @@
+###  Публикация: 601514   (998067) от 11.01.2013
+
+VA - Electro Life 21 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Dubstep, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii vs. Nicky Romero - I Could Be The One (Original Mix)
+02. Baby Alice - Sexy (Fresh Blast Dj's Remix)
+03. Bryce ft. J-Malik - Nothing Can Hold Us Back (Fresh Blast Radio Edit)
+04. Cocosiy (Coco Jumbo) & assNaut - Robocop (Original Mix)
+05. DJ Amor - Frame Of Mind (Original Mix)
+06. DJ Smash & DJ Vengerov - Только вперед (DimixeR & DJ Viduta Remix)
+07. Eric Prydz - Every Day (Original Mix)
+08. Greysound - Don't Stop (Original Mix)
+09. Jean Elan & CJ Stone ft. Jonny Rose - Feel Ur Love (Original Mix)Жанр: Electro House, Dubstep, House, Synth-PopПродолжительность: 03:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BFE6A2C0A92A722D19D77D79B531D2E1507E7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601828   (998108) от 11.01.2013
+
+VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998108.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Sugarfree - Cleptomania
+02. Francesco Renga - Angelo
+03. Povia - I Bambini Fanno Oh
+04. Zero Assoluto - Svegliarsi La Mattina
+05. Daniele Silvestri - La Paranza
+06. Simone Cristicchi - Ti Regalero' Una Rosa
+07. Fabrizio Moro - Pensa
+08. Giusy Ferreri - Non Ti Scordar Mai Di Me
+09. Arisa - Sincerita'
+10. Malika Ayane - Come Foglie(   Читать дальше...   )Жанр: popПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601431   (998120) от 11.01.2013
+
+VA - Simply Dubstep December 2012 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 12th Planet -Jail Break (04:43)
+02. 12th Planet -MMXII (04:00)
+03. 12th Planet & Antiserum -Ghost (04:44)
+04. 12th Planet & Flinch -The End Is Near Part 1 (Dirtyphonics Remix) (05:18)
+05. 12th Planet & Flinch -The End Is Near Part 1 (Felguk Remix) (04:46)
+06. 12th Planet & Flinch -The End Is Near Part 1 (04:16)
+07. 12th Planet & SPL -Ratchet Strap (Big Gigantic Remix) (03:46)
+08. 12th Planet & SPL -Ratchet Strap (UZ Remix) (04:00)
+09. 50 Cent -Disco Inferno (DJ Chixer Remix) (03:18)
+10. Ajapai -The Golden Ring of Fire (Original Mix) (04:41)Жанр: DubstepПродолжительность: 08:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45B3054EF7DA00486A1FA9D6E25D7B69F7BA2B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600477   (998328) от 10.01.2013
+
+VA - 200 лучших хитов от радио Отрыв (Часть 1) (2013) [MP3|256 кб/с]<Pop, Rock, Falk, Rap and more>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эдуард Нехаев - Когда на душе
+002. Григорий Лепс - Самый Лучший День
+003. Павел Воля и Город 312 - Мама, мы все стареем
+004. Мастер зеркал - Аномалия
+005. Звери - Солнце за нас
+006. 7Б - Полковник
+007. Mar-Go - Запретная любовьь
+008. 2517 - Побег
+009. SEX - Все Будет!!!
+010. Денис Шишкин (Outsider) - Пойдем на крышу(   Читать дальше...   )Жанр: Pop, Rock, Falk, Rap and moreПродолжительность: 11:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE589DB84F427371EC13B2749F65DD3007AC931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600897   (998401) от 10.01.2013
+
+VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Без ума
+02. Бурановские Бабушки - Party
+03. Indira - Я буду верить
+04. Тамерлан И Алена Омаргалиева - Лондон
+05. DAS feat. Лера Туманова - Чувствовать Пульс
+06. Ирина Дубцова - Что тебе я сделала
+07. Евгения Поликарпова - Неважно
+08. Нюша - Queen Of The Night
+09. Глюкоза И Макс Барских - Адреналин
+10. D.Lemma - Лирика(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600889   (998518) от 09.01.2013
+
+VA - Песни на стихи Сергея Есенина (2010) [MP3|160-320 кб/с]<Шансон, поп>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Монгол Шуудан - Москва (4:27)
+2. Андрей Бандера - Русь (4:10)
+3. Александр Малинин - Мне осталась одна забава... (4:10)
+4. Александр Новиков - Пускай ты выпита другим… (4:08)
+5. Альфа - Гуляка (3:20)
+6. Заметался пожар голубой... (3:36)
+7. Сергей Любавин - Прощание с Айседорой (4:08)
+8. Игорь Слуцкий - Думы (3:49)
+9. Не жалею, не зову, не плачу... (4:38)
+10. Коля Шлевинг - Письмо Матери (4:44)(   Читать дальше...   )Жанр: Шансон, попПродолжительность: 02:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732DF569D9ED65583F329EBB71EABF911D6B348F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599322   (998622) от 09.01.2013
 
 VA - Авто Ритм. Убойный музон в авто (2011) [MP3|256-320 кб/с]<Pop, Club>
@@ -638,168 +835,6 @@ VA - Громкие новинки Января Vol 1 (2020) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC997140A36CC02A0D2A59645F13EFBF129B8E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352070   (1000917) от 14.01.2020
-
-VA - 100 Hit Tracks Ultimate Driving Songs The Classics (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000917.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foreigner - Cold as Ice
-002. ZZ Top - Gimme All Your Lovin'
-003. Deep Purple - Black Night
-004. Roxette - Joyride(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 06:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF16D4870BE792B7563EE817F00CA3320DEAC668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352434   (1000929) от 14.01.2020
-
-VA - Trance Nation Future Sound: Progressive Edition (2020) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000929.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Sherry - Yerba Del Diablo (Extended Mix)
-002. Armin Van Buuren - Revolution (Extended Mix)
-003. Hghlnd & Rigo Avila - Eden (Extended Mix)
-004. Tristan - Supernature (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C6E91E23717685E6E6FE0FB6C2609EB9C95500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351540   (1001005) от 14.01.2020
-
-VA - Сегодня на радио хиты FM Vol.8 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#2 Маши - Лава (3:10)
-2.Ally Brooke - No Good (3:11)
-3.Alok, Dynoro - On & On (2:27)
-4.Anthony Keyrouz - Love Yourself (2:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B47A86A6D621DBE868192F196670D2211E890F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352250   (1001006) от 14.01.2020
-
-Steppenwolf - Greatest Hits (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Into The Wind
-02. A Girl I Knew
-03. Born To Be Wild
-04. Hootchie Cootchie Man(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D208CBAE9A3D5E54C74793F66D869D49251E7D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351513   (1001035) от 14.01.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 10.01.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
-02. Tones And I - Dance Monkey 3:30
-03. FILV & Edmofo feat. Emma Peters - Clandestina 2:29
-04. Pascal Letoublon - Friendships 4:02(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C38904FF3202CE919B0B446C5770E8E4D0F962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352404   (1001041) от 14.01.2020
-
-VA - Free Spirit: Advanced Rock Collection (2020) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001041.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ashbury - Good Guitar
-002. Andrew Mcmahon - Ohio
-003. Wild Romance - You
-004. Disturbed - A Reason To Fight(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 10:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5B9247A76AA7906F90FADE1768EE338AC07AD1
 ```
 
 

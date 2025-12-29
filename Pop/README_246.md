@@ -1,3 +1,84 @@
+###  Публикация: 1289333   (686477) от 16.03.2019
+
+Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Orchestral>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovejet (Orchestral Version) (3:21)
+ 02. Take Me Home (Orchestral Version) (4:23)
+ 03. Murder On The Dancefloor (Orchestral Version) (3:46)
+ 04. Move This Mountain (Orchestral Version) (4:48)(   Читать дальше...   )Жанр: Pop, Classical, OrchestralПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028906   (686494) от 24.06.2016
+
+Владимир Шурочкин - С корабля на бал! (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "С корабля на бал  "
+02. "Ночной бродвей  "
+03. "Тальяночка  "
+04. "Дороги  "(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C5DBBEC5D2B330195056147ACEA6F947E87F48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289331   (686623) от 16.03.2019
+
+Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Battle Of The Sexes (Duet with Rod Stewart)
+03. Slow Walk
+04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289622   (686625) от 16.03.2019
 
 Daddy Cool Kids  - School's Out (2008) Single [FLAC|Lossless|image + .cue] <Disco, Europop, Electronic>
@@ -618,93 +699,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9273540DBFAFAE4FB08ED3AE810C1D834811A855
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505670   (689471) от 05.06.2012
-
-Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can’t Get You Out Of My Head
-02. Spinning Around
-03. I Should Be So Lucky
-04. Love At First Sight
-05. In Your Eyes
-06. Kids (with Robbie Williams)
-07. Better The Devil You Know
-08. All The Lovers
-09. Give Me Just A Little More Time
-10. Celebration(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288996   (689937) от 14.03.2019
-
-Blue System - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (Maxi Version)
-02. My Bed Is Too Big
-03. Laila (Maxi Version)
-04. Under My Skin (Radio Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C2340244DC339E3D7EA4D15BA2C11ED73FEFDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289170   (690050) от 14.03.2019
-
-Леонид Агутин - 50 (2018) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я тебя не вижу
-02. Самба (feat. Willie Key)
-03. Две минуты жизни
-04. Она не вернётся(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C5D02E15C992EA67CE6C6900F3AAEB2D971FDB
 ```
 
 

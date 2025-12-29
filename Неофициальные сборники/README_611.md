@@ -1,3 +1,171 @@
+###  Публикация: 631624   (920261) от 20.03.2013
+
+VA - Creative Electro Box 3 (2013) [MP3|320 кб/с]<House, Electro, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 3PPL - HeadBanger
+2. Alisiya - Напрасно Ждать
+3. Baauer - Harlem Shake (Dave Silcox Remix)
+4. Beta - Madness
+5. Boo feat. Reece Low - Guardian
+6. Calabria feat. Rob Estell - Space (Club Mix)
+7. Candy Sandy - X Side
+8. Carnage feat. Borgore - Incredible
+9. Crookers - A Go Go
+10. Crookers - Giga(   Читать дальше...   )Жанр: House, Electro, Electro HouseПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBE8136934966E7938B5D2BA9631D70FA2EB1AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289052   (920352) от 30.01.2011
+
+VA - Крутые 90е (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18735D413B51B0FA4218069D39310A5536B9D62D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988458   (920401) от 20.02.2016
+
+VA - Легенды Ретро FM. Лучшее. Зарубежный Выпуск (2016) [MP3|320 кб/с] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maywood - Pasadena
+002. Boney M. - Dreadlock Holiday
+003. London Beat - I've Been Thinking About You
+004. Vaya Con Dios - Nah Neh Nah(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 07:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C457FBCAAFEB11C51F7722CCF888442082AF1F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490058   (920415) от 19.08.2021
+
+VA - 100 Greatest 2000s Love Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - We Belong Together
+02. Alicia Keys - If I Ain't Got You
+03. Jason Mraz - I'm Yours
+04. James Blunt - You're Beautiful(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622FEEF2CFCF22B97CD3E85249F2DF46529056F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490113   (920521) от 19.08.2021
+
+VA - 100 Greatest 2010s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carly Rae Jepsen - Call Me Maybe
+02. Lady Gaga, Bradley Cooper - Shallow
+03. Adele - When We Were Young
+04. Lady A - Need You Now(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D61F938705092BD6D30C6337A088587119F7D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096137   (920536) от 23.01.2017
+
+VA - Hits of My Soul Vol. 22 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Kid Rock - Bawitdaba (04:25)
+02. Aerosmith - Sweet Emotion (04:34)
+03. Saliva - Superstar (04:09)
+04. Reckless Love - Hot (03:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490207   (920537) от 19.08.2021
 
 VA - Music News vol.124 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -524,168 +692,6 @@ VA - Бомба года  хитов (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3256B2B3BDF3317542001E5F13469F89F4A34C5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988332   (921897) от 19.02.2016
-
-VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonya Feat. Artik - Мой Рай
-02. Номо - Облака
-03. Icona Pop - Emergency
-04. Юджин Feat. Ай-Q - Словно Сон(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C4921624DAA309180F0543CC48CC8F1103A571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366643   (922112) от 12.03.2020
-
-VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922112.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Haldo Gee - Puerto Escondito (House Tribe Mix)
-002. Bozoo Romle - Breathe (Original Mix)
-003. David Novacek - Yeah (Original Mix)
-004. Marcos Salas - Spanish Tech(   Читать дальше...   )Жанр: Tech, Deep HouseПродолжительность: 11:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116EB57E4D5CC382DDABC223A6632D4DF13191DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489912   (922123) от 18.08.2021
-
-VA - 100 Greatest 80s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - Heaven
-02. Madonna - Crazy for You
-03. The Bangles - Eternal Flame
-04. Michael Jackson, Siedah Garrett - I Just Can't Stop Loving You (Remastered)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8765CD3F5C412B8A5B48FA6C186318F64A2EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366641   (922124) от 12.03.2020
-
-VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922124.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Garez - Norefjell
-002. Paul Feris - On The Run
-003. Spektre - Forged In The Heart
-004. Dj Jordan - Acid Dreams (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489965   (922134) от 18.08.2021
-
-VA - 100 Greatest '90s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Céline Dion - Because You Loved Me (Theme from "Up Close and Personal")
-02. Luther Vandross - Here and Now
-03. Mariah Carey - Vision of Love
-04. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44762D261E3EC94D97F147197F9EE17741B3AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489749   (922139) от 18.08.2021
-
-VA - Громкие новинки Августа (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кирилл Мойтон - Любовь (2:28)
-02. Jah Khalib, Tanir, TM - I go to the barbershop (3:52)
-03. G-Eazy, Martin Garrix, Sasha Alex Sloan - Love Runs Out (2:44)
-04. Тони Раут - Хобби (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E671BA831BB5144041126582DEBE3FFE4891FB6
 ```
 
 

@@ -1,3 +1,404 @@
+###  Публикация: 1023598   (716127) от 09.06.2016
+
+Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип основан на оригинальном дискеЖанр: ScoreПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FAC99EE515C5EECF9D1CF644B8215BB76EA02D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285352   (716679) от 28.02.2019
+
+Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fragrance (5:28)
+02.King Of Guitarras (feat. Lorenzo De Medici) (4:44)
+03.Love Story (4:29)
+04.Miss Guitar (5:42)(   Читать дальше...   )Жанр: New age. Nuevo Flamenco, ChilloutПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285121   (716811) от 28.02.2019
+
+Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tenku 4:14
+ 02 - Romance 4:41
+ 03 - Wings 5:20
+ 04 - Aura 7:24(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3F4DBA4E106D0389388AA5DB6C1B54BBF75115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892940   (717091) от 27.04.2015
+
+V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717091.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
+01. Seal - Dont Cry
+02. Chicago - Hard to Say Im Sorry
+03. Percy Sledge - When A Man Lovers A Woman(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 03:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669753   (717501) от 18.06.2013
+
+Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Alabama [00:00:59]
+02. Monstrous Big [00:01:50]
+03. The Two Dead Girls [00:03:02]
+04. The Mouse On The Mile [00:01:30](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C01B78C3A18B4920C1CCF980E1B5256E5634C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024352   (717903) от 08.06.2016
+
+VA - Unwind Piano Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah Gutman - Purple (4:02)
+02. Frank Glazer - Gnossiennes No. 1 (2:51)
+03. Seby Burgio - Biphasic Sleep (5:55)
+04. Delilah Gutman - Dell'inconscio l'istinto (1:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE9492F99E16BD99632939E601A29301DDC1577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024307   (717914) от 08.06.2016
+
+Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Revenant Main Theme (02:41)
+02. Hawk Punished (02:14)
+03. Carrying Glass (03:07)
+04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBD64A16D359348D07EA3088B9489677AE035FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024311   (717915) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25627D329DCE2B49A0CBAAE3F515696543E79B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024500   (717916) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024302   (718142) от 08.06.2016
+
+Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Revenant Main Theme (02:41)
+02. Hawk Punished (02:14)
+03. Carrying Glass (03:07)
+04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791181   (718325) от 29.05.2014
+
+Инверсия - Под горою диво + 2 EP (2010-2014) [MP3|128-320 кб/с]<Folk, Punk-rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инверсия – это синтез панк-рока и  аутентичных русских народных песен. Это мощь и глубина древних напевов и драйв захватывающей энергетики современности. Это завораживающий саунд фольк-вокала и неистовая мощь панк-музыкантов. Это чистые звуки  этнических инструментов и жёсткий роковый ритм.
+Уникальность Инверсии - в её близости к фольклорным корням. Этнические напевы (   Читать дальше...   )(3:35) 1. Як человече
+(3:26) 2. Ой, немаеЖанр: Folk, Punk-rockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C850668E356E5C44A2414231A141E615CE80C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 150041   (718539) от 05.08.2020
+
+Константин Чугунов и Константин Беляков - Гитарная музыка (2003) [OGG|320]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С. Абреу - Бразильский Карнавал 	(02:24)
+02. Н. Паганини - Соната			(03:58)
+03. Испанский танец - Сальвадор		(02:19)
+04. В. Гомес - Романс			(02:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B8F84B598BB4759680FA366D5BA7EBA6549511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226304   (718542) от 05.08.2020
+
+Tommy Emmanuel - Midnight Drive (1997) [FLAC|Lossless|image + .cue] <Instrumental, Smooth Jazz>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (04:28)
+02. Villa De Martin (04:23)
+03. Midnight Drive (04:09)
+04. Stay Close To Me (03:12)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F417EC29D4C55D6345AA711CCCA8679049665DF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168945   (718545) от 05.08.2020
+
+VA - Guitarras Virtuosas (2006) [MP3|320 kbps]<Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paco De Lucia - Rнo Ancho (4:31)
+02. Manu - Mestizo (3:58)
+03. Al Di Meola - Mediterranean Sundance (5:09)
+04. Embrujo Flamenco - Huapango (8:21)(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1583A8CF14DCF44C4604E520D876BDD86233CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530463   (718648) от 17.02.2022
+
+Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beata Viscera
+02. A Bride of Christ
+03. Flames Will Not Burn Me
+04. A False Prophet(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAFDE707F5E172BD4EA27E287E02725B7440368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531705   (718654) от 17.02.2022
 
 At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -290,408 +691,6 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285058   (718953) от 27.02.2019
-
-VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Capoeira>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capoeira Ultimate - Berimbao Viola
-02. Tafari Roots - Faca De Ponta
-03. Capoeira Experience - Ingá Ingá
-04. Capoeira Muzenza - Vou Ver Mou Mestre(   Читать дальше...   )Жанр: World, Ethnic, CapoeiraПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218871   (719526) от 11.04.2018
-
-Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Beyond Time
- 02 – Slot Canyons
- 03 – Across Worlds
- 04 – Misty Morning(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F76026964135330D2460AC4E8E4FF9C1B9541AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023707   (719727) от 07.06.2016
-
-Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Main Title 	2:40
-02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
-03. 	Terminator Gets Guns / Search For Sarah 	1:13
-04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023952   (719938) от 07.06.2016
-
-Atticus Ross, Claudia Sarne, Leopold Ross - Три девятки / Triple 9 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|image + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticking Glock (06:28)
-02. The Drop (02:07)
-03. Eleven Fifty Nine (06:21)
-04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A25925662D5E3219F1BAABFCA8B18125C55DF18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023948   (720039) от 07.06.2016
-
-Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticking Glock (06:28)
-02. The Drop (02:07)
-03. Eleven Fifty Nine (06:21)
-04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129739   (720046) от 29.04.2017
-
-VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime A-Holes (01:28)
-02. vs The Abilisk (02:35)
-03. The Mantis Touch (01:54)
-04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E72D221F5389B465E3ABC4A55B276D928EDB79B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129740   (720057) от 29.04.2017
-
-VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [FLAC|Lossless|tracks+.cue, tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime A-Holes (01:28)
-02. vs The Abilisk (02:35)
-03. The Mantis Touch (01:54)
-04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96779E52DA3BD7E547FFC15D160DA1702666337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024000   (720182) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370E39435FE3334772DE0FDEAFA786C1DE2C1F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023997   (720303) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129235   (720326) от 29.04.2017
-
-Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damascus 1:59
-02. Center Of The Sun 5:06
-03. Tears From The Moon 4:18
-04. Tidal Pool 6:51(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129654   (720439) от 29.04.2017
-
-Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720439.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monarda
- 2. Sonnenbraut
- 3. Traubensilberkerze
- 4. Lily of the Valley(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531702   (720540) от 16.02.2022
-
-At The Movies - The Soundtrack Of Your Life - Vol.1 (2020) Reissue, 2022, Atomic Fire [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. No Easy Way Out (Robert Tepper cover From "Rocky IV")
-03. Maniac (Michael Sembello cover From "Flashdance")
-04. St. Elmo's Fire (Man In Motion) (John Parr cover From "St. Elmo's Fire")(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B19E0FDBCE5B7EE70E0F3F5DDE99421ABF2CF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024032   (720546) от 07.06.2016
-
-Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Romantic [00:04:38]
-02. Forest [00:04:26]
-03. Letting Go [00:02:57]
-04. Hope [00:03:57](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128936   (720714) от 29.04.2017
-
-Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Celt (Introduction) (1:01)
-02. Oroshay (3:00)
-03. The Primal Gods (2:27)
-04. Celtic Trance (3:55)(   Читать дальше...   )Жанр: Tribal, Ambient, CelticПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261497   (720732) от 04.08.2020
-
-VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C29A94DCCD646FCBF50601A66C20C8CB983DAEB
 ```
 
 

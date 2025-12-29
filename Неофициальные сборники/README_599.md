@@ -1,3 +1,165 @@
+###  Публикация: 1492087   (902476) от 30.08.2021
+
+VA - Beatport Hardstyle: Sound Pack #336 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Watchmen - Hostile
+002. B-Freqz - Rebirth
+003. Hirohiro - Not This Time
+004. Marlo & Matrick - This Way(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 09:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B78A924DDBD67BEA36E0D55DCD5D2C92E60B8BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992303   (902517) от 01.03.2016
+
+VA - Золото Русского Диско - 11 (2013) [MP3|128-320 кб/с] <Pop cборники>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Галина Безпрозванная - Старое диско (256 kbps)
+02. Модерн Токинг - Даришь всем ясный свет
+03. Ярмарка чувств - Алый тюльпан
+04. Белая магия - Вспоминай меня(   Читать дальше...   )Жанр: Pop cборникиПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759E49212E57B7F689174641D070AAC3FF0E2FA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992347   (902521) от 01.03.2016
+
+VA - Liquid Bass Drive (2016) [MP3|320 кб/с] <Drum and Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fred V & Grafix - Constellations
+002. Mob Tactics - Get Dirty
+003. Mob Tactics - Shark Tank
+004. Krakota - Lust Thrust(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 09:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC18B3B01E6B0043DBA01678EF4B433F5FBCC2D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992268   (902566) от 01.03.2016
+
+VA - Songs Of Love Lyric (2016) [MP3|320 кб/с] <Pop, Lyric, Romantic Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sarah McLachlan - Prayer Of St.Francis
+002. Berk & The Virtual Band feat. Cristina Camacho - Tainted Love
+003. Venice - Things That Always Make Me Think Of You
+004. Tony Martinez - Your Loving Arms (feat. Estela Martin) - Acoustic Mix(   Читать дальше...   )Жанр: Pop, Lyric, Romantic RockПродолжительность: 06:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B95B6BBD90F837C477795919A341AF4DA7FB41A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992187   (902574) от 01.03.2016
+
+VA - Шикарный шансон на закате (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Группа Братва - Дальнобой
+02. Сборная Союза - Ушла однажды в никуда
+03. Светлана Аверочкина - Я скажу своей печали прощай
+04. Федосей - Без тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 08:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195D8700418D29C64D193819EE3780FD5E373AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992123   (902588) от 01.03.2016
+
+VA - Kiss FM Top 40 February (3rd week) (2016) [MP3|320 кб/с] <Pop, house, trance, dance, club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont — Ocean Drive (3:26)
+02. DNCE — Cake By The Ocean (DJ Vano Remix) (3:24)
+03. DJ Smash ft. Stephen Ridley — Lovers 2 Lovers (3:52)
+04. Adele — Hello (eSQUIRE Remix) (3:49)(   Читать дальше...   )Жанр: Pop, house, trance, dance, clubПродолжительность: 02:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D615E3639CDC85B8693D5FCDAE1FE5985F95632B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990917   (902590) от 01.03.2016
 
 VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative, Metal, Rock>
@@ -545,168 +707,6 @@ VA - Блатная жизнь с радио Шансон. Выпуск 6 (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:302088CBFABEF52632AB5FD9504B5D2290CE481F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991733   (904332) от 29.02.2016
-
-VA - Душевные песни радио Шансон (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виталий Аксёнов - Нина
-02. Сергеич Арзамасский - До Свидания Лагерь
-03. Александр Корецкий - Осколки Счастья
-04. Юрий Кость - Дай Мне Шанс Долюбить Тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E86EB8B20ECA0DCE2F58FC81C2563E3938F3FA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991757   (904361) от 29.02.2016
-
-VA - Bass Attack: Great Compilation (2016) [MP3|320 кб/с] <Drum And Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904361.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klax - Amnesia (Original mix)
-002. Shield, Ordure - Dumflad (Original Mix)
-003. Ganja Kru - Super Sharp Shooter
-004. Alex Reece - Pulp Fiction(   Читать дальше...   )Жанр: Drum And Bass, DubstepПродолжительность: 10:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C61DDAC85E367F1677119310C70E1E287E4AEE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992050   (904443) от 29.02.2016
-
-VA - Trance Traveling 74 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_904443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Warmrider (Extended Mix) (07:06)
-02. Local Heroes - Ares (Original Mix) (04:30)
-03. Gareth Emery feat. Wayward Daughter - Reckless (Extended Mix) (03:30)
-04. Yuri Kane & Ana Criado - Running Wild (04:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FDC149F2B903F5F1D9139A0FC8B332FB4F4EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991763   (904449) от 29.02.2016
-
-VA - Blonde Pleasures: 25 Sexy Relaxing Anthems (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The X Lounge - Look
-02. Beta Ensemble - Room Five Room
-03. Dan Haany - Late Night Lounge
-04. Formentera Quartett - Lover(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84354441F417ED850B9C664ADF3D22A64598A018
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991727   (904453) от 29.02.2016
-
-VA - Теплая атмосфера на радио шансон (2016) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Краев - Любимой Женщине.mp3
-002. Виталий Волк - Русалочка.mp3
-003. Александр Келеберда - Мы Как Яблоки В Снегу.mp3
-004. Игорь Добролевский - Мир На Двоих.mp3(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6AACDBB8E92E1326AEBC14F0C2F2ED484A3E683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991737   (904455) от 29.02.2016
-
-VA - На Волне Шансона (2016) [MP3|256-320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Шпехт - Она кого-то ждёт (03:40)
-02. Кира Дымов - Хулиганская (03:40)
-03. Стас Михайлов - Там (03:40)
-04. Дмитрий Миронов - В Глазах Твоих (03:41)(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D3EAFC91D0CCF7432D420E98F1C64825E79EDF
 ```
 
 

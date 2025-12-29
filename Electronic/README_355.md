@@ -1,3 +1,217 @@
+###  Публикация: 1286893   (707305) от 05.03.2019
+
+VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirco de Govia & Ronski Speed - Asarja (Ronski SpeedMix) (4:00)
+02. Ronski Speed & Sebastian Sand - Sole Survivor (Ronski Speed Mix) (4:24)
+03. Kyau vs. Albert - Falling Anywhere (Rework) (3:36)
+04. Mirco de Govia - Vital Spark (Original Mix) (6:02)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6B1BF9AD9DE35B1D0FC4E8A7707F60752CF2B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131294   (707311) от 06.05.2017
+
+VA - Balearic Lounge Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pindaric Spleen - Stream Of Consciousness  5:54
+02.  Sweetadelic - Elevon  5:14
+03.  Arrojas - Asombrosa  5:37
+04.  Chillelektro - L'Escala  5:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A2D81DFB0E6AD335B9A02FA7964B6C6250E0F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286974   (707314) от 05.03.2019
+
+Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beam Riders (06:48)
+ 02. Born Anchors (06:08)
+ 03. Humans Use Concrete (05:28)
+ 04. Engage Now (07:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286986   (707429) от 05.03.2019
+
+909 Resistance - GoodBye RackFive (2018) Arrakis [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LM2 (05:14)
+02. BBR5 (05:17)
+03. LM2 (Mik Izif Remix) (05:58)
+04. LM2 (J-Rex Acid Remix) (07:27)Жанр: Techno, AcidПродолжительность: 00:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94278ED556D66873AF8517B3C5D539F0FC8FAB75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220061   (708159) от 17.04.2018
+
+VA - Deep Tribal House 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Zierke - Summernights (2cats Remix) (Feat. Yvonne Fontane) 5:47
+02. Showa - Inside Dream 7:06
+03. Anirhythm - Blown Away (Dub Mix) 7:29
+04. Karahuari - Florette 5:22(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D20767A01E0E244581F28B8B97656A3F20F45B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025885   (708206) от 13.06.2016
+
+VA - Island Moods Nu-Disco Chill (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Chill>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel & Castellon - Es Vedra (Holter & Mogyoro Remix) (6:36)
+02. Alex Hook - Right Now (Dub Mix) (5:12)
+03. Loui & Scibi - Don't Lie (Satin Jackets Remix) (5:55)
+04. Dmitrii G - Antidote (Original Mix) (6:05)(   Читать дальше...   )Производство: Island MoodsЖанр: Deep House, Nu-Disco, ChillПродолжительность: 02:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEEAF86749681E53936CA12F649F61D895562D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025848   (708216) от 13.06.2016
+
+Jerome Froese - Far Side of the Face (2012) [MP3|320 кб/с] <Electronic, Ambient, New-Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight Of Fancy 05:53
+02. Novembernauts 14:19Жанр: Electronic, Ambient, New-AgeПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807D1F0E2BBFD598DFAC5DEE30DF3484E608B57D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220162   (708239) от 17.04.2018
+
+VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Finary - 1998 (JamX & De Leons)
+02. DuMonde - Tomorrow (Edit)
+03. DuMonde - See the Light (Special)
+04. DuMonde vs Lange - Memory Jamx & De Leon Mix (Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F50E7E3AEBA9CDCF54389E878C5DC3C0D00A4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220102   (708241) от 17.04.2018
 
 Mees Salome - Ya Amar (2018) EP [MP3|320 Kbps] <Electronic, House, Techno>
@@ -477,221 +691,6 @@ VA - 5 Years Auditive (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7511E6A261B6F9CBD00CD3096B3B46952855C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131182   (710814) от 04.05.2017
-
-Moon Frog - Standing On Ceremony (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710814.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Old Memories (05:05)
-2. Summer Folds (04:41)
-3. Woke Me (03:48)
-4. Exister (05:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5E33D0D80E1DD112DF65719884BB28C658730A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532936   (710943) от 21.02.2022
-
-Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitesquare - Folded Reality
-02. James Burton - Breakfast Club (Dennis Ferrer Morning Mix)
-03. Felipe Puertes - Niyama
-04. Øostil & U S H N U - Safe (Hunter/Game Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BB1EADBF23E31BB896AA6A1EE60D675FD2CC4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401198   (710972) от 09.08.2020
-
-VA - Extreme Sports Music, Vol. 7 (2020) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIMES. - Turn It Up [00:03:41]
-02. Divine Claw - First (Radio Edit) [00:03:28]
-03. Lyon - Firegun (Radio Edit) [00:02:31]
-04. Charlyfive & Artiste - Mystic (Radio Edit) [00:03:40](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0890017AA50DDCFEBBF25F7EEFE73C81E8236AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401184   (711014) от 09.08.2020
-
-Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired [00:04:43]
-02. Runaway [00:03:34]
-03. Powerlines [00:03:29]
-04. Neon Void [00:03:34](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A78D15D3B1D388A87F05CE5588ECCCCECE8A01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400965   (711151) от 09.08.2020
-
-Ost+Front - Dein Helfer In Der Not (2020) 3xCD [FLAC|Lossless|image + .cue] <Industrial Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711151.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: Tontrager 1
-CD2: Tontrager 2
-CD3: In Der Holle ErfrorenЖанр: Industrial MetalПродолжительность: 01:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C75A3AB1B4B39105B730438F2D94994FDC7185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286708   (711155) от 03.03.2019
-
-Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kbps] <Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Maker Theme (8:52)
-02. Sweetly (8:09)
-03. Happily (8:26)
-04. This Song Tears Easily (5:35)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F779AB562262ABC12BF742D06FFAF0553F471C5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401189   (711184) от 09.08.2020
-
-Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Safety in Mind [00:03:59]
-02. Strange Behaviour [00:04:02]
-03. A Decade of Thoughts [00:04:09]
-04. State of the Nation [00:04:13](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401188   (711191) от 09.08.2020
-
-Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Future Days [00:03:41]
-02. I Want to Live Tomorrow [00:03:50]
-03. Easy Come, Easy Go [00:05:42]
-04. Normal [00:04:37](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
 ```
 
 

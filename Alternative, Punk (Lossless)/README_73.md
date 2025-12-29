@@ -1,3 +1,299 @@
+###  Публикация: 1462600   (1021038) от 15.04.2021
+
+Guano Apes - Walking On A Thin Line (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Stop Me (3:11)
+02. Dick (2:43)
+03. Kiss The Dawn (5:20)
+04. Pretty In Scarlet (4:06)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809E48ADB86A1270CF048172A9F42EF3FDF96A2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462261   (1021206) от 14.04.2021
+
+The Rasmus - Black Roses (2008) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' in a World Without You [03:50]
+02. Ten Black Roses [03:54]
+03. Ghost of Love [03:17]
+04. Justify [04:26](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087197F0C881C5B7CA8FA6CEB036692B358D09C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462255   (1021215) от 14.04.2021
+
+The Rasmus - Dead Letters (2003) 2xCD [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021215.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. First Day Of My Life [03:44]
+02. In The Shadows [04:06]
+03. Still Standing [03:32](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9BA23CF135ED1EC12FD6FB9C10DBE34622EFDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461967   (1021304) от 13.04.2021
+
+Royal Republic - Club Majesty (2019) (Japanese Edition) [FLAC|Lossless|image + .cue] <Disco-Rock, Dance-Punk, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireman & Dancer [2:48]
+02. Can't Fight The Disco [2:51]
+03. Boomerang [3:26]
+04. Under Cover [3:42](   Читать дальше...   )Жанр: Disco-Rock, Dance-Punk, Electronic Rock, Funk Rock, New WaveПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586F51D5E26FEAB3DB566B8D88397814D802DC1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462172   (1021332) от 13.04.2021
+
+Guano Apes - Live (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietly (3:41)
+02. No Speech (3:47)
+03. Money & Milk (2:38)
+04. Pretty In Scarlet (3:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEC18B8D244523A08BA60AC94240350017D9810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461084   (1022118) от 08.04.2021
+
+Guano Apes - Break The Line (2004) Maxi-Single, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break The Line (3:34)
+02. Stay (3:48)
+03. Underwear (3:29)
+04. Scratch The Pitch (Live) (3:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056092D08576B84BFF0C806BEC565EF603454514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461088   (1022123) от 08.04.2021
+
+Guano Apes - You Can't Stop Me (2003) Maxi-Single, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Cant Stop Me (Single Mix) (3:11)
+02. Dick (2:47)
+03. Scratch The Pitch (3:49)Жанр: Alternative RockПродолжительность: 00:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA05523D0F83A9E974EC3AEF9112B07FB4A1369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460621   (1022460) от 06.04.2021
+
+Guano Apes - Big In Japan (2000) Maxi-Single, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big In Japan (2:51)
+02. Gogan (2:49)
+03. I Want It (3:20)
+04. La Noix (2:21)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE04D12061B2D910A06A47438E1CD4CE75FFB129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460642   (1022465) от 06.04.2021
+
+Guano Apes - Don't Give Me Names (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022465.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Innocent Greed (3:51)
+2. No Speech (3:30)
+3. Big In Japan (2:48)
+4. Money & Milk (2:39)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB48179F4E94F8E253142A3FB5D9D99D7EE177F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460380   (1022590) от 05.04.2021
+
+Evanescence - The Bitter Truth (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Metal, Gothic Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artifact / The Turn
+02. Broken Pieces Shine
+03. The Game Is Over
+04. Yeah Right(   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Nu MetalПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557B6B7EBF2D5543E95C7D1405CB263260578DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460459   (1022600) от 05.04.2021
+
+Guano Apes - Proud Like A God (1997) Reissue, 1998, Supersonic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Your Eyes (3:08)
+02. Maria (3:45)
+03. Rain (4:35)
+04. Lords of the Boards (3:42)(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74220C8D8CF1DCF0BAC649441464828113332CC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002940   (1024467) от 25.03.2021
 
 The Cranberries - 14 альбомов, 1 Box Set (1993 - 2019) 25 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Alternative, Pop-Rock>
@@ -398,303 +694,6 @@ Senshi - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Reggae Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C89312356C1A0A340CB1037FDDCB6D0A4E6E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621348   (1030995) от 25.03.2023
-
-August Burns Red - Death Below (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonition [00:01:53]
-02. The Cleansing [00:07:47]
-03. Ancestry [00:04:50]
-04. Tightrope [00:04:13](   Читать дальше...   )Жанр: Alternative, Post-Hardcore, MetalcoreПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19847141201596B5234F32D6B3FD34189F61F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447558   (1031365) от 15.02.2021
-
-Eiffel - Foule Monstre (2012) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Place de mon coeur (4:10)
-02. Le Meme Train (3:54)
-03. Chaos of Myself (feat. Phoebe Killdeer) (7:06)
-04. Foule monstre (3:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF0B864C2FBBAAF5D37C29D6F8BBA8CDE975B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447829   (1031376) от 15.02.2021
-
-Ad Nauseam - Imperative Imperceptible Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sub Specie Aeternitatis
-02. Inexorably Ousted Sente
-03. Coincidentia Oppositorum
-04. Imperative Imperceptible Impulse(   Читать дальше...   )Жанр: Avantgarde, Death MetalПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA9069BC10CFD4A182C5CCE33405BE8671B927E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447504   (1031889) от 13.02.2021
-
-Love And Death - 2 Albums (2013, 2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Metal, Christian-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infamy [00:01:51]
-02. Tragedy [00:03:36]
-03. Down [00:04:00]
-04. Let Me Love You [00:03:52](   Читать дальше...   )Жанр: Nu-Metal, Christian-RockПродолжительность: 2 CD, 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209EA7A559A76B5A8F0AD190E413F7B16AA2AE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620666   (1031908) от 21.03.2023
-
-Sleeping Dog - Meltwater Pulse 1B (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CHERRY PICK [00:02:44]
-02. HEY SILENCE [00:02:08]
-03. DREAMER [00:02:02]
-04. IT'S THE WAY [00:04:05](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6F3A55FB918CAA02B7804E6818B86B08ABC360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447154   (1032082) от 12.02.2021
-
-The Pretty Reckless - Death by Rock and Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death by Rock and Roll (3:54)
- 02. Only Love Can Save Me Now (feat. Matt Cameron & Kim Thayil) (5:12)
- 03. And So It Went (feat. Tom Morello) (4:30)
- 04. 25 (5:27)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-GrungeПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2313A546868F21315308A8EA668A2C2DA5843478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447072   (1032129) от 12.02.2021
-
-Clap Your Hands Say Yeah - New Fragility (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hesitating Nation (03:14)
-02. Thousand Oaks (04:47)
-03. Dee, Forgiven (04:08)
-04. New Fragility (03:26)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B848DFE3A1B0D58E420B82F4AEB49C18A5D0D52A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620395   (1032136) от 20.03.2023
-
-Field Music - Commontime (2016) [FLAC|Lossless|WEB-DL|tracks] <Art rock, Indie-pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Noisy Days Are Over
-02 - Disappointed
-03 - But Not For You
-04 - I'm Glad(   Читать дальше...   )Жанр: Art rock, Indie-popПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A5743EEFB1F41A9083247775891C53937FEF9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620287   (1032316) от 19.03.2023
-
-Bloodsucking Zombies From Outer Space - Geisterhaus [Morder Blues III] (2023) [FLAC|Lossless|WEB-DL|tracks] <Horrorbilly, Psychobilly, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geisterhaus [00:04:39]
-02. Zentralfriedhof (Mörder Blues III) [00:03:27]
-03. Herz und Hirn [00:01:02]
-04. Werwolf von Währing [00:04:08](   Читать дальше...   )Жанр: Horrorbilly, Psychobilly, Punk RockПродолжительность: 00:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8581431E73EC1A2ACB0AC5F357F4F4AD87A49D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446083   (1033051) от 08.02.2021
-
-Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lass Mich Gehn
-02. Nackt Und Kalt
-03. Wer Wir Waren
-04. Du & Ich(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC569C7BDBE08E7A9D511541924124946FF7C12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618453   (1034167) от 11.03.2023
-
-Blue October - Approaching Normal (2009) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight of the World
-02. Say It
-03. Dirt Room
-04. Been Down(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4005FDE9684C1E189D08783ED7E4E59B5E5781BD
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1363901   (939534) от 01.03.2020
+
+VA - Record Super Chart 627 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 3:58
+02. Carla Morrison - Disfruto 3:57
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
+04. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1FD35EBE9191F93D272F3373F62F063D58D10E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363880   (939602) от 01.03.2020
+
+VA - The Official UK Top 40 Singles Chart 28.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Billie Eilish - No Time To Die
+03. Roddy Ricch - The Box
+04. SAINt JHN - Roses (Imanbek Remix)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6072D5CCB748EACF074BEE7B4F66200C2B7A2FEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363891   (939612) от 01.03.2020
+
+VA - German Top 100 Single Charts 28.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. UFO361 - Rich Rich
+03. Samra - Schüsse im Regen
+04. Luciano - Mios mit Bars(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F5F0BB3D5A95DC257FB302592211863A5EB03F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092028   (939752) от 11.01.2017
+
+VA - Зимняя сотка хитовая (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939752.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. El'man - Танцуют Ангелы 3:00
+002. Не.Kurili Feat. Mansarda - Оскал 5:31
+003. Инфинити Feat. Гена Дудин - Воланчик 3:18
+004. Olstan Van Guard - Знаки 4:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FB2ACD2AE0642FEF415305B96A94C8EFE91826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092234   (939945) от 11.01.2017
+
+VA - Мир Волшебной Музыки (Sound Clinic - Just Relax Edition) (2017) [MP3|320 Kbps] <Relax, Trip-Hop, Instrumental Hip-Hop, Chillout, Lounge, Jazz-Hop, Jazzy, Chill-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2LATE - Bombin
+02. 2LATE - So What
+03. 2LATE - Spiritually Focused
+04. 2LATE - On Time(   Читать дальше...   )Жанр: Relax, Trip-Hop, Instrumental Hip-Hop, Chillout, Lounge, Jazz-Hop, Jazzy, Chill-HopПродолжительность: 39:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199C5195292F52B9064026E8AE67D70633A6A6DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092376   (940072) от 11.01.2017
+
+VA - 90s Ultimate Flowers Hits (2017) (2017) [MP3|320 Kbps] <Alternative, Country, Soundtrack, Hard Rock, Soul, R&B, Grunge, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tragically Hip - Grace, Too 05:35
+02. Type O Negative - Love You To Death 07:08
+03. Shawn Mullins - Lullaby 05:31
+04. The Klf - What Time Is Love (Lp Mix) 05:17(   Читать дальше...   )Жанр: Alternative, Country, Soundtrack, Hard Rock, Soul, R&B, Grunge, Heavy MetalПродолжительность: 04:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D23DB224C0ADF216EDAEAEEAE4524DFE404C8A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092089   (940111) от 11.01.2017
 
 VA - Funky Disco House: 100 Dance Hit (2017) [MP3|255-320 Kbps] <Funky, Disco, Electro House>
@@ -533,168 +695,6 @@ VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EF605DDC2127EE70D420FCFB3CBFDDC842BB13F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091853   (941527) от 10.01.2017
-
-VA - Empire Records - Club Hit 4 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddy Verano, LissA - Move Like Me (Extended Mix)
-02. Anya - Fool Me (Bentley Grey Nu Disco Remix)
-03. DJ Nil Anthony El Mejor Mischa – Closer (2ways IAMCULT Remix)
-04. James Harrison - Breakdown (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0379FC6899D5192A22A3B15E06D69C2E65CE3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091996   (941542) от 10.01.2017
-
-VA - Зимние мега хиты. Зарубежный выпуск (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lp - You Want It All 4:12
-002. Ray Blk - Gone 3:22
-003. Bruno Mars - That's What I Like 3:27
-004. Olly Murs - Grow Up 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51505BE384D9EFA32EBC928123BF4AA950BFD96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091846   (941569) от 10.01.2017
-
-VA - Empire Records - Dancenudisco 2 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4U - Long Ride (Original Mix)
-02. New Order - People on the High Line (Richard X Radio Edit)
-03. KRAUZE, Display AV - Pixel (Original mix)
-04. Abraham Ruiz - No Returnable (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810AB8D37EB2C7E4AC49E46ACBF49B4B17CF2698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091987   (941578) от 10.01.2017
-
-VA - Танцевальная зима. Снежная 100-ка Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вик - Вдыхаю Твой Холод 4:23
-002. Зара - Без Многоточий 3:36
-003. Никита - Белыми Птицами 3:51
-004. Jones & Brock Feat. Anica - Join Me 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E276A21C84E9172A9C83E3FCFA53C07FF56586D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091964   (941667) от 10.01.2017
-
-VA - Новогодний ресторан на радио Шансон Выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Башкиров - Слезы Дождя 4:04
-002. Ян Марти - Гейзер Страсти 3:19
-003. Рома Левобережный - Наш Двор 2:58
-004. Виктор Машин - Кофе По Утрам 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658139EE051A9259AA134AD5889BD25FD79FC488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091981   (941677) от 10.01.2017
-
-VA - Я слушаю шансон. Зимние хиты (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941677.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Вестов - Мираж 4:23
-002. Рома Левобережный - Наш Двор 2:58
-003. Андрей Язвинский - Магнит 3:16
-004. Ирина Кильфин - Моим Друзьям 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27BA3D04F1786D04D277AB35F61115EE7820731
 ```
 
 

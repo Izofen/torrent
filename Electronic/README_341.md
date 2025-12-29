@@ -1,3 +1,165 @@
+###  Публикация: 1030552   (674411) от 30.06.2016
+
+VA - Pornostar Sessions Ibiza Edition (2016) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zsak - Time Around (5:31)
+02. Zsak & Crazibiza - Sun Goes Down (Unreleased Mix) (4:58)
+03. Luca Debonaire - Dance! (5:52)
+04. Max & Sims - Sunshine (4:35)(   Читать дальше...   )Производство: PornoStar RecordsЖанр: House, Club HouseПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AD10C403CAB4B6CFB3DC0E38DC7145A6E81A11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030535   (674425) от 30.06.2016
+
+Twisted Destiny - 3 Albums (2012-2016) [MP3|320 Kbps] <Electronic, Synthpop, Futurepop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (2:50)
+02. Cut the Distance (4:00)
+03. Virus - The Vision (3:55)
+04. A.I (4:21)(   Читать дальше...   )Жанр: Electronic, Synthpop, FuturepopПродолжительность: 03:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EC8A1C75013894B4F39DB6EDD6C45D3B917DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290689   (674449) от 22.03.2019
+
+Ercos Blanka - Classic Trick (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Trick (8:34)
+ 02. 36H (7:01)
+ 03. Brigante (8:55)
+ 04. You and Him Master (8:40)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E53AEB8DE1A03091B2F7201EB11FA339A9D80A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290656   (674450) от 22.03.2019
+
+Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Grime>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Overgrown 	(2:54)
+02. 	Split Matter (Ft. Kuedo)  (3:49)
+03. 	Armament 	(3:33)
+04. 	Vessel 	(3:09)(   Читать дальше...   )Жанр: Electronic, GrimeПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC417DC8683B0BDB3014DAFCE3A28278400E88BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290657   (674451) от 22.03.2019
+
+Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
+02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
+03. Acid Pauli - Release (1:54)
+04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536593   (674471) от 12.03.2022
+
+The Prodigy - More Music For The Jilted Generation (1994) 2CD Compilation, Remastered, 2008 [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break & Enter (2005 Live Edit) [00:04:59]
+02. Their Law (Live At Pukkelpop) [00:05:28]
+03. No Good (Start the Dance) (Bad For You Mix Remastered) [00:06:50]
+04. Scienide (Remastered) [00:05:50](   Читать дальше...   )Жанр: Breakbeat, Techno, Big BeatПродолжительность: 2 CD, 01:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F01F873607C11541892764B09518B873E00124E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030617   (674572) от 30.06.2016
 
 VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
@@ -536,168 +698,6 @@ VA - Electrotastic Vol.22 (2016) [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB466C1B4C4254E8E20AA07370673646F1927484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135850   (677002) от 21.05.2017
-
-Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|image + .cue] <Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Gravity (October Reanimation) (4:41)
- 02. Annie Can't Read In The Dark (4:27)
- 03. Baby Firefly (October Reanimation) (3:47)
- 04. Shame (October Reanimation) (4:49)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B9E063F2E85E3E947592EFED5FC0BA1F8A7248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220235   (677129) от 03.05.2018
-
-Waveshaper - 12 Releases (2013-2018) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Journey 2:32
-02. Future Vision 3:14
-03. The Engineer Part II 3:26
-04. Vector Dream 4:57(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 04:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627A745C4F26AB05D8143E89E5DF6E33C48413CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136037   (677157) от 21.05.2017
-
-VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder)(2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixed by Talla 2XLC
-01. Robert Nickson - Heliopause (06:09)
-02. Talla 2XLC - Infinity (extended mix) (03:29)
-03. Alex Morph & Kim Kiona - Coming Home (vocal mix) (05:33)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA2B4BAF9229BBF796802C7B8257B3B329D0239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135925   (677272) от 21.05.2017
-
-Lazy Hammock - Natural High (2012) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of Those Days
-02. Which Way
-03. Closer to Me
-04. Speak to Me(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D3358951641806E2938BAD5A6016BC81574C37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135561   (677274) от 21.05.2017
-
-VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (0:00:32): Alternate High - Invisible Walls (Trancer)
-2. (0:05:03): Chapter XJ - Let It Go (Derek Palmer Remix) (Beyond the Stars)
-3. (0:10:37): PRE-RELEASE PICK: Twin View - Eris (illitheas Remix) (SSD)
-4. (0:16:15): Fresh Code - Another Chance (Beyond the Stars)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0130A770CD0D0829EC3A1DDC7D03A72D9A0E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223244   (677281) от 03.05.2018
-
-Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Sun (Original) (8:23)
- 02. Burning Sun (DAVI Remix) (6:58)
- 03. Burning Sun (Be Svendsen Remix) (8:41)
- 04. Burning Sun (Just Emma's Just Take Me Back Mix) (10:30)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
 ```
 
 

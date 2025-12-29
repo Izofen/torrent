@@ -1,3 +1,192 @@
+###  Публикация: 999241   (860539) от 24.03.2016
+
+Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [FLAC|Lossless|tracks] <classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860539.jpg" />
+</div>
+
+
+###  Подробнее
+
+·4 Mazurkas, op. 41
+01 no. 1
+02 no. 2
+03 no. 3(   Читать дальше...   )Жанр: classicalПродолжительность: 02:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEF67FDE5094D24782FACEA1B02033D6EF8DB81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000215   (860708) от 24.03.2016
+
+VA - Magical World Of Melodies. The Most Beautiful Romantic Symphonies (1995) 3CD
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Philharmonic Orchestra, Massimo Freccia 
+01. Berlioz- Symphony Fantastique op. 14a, I. Reveries - Passions (12:20)
+02. Berlioz- Symphony Fantastique op. 14a, II. Un bal (Valse, Allegretto non troppo) (5:51)
+03. Berlioz- Symphony Fantastique op. 14a, III. Scene aux champs (15:02)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9590CBFFFD54354FF1152F4BD820689593CDC6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000025   (860709) от 24.03.2016
+
+Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Carmen (1978) released on CD 1987, 3CD [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - ACTE I (3:31)
+02. N° 1 Introduction : Sur la place chacun passe (2:10)
+03. N° 1 : Regardez donc cette petite (4:10)
+04. N° 2 Marche et Choeur des gamins : Avec la garde montante (2:34)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419D1D4C5FAB06311FE53612EEE78ECFDBE100EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000187   (860711) от 24.03.2016
+
+Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Evergreen
+02 La vie en rose / Honeysuckle Rose
+03 And I Love Her
+04 The First Time(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3ADF5F3B8E846013C598875D65CA4811661F67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999934   (860726) от 24.03.2016
+
+Wiener Philharmoniker - Highlights From Mozart's Figaro (2007) [FLAC|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinfonia (5:06)
+02. Akt 1, No. 1 Duettino 'Cinque, dieci, venti, trenta' (3:06)
+03. Akt 1 No. 3 Cavatina 'Se vuol ballare, signor Contino' (2:47)
+04. Akt 1 No. 4 Aria 'La vendetta, oh, la vendetta' (3:29)(   Читать дальше...   )Жанр: OperaПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B366F078C61F24838764C2C34B3F2603FFE982C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109011   (860746) от 26.02.2017
+
+Daigo Hanada - Ichiru (2017) [FLAC|Lossless|tracks] <Classical,Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silhouette (02:10)
+02. Butterfly (02:07)
+03. Weak Me (02:58)
+04. Fragment, Pt. 1 (02:08)(   Читать дальше...   )Жанр: Classical,AmbientПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2438E559B8493DE7BA9B033C6F15196578455E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999685   (862179) от 23.03.2016
+
+Glenn Gould - The Sound of Glenn Gould (Bach, Mozart, Beethoven, Haydn, Brahms, Sibelius, Strauss) (2015) [FLAC 2.0|44.1/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Johann Sebastian Bach (1685-1750)
+Aria with 30 Variations "Goldberg Variations" BWV 988
+01 - Aria
+02 - Variation 1 a 1 Clav.(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CE93B4AB4869D3F6A7F50B6A632BA0BD4030B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999652   (862416) от 23.03.2016
 
 Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [MP3|320 кб/с] <Classical>
@@ -504,195 +693,6 @@ George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:378D2F0AFF89D776760C6E4CEB3A92FEA95A4B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996822   (869810) от 19.03.2016
-
-Maria Callas - Callas at La Scala (2014) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical, Opera>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vincenzo Bellini (1801-1835)
-La sonnambula
-01. Act 1: "Compagne, temiri amici ....Come per me sereno" (Amina) (5:48)
-02. Act 3: "Oh, se una volta sola ....Ah! non credea mirarti" (Amina) (14:06)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B2F283120F40ED3A2B36B1935970FEBACF68A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997660   (869954) от 19.03.2016
-
-Maurice Ravel - The Complete Piano Works / Walter Gieseking (1954) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Menuet antique, for piano (or orchestra)
-02 Pavane pour une infante défunte, for piano (or orchestra)
-03 Jeux d'eau (Très doux), for piano
-Sonatine for piano in F sharp minor(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9FDB05CB6C0E3F8FE5F7BB2D573413D12E1D89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996834   (869970) от 19.03.2016
-
-Anton Bruckner - Symphony No. 4 - LSO, Bernard Haitink (2011) [FLAC 2.0|48/24|Lossless|WEB-DL|tracks] <Symphony>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 4 in E flat major 'Romantic' (1874-80)
-1886 (aka 1878/80) version - ed. Leopold Nowak [1953]
-01 Beweft, nicht zu schnell 20:33
-02 Andante quasi Allegretto 15:07(   Читать дальше...   )Жанр: SymphonyПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE143D3B82C5213C95FD254BC03A83C277503BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998454   (870043) от 19.03.2016
-
-Schumann, Argerich, Kremer, Harnoncourt, Chamber Orchestra Of Europe - Piano Concerto - Violin Concerto (1994) [FLAC|Lossless|tracks] <Classical, Romantic>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto In A Minor, Op. 54
-01. Allegro affettuoso  14:24
-02. Andantino grazioso  05:09
-03. Allegro vivace  10:08Жанр: Classical, RomanticПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E639E6692F22C2E425ABAF8E7FA22349ACC68B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998197   (870142) от 19.03.2016
-
-J.S.Bach - Famous Organ Works (1979) Reissue, 2009, JVC [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toccata und Fuge D-moll, BWV565 (8:56)
-02. Passacaglia und Fuge C-moll, BWV582 (13:43)
-03. Fuge G-moll, BWV578 (3:52)
-04. Phantasie und Fuge G-moll, BWV542 (12:12)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE50AA6786D1CB1A9C85D2C1C0FDCD9C204EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145698   (870233) от 11.04.2020
-
-Александр Бородин - Опера "Князь Игорь" (1969) [MP3|192 kb/s]<Опера>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Партии исполняют: И.Петров, Т.Тугаринова, В.Атлантов, Артур Эйзен, А.Ведерников, Е.Образцова, А.Лаптев, В.Ярославцев, К.Басков, И.Терпиловская, М.Миглау1. Увертюра.   09:29
-2. Пролог: Интродукция "Солнцу красному слава!"   03:52
-3. "Идем на брань с врагом Руси"   02:25
-4. "Князья, пора нам выступать"   05:47(   Читать дальше...   )Жанр: ОпераПродолжительность: 03:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4E956BB24FAAEF191C27114E55BDF77A9E34F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998443   (870271) от 19.03.2016
-
-Mozart - Symphonien №. 25, 29, 35 «Haffner» (1972) Reissue, 2008, Decca [FLAC|Lossless|image + .cue] <Classical, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonie Nr. 25 g-moll, KV 183: I. Allegro con brio (8:30)
-02. Symphonie Nr. 25 g-moll, KV 183: II. Andante (4:59)
-03. Symphonie Nr. 25 g-moll, KV 183: III. Menuetto (3:32)
-04. Symphonie Nr. 25 g-moll, KV 183: IV. Allegro (5:39)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0EDFB5F19452C155644D86876A94F56A0FF680
 ```
 
 

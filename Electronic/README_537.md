@@ -1,3 +1,353 @@
+###  Публикация: 1841532   (1048163) от 11.12.2025
+
+VA - After Work Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clive Button - A Wish Come True (4:42)
+02. Weber & Weber - Back at Weber's (3:43)
+03. V-Sta - Vibing (5:01)
+04. M-Sol Project - Deep Waters (6:08)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B7261D01975DA57DCF49155DA0723BA7B3F73C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841596   (1048211) от 13.12.2025
+
+Massive Attack - Heligoland (2010) Bonus Edition, 2010, Virgin Records [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray For Rain [00:06:43]
+02. Babel [00:05:19]
+03. Splitting The Atom [00:05:16]
+04. Girl I Love You [00:05:26](   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12151FD87481C1DFD94EEC5C03A79A1C774D993
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841708   (1048212) от 13.12.2025
+
+VA - Lost Kommunication Reflections 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jox & Helena Kristiansson & Roberta Harrison - Cherry Blossom (Extended Mix) [5:21]
+02. Lee Hanlon & JODIE POYE - Hope (Extended Mix) [7:09]
+03. Lee McNeill - Slip Away (Extended Mix) [7:16]
+04. Mehran Vedadi - I Can't Live Without You (Extended Mix) [5:44](   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4931BC5B8FBFDD4AE7166C76787D1BEB838A9F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841641   (1048253) от 12.12.2025
+
+VA - Black Hole Trance Music 12-25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - Drum's A Weapon (Giuseppe Ottaviani Extended Reprint) 04:48
+02. Andy Duguid & Chelsea Holland - You And I (Extended Mix) 05:14
+03. Solarstone - Memoryland (Extended Mix) 08:31
+04. Daxson & Clara Yates - Turn Back (Extended Mix) 05:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E5E39103ED63365E0C7D37F1085D762E0B4DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841856   (1048294) от 13.12.2025
+
+VA - The Orient Collective: Oriental Sunrise (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aydn Britt - Albaraan (4:26)
+02. Tibetania - Memoria (4:45)
+03. Tibetania - Ultimate Reality (6:40)
+04. Tibetania - Temptation (5:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9840E815F3B5C7481F025CAD728A737D6954D93F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841830   (1048432) от 13.12.2025
+
+VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048432.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Jon Bon Jovi - Take The Leap (A State of Trance Year Mix 2025 Intro) [1:55]
+002. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
+003. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
+004. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 12:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03692DA5E342E15716FB7C95F12AE3DE8A0F03D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842164   (1048544) от 14.12.2025
+
+Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowball (7:29)
+02. Wizard (7:23)
+03. You Take Me Higher (7:50)
+04. Ghost (7:08)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842205   (1048590) от 15.12.2025
+
+Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Searchin' (THEMBA Remix) [00:04:08]
+02. So Low (Anthony Middleton Remix) [00:07:42]
+03. Y Don't U (Cinthie Remix) [00:06:38]
+04. Alive (Nick Morgan Remix) [00:05:53](   Читать дальше...   )Жанр: Tech House, Deep House, Progressive HouseПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842246   (1048594) от 15.12.2025
+
+VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MARTZ Moreno - Heavenly Glory (Original Mix) [4:15]
+02. Sublitrance - Eternal Love (SouthDreamer Remix) [6:44]
+03. Duezher - Above The Cloud (Original Mix) [7:04]
+04. Transcending - Confidence (Original Mix) [7:55](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842312   (1048604) от 15.12.2025
+
+VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Jon Bon Jovi - Take The Leap (A State of Trance Year Mix 2025 Intro) [1:55]
+002. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
+003. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
+004. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 12:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E02D3ED1750872045329D1ECE4BDEF9BC793EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842221   (1048665) от 15.12.2025
+
+VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raul Perez - El Tiempo (5:32)
+02. Ildar Bik, Tibetania - Talika (5:49)
+03. Setrian - Condor (4:48)
+04. Kaisser Bouzriba - Deep in My Soul (5:59)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F1A428239242CD868372B12DD775AED8EAF533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842829   (1048792) от 17.12.2025
+
+VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Beat Projekt & Rollerbabe - Voice In The Sky (Original Mix) [5:42]
+02. Roman Sand - Aquarius (Original Mix) [6:03]
+03. Invisible Signs & Higher Instincts - Eternal Travellers (Original Mix) [8:11]
+04. Semper T. - Fall Mood (Original Mix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 03:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A9939B1C18378F79E7124881BA4AB4E6FA595C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842791   (1048872) от 17.12.2025
+
+Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tool 4 (Original Mix)
+02. Tool 5 (Original Mix)
+03. Tool 6 (Original Mix)Жанр: HouseПродолжительность: 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842716   (1048930) от 17.12.2025
 
 VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
@@ -341,87 +691,6 @@ VA - This is Ablazing 2025 (Mixed and Selected by Rene Ablaze) (2025) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DACC276B463615B8768BCD6F83CA6032073DD99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843431   (1049425) от 20.12.2025
-
-VA - Balearic Chill Out Winter 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lemongrass; Jane Maximova - I Miss You (04:40)
- 02.  Calmabohain - My Lips on Yours (04:23)
- 03.  Weathertunes - Osaka Dream (02:36)
- 04.  Luis Hermandez - Let Me Down (03:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDF198963A4B9781CB0D0967E12588F4F515714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843741   (1049516) от 
-
-VA - The Orient Collective: Sand & Silence (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Lockwood, Tibetania - Morning Clouds (Original Mix) (5:38)
-02. Marga Sol, Tibetania - Memoria (Original Mix) (4:45)
-03. DIVENITTO, Tibetania, Mr.Elijah. DUP - Goa (Original Mix) (6:43)
-04. Tibetania, Afromath - Sentimente (Original Mix) (5:07)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC9D01139608D2FFD2AA4E35FE319A192A65C2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843658   (1049573) от 
-
-Parov Stelar - Artifact (2025) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parov Stelar, жанровый анархист из Австрии, выпустил альбом Artifact, и интернет сошел с ума. Почему? Потому что где-то в процессе создания он пожал руку искусственному интеллекту. Обложка альбома? ИИ. Видео? ИИ. Музыка? Возможно, кто знает. Кто-то скрежещет зубами, крича: "Роботы крадут нашу музыку!" А тем временем остальные просто кивают в такт, потому (   Читать дальше...   )01. Artifact (3:25)
-02. Shiver (2:43)
-03. & Claudia Kane - Six Feet Underground (Artifact version) (3:15)
-04. Rebel Love (2:51)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84CBEE51D070226386FFC03D4AF35328B5AAC23
 ```
 
 

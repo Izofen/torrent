@@ -490,6 +490,39 @@ magnet:?xt=urn:btih:81FF1B4C3C4CB9B5785D0FB16177D2961CAFFB74
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507844   (677339) от 11.06.2012
+
+VA - Музыкальные новинки  (01.06.12 по 07.06.12) (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677339.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adam Lambert - Never Close Our Eyes (Almighty Radio Edit) (3:57)
+2. ADN - Ему Ты Больше Не Нужна (3:43)
+3. Aiden Grimshaw - Is This Love (Radio Edit) (3:25)
+4. Akon - America’s Most Wanted (Full + CDQ) (3:40)
+5. Alexandra Burke - Beating Still (3:35)
+6. Alexandra Burke - Between the Sheets (3:09)
+7. Alexandra Burke - Daylight Robbery
+8. Alexandra Burke - Fire
+9. Alexandra Burke - Love You That Much
+10. Alexandra Burke - Oh La La(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 12:46:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 336887   (677371) от 15.05.2011
 
 VA - Улетная 200ка Весна 50/50 от Evropa + (2011) [MP3|128 kbps]<Pop>
@@ -677,33 +710,6 @@ VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029844   (678321) от 28.06.2016
-
-VA - Absolute Jazz (2016) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sante Palumbo Trio - The Look of Love (06:10)
-02. Carlo Nicita Trio - Summertime (Take 2) (05:42)
-03. The Fantastic Jazz Quartet - Take Five (06:05)
-04. Urban Lovers Jazz Quartet - The Shadow of Your Smile (06:11)(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C54B938D69E486CDB972165ADFDE467DB6755B3
 ```
 
 

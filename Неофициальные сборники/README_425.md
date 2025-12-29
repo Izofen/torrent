@@ -1,3 +1,108 @@
+###  Публикация: 1290379   (679822) от 19.03.2019
+
+Silent Circle - Touch In The Night (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679822.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Silent Circle - Touch In The Night (Denis Osyanin Remix)Жанр: Club, DanceПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF9B4984CC2C43AC51E9DA54F6B622644428F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029707   (679903) от 27.06.2016
+
+Enigma - The Collection (2016) 2 CD [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angles Weep
+02. Just For the Day
+03. Dream On
+04. Snowin' Under My Skin(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 02:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12605FD8317E11182B3E2654C12CD01527F5B524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029608   (679984) от 27.06.2016
+
+VA - Русский Рок-н-ролл (2016) [MP3|192-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ноль - Этот русский рок-н-ролл
+02. Машина Времени - Старый рок-н-ролл
+03. Жар-Птица - Рок-н-ролл
+04. Пикник - Beлоcипeд(   Читать дальше...   )Жанр: RockПродолжительность: 04:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5F6820BD23B63A3223A84918E4B72A3E439DE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029726   (680147) от 27.06.2016
+
+VA - Over 300 Summer Chillout, Lounge & Ambient Beats (2016) [MP3|320 Kbps] <Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Clouds - Footprints (Beach Mix)
+ 02. Heni Lasut - Miracle
+ 03. Churchen - Gate 66
+ 04. El Txef A feat. Napoka Iria - Mugarrirantz(   Читать дальше...   )Жанр: Lounge, Chillout, Ambient BeatsПродолжительность: 1 день, 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0534D73D27787735F86BE13735FEF073EDD77CF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029596   (680253) от 27.06.2016
 
 VA - Блатная волна Best (2016) [MP3|256 Kbps] <Шансон>
@@ -606,114 +711,6 @@ VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7F6B2B8F94AB5AE12060593406A254728A3D47E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290098   (681972) от 18.03.2019
-
-VA - Empire Records - Strip (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Rudolph - A Glimpse Of Joy
-02. The Apocalypse Blues Revue - Evil Is As Evil Does
-03. Big Wolf Band - Love That Hurts
-04. Duke Robillard - Come With Me Baby(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB609CCDE99E25A1A681643FE52586A0CDDF598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290086   (681984) от 18.03.2019
-
-VA - не Громкие новинки недели 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alliel - Encore
-02. Better - Гори Ясно
-03. DJ Jedy feat. VITA - Именно Я
-04. DJ Vianu - Stuck In My Brain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DF2239119DC6278D5F76960503BB722A074340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289693   (681988) от 18.03.2019
-
-VA - DubStep Pro V.35 (2013) [MP3|320 Kbps] <DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT - 13 Angels On My Broken Windowsill (Fractal Remix)
-02. Silkie - Time Delay (Original Mix)
-03. Mutated Mindz - Moshing N Rocking (Original Mix)
-04. Cottonmouth feat. Holly Grey - Revel In Me(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E0C8BEF363130E8D5D626BC3A4027C9F17F42B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029512   (682065) от 26.06.2016
-
-VA - Natural Instinct: Mode Relax (2016) [MP3|320 кб/с] <Chill, Deep House>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682065.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jako Diaz - Youth (Alex Hook Remix)
-002. Jan Blomqvist feat. Elena Pitoulis - More
-003. On An On - Drifting (RAC Remix)
-004. Blank & Jones - Illusion(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3E81DDE4200B41EE0C8B26ED9D8B79D7FE68B8
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1138374   (664137) от 29.05.2017
+
+Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystica (feat. Moon Tripper) (8:06)
+02. Be Human (feat. Spiritual Mode) (8:24)
+03. Ascension (feat. John 00 Fleming) (8:23)
+04. Voyage (9:18)(   Читать дальше...   )Жанр: Psy-Trance, Goa TranceПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D607A3836B7C78FBD0E8B2C3C256E1DFE70A19F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138428   (664151) от 29.05.2017
+
+VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder) (2017) [FLAC|Lossless|CD|tracks|Scene] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Nickson - Heliopause (6:09)
+02. Talla 2XLC - Infinity (Extended Mix) (3:29)
+03. Alex Morph & Kim Kiona - Coming Home (Vocal Mix) (5:33)
+04. Factor B - Something Like A Cure (Extended Mix) (4:55)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926794AD2B4AE62C9F1473224E0C7025FBB82D1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538228   (664277) от 19.03.2022
 
 Rammstein - Remixes (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Electro Trash>
@@ -638,60 +692,6 @@ VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CB60E09896311C8768A80A4838CF1D12860F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137698   (665645) от 28.05.2017
-
-VA - Pure Deep Sexy Vol 4 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nu - Carat 06:40
-02. Fonnikdeep - Love (Broken Instrumental) 07:19
-03. Midas 104 - Traute 07:20
-04. Nils Nuernberg - Flame Trees 07:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522DE0B60877011C0D0AE772E86750656F253FB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138026   (665646) от 28.05.2017
-
-VA - Rich & Bitch (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piece Grade – Jazzy Company (Supa Trumpet Mix)
-02. Edo Romani – Syntomatique (Flying Mix)
-03. Brodie Sleath – Make up Basement (Soullhouse Mix)
-04. Ennio Laan – Arcobaleno (Dondeep Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B0BA7761B73678B1B3F6DA68E9D852A08F67D5
 ```
 
 

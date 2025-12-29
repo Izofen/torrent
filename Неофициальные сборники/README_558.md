@@ -1,3 +1,165 @@
+###  Публикация: 1003982   (839993) от 05.04.2016
+
+VA - Шальная 100-ка душевных песен (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Сорос - Прощай моя звезда
+02. Любовь Успенская и Николай Васильев - Верба
+03. Елена Ваенга и Интарс Бусулис - Нева
+04. Андрей Шишкин и Настя Капитонова - У порога(   Читать дальше...   )Жанр: PopПродолжительность: 06:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73225A534160D33BDCEF71B70BB250603BBCBEA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112912   (840004) от 10.03.2017
+
+VA - Лучший русский шансон. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840004.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Гурченко - Ча-Ча-Ча  Синьор 3:43
+002. Александр Юрпалов - Ты Моя Любовь 3:49
+003. Виктор Калина - Остаться Собой 3:49
+004. Сергей Сорокин - Цепи 3:45(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60E2FE640888A6D587365A9F6A2E7B0609F93CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112873   (840008) от 10.03.2017
+
+VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3LAU feat. NEONHEART — Fire (Paris Blohm Remix) (3:13)
+02. ANGEMI & Becko — I’ll Catch You (3:55)
+03. CMC$ — Won’t Let You Go (3:08)
+04. Dream Hackers & JVSE feat. Thomas Daniel — Ready For The Night (4:12)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D183821B2E9D579E9DEC80A2F036B9E0DF79299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112909   (840012) от 10.03.2017
+
+VA - Танцевальная вечеринка Хит FM. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840012.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лада Мишина - Мой Город 3:24
+002. Лариса Гордьера - Наш Рай 3:23
+003. Смирнов & Компания - До Новых Встреч 3:26
+004. Лариса Гордьера - Потерянное Солнце 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00079912C875704B67FBAC4AD30F2EAE675C4830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113204   (840016) от 10.03.2017
+
+VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, Trapical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carly Rae Jepsen - Run Away With Me 4:09
+002. Major Lazer & Showtek - Believer 3:43
+003. Robin Schulz Feat. Jasmine Thompson - Sun Goes Down 2:56
+004. The Chainsmokers Feat. Xylo - Setting Fires 4:07(   Читать дальше...   )Жанр: Dance, House, TrapicalПродолжительность: 04:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112920   (840024) от 10.03.2017
+
+VA - Весна пришла. Лучшие хиты. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виолетта Литвиненко - Найдет 3:00
+002. Oxford (Ox4d) - Тебя Я Больше Не Люблю 3:36
+003. Зара - Без Многоточий 3:36
+004. Supernova - Я И Мои Девочки 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3727207B5ACC1BDB5335067B7E437ABEE5E19E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004126   (840088) от 05.04.2016
 
 VA - Весенний Mix. Клубная туса (2016) [MP3|320 кб/с] <Club, Dance>
@@ -524,168 +686,6 @@ Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500388   (840949) от 06.10.2021
-
-VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
-02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
-03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
-04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379246   (840977) от 28.04.2020
-
-VA - не Громкие новинки недели 65 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Дима Билан - Я Тебя Отвоюю (5:21)
-2.Инна Вальтер - А нужны ли вы мне теперь? (4:55)
-3.Александр Шоуа - Дыши (4:26)
-4.Дима Билан - Там За Рекою Лес (4:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0779DD73FE22A838070215A31DFC3C6E599B7418
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003828   (841170) от 04.04.2016
-
-Within Temptation - Angel A Best Of (2016) Compilation [MP3|320 кб/с] <Gothic Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841170.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Deceiver Of Fools
-2.Dark Wings
-3.Jillian (I'd Give My Heart)
-4.Stand My Ground(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 02:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63A3E41B63E8F365F232EDF8FE2CD523ADB69DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112746   (841222) от 09.03.2017
-
-Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Blues (With Harmonica)
-02. Voodoo Chile Blues
-03. Born Under a Bad Sign
-04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112844   (841235) от 09.03.2017
-
-VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Lovers Music Song - Romantic Dinner
-02. Best Piano Bar Ultimate Collection - Piano Bar Restaurant
-03. Riccardo Ascani - Playa Arcobaleno
-04. Romantic Lovers Music Song - Music for Love(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE04426F96834D7594FCB04F087244AB3123DC64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003686   (841378) от 04.04.2016
-
-VA - Tropical Fantasy Reggae Mix April (2016) [MP3|320 кб/с] <Reggae, Jungle>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sizzla - Dem Ago Suffer
-002. Skalette O'Hara - Barbwire
-003. Bazzookas - Haha
-004. Fat Melon Man - Wet Dream(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 09:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060F20E6E654492D2EF922A9282C5242DE9675E5
 ```
 
 

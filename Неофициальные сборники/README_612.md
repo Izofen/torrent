@@ -1,3 +1,165 @@
+###  Публикация: 988332   (921897) от 19.02.2016
+
+VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonya Feat. Artik - Мой Рай
+02. Номо - Облака
+03. Icona Pop - Emergency
+04. Юджин Feat. Ай-Q - Словно Сон(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C4921624DAA309180F0543CC48CC8F1103A571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366643   (922112) от 12.03.2020
+
+VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922112.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Haldo Gee - Puerto Escondito (House Tribe Mix)
+002. Bozoo Romle - Breathe (Original Mix)
+003. David Novacek - Yeah (Original Mix)
+004. Marcos Salas - Spanish Tech(   Читать дальше...   )Жанр: Tech, Deep HouseПродолжительность: 11:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116EB57E4D5CC382DDABC223A6632D4DF13191DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489912   (922123) от 18.08.2021
+
+VA - 100 Greatest 80s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Heaven
+02. Madonna - Crazy for You
+03. The Bangles - Eternal Flame
+04. Michael Jackson, Siedah Garrett - I Just Can't Stop Loving You (Remastered)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8765CD3F5C412B8A5B48FA6C186318F64A2EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366641   (922124) от 12.03.2020
+
+VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922124.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Garez - Norefjell
+002. Paul Feris - On The Run
+003. Spektre - Forged In The Heart
+004. Dj Jordan - Acid Dreams (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489965   (922134) от 18.08.2021
+
+VA - 100 Greatest '90s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Céline Dion - Because You Loved Me (Theme from "Up Close and Personal")
+02. Luther Vandross - Here and Now
+03. Mariah Carey - Vision of Love
+04. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44762D261E3EC94D97F147197F9EE17741B3AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489749   (922139) от 18.08.2021
+
+VA - Громкие новинки Августа (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кирилл Мойтон - Любовь (2:28)
+02. Jah Khalib, Tanir, TM - I go to the barbershop (3:52)
+03. G-Eazy, Martin Garrix, Sasha Alex Sloan - Love Runs Out (2:44)
+04. Тони Раут - Хобби (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E671BA831BB5144041126582DEBE3FFE4891FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489736   (922251) от 18.08.2021
 
 George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
@@ -528,171 +690,6 @@ VA - Ultimate Vocals (2017) [MP3|320 Kbps] <Nu Disco, Funky, Progressive, Club, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21104B6E172AC3E41C904372BF46FEE1B861A84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095926   (922871) от 22.01.2017
-
-VA - Kazan Deeper 2017 (2017) [MP3|320 Kbps] <Deep House, Melodic, Progressive, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amen B & Miroslav Vrlik - 2 Faced People (Martin Cloud Remix) 06:01
-02. Rauwkost - Slipe And Slide 06:49
-03. Peer Van Mladen - With You 05:37
-04. Sam Greycious - Going Back 08:35(   Читать дальше...   )Жанр: Deep House, Melodic, Progressive, FunkyПродолжительность: 02:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8895AA4B14A36707DAEFDAC2F2143AE929E6AB54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366374   (923271) от 11.03.2020
-
-VA - B машину ремиксы Vol. 1 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Маши - Инея (ASSEL Remix)
-02. DJ Antoine & Тимати feat. Григорий Лепс - London (Stereoact Remix)
-03. Hammali & Navai - Фары Туманы (Izzamuzzic Remix)
-04. Александр Пушной & Rammstein (Passkeeper Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CAC48E24F260FEC9FCF2FC64439D4663D6D6EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366414   (923272) от 11.03.2020
-
-VA - B машину ремиксы Vol. 2 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goody - Panamera (Rakurs & Ramirez Remix)
-02. Robert Miles Vs. & Wham - Last Christmas Children (Djs & Mars Fm Remix)
-03. Иракли - Все Будет Оk (DJ. Noiz & DJ Rocket Radio Remix)
-04. Onika - Ищу Любовь (Demeter Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31636343753B9937871DB794B5CFA96C587C32F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631481   (923614) от 18.03.2013
-
-VA - Той Единственной на Свете Женщине (2013) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стас михайлов - Все для тебя
-02. Елена Ваенга - По моей щеке
-03. Леонид Агутин и Анжелика Варум - Как не думать о тебе
-04. Александр Маршал - Парусник
-05. Денис Майданов - Я верю в любовь
-06. Михаил Круг - Давай поговорим
-07. Сергей Трофимов - Снегири
-08. Геннадий Жаров и Амнистия - Остров
-09. Вадим Казаченко - Запах счастья
-10. Владимир Захаров - Ключи от счастья(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBDC2767C9B31C7618D710D378910195745DB30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095383   (923642) от 21.01.2017
-
-VA - Super Dance Party Vol.11 (2017) [MP3|320 Kbps] <Dance , House , Mash up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sigma feat. Birdy - Find Me  (Club Mix) 4:53
-002. Billie Eilish - Ocean Eyes  (Goldhouse Remix) 3:33
-003. Daniel Robu - Can't Get Over You  (Extended Version) 5:23
-004. Dami IM - Fighting For Love  (Radio Edit) 3:34(   Читать дальше...   )Жанр: Dance , House , Mash upПродолжительность: 05:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BED74B5BEC0D9C088827F4419FA4BE28AB9D25B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288041   (923699) от 28.01.2011
-
-VA - Ураган хитов (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36CB621E0BF076585F5268C66940C6501762561
 ```
 
 

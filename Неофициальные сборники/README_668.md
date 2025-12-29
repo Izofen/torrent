@@ -1,3 +1,165 @@
+###  Публикация: 1461341   (1021949) от 09.04.2021
+
+VA - Night Rider 2 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Murtagh - 10AM (5:08)
+002. Dirty South - Space Between Us (5:03)
+003. Pryda - Warrior (8:23)
+004. Giuseppe Ottaviani - Time Shift (4:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCA67A76A4C1E8E2C114CA16A4B24B597277EC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461204   (1021962) от 09.04.2021
+
+VA - Night Tropical Collection: Chillout Music (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрешитесь от суеты и растворитесь в мелодиях прекрасной музыки сборника "Night Tropical Collection: Chillout Music". Музыка проникающая глубоко в душу, порождающая невесомые, высокие чувства, дозволяя не только наслаждаться звуком музыкальных инструментов, но и познать себя, излечить сердце, забыть о суете и погрузиться в непередаваемый мир, где Ваша душа (   Читать дальше...   )001. Uppermost - Shatter
+002. Tangent - Unrealistic Unrestrained
+003. Argus - Calm Sea
+004. Lauge - Icebound(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8726F13F0FB459F11531018C2EC24EA6BC856AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461203   (1021968) от 09.04.2021
+
+VA - Fitness Week: Electro House Mix (2021) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рады Вам представить отличный микс музыки в стиле Electro House для занятий активным спортом. Это не только ритмичные однообразные мелодии, а лучшим образом подходящие для тренировок мотивирующие треки разной интенсивности. Благодаря этому предполагается его использование этой музыки не только для силовых, но и для фитнесс занятий.001. Beth Lydi - Bulk
+002. The Houzeplayer - Me Gusta Balia
+003. Joseph Gray - Da La Belle
+004. Dongle Brothers - Read Up(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 09:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7431D132B8E99A3200EFFB7BB1FECF0A723A0512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461016   (1021972) от 09.04.2021
+
+VA - R&B: Warm Time Of Representation (2021) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте весну с музыкой сборника "R&B War Time Representation"! Сегодня это современная музыка мегаполисов, где есть место для соула, танцевальной музыки и ритму. Вы непременно начнете отбивать в такт мелодии и ритму вслед за R&B исполнителями. Остаться равнодушным у Вас не получится!001. Rotimi, Wale - In My Bed
+002. Dornik feat. Zelly One - Temptation
+003. Lala Maria - Unapologetic
+004. Marvin Gaye - Running From Love(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B933E09024F818991FD34D5DDB4D206302D4E402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461010   (1022036) от 08.04.2021
+
+VA - Back To 90's: Popular Hits (2021) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что 90-е года были уже очень давно и за это время музыка изменилась до неузнаваемости, стали появляться новые направления и стили, хиты 90-х до сих пор часто можно услышать по радио или в клубах. Представляем вам сборник из 165 лучших хитов тех времен, который позволит многим окунуться в атмосферу того времени, а более молодым слушателям прочувствовать (   Читать дальше...   )001. Joan Osborne - One Of Us
+002. Black Eyed Peas - I Gotta Feeling
+003. Cher - All Or Nothing
+004. Madonna - Express Yourself(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 10:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CD0E1181DB000B7FD102660E9E47EF9A680221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461013   (1022120) от 08.04.2021
+
+VA - Beatport Hardstyle Dance: Electro Sound Pack #271 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Hardcore>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агрессивная, уничтожающая все на своем пути музыка с очень бешенным ритмом, полная индустриальных звуков, криков, шопота, скрежетов и воев синтезаторов. Живая и разрушительная энергия звука, музыкальный армагеддон в чистом виде!001. Tha Playah - The Awakening
+002. Nightshift - Cold Blood
+003. Vein - Ultimate Seduction
+004. Unnatural Selection - Quantum Tractate Delirium(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, HardcoreПродолжительность: 09:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443B838F134E5056A3BFD2FDBC3426E5B37B2C84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460790   (1022192) от 07.04.2021
 
 VA - Shazam Хит-парад World Top 200 Март (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -533,168 +695,6 @@ VA - Top 100 DJs (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA6D05EEA7894DE8596AABA44F6B858721522B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460156   (1022795) от 04.04.2021
-
-VA - Record Super Chart 03.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-02. Tiesto - The Business (2:44)
-03. Eneli, Monoir - 3 to 1 (3:39)
-04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ (2:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E96E397893173C89CDB1B37383B2C3F061E312C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460122   (1022814) от 04.04.2021
-
-VA - German Top 100 Single Charts 02.04.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
-02. Miksu - Macloud, Nimo & Jamule - Frag mich nicht
-03. Nightcrawlers, Riton & Mufasa & Hypeman - Friday (feat. Mufasa & Hypeman) (Dopamine Re-Edit)
-04. Bausa & Apache 207 - Madonna(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC40ED757533A0D421E64920CA8127C2CDD131D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459716   (1022926) от 03.04.2021
-
-VA - Весна на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB & Topic & A7S - Your Love (9 PM) (2:30)
-02. The Weeknd - Save Your Tears (3:35)
-03. Inna, Maesic - Flashbacks (2:33)
-04. Eneli, Monoir - 3 to 1 (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1596C6FD770E451601CDDA389CEF03793FCE0549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459820   (1022934) от 03.04.2021
-
-VA - Hit Songs 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Q - Take Me Where Your Heart Is (3:12)
-02. H.E.R. - Damage (3:43)
-03. King Princess - PAIN (3:38)
-04. The Kid LAROI - SO DONE (2:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9B6E0CF55916B6DA884C421D40CE4900F8F1B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459850   (1022959) от 03.04.2021
-
-VA - Rap Blender Mix (Vol.03) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тут Вы не найдёте тем, вроде – люблю, не люблю, слёзных соплей и бездушной электронной долбежки. Тут рай для души. Композиции создаются лучшими мастерами рэпа и хип-хопа, задают правильное настроение и отвязные речитативы, которые Вы сможете услышать в сборнике "Rap Blender Mix" третьей генерации.001. Nateboi - Worst Ways
-002. Bsuavee - Move Silent Big Moves
-003. 102 Boyz - Was Ich Trink
-004. Blockrepp Shad - Thug Tears(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A927D1D7D94968BE742467860DC8DCBE8EDDE303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459730   (1022984) от 03.04.2021
-
-VA - Music News vol.88 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marlen feat. Luis & Alina Tim - Аритмия (02:41)
- 002. 89ers - No Go Go Go! (02:59)
- 003. Adam Bu & Moodygee & Paenda feat. Riley Kun - All 2 You (02:45)
- 004. AdiL - Кружись (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A972945324DAF9B0D6BF120E6A785AA55A595D
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1011285   (797026) от 27.04.2016
+
+VA - Styles Ultimate Tech Vocals (2016) [MP3|251-320 кб/с] <Funky, Soulful, Deep House, Tropical, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis Kostoxenakis - Show Me Some Skin (Original Mix) 06:16
+02. Tony Romera, Jeremy Pianelli - Back To You (Carl Nunes Remix) 04:13
+03. Sick Individuals Feat. Kaelyn Behr - Never Fade (Original Mix) 05:50
+04. Klaas - The Gallery (We Are One) (Club Mix Edit) 02:53(   Читать дальше...   )Жанр: Funky, Soulful, Deep House, Tropical, BigroomПродолжительность: 06:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269828D2F59DD43FCAE7461A61F2AA4ECEB2EDF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011250   (797041) от 27.04.2016
+
+VA - Wow House Inspiration Reserve (2016) [MP3|240-320 кб/с] <Electronic, House, Soulful, Tech, Funky, Electro, Club, Fidget House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797041.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klik Klak - Get Down (Original Mix) 04:27
+002. Eric Chase Feat. Michelle Hord - I Can't Wait (Extended Mix) 04:35
+003. Lisa Stansfield - Junk (Electro Swing Remix) 06:41
+004. Turbotronic - To The Party (Extended Mix) 04:46(   Читать дальше...   )Жанр: Electronic, House, Soulful, Tech, Funky, Electro, Club, Fidget HouseПродолжительность: 17:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CE166446E36AD2F9A8FDC23C32C0BAA4277182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385509   (797140) от 25.05.2020
+
+VA - 100 Tracks Love Ballads Playlist Spotify (2020) [MP3|320 Kbps] <Rock, Pop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797140.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bryan Adams - (Everything I Do) I Do It For You (6:33)
+2. Bon Jovi - Bed Of Roses (6:32)
+3. Bryan Adams - Please Forgive Me (5:55)
+4. Bon Jovi - Always (5:53)(   Читать дальше...   )Жанр: Rock, Pop, AlternativeПродолжительность: 06:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C107EC038C6245605ADA771C26C6ABC8CB64BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385615   (797199) от 25.05.2020
+
+VA - Music News vol.8 (2020) [MP3|320 Kbps] <Progressive Rock, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asammuell - Всем Для Тебя (03:03)
+ 02. Asking Alexandria -  Lorazepam (04:02)
+ 03. Asking Alexandria - All Due Respect (03:55)
+ 04. Asking Alexandria - Antisocialist (03:36)(   Читать дальше...   )Жанр: Progressive Rock, Rock, PopПродолжительность: 03:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C320B9F8734E8845E90CDD71C48B7754448ABF18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385558   (797202) от 25.05.2020
+
+VA - Beatport Drum & Bass: Electro Sound Pack #91 (2020) [MP3|320 Kbps] <Drum & Bass, Bass, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sullen - Can't Escape
+002. Hothead - Dark Side
+003. Shodan - Gobsmacked
+004. Drum Boss - Core (Original Mix)(   Читать дальше...   )Жанр: Drum & Bass, Bass, BasslineПродолжительность: 10:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B93DB1CF9BAF63C2CEE32EE0942E74D95FDFFDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010969   (797221) от 26.04.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 30 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etolie Vipe - Save The World (Freeze Remix) (04:42)
+02. Pharao - There Is A Star (John Remix) (03:56)
+03. A La Carte - Doctor Doctor (Mahnovsky Remix) (05:42)
+04. Arabesque - In The Heart Of A Disco Night (Remix) (03:51)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913881EFE9C0E50F762DD3A6AC0C465E3FDBFB4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010918   (797225) от 26.04.2016
 
 VA - Club Dance Ambience vol.66 (2016) [MP3|320 кб/с] <House, Electro House, Club>
@@ -533,168 +695,6 @@ VA - Rap NNM 2020 (Русский Выпуск) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671396A1B2420AF033C1352A70CE41FAE312C913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385286   (797769) от 24.05.2020
-
-VA - Slow Rock Songs 70s 80s 90s (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad English - When I See You Smile
-02. Extreme - More Than Words
-03. Mr. Big - To Be With You
-04. 4 Non Blondes - What's Up?(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 03:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C424836DF44B3F0E19C10EA15DCA7B3B4BA86BDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385474   (797779) от 24.05.2020
-
-Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Wing (Live)
-02. The Revolution Will Be Televised
-03. Angel (Footsteps)
-04. Never Alone(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 05:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78443305B1A1453D54BCE645D99D035B9064DB5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385277   (797812) от 24.05.2020
-
-VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Capon - Shut Up Chicken 2:31
-02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-03. Topic & A7S - Breaking Me 2:47
-04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB1DF87FE913C98CA068F483A0DE08FA7A7BCD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385374   (797865) от 24.05.2020
-
-VA - Music News vol.7 (2020) [MP3|320 Kbps] <Rock, Pop, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3D - Can We Have (02:24)
- 02. 7раса -  Любовь сбивающая с ног (03:41)
- 03. 7раса -  Масло (03:37)
- 04. 7раса -  Обезьяньи куплеты (03:45)(   Читать дальше...   )Жанр: Rock, Pop, SoulПродолжительность: 03:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13208BFE3C7DB33FBADD03A5EA187D50EA7EA092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385359   (797876) от 24.05.2020
-
-VA - Beatport Uplifting Trance: Electro Sound Pack #95 (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somna - Snowstorm
-02. Bryan Kearney - Open My Mind
-03. Mark Sixma - Meet Again
-04. Alan Morris - Made Of Light(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 05:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75225FABBEF44231747BA4D40CA50FCD8EAD5708
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508224   (797989) от 07.11.2021
-
-VA - Synth of Waves 9 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlight Boy - Tonight (Gertrudda Edit) (4:37)
-02. Deeo - In Desperation (4:11)
-03. The Last Concorde - Last Call (Gertrudda Edit) (6:31)
-04. REVIUS - Fight (2:27)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209AC5E698145617AD18C366F29096604DAA7A4C
 ```
 
 

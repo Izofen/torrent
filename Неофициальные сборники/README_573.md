@@ -1,3 +1,167 @@
+###  Публикация: 999360   (864827) от 22.03.2016
+
+VA - Sexual Healing Lounge: Best of Erotic Tandra Cafe for Lovers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pattern Mixer – Sex at the Beach – Dowbeat Buddha Chill and Tandra Mix
+ 02. Vegan T-Bones – Dirty Mind – Season 6 Mix
+ 03. Urban Felix – Watch Me – Intimate Shower Relaxation Mix
+ 04. Guilty by Innocence – Thief of Heart – Fading Lights of Sexyness Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D459BF1A87AE81AF7DB60FCC031A4B002774A720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874375   (864895) от 02.03.2015
+
+VA - The Official UK Top 40 Singles Chart (01-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно месяц прошел с момента опубликования предыдущего традиционного UK Singles Chart  - официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Как Вы понимаете за месяц произошло так много изменений по сравнению с прошлым чатом, что и писать об этом не будем. А кто интересуется, может посмотреть здесь.
+Во все треки вшиты (   Читать дальше...   )01. Ellie Goulding - Love Me Like You Do  (4:13)
+02. Hozier - Take Me To Church  (4:03)
+03. Mark Ronson Feat Bruno Mars - Uptown Funk  (4:31)
+04. The Weekend - Earned It (Fifty Shades Of Grey)  (4:11)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E2E2C68E3113BA73284939167C7D4898053FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998986   (864905) от 22.03.2016
+
+VA - Sensual Approach Vol.5 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864905.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Peter Pearson - Your Gentle Eyes 05:40
+2. Schwarz, Funk - Nebu 05:28
+3. Mo'jardo - Tequila Days 04:46
+4. Mathieu, Florzinho - Eternal Now 05:33(   Читать дальше...   )Жанр: Balearic, Downtempo, Lounge, ChilloutПродолжительность: 01:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08401C49A527F6E6890B1419BC8119F11211D0D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874167   (864994) от 02.03.2015
+
+VA - Music For Everyone - Club House Vol.3 (2015) [MP3|320 кб/с]<House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864994.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robert Feelgood - Make It Hot (Block & Crown Clubmix)
+2. Jay Vegas - Say To Ya (Original Mix)
+3. S.O.S. Band - The Finest (CalumHood Remix)
+4. John Gordon - One Love (Original Mix)(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 01:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6D10EC8B107AC12C4128EB38567F57F00E8B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375365   (865300) от 14.04.2020
+
+VA - Glam Rock 70’s icons (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sailor - A Glass of Champagne
+02. The Wombles - The Wombling Song
+03. David Bowie - Space Oddity (1999 Remaster)
+04. Elton John - Rocket Man (I Think It's Going To Be A Long Long Time) (Remastered)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 07:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BE22F92D69673FCE129CF917B9EFB9DE8F158C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375545   (865308) от 14.04.2020
+
+VA - Rock Icons (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lennon - Woman
+02. George Harrison - Got My Mind Set On You (2009 Mix)
+03. The Beatles - Come Together (Remastered 2009)
+04. The Rolling Stones - Brown Sugar (Remastered 2009)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04F3BCD3C23964222399197C5C103053DF9F5DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375596   (865317) от 14.04.2020
 
 VA - Dark Country Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -527,174 +691,6 @@ VA - Лучший русский шансон. Выпуск № 2 (2017) [MP3|25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C69CE20822C7EDFEEAB4DFD20C73D6DB05459876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107496   (866484) от 23.02.2017
-
-VA - Cryptic House 4 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Deep House, Tribal House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stavroz - Merci Eclair [05:26]
-02. Ost - Jyo (Discoshaman Edit) [08:20]
-03. Azamat Vs Buika - Mamita (Live Reshape) [07:39]
-04. Rodrigo Gallardo - Ay Que Sera Del Sol [06:31](   Читать дальше...   )Жанр: Deep House, Tribal HouseПродолжительность: 05:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0F1D0011AFDA248FE727AB178EF132628F9B57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999074   (866681) от 21.03.2016
-
-VA - European Gallery EDM (2016) [MP3|320 кб/с] <Club, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866681.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steve Aoki, Chris Lake, & Tujamo - Boneless
-002. D.D.L. - The Fury (Raul Cremona Remix)
-003. Darius & Finlay & TK Tycoon - How I Roll
-004. Nick Fay - Everything Up(   Читать дальше...   )Жанр: Club, Dance, ElectroПродолжительность: 07:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B21E6B8B8C68C7EE9CA5384D4DAD01BD73504B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302360   (866982) от 01.03.2011
-
-VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукрыниксы - Дождь смывает все!
-02. Найк Борзов - Начало дня
-03. Zdob si Zdub - Молдавский хардкор
-04. Король и Шут - Король вечного сна
-05. Сергей Скачков - Вызов
-06. Глеб СамойлоFF & The MatriXX - Ненормальный
-07. Пикник - Кукла с человеческим лицом
-08. Animal Джаz - Токсикоз
-09. Биплан - Последний день на луне
-10. Илья Шипилов - Моя война(   Читать дальше...   )Жанр: Русский рокПродолжительность: 06:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374731   (867031) от 13.04.2020
-
-VA - Great Artists of My Heart Vol. 01 (2020) [MP3|320 кб/с]<Symphonic Gothic Metal, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867031.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:25| 01. My Indigo - My Indigo
-|03:45| 02. Within Temptation - Grenade (Originally By Bruno Mars)
-|04:53| 03. Within Temptation - Forsaken
-|05:35| 04. Within Temptation - The Heart Of Everything(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Indie •Продолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D39C77977B6AC9BB4843F2FBEAE0FE0CFC4F5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375294   (867037) от 13.04.2020
-
-VA - Best Metal Of All Time (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal, Industrial-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Metallica - Master Of Puppets (Remastered) 8:35
-002. Pantera - Walk 5:15
-003. Slipknot - Psychosocial 4:43
-004. System Of A Down - Chop Suey! 3:31(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9344C86F27BF002C3A33881DCAC72EC3691A7F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375103   (867102) от 13.04.2020
-
-VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shirley Bassey - Big Spender
-02. The Pacemakers - How Do You Do
-03. Freddie - The Young Ones
-04. Alma Cogan - Tennessee Waltz(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21000C9052251E8C189F5773963D198FC9831907
 ```
 
 

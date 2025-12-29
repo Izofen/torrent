@@ -1,672 +1,690 @@
-###  Публикация: 1110606   (852178) от 03.03.2017
+###  Публикация: 1501446   (835307) от 10.10.2021
 
-Вечерний Ургант (2017.03.02) SATRip
+Impiety - Vengeance Hell Immemorial (2013) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal, Thrash Metal>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852178.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:20
+01. 	Cuntblasphemy - Paganistic Bitchgoddess Deiimpalation 	03:30
+02. 	Magick-Consecration Goatsodomy 				05:18
+-----------------------------------------------------------------------
+Ceremonial Necrochrist Redesecration Demo 1992(   Читать дальше...   )Жанр: Death Metal, Black Metal, Thrash MetalПродолжительность: 00:59:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A381EE6538E84D3DF9B732643B508CE10C6F411
+magnet:?xt=urn:btih:097851836F24C9CFC3B6E4AC06F3B94C9F9C1B42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110637   (852179) от 03.03.2017
+###  Публикация: 1501432   (835308) от 10.10.2021
 
-Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The Savage And The Sensuous Bongos (1960) 2008, Collectables [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+Kimmo Porsti - Past And Present (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (2:10)
+02. At Lombardy Convent (8:40)
+03. Changewinds (5:40)
+04. Fused (5:04)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3864F31A55A0934376D0F9474B6D99122A737902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501410   (835310) от 10.10.2021
+
+Fallen Lillies - No Master For Lilly (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:21)
+02. Puppet Show (03:14)
+03. Backlash (03:05)
+04. Cat Calling (02:46)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9CFD9FC15A05D79A5FF03626AAFD4F592C9FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501529   (835311) от 10.10.2021
+
+Pete Johnson - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852179.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Fascinating Rhythm [02:56]
- 02.How Long Has This Been Going On [02:30]
- 03.Clap Yo' Hands [03:02]
- 04.Our Love Is Here To Stay [03:40](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:16:11
+01. Margie [3:04]
+02. Minuet Boogie [2:38]
+03. 66 Stomp [2:46]
+04. Pete Kay Boogie [3:01](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 00:59:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE16DA4A23474808B048D492F5B98A3B916C3479
+magnet:?xt=urn:btih:F08BFF8E3219A89FC6AB9D44BD03E2DFF35B73A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110739   (852180) от 03.03.2017
+###  Публикация: 1501286   (835312) от 10.10.2021
 
-Akiko Muto Trio - The Windmills Of Your Mind (2007) Jasnac [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+Infrared - From the Black Swamp (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribal Junction
+02. No Master, No Gods
+03. Lockdown
+04. Left Lane Fuck!(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F9E1443E86123499728CD2689A42185AAC4AC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501388   (835313) от 10.10.2021
+
+Nuclear Bird - Tyrannical Megalomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835313.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exposition Of Fools (6:54)
+2. Tyrannical Megalomaniac (4:11)
+3. Addicted To The Water (4:18)
+4. Fascination With The Afterlife (4:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275AB5529190CE0440F10E3D42E2951DB868B5B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193341   (835327) от 22.04.2010
+
+Безумцы / The Crazies (2010) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835327.jpg" />
+</div>
+
+
+###  Подробнее
+
+В окрестностях небольшого городка падает самолёт, на борту которого чрезвычайно опасный вирус. Зараза попадает в водную систему города, люди один за другим «заболевают» и начинают яростно набрасываться на всех подряд. Военные оперативно запирают город на карантин, периодически отстреливая заразных...Жанр: ужасы, фантастика, триллерРежиссер: Брек Эйснер / Breck EisnerАктеры: Тимоти Олифант, Рада Митчел, Джо Андерсон, Даниэль Панабэйкер, Кристи Линн Смит, Бретт Рикаби, Престон Бэйли, Джон Эйлуорд Джо Риган, Гленн МоршауэрПеревод: ДублированныйПродолжительность: 01:36:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113979   (835332) от 13.03.2017
+
+VA - Trancespotting Vol. 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Liquide - Celebrate the Light (Rene Ablaze Radio Edit) 03:57
+02. Hoyaa & Joakim Sjoberg - Stardust (Rene Ablaze Radio Remix) 03:01
+03. Tranc Eye - Two Different Worlds (Space Raven Radio Cut) 03:24
+04. Sungazers - We Breathe Music (Radio Cut) 03:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB3BB3702E307B35764E4B8C6DB6C7507569228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114084   (835335) от 13.03.2017
+
+VA - TFB Records Best of 2016 Part 2 (Mixed by J-Host) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abide - Peak (6:24)
+02. Abide - Surface Rain (6:53)
+03. Acues - Toy Song (Eryon Stocker Remix) (7:06)
+04. Aeden - Yellow (Danny Zero Remix) (7:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F9B496A84E251598F3328EF4D235BDDDB43E9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113802   (835336) от 13.03.2017
+
+Urma - Nomad Rhymes (2004) [FLAC|Lossless|image + .cue] <Art Rock, Acoustic, Prog rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 This Time 6:29
+2 Perfect Spot 3:56
+3 Comfort 3:38
+4 After All 4:19(   Читать дальше...   )Жанр: Art Rock, Acoustic, Prog rockПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF322BCA4C12320E9D815DB9AAB22C733658BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113993   (835337) от 13.03.2017
+
+Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night
+02. Inexorbitant Future
+03. Down into the Sun
+04. My Doom(   Читать дальше...   )Жанр: Avant-Garde Metal, Experimental MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97242FA1BBAA0CDBE00B3E29BAF01E1355419590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113992   (835338) от 13.03.2017
+
+VA - Platipus - Archive 11 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.S.G. - Hidden Sun Of Venus (Oliver Lieb Remix) 08:10
+02. Art Of Trance - Stratosphere (Remastered Original Mix) 08:09
+03. Chab - Happy Pills (Remastered Original Mix) 02:56
+04. Moogwai - Labyrinth (Remastered Oliver Klein's Mutekki Remix) 09:09(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354D7C275D5FD77EB2641BC9190D93E3E878A240
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114125   (835339) от 13.03.2017
+
+VA - Artist Choice 049. Seven24 (Chillout Selection) (2017) [MP3|320 Kbps] <Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Barrel - On the Beach (6:46)
+02. Deep Active Sound - Sunrise (Dynamic Illusion Chill Out Mix) (5:01)
+03. Erin - Sun Children (Dynamic Illusion 'Solar Flare' Remix) (6:54)
+04. Robert R. Hardy - Eastern Crying (7:49)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 02:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51057434C660B076B601CA16F0609388E580FBFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113942   (835340) от 13.03.2017
+
+Lane Mack - Lane Mack (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Is Coming (4:21)
+02. High And Tight (3:48)
+03. Jesus' Cadillac (4:13)
+04. Be You (2:49)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E736A95E2888409F9A584C5681FC249EEBEFCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114066   (835341) от 13.03.2017
+
+Permute 2.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute: Универсальный конвертер видео, аудио и изображений
+Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 марта 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27DCA0A4FC3C0C00A187F3398564EE7FE67EED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113719   (835342) от 13.03.2017
+
+Dayme Arocena - Cubafonia (2017) Beat Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852180.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Killing Me Softly With His Song [05:30]
- 02.The Windmills Of Your Mind [05:23]
- 03.Autumn Leaves [04:24]
- 04.Nocturn [04:49](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:46:09
+01.Eleggua [03:09]
+ 02.La Rumba Me Llamo Yo [04:25]
+ 03.Lo Que Fue [03:50]
+ 04.Maybe Tomorrow [02:57](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC5F2DDC8D6B72373EC45DF9C822C14939165BF8
+magnet:?xt=urn:btih:127735C5BC73CB5DAB678D76000EA72759829A00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001665   (852181) от 29.03.2016
+###  Публикация: 1113582   (835343) от 13.03.2017
 
-Самые шокирующие гипотезы. Зачем нас этим кормят?  (29.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852181.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F822F8EB5509E505BD88BBBFBFCDF300E4232EC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001729   (852182) от 29.03.2016
-
-Alfred Powerpack 2.8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для Mac OS X. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2016Разработчик: Running with Crayons LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95C013D91352C0520085EAADE4180DD623AE0D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001853   (852183) от 29.03.2016
-
-Журнал | Пенсионер на даче №3 (Март 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал поможет получать высокие урожаи без особых затрат сил и денег, подскажет как сделать дачу уютной и красивой, сохранить молодость и укрепить здоровье, объединит дачников для дружеского общения.Жанр: Сад и ОгородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCE528A2FCD09F9BA918F47B73686C25A853B67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000933   (852184) от 29.03.2016
-
-Maltsev Anton - Gentle (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антон Мальцев, поэт и автор-исполнитель из города Киева, вот уже десять лет сочиняет стихи и песни. С концептуальной точки зрения творчество музыканта – это попытка дать адекватный ответ на вызов Нового времени с его постмодернистской эклектикой и эстетизацией безобразного. Антон Мальцев сам делает аранжировки к своим песням. Используемый набор инструментов типичен: (   Читать дальше...   )01. Baby (05:48)
-02. The Slave Number Two (03:08)
-03. Steep Banks (03:18)
-04. Three Hundred Thousand Years (04:33)(   Читать дальше...   )Жанр: Folk, New Age, ElectronicПродолжительность: 00:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF935F13636091D37E3C53B3548DFE55F64A5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001647   (852185) от 29.03.2016
-
-Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melodic Hard Rock>
+Heaven's Gate - Menergy (1999) Japan[APE|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852185.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Midnight Train    03:15
-02. The Truth    03:53
-03. The Only One    03:50
-04. Message Of Love    05:40(   Читать дальше...   )Жанр: Rock, Melodic Hard RockПродолжительность: 00:50:05
+01 Teleshoot 0:49
+02 Worldmachine 3:39
+03 Teleshoot 0:12
+04 Mastermind 3:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79DE54AE5F7A77771F346241039611F866258392
+magnet:?xt=urn:btih:0537536CA722A48D8168D6FEF132DA2DAEA29C3D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001585   (852186) от 29.03.2016
+###  Публикация: 1114001   (835344) от 13.03.2017
 
-VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald - A Tisket, A Tasket
-02. Ella Fitzgerald - Undecided
-03. Ella Fitzgerald - Flying Home
-04. Ella Fitzgerald - Smooth Sailing(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001589   (852187) от 29.03.2016
-
-Robin Trower - Where You Are Going To (2016) [MP3|320 кб/с] <Blues, Rock>
+Trisha O'Brien - Out Of A Dream (2010) Azica [FLAC|Lossless|image + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When Will the Next Blow Fall
-02. Where You Are Going To
-03. Back Where You Belong
-04. Jigsaw(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:40:23
+01.Darling, Je Vous Aime Beaucoup [04:04]
+ 02.Taking A Chance On Love [04:02]
+ 03.I Had The Craziest Dream / You Stepped Out Of A Dream [05:46]
+ 04.It Might Be You [05:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26E4E003A7DE61D4E9D05A08DD6EBD61FA719DA1
+magnet:?xt=urn:btih:66C9C950BB85D06B5E171AA42772F5E40269EDC6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001797   (852188) от 29.03.2016
+###  Публикация: 1113996   (835345) от 13.03.2017
 
-Дмитрий Агалаков | Ангел в петле (2013) [FB2]
+Freddie Hubbard - Back To Birdland (1982) 1994, Drive Archive [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shaw Nuff [05:20]
+ 02.Star Eyes [06:06]
+ 03.Lover Man [05:40]
+ 04.For B.P. [06:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA95678E202A282CB43286440D491B69CC1161B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113783   (835346) от 13.03.2017
+
+Биатлон. Кубок Мира 2016/2017. 8-й Этап. Контиолахти (Финляндия). Мужчины. Гонка преследования 12,5 км (11.03.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852188.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы хотите переиграть свою жизнь? Полностью изменить ее, вернувшись назад? Пройти путь заново, избегая ловушек и капканов? Из неудачника превратиться в преуспевающего богача? Это возможно, но только в том случае, если в прошлом вам будет открыто будущее.
-
-Но есть условие: вам придется украсть чужую судьбу, отказаться не только от прежних ошибок, но и от любимых людей, (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+11 марта 2017 года, суббота. 14:00 МСК
+Кубок Мира 2016/2017. 8-й Этап. Контиолахти (Финляндия)
+Мужчины. Гонка преследования 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский,  ИнтершумПродолжительность: 00:38:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C01BEDD75C3195F4B80A07E2B104BA6E5508DEE3
+magnet:?xt=urn:btih:6B0494C35DE1307FD6890A9F1AF83C656AA013ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001622   (852189) от 29.03.2016
+###  Публикация: 194469   (835371) от 22.04.2010
 
-И. И. Генкин | Восстание на броненосце «Потемкин Таврический» (1925) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстание на броненосце «Потемкин Таврический» в июне 1905 года представляет собою самое значительное после «Кровавого Воскресенья» (9/22 января) революционное выступление рабочих и крестьян в матросской форме против царизма и одну из блестящих страниц Первой Российской Революции 1905 г.
-
-В накаленной атмосфере недовольства затянувшейся неудачной Японской войной, (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46EADE0BCDC7D2B7A1E66F6216546AA7EF790BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001808   (852190) от 29.03.2016
-
-Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste! (2014) EP [MP3|192 кб/с] <Alternative Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный EP многообещающей команды.01. The Steven Bradley
-02. Dotab
-03. Bob Loblaw
-04. 12 Years Howled(   Читать дальше...   )Жанр: Alternative Progressive RockПродолжительность: 00:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8978C491E591398615CD096CC33A6248EAB65F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001719   (852191) от 29.03.2016
-
-Jettison 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jettison - размонтирование внешних дисков перед сном Mac
-OS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
-
-«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2015Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69665D2B51E0A6A3F589785151BAF7A4CF4F6558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001745   (852192) от 29.03.2016
-
-ColorSnapper 2 v1.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852192.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorSnapper - инструмент "селектор цвета" для разработчиков
-Приложение для разработчиков приложений, веб-девелоперов и дизайнеров, позволяющее брать пипеткой цвет в различных форматах. Запись цвета в HTML распространено в области веб-дизайна и CSS стилей.
-
-Незамысловатое и очень полезное приложение. Само о себе оно говорит так: «инструмент для получения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 марта 2016Разработчик: Koole SacheПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1974D95CE792B131566F807678E4FE5E96B1AEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001724   (852193) от 29.03.2016
-
-Window Tidy 2.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Window Tidy — удобный ресайзинг окон
-Window Tidy — отличное приложение, которое способно значительно повысить продуктивность и удобство вашей работы за Mac. При помощи Window Tidy пользователь может изменить размер рабочего окна любого приложения при помощи простого метода drag-and-drop: необходимо всего лишь перетащить окно на соответствующую иконку, после чего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2015Разработчик: Light PillarПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC40B1D4C4C3B968005A86FDD2EECCDB29E5344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001650   (852194) от 29.03.2016
-
-VA - Vocal Trance Work Out (2016) [MP3|320 кб/с] <Trance>
+Various Artists - Die Geburt Des Jahrtausends (2002) [MP3|320 kbps] <Industrial, Power Electronics, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852194.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Yuri Kane-Running Wild (Original Mix) 06:36
-02 Tenishia-Strong (Original Mix) 06:45
-03 Mike Shiver-Blinding Light (Original Mix) 06:06
-04 Robert Nickson-Not Made To Break (Dino Rano Remix) 06:32(   Читать дальше...   )Жанр: TranceПродолжительность: 03:21:09
+1. Krieger - Die Geburt Des Jahrtausends (6:22)
+2. Legion Condor - Aeon (6:20)
+3. Operation Julmond - Third Mankind / Effacement (7:29)
+4. Sektion B - The World Is On Fire (Version 11.09.2.002) (5:04)
+5. Leiche Rustikal - Epiloque - Schizma - Proloque (9:58)
+6. Rasthof Dachau - Heilung (6:28)Жанр: Industrial, Power Electronics, AmbientПродолжительность: 00:41:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B2F067C4006CAB239205ADC189A7B29A9B1528
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001834   (852195) от 29.03.2016
+###  Публикация: 1005182   (835391) от 08.04.2016
 
-Farm - Farm (1971) Remastered, 2000, Shadoks Music [MP3|320 кб/с] <Psychedelic Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852195.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunshine In My Window
-2. Cottonfield Woman
-3. Statesboro Blues
-4. Jungle Song(   Читать дальше...   )Жанр: Psychedelic Blues RockПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6AE9828436188CAD9E1B7B27C3830D0BF48DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001765   (852196) от 29.03.2016
-
-VA - 15 Years Of Vandit Records (The Remixes) Vol 1 (2016) [MP3|320 кб/с] <Trance>
+Футбол. Лига Европы 2015-2016. 1/4 финала. Обзор первых матчей. (07.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852196.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martin Roth & Alex Bartlett - Off The World (Eddie Bitar Remix) (07:08)
-02. Filo & Peri feat. Aruna - Ashley (Maria Healy Remix) (07:48)
-03. Reverse - Distant Destiny (Dan Dobson Remix) (06:13)
-04. Alex M.O.R.P.H. feat. Ana Criado - Sunset Boulevard (Ben Nicky Remix) (06:06)(   Читать дальше...   )Производство: VANDIT RecordsЖанр: TranceПродолжительность: 00:46:20
+Обзор матчей за 7 апреля 2016 года.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:25:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9058CEBF264993FFF175D6438EEA897ACD9DCC83
+magnet:?xt=urn:btih:69C5A720F1393613CC681C548EEE3AD9DC810D7A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001602   (852197) от 29.03.2016
+###  Публикация: 1005114   (835392) от 08.04.2016
 
-Jorck - BLACK SUN (2016) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As We Are Changing (2:33)
- 02. Black Sun (3:29)
- 03. It Sure Wasn't Easy (3:41)
- 04. You Thought You Had It All (4:08)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B570A2593448E874F3240E22DF89AB1466188E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001680   (852198) от 29.03.2016
-
-Downie 2.2.11 [Multi/Ru]
+Футбол. Лига Европы 2015-2016. 1/4 финала. Первый матч. Вильярреал (Испания) - Спарта (Чехия). (07.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+07 апреля 2016, четверг. 22:05 МСК
+1/4 финала. 1-й матч
 
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 февраля 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+Стадион: Эль-Мадригал (Вильярреал, Испания) , вместимость: 25000(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:49:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA47A1BA8685DA383B903664DFD009C49DCA6826
+magnet:?xt=urn:btih:3B53E51830AF6719F99BA62F7B73631A4DDF5FA7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001817   (852199) от 29.03.2016
+###  Публикация: 1005119   (835393) от 08.04.2016
 
-Mozilla Firefox 46.0 beta 6 (x86/x64) [Ru]
+Футбол. Лига Европы 2015-2016. 1/4 финала. Первый матч. Брага (Португалия) - Шахтёр (Украина). (07.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+07 апреля 2016, четверг. 22:05 МСК
+1/4 финала. 1-й матч
+
+Стадион: AXA - Мунисипал-ди-Брага (Брага, Португалия) , вместимость: 30154(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:47:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CF38B2171875DFD580B4A16901A14439AEE5E38
+magnet:?xt=urn:btih:3312F5B61F52A09CFC57D72AFD3DC68295E67F4B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001290   (852200) от 29.03.2016
+###  Публикация: 1005084   (835394) от 08.04.2016
 
-Юрий Ермолаев | 106 пропавших часов (1965) [PDF]
+Футбол. Лига Европы 2015-2016. 1/4 финала. Первый матч. Атлетик (Бильбао, Испания) - Севилья (Испания). (07.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дорогие ребята! Вам, наверное, приходилось слышать, как кто-нибудь из взрослых с огорчением восклицал: - У меня целый час пропал! А вот у трех веселых друзей - Вовы, Васи и Тимки - героев этой маленькой повести, пропали не час или два, а сто шесть часов. Пропали так, будто их совсем не было! О том, чем были заняты друзья все это время, какие они совершили поступки, (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
+07 апреля 2016, четверг. 22:05 МСК
+1/4 финала. 1-й матч
+
+Стадион: Сан-Мамес (Бильбао, Испания) , вместимость: 53332(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортПродолжительность: 01:48:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:054804FAF6DDF4A92F4FC3F641D03A6398F20AC1
+magnet:?xt=urn:btih:B4DAACCD22117EB6ABC47E8DC3258F44EDEC637F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 769658   (852201) от 24.03.2014
+###  Публикация: 876597   (835406) от 19.03.2015
 
-Алексей Верютин | НЛП Практик коммуникаций (2011) [MP3]
+Где 042? (1969) SATRip [H.264]
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852201.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Психология, НЛППродолжительность: 24:54:58
+Матрос Гаркуша и моторист Номоконов после гибели всей команды остаются на бронекатере N042 вдвоем. Выполняя приказ командования, они взрывают мост, но оказываются в тылу врага. Разными путями на бронекатер попадают пехотинец Солоухин, директор банка Козубенко, артист цирка Эльтонский и бежавший из тюрьмы уголовник Дончак. Разные по характеру и наклонностям, они сошлись (   Читать дальше...   )Производство: СССР, Киностудия им. А. ДовженкоЖанр: ВоенныйРежиссер: Олег ЛенциусАктеры: Анатолий Салимоненко, Болот Бейшеналиев, Александр Збруев, Александр Коваленко, Аудрис Мечисловас Хадаравичюс, Яков Козлов, Владимир Алексеенко, Оксана Милешкина-СмилковаПродолжительность: 01:12:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E3FA9F21BD3381A22F6294981051FD6834F580D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770063   (852202) от 24.03.2014
-
-Книжная серия | "Великие исторические персоны" [43 книги] (2010-2013) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великие исторические персоны - серия книг о людях, оставивших заметный след в истории человечества. На обложке каждой книги стоит печать, указывающая, в какой области достигла величия данная историческая VIP-персона. Среди авторов замечены известные писатели, причем даже фантасты. Когда кончаются факты, начинаются фантазии. Государи и военачальники, духовные лидеры (   Читать дальше...   )Формат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E325192D5C496C3BCF050DBEA98428A9AC94B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769815   (852203) от 24.03.2014
-
-Андрей Белянин | Ржавый меч царя Гороха (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственные кражи, отчаянные погони, бесы-наёмники-тройняшки, Кощеевы происки, неуловимые отравители, троюродная сестричка нашего Гороха, драка в женском монастыре, дьяк в сватовстве, Митька в капусте и я с белыми крыльями за спиной…
-Эх, всего и не перескажешь!
-Да и кто бы поверил, что всё это ради старого ржавого меча?Жанр: Юмористическое фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5488783ED1586ADCE0DC1B313CED99CB9C1F9A
+magnet:?xt=urn:btih:C67EF2039275489A489B25913F14DB2DD6C70BEF
 ```
 
 

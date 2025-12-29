@@ -1,3 +1,27 @@
+###  Публикация: 1377468   (851124) от 22.04.2020
+
+Windows Server 2019 LTSC Version 1809 Build 17763.1158 (Updated April 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACB934D33892180FFDAE46622ECF80CFEE94FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377469   (851372) от 22.04.2020
 
 Microsoft Windows 10.0.18362.778 Version 1903 (April 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -608,30 +632,6 @@ Windows 10 — операционная система для персональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9FC10226180E38278D5CC34C35AC652D1487308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285625   (884284) от 19.02.2011
-
-Microsoft Windows 7/Server 2008 R2 SP1 RTM Language/Locale Pack - Оригинальные образы от Microsoft by WZOR [Multiple Languages]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет интерфейса пользователя Windows 7 (LIP). Пакеты интерфейса пользователя Windows 7 предоставляют переведенную версию наиболее широко используемых разделов пользовательского интерфейса. Они доступны для свободной загрузки. Поскольку не все элементы пользовательского интерфейса переведены, при работе с пакетами интерфейса пользователя необходим по крайней мере (   Читать дальше...   )Язык интерфейса: The following 35 languages are included (включены следующие 35 языков): Arabic, Bulgarian, Chinese-Hong Kong SAR, Chinese-Simplified, Croatian, Czech, Danish, Dutch, English, Estonian, Finnish, French, German, Greek, Hebrew, Hungarian, Italian, Japanese, Korean, Latvian, Lithuanian, Norwegian, Polish, Portuguese-Brazil, Portuguese-Portugal, Romanian, Russian, Serbian, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

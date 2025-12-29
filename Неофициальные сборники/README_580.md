@@ -1,3 +1,162 @@
+###  Публикация: 1374168   (874722) от 09.04.2020
+
+VA - Perception: Indie Pop-Rock Compilation (2020) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Reds, Pinks - Living On Sunday
+002. Amy Klein - Daisy
+003. Parsnip - Lift Off
+004. Night Flowers - Carry On(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 09:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF686C978ECADC576736BB637837E27F95399D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997434   (874757) от 16.03.2016
+
+Русская Mega Дискотека 90-х (2016) [MP3|320 кб/с] <Рор, Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леприконсы - Хали-гали paratrupper
+02. Блестящие - Апельсиновая песня
+03. Стрелки - Диджей
+04. Вирус - Попрошу тебя(   Читать дальше...   )Жанр: Рор, Disco, DanceПродолжительность: 06:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1FFB874655E91B78ABE088F0C0653AAB401C90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105704   (874979) от 18.02.2017
+
+VA - Workout Mix vol.7 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Benny Benassi - Satisfaction (Dj Sergey Dukharin Remix)
+02-2SOULS - Press Play (Original Mix)
+03-Zeskullz vs Falko Niestolik - Rhyme (Mikis & Alex Mad Mash Up)
+04-Far East Movement & Jackal & Bingo Players vs.Noferini & Marini Feat.Criminal Vibes & Alex Shik & Alexx Slam - Rattle (DJ FIOLET Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74591F0B284F5CA9E993ACD82AC7945C8AEA96E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105671   (875088) от 18.02.2017
+
+VA - Just Spin (2017) [MP3|320 Kbps] <Pop, RnB, Dance, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_875088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clean Bandit - Tears (feat. Louisa Johnson)Жанр: Pop, RnB, Dance, AlternativeПродолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5780C18D6E74E03807BAABB21633482A346990AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997354   (875337) от 16.03.2016
+
+Магаданцы (анс. "Парус") - Запись в ресторане Магадан 2 (1972) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_875337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как то по проспекту
+02. Что то сигарета гаснет
+03. Письмо к матери
+04. Глухари(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460B871931797B448A335348E1291129A7E6F63D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997136   (875458) от 16.03.2016
+
+VA - Deep House Best Of March (2016) [MP3|320 кб/с] <Deep House, House, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875458.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gershon Jackson - Take it Easy (Sonny Fodera & Mat.Joe Remix)
+002. EDX ft. Mingue - Missing (Extended Mix)
+003. Nora En Pure & Redondo - I Got To Do (Extended Mix)
+004. Andy Bros - Essenza (Original Mix)(   Читать дальше...   )Жанр: Deep House, House, ElectronicaПродолжительность: 11:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9C46E5F03BDDA1E9ABDFFB41F674B9D55EA32A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997199   (875459) от 16.03.2016
 
 VA - Топ в тачку №2 (2016) [MP3|256 кб/с] <Pop>
@@ -532,168 +691,6 @@ VA - Отдыхаем душой на радио Шансон выпуск № 3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE03C72971769BFE990BEAC5EDE139DF77FACAA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105313   (876643) от 17.02.2017
-
-VA - Молодежный бум хитовый. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876643.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alekseev - Дельфины 3:40
-002. Kaminski - Полюби Меня 3:47
-003. Маша Ru - Моя Cвобода 2:59
-004. Eldo - Ты Моя Луна 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A775849A9F68866E331B14F5656CDFE2151F096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105450   (876645) от 17.02.2017
-
-VA - На волне позитива выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Вебер - Просто Обидно 3:40
-002. Potehinband - Где Любимая 3:44
-003. Юлианна Караулова - Так Близко 3:42
-004. Яков Самодуров - Стану Первым 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B410372A8B325DCB31624B020DFD6EAC691985A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105317   (876650) от 17.02.2017
-
-VA - Я слушаю шансон. Зимние хиты. Часть № 6 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876650.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Николай Искуснов - Засыпай 4:27
-002. Денис Мафик - За Все Хорошее 3:23
-003. Николай Искуснов - За Коммерческий Склад Ума 3:17
-004. Дмитрий Константинов - Моя Рыбулечка 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03AADCE97C960505E95451C1D27410F885185CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373896   (876718) от 08.04.2020
-
-VA - Beatport Disco House: Electro Sound Pack #51 (2020) [MP3|320 Kbps] <Disco, Funky House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Gee - Say Yeah (Original Mix)
-02. Re Tide Feat Steff - Time Is Movin
-03. Musique Boutique - La Vida Es Un Carnaval
-04. Steve Silk Hurley - The Glow Of Love(   Читать дальше...   )Жанр: Disco, Funky House, DanceПродолжительность: 07:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2D13264ECE187F1E17170EB2F5CD37C3665EE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105312   (876740) от 17.02.2017
-
-VA - Снежный популярный отрыв выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876740.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Бужинская - Просила Бога 3:49
-002. Тимси - Медленный Рассвет 4:04
-003. Алиса Вокс & Феликс Бондарев - Зал Ожидания 3:22
-004. Kristina Dux - По Сценарию 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C8EF65D69FA3E84A690DB0D56FE9284BEEDED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373899   (876819) от 08.04.2020
-
-VA - Beatport Electro House: Electro Sound Pack #48 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roberto Surace - Joys (Offaiah Club Mix)
-002. Mark Sherry - The End Is The Beginning
-003. Delano - Haciendo El Amor (Original Mix)
-004. Dj Combo - Jumping Bounce(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 10:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9804AA335DE9471BC54C9859FA76F1F963713B9D
 ```
 
 

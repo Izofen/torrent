@@ -1,3 +1,57 @@
+###  Публикация: 1441506   (1037791) от 21.01.2021
+
+Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:30)
+02. Come In Closer (03:36)
+03. Beautiful (04:21)
+04. Safeword (02:54)(   Читать дальше...   )Жанр: Indie-Pop, RnB, DowntempoПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1896B0E3A93CB12F8706641456A82A806F1EC30E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441453   (1037803) от 21.01.2021
+
+Eva Kaufmann - Was ich fuehl (2016) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Was ich fühl
+2. Ohne Dich
+3. War das Alles
+4. Wo stehn wir(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8333A122288C149B09CA457BEA3B55C31F645CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615279   (1037859) от 25.02.2023
 
 Adam Lambert - High Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
@@ -642,60 +696,6 @@ Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610065   (1042899) от 05.02.2023
-
-Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only One (Live at The Royal Albert Hall) [00:03:00]
-02. Take Me Back (Live at The Royal Albert Hall) [00:04:20]
-03. This Time (Live at The Royal Albert Hall) [00:03:23]
-04. I'm Ready (Live At The Royal Albert Hall) [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144F9DAB9A630E425CB4C96F34D8A20E82D2A6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609612   (1043144) от 04.02.2023
-
-VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Girls on Film (2010 Remaster) (3:32)
-02. James Blunt - You're Beautiful (3:29)
-03. Bruno Mars - Just the Way You Are (3:40)
-04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F06A75D6A00FE3944E9F6679753C97B53215F58
 ```
 
 

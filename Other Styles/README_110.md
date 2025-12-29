@@ -1,3 +1,397 @@
+###  Публикация: 508558   (677200) от 11.06.2012
+
+Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Folk, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harvestmesse (05:21)
+02. Trinity (02:53)
+03. March To Loch Barren (02:38)
+04. Pure Space (05:02)
+05. Amongst The Heather (06:06)
+06. Dig (04:24)
+07. Don't Play With Water (03:42)
+08. Dead Flowers (04:50)
+09. Pure Phase (03:50)
+10. Reflections (03:47)(   Читать дальше...   )2005-2010Жанр: Drone Ambient, Psychedelic Folk, ExperimentalПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226973   (677425) от 18.06.2014
+
+John Adorney - 8 albums (1998 - 2014) [MP3|320 kbps]<New age, Relax, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677425.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:13) 01. In Spiritus
+(5:12) 02. Never Alone
+(5:39) 03. The Wonder Well
+(4:07) 04. At Home
+(4:18) 05. Window to the West
+(4:23) 06. If a Rose Could Speak
+(5:34) 07. Unbounded
+(3:50) 08. The Cup and the Veil
+(4:17) 09. The Meeting Place
+(4:53) 10. Heartstrings(   Читать дальше...   )Жанр: New age, Relax, AmbientПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9E0EC363935FBBC66BA0E17687504D9664D6DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290471   (677985) от 20.03.2019
+
+Acoustic Sound Orchestra - Candle In The Wind (1997) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Deep Is Your Love (3:37)
+02. Little Snowman (2:47)
+03. Spiel Mir Das Lied Vom Tod (3:29)
+04. Claire (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 02:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021BFDFFED30A3B559D47B3FD99DC00C7FBB6226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290423   (678198) от 20.03.2019
+
+VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquility Spa Universe - Physical Therapy 3:27
+02. Meditation Music Zone - Anti Stress 3:28
+03. Relaxation Meditation Songs Divine - Relief From Stress 3:30
+04. Tranquility Spa Universe - Break Of The Day 3:34(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BDFC6F0EF49BCE5E852BF12F4BAD77305D7640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290540   (678213) от 20.03.2019
+
+VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Blues, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Green Book Copacabana Orchestra - That Old Black Magic (2:14)
+02. Kris Bowers - 881 7th Ave (0:48)
+03. The Blue Jays - So Long Lovers Island (2:22)
+04. Kris Bowers - Dr. Shirley's Luggage (0:34)(   Читать дальше...   )Жанр: Soundtrack, Blues, ClassicalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BD949CF6FFAAC23D34C4E734EE40F4B06A49E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135883   (679131) от 20.05.2017
+
+VA - Kamasutra Essential Music (2013) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Dawn - Predictions (05:22)
+02. Street Line - Chill Sensation (04:12)
+03. Isla Deejay - Into Your Mind (05:21)
+04. Deep blue - Velvet Secrets (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FC3C1AF312823D45A8064BDBBEDB4F50122985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222479   (679263) от 02.05.2018
+
+Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Laman Song
+ 02 – Breath
+ 03. Gate
+ 04. Over the Clouds(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D0CC38211E4CDE929DA6E3C3CD8108E05BC056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290052   (680232) от 19.03.2019
+
+Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. f l o w e r (3:54)
+ 02/12. Walking In The Forest / 숲을 걷다 (3:07)
+ 03/12. f r a m e d (Piano Ver.) (3:53)
+ 04/12. Autumn Finds Winter (4:02)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029288   (680249) от 27.06.2016
+
+Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Central Intelligence (02:08)
+02. Robbie (00:38)
+03. Golden Jet (01:02)
+04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1222F5D90EC55DD44DFF17B7E272DA09C3DC3EF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029389   (680258) от 27.06.2016
+
+Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Under the Moonlight    09:48
+02.  Lovers Night    15:45
+03.  Letting Go    12:43
+04.  Coming Back Home    10:19Жанр: New Age, Meditative, RelaxПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029656   (680339) от 27.06.2016
+
+Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <New Age, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside the OM (16:04)
+02. Inside Chanting (18:06)
+03. Inside Silence (12:47)
+04. Inside Memories,Saudades (12:38)Жанр: New Age, HealingПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223006   (680665) от 01.05.2018
+
+VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начались длинные праздники. Многие их проводят в заботах сельскохозяйственных, но и они вечерком любят посидеть. А как в старом анекдоте: "Чем отличаются хорошие люди от всех остальных - хорошие люди посидят-посидят, да и выпьют!" Ну а как не вспомнить хорошую песню при хорошем застолье.
+Но даже если и не сами, то обрадуйте этими раритетами своих пап и (   Читать дальше...   )CD1:
+01. Людмила Зыкина - Тонкая Рябина  (5:12)
+02. Екатерина Шаврина - Ой, Мороз, Мороз  (4:02)
+03. Н. Матвiенко - Ой, Летiли Дикi Гуси  (4:48)(   Читать дальше...   )Жанр: FolkПродолжительность: 02:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222435   (680798) от 01.05.2018
+
+VA - Viva Latina 2018 (2018) 2CD [MP3|320 Kbps] <Latin, Pop>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680798.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+Продолжительность: 01:09:55
+
+01. Luis Fonsi - Echame La Culpa(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:12:05
+
+01. Shakira - Perro Fiel
+02. Nacho - Báilame(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D6DA298865FDEA8158215B0321BC9F60F143F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222444   (680936) от 01.05.2018
+
+Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Nashville, Target Exclusive Deluxe Edition [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дженнифер Неттлз - американская кантри-певица, автор песен, гитаристка, пианистка и гармонистка. Участница группы «Sugarland» с 2003 года. В 2014 году вышел дебютный сольный альбом Дженнифер - «That Girl», спродюсированный Риком Рубином. Во время записи альбома певица сотрудничала с Бутчем Уокером, Ричардом Марксом и Сарой Бареллис. Альбом дебютировал на № 5 в чарте (   Читать дальше...   )01. Falling 3:23
+02. Me Without You 3:37
+03. Moneyball 3:13
+04. That Girl 4:00(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B3ED083C3CB38D20767E439DF234EF79242CC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222453   (680939) от 01.05.2018
 
 Jennifer Nettles (Дженнифер Неттлз) - To Celebrate Christmas (2016) Big Machine Records [MP3|320 Kbps] <Country, Pop>
@@ -320,394 +714,6 @@ Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134508   (682911) от 18.05.2017
-
-Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hunter (01:47)
-02. The Counselor (Titles) (04:10)
-03. The Lovers (01:51)
-04. A Warning (Moral Decisions) (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82825B6BD5A90B07E80AA40F81EA5CDD897F283D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506751   (682990) от 08.06.2012
-
-Ара Геворкян/Ara Gevorgyan - 6 Альбомов (1997-2010) [MP3|128-320 kb/s<Армянская музыка>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ani
-02. Ararat
-03. Armavir
-04. Artashat
-05. Artsakh
-06. Musa ler
-07. Mush
-08. Ov hayots ashkhar
-09. Ovkianosic Ayn koxm
-10. Tsovic tsov(   Читать дальше...   )1997-2010Жанр: Армянская музыкаПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7352C806CBFA3DACB475AB64EEB108F76AD18669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507361   (683953) от 08.06.2012
-
-Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683953.jpg" />
-</div>
-
-
-###  Подробнее
-
-(08:46) 1. To Be With You
-(09:15) 2. Lonesome
-(10:57) 3. Be Gentle
-(06:07) 4. Silent Attitude
-(04:50) 5. Near And Far
-(10:18) 6. Follow The Senses
-(09:27) 7. Soft Touch
-(05:17) 8. Bкeak AwayЖанр: MeditativeПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289713   (684333) от 17.03.2019
-
-Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Information 5:42
-2. Becoming Aware 4:53
-3. The Act 8:57
-4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028971   (684545) от 25.06.2016
-
-Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе образа игры, музыка была извлечена из самого образа игры01. Main Menu
-02. Stage 1
-03. Stage 2
-04. Stage 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222331   (684816) от 29.04.2018
-
-Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God of War (4:07)
-02. Memories of Mother (3:39)
-03. Witch of the Woods (3:02)
-04. Lullaby of the Giants (3:44)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C2C6BC63D5A74940DA71F5B17CB8F289639621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134981   (684857) от 17.05.2017
-
-VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raindrops Healing Music Universe - Thunderbolts & Rain
-02. Hypnosis Nature Sounds Universe - Dramatic Thunder, State of Mind
-03. Zen Soothing Sounds of Nature - Distant Storm, Sound Effect
-04. Close to Nature Music Ensemble - Rainy Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73128EC7B329F41B6546267F2C23AC13AF34B57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222395   (685154) от 29.04.2018
-
-Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Adoration (3:13)
-02.	I'm waiting on you (2:58)
-03.	In my weakness you are strong (2:59)
-04.	In you I repose my trust (2:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365CCB82FCB7EF123BDDF314B8A611A833C46B87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028841   (685961) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028842   (686101) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289624   (686102) от 16.03.2019
-
-Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Trailer Music, Electronic, Instrumental, New Age>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The Edge of Consciousness (4:42)
- 2 - Vis Motrix (4:50)
- 3 - Khae Momme (4:38)
- 4 - Facing Fears (4:47)(   Читать дальше...   )Жанр: Trailer Music, Electronic, Instrumental, New AgeПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2E5F971A5956C0A06C21D70C37EEE582C6E955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289162   (686124) от 16.03.2019
-
-Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48] <Trailer Music, Epic, Instrumental, New Age>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Human Legacy (4:59)
- 2 - Icarus (feat. Julie Elven) (4:35)
- 3 - Remember Me (feat. Roger Berruezo) (3:45)
- 4 - The Awakening (4:29)(   Читать дальше...   )Жанр: Trailer Music, Epic, Instrumental, New AgeПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C117A92FBAA6718397752E541521B1377EB8D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028817   (686253) от 24.06.2016
-
-Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrack) (2014) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybyłowicz & Percival - Ladies of the Woods (01:51)
-02. Marcin Przybyłowicz - The Fields of Ard Skellig (03:08)
-03. Marcin Przybyłowicz & Percival - Merchants of Novigrad (03:09)
-04. Marcin Przybyłowicz & Percival - Hunt or Be Hunted (02:25)Жанр: Soundtrack, ScoreПродолжительность: 00:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7439BB4843F01355432FCF374C93E6B7C4C7254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288732   (686462) от 16.03.2019
-
-VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686462.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Medley: Bohemian Rhapsody / We Are The Champions / Radio Ga Ga
-2.	Dreamer
-3.	Hard To Say I'm Sorry
-4.	Satisfaction(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB525550068BA2AB63AADDF552899996B45C99C
 ```
 
 

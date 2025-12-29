@@ -1,3 +1,57 @@
+###  Публикация: 1017139   (763133) от 16.05.2016
+
+Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Last Moment (Na Poslední Chvíli)
+A2	Early Evening Blues (Blues Navečer)
+A3	Gold And Diamonds (Zlato A Stříbro)
+A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394384   (763679) от 05.07.2020
+
+Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763679.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Hooray! Hooray! It's A Holi-Holiday
+(Frank Farian, Fred Jay)
+B Ribbons Of Blue
+(Forsey)Жанр: DiscoПродолжительность: 00:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394588   (763680) от 05.07.2020
 
 Gary Moore - White Knuckles (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock>
@@ -634,60 +688,6 @@ magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204978   (783986) от 08.02.2018
-
-Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Everything You Got (4:38)
- 02. Damn Your Eyes (4:34)
- 03. Black Coffee (4:15)
- 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203660   (785217) от 04.02.2018
-
-Pink Floyd - Atom Heart Mother (1978) EMS-80320 [FLAC|Lossless|tracks] <Rock Style, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A.1	Father's Shout
-A.2	Breast Milky
-A.3Mother Fore
-A.3	Funky Dung(   Читать дальше...   )Жанр: Rock Style, Psychedelic RockПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418BC6E4078AC7E347422BA10A68C233C907467B
 ```
 
 

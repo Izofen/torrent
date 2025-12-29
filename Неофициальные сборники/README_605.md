@@ -1,3 +1,165 @@
+###  Публикация: 1098091   (910918) от 29.01.2017
+
+VA - Музыкальное потрясение зимы на Русском радио выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910918.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. M.A.R.S Sounds - Как В  Первый Раз 2:53
+002. Ирма Нойман - Я Буду 2:51
+003. Доминика Feat. Suncreepers - Океаны 3:04
+004. Митя Фомин Feat. Fomka - Мобилка 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D827EBBEF0ED734687DD820BD111AA5107AB3E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 758812   (910942) от 20.02.2014
+
+VA - Lounge At The Seashore 5 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. For Found Future - Hypnotic Dreams
+002. Spacediver - Rainbow Colours
+003. Lana Del Rey - Summertime Sadness
+004. Laid Back - Rocketship To Mars(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB940620AD924644087ACECCF15A48BAEAC61F34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098231   (910991) от 29.01.2017
+
+VA - Empire Records - Club Hit 7 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spada & Elen Levon - Cool Enough (Extended Mix)
+02. Blondee & Marc Werner ft. Fabienne Rothe - Wonderful Days
+03. Andy B. Jones & Matty Menck Feat. Ela - World To Life (Matty Menck Remix)
+04. Robert Kofler - Dream Path (Radio Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698D30DC12421F6957F4BBF0E3EAE4D8BB0C6CB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098212   (910994) от 29.01.2017
+
+VA - Empire Records - Dancenudisco 6 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodybangers - SUNGLASSES At Night (Extended Mix)
+02. Fontaine Ivory - California Dreamin
+03. Tuff City Kids - Labyrinth (Original Mix)
+04. Schiller feat. Heppner - Dream Of You (Filatov & Karas Extended Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFCE0C68C749CAE11031604B4731AB1D66C2117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634731   (911095) от 25.03.2013
+
+VA - The Official UK Top 40 Singles Chart (24-03-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.
+Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E518443CA0E6564D0E4AA750B36B44D5110891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990240   (911428) от 25.02.2016
+
+VA - Лучшие хиты дискотек. 50/50 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 30.02 - Я Верю
+002. Flo Rida - My House
+003. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
+004. Lawson - We Are Kings(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A7023E8DFB21A4965ECFFB28DF3BBA3E70CE3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990459   (911527) от 25.02.2016
 
 VA - Музыка к 8 Марта (2010) [MP3|128-320 кб/с] <Pop>
@@ -534,168 +696,6 @@ VA - Songbird Voices Of Romance (2017) [MP3|320 Kbps] <Jazz, Vocal, Easy Listeni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B802BCEF0795BA021F8A85A7A010022A287DD84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096730   (912579) от 28.01.2017
-
-VA - Club Dance Ambience Vol.99 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_912579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Elements x Crew 7 - California Dreamin' (DJ Miller x DJ Alex Milano Bootymix) 4:14
-002. Aaron North - I Wanna Be (Original Mix) 5:33
-003. Agent Smith - Завалю Снегом (Kosmos) (A-Mase 2X17 Remix) 5:38
-004. Alan Walker - Alone (Extended Mix) 3:55(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110C763CDFB0139FC3C5262B72CED6DC89609320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097674   (912589) от 28.01.2017
-
-VA - Музыкальный плен на Europa Plus выпуск №9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emdeka Feat. Ayve - Lose My Mind 3:11
-002. 23-45 - Выходи За Меня 3:17
-003. Rihanna - Kiss It Better 4:13
-004. Юлия Оксанич - 7 Ночей 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFB891164AD8F32B3322752281F6418D30E4697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097735   (912600) от 28.01.2017
-
-VA - Шансон года. Лучшие блатные хиты выпуск №4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Максим Олейников - Я Тебя Нашел 2:42
-002. Климм - Не Было  И Нет 5:03
-003. Игорь Тузов - Никогда Бродяга Не Сдавайся 6:12
-004. Игорь Латышко - Ты Неповторимая 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D381D17C0290FF3306BA7568AFF0EAC3313CD4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097669   (912628) от 28.01.2017
-
-VA - Снегопад новинок от Хит fm. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lx24 - Недолюбили 3:03
-002. Lindon - Summer Luv 2:50
-003. Alekseev - Океанами Стали 3:39
-004. Alesso Feat. Jolin Tsai - I Wanna Know 3:35(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19C5888E325B6CA1072C3152640A65A82439825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097681   (912630) от 28.01.2017
-
-VA - Снежный хит-парад. Сто русских хитов. Выпуск №5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лена Максимова - Счастье Внутри 3:50
-002. Dionis - Без Тебя 4:03
-003. Melinda - Бесконечность 4:08
-004. Женя Вилль - Что Ты Наделал 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC26C4AC7EC8538853330EBA1CCBBF2AF7FF6C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097676   (912655) от 28.01.2017
-
-VA - Взрывной хит-парад выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912655.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mona - Счастье 3:21
-002. Nikki - Give Me That Beat 3:21
-003. Пропеллер Брокен - Фанданго 4:22
-004. Submotion Orchestra - Red Dress 4:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A0E5E0DD1E18DE43671A81E72E83ED92F467B3
 ```
 
 

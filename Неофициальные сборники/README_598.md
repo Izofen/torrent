@@ -1,3 +1,165 @@
+###  Публикация: 1369579   (902022) от 24.03.2020
+
+VA - Hi Games Vol.6 (Chiptune, Drum and Bass Edition) (2020) [MP3|224-320 Kbps] <Chiptune, Drum and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anamanaguchi - Helix Nebula
+02. Rymdkraft - Pulvermoose
+03. Cerror - Megaphone
+04. Rymdkraft - A Mole Odyssey(   Читать дальше...   )Жанр: Chiptune, Drum and BassПродолжительность: 02:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F845424F78DBEA791A66EF8FB3CAC5F187BF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369557   (902024) от 24.03.2020
+
+VA - Enemy Of Silence (2CD) (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902024.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Hrmülja - Morbid Visions
+02. The Balls - Bliss Point(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBB22D2799F66CD16C41D731019671AB124601C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369565   (902120) от 24.03.2020
+
+VA - Hi Games Vol.5 (Chiptune Edition) (2020) [MP3|249-320 Kbps] <Chiptune>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. +TEK - Orange Rain
+02. FearofDark - Flame Repellent
+03. FearofDark - Get A Brian Morans
+04. Phonetic Hero - Super Bravo Boys DX(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A67CC71B95BD37264DE4A362DACA6BDA51CC56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992094   (902153) от 01.03.2016
+
+VA - Русские Народные Песни (2015) [MP3|256 кб/с] <Pop сборники>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лидия Русланова - Златые горы
+002. Сергей Захаров - Тройка
+003. Русская песня - Маруся
+004. Надежда Крыгина - Комарики(   Читать дальше...   )Жанр: Рор сборникиПродолжительность: 05:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24F958B11E60946C7B2304E88BCB84BA0ADFBC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992108   (902182) от 01.03.2016
+
+Виктория Калистратова - Я люблю своего мужа (2016) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю своего мужа
+02. Бриллиантовая
+03. Люби меня до старости
+04. Удача-Попутчица(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8C1065637B9F52E0F996AC5951980570760AB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867174   (902196) от 08.02.2015
+
+ДДТ - Коллекция легендарных песен (2014) [MP3|320 kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прекрасная любовь
+02. Что такое осень
+03. Дождь
+04. Ветер(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB7CDA896129C15774427A2999DA8C4CC5706F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992344   (902210) от 01.03.2016
 
 VA - 50 Лучших треков в машину 5 (2016) [MP3|256-320 кб/с] <Deep, House, Pop, Breaks, Chillout, Drum & Bass, DubStep, Dutch, Electro, Progressive, Liquid funk>
@@ -533,168 +695,6 @@ VA - Guided By The Heart (2021) [MP3|320 Kbps] <Alternative, rock indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:383CC47F80861E615EEEA1112CD22EA654902DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492087   (902476) от 30.08.2021
-
-VA - Beatport Hardstyle: Sound Pack #336 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Watchmen - Hostile
-002. B-Freqz - Rebirth
-003. Hirohiro - Not This Time
-004. Marlo & Matrick - This Way(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 09:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B78A924DDBD67BEA36E0D55DCD5D2C92E60B8BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992303   (902517) от 01.03.2016
-
-VA - Золото Русского Диско - 11 (2013) [MP3|128-320 кб/с] <Pop cборники>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Галина Безпрозванная - Старое диско (256 kbps)
-02. Модерн Токинг - Даришь всем ясный свет
-03. Ярмарка чувств - Алый тюльпан
-04. Белая магия - Вспоминай меня(   Читать дальше...   )Жанр: Pop cборникиПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759E49212E57B7F689174641D070AAC3FF0E2FA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992347   (902521) от 01.03.2016
-
-VA - Liquid Bass Drive (2016) [MP3|320 кб/с] <Drum and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fred V & Grafix - Constellations
-002. Mob Tactics - Get Dirty
-003. Mob Tactics - Shark Tank
-004. Krakota - Lust Thrust(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 09:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC18B3B01E6B0043DBA01678EF4B433F5FBCC2D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992268   (902566) от 01.03.2016
-
-VA - Songs Of Love Lyric (2016) [MP3|320 кб/с] <Pop, Lyric, Romantic Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902566.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sarah McLachlan - Prayer Of St.Francis
-002. Berk & The Virtual Band feat. Cristina Camacho - Tainted Love
-003. Venice - Things That Always Make Me Think Of You
-004. Tony Martinez - Your Loving Arms (feat. Estela Martin) - Acoustic Mix(   Читать дальше...   )Жанр: Pop, Lyric, Romantic RockПродолжительность: 06:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B95B6BBD90F837C477795919A341AF4DA7FB41A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992187   (902574) от 01.03.2016
-
-VA - Шикарный шансон на закате (2016) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Группа Братва - Дальнобой
-02. Сборная Союза - Ушла однажды в никуда
-03. Светлана Аверочкина - Я скажу своей печали прощай
-04. Федосей - Без тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 08:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195D8700418D29C64D193819EE3780FD5E373AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992123   (902588) от 01.03.2016
-
-VA - Kiss FM Top 40 February (3rd week) (2016) [MP3|320 кб/с] <Pop, house, trance, dance, club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Dumont — Ocean Drive (3:26)
-02. DNCE — Cake By The Ocean (DJ Vano Remix) (3:24)
-03. DJ Smash ft. Stephen Ridley — Lovers 2 Lovers (3:52)
-04. Adele — Hello (eSQUIRE Remix) (3:49)(   Читать дальше...   )Жанр: Pop, house, trance, dance, clubПродолжительность: 02:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D615E3639CDC85B8693D5FCDAE1FE5985F95632B
 ```
 
 

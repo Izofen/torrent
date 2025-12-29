@@ -1,3 +1,165 @@
+###  Публикация: 998183   (870163) от 19.03.2016
+
+VA - Blues Forever vol.37 - vol.40 (2015) [MP3|320 кб/с] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Bartoccioni - Together
+02. Michael Burks - Christmas Snow
+03. Gerry Lane - Cryin'
+04. Mary-Ann Brandon - It's A Dirty Job(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C33F7640C3CA3828B8F8B958D98C929F8C3DBD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998246   (870206) от 19.03.2016
+
+VA - Музыка хорошего настроения 4 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Шахзода Feat. Shoxrux - Ket
+002. Stonebank - All Night
+003. Bahh Tee - Взрослеем
+004. Zhu Feat. Keznamdi & A-Trak - Crazy As It Is(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0EB92D2C0C9766E758B200A3DE981588499E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998112   (870308) от 19.03.2016
+
+VA - Дорожный Шансон На Скорости (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870308.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Беломорканал - Ночь перед расстрелом (06:11)
+2. Михаил Поляков и Наталья Розенберг - Метели (06:02)
+3. Александр Звинцов - Долгая зима (06:05)
+4. Беломорканал - Брат (05:44)(   Читать дальше...   )Жанр: ШансонПродолжительность: 08:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F443B6E101B921079C81ECE5BAB2082B4471834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998208   (870387) от 19.03.2016
+
+VA - Радио шансон. Следом за тобой (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870387.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Максим Куст - Былой Король
+002. Александр Климм - Будь Моей
+003. Андрей Шпехт - Следом За Тобой
+004. Валерий Козьмин - Свиданка С Сыном(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824560ECEA3CDBE67B3615BF87D6AD647D00DCDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374806   (870430) от 11.04.2020
+
+Chris Rea - 100% Chris Rea (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You Again
+02. Ace of Hearts
+03. Gone Fishing
+04. Winter Song(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F749987DFED59723F53AF99C36F30C1E7CEA4DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374723   (870441) от 11.04.2020
+
+VA - Beatport Electronic: Sound Pack #45 (2020) [MP3|320 Kbps] <Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870441.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carloh - Latino
+002. Jay Srno - Maxima Bass
+003. La Vampires Does Cologne - Howukiss
+004. Radak - Perceptions Of Reality(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 10:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E002A39653674919058A56BCA837947D3CCF0910
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374887   (870502) от 11.04.2020
 
 VA - Романтика: Хиты на все времена (2020) [MP3|320 Kbps] <Pop, Rock, Soul>
@@ -534,168 +696,6 @@ VA - Музыкальное зимнее настроение выпуск № 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2D20042F914BA317596F607B01538EFBEEF433B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997826   (871874) от 18.03.2016
-
-VA - В Машине 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Milen - Желанная
-002. Arpi - You Are
-003. James Bay - Hold Back The River
-004. Чи-Ли - Ангел На Моем Плече(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9375B8A4A2E9B96C69106D6C17C5BCC30A002414
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997738   (871879) от 18.03.2016
-
-VA - KISS FM - TOP 40 Март (2016) [MP3|320 кб/с] <Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Dumont - Ocean Drive (3:26)
- 02. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers (3:52)
- 03. Calvin Harris & Disciples - How Deep Is Your Love (3:32)
- 04. DNCE - Cake By The Ocean (DJ Vano Remix) (3:24)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 02:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817085C2C8BD99106A738CEFBBDF2081179351BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997847   (871966) от 18.03.2016
-
-VA - Jazz Loungebar Vol.5 - A Smooth & Jazzy Lounge Trip (2016) [MP3|320 кб/с] <Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Dilemma (Jazz Loungebar Mix) - Jazzy James Jr.
-02. Smooth Chillin' (Endless Waves Mix) - Vladi Strecker
-03. No Clouds (Deeper Mix) - Skindive Inc.
-04. Belavista Boulevard (Del Sol Mix) - Stereo Gringos(   Читать дальше...   )Жанр: LoungeПродолжительность: 04:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF7350B310B1572300D13D3DD4E513907CE7444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997823   (871971) от 18.03.2016
-
-VA - Italo and Space Disco (2016) [MP3|320 кб/с] <Italo Disco, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hyboid - Space Age Gigolo
-002. Yuriy Sosnin - The Galaxy
-003. Dance with the Dead - Signals
-004. DJ Roland - Klarnet Mix(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 06:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FB9C8557B55ABC447BEA9CF0FB400AF63C0DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997800   (872032) от 18.03.2016
-
-VA - The Best Of Retro Promenade (2016) Volume I [OGG|389-557 кб/с] <Retro Synth, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MUSCLE - The Pump
-02. Compilerbau - Walking Outer Space
-03. Arcade High - Heat Wave (feat. Morissa Trunzo)
-04. Mirror Kisses - Bleed(   Читать дальше...   )Жанр: Retro Synth, SynthwaveПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06E968726B8B42118B314999DE55103EBAF22BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997842   (872033) от 18.03.2016
-
-VA - Top 100 EDM USA- March Party (2016) [MP3|128-320 кб/с] <Club, Electro, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872033.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christopher S & Lecrema - Rebel's Mind (Radio Edit)
-002. Turbotronic - Doomchit Doomchit (Radio Edit)
-003. Evo.com - Musicsingle
-004. Teknova - La Fiesta (Original Mix)(   Читать дальше...   )Жанр: Club, Electro, Dance, HouseПродолжительность: 08:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E2E6DD060D775575992B7F9105A8A5665699BD
 ```
 
 

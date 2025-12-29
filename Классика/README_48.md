@@ -1,3 +1,195 @@
+###  Публикация: 1099737   (903069) от 02.02.2017
+
+Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Classical, Orchestral>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grief (Prelude) (5:58)
+02. The Miracle (9:51)
+03. Letting Go (9:08)
+04. Love (5:06)(   Читать дальше...   )Жанр: Electronic, Classical, OrchestralПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1373B8E2569E7750FB416BE70093F923E10B3B66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991780   (904032) от 29.02.2016
+
+Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|Lossless|tracks + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904032.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Suite bergamasque, состоящая из четырех частей, является одним из самых известных фортепианных сюит французского композитора Клода Дебюсси. Мелодии сюиты навеяны неуклюжими деревенскими танцами, которые присущи уроженцам Бергамо в Италии. Жители этого городка слыли очень неловкими и их манеры и танец Bergomask ассоциируется с клоунами или шутовством.
+Самой известной (   Читать дальше...   )01. Clair de lune (Suite bergamasque)  (5:34)
+02. La fille aux cheveux de lin (Preludes - Book 1)  (2:30)
+03. La cathedrale engloutie (Preludes - Book 1)  (6:29)
+04. Minstrels (Preludes - Book 1)  (2:19)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000905   (904448) от 01.02.2017
+
+Franz Schubert - Fantaisie (David Fray feat. Jacques Rouvier) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 18 in G Major, D. 894, "Fantasie"
+01. I. Molto moderato e cantabile (19:09)
+02. II. Andante (7:57)
+03. III. Menuetto. Allegro moderato - Trio (4:07)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E4B71D31F62FED8A7093960A3329026E7AF00A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 180996   (905030) от 10.03.2010
+
+Royal Concertgebouw Orchestra & Riccardo Chailly - Zavod; Symphony No.3; Arcana (Mosolov, Prokofiev, Varese) (1994) [FLAC|Lossless] <Orchestral, Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mosolov, Zavod (Iron Foundry) (3:45)
+2. Prokofiev, Symphony No.3 - I. Moderato (13:24)
+3. II. Andante (7:05)
+4. III. Allegro agitato (7:44)
+5. IV. Andante mosso - Allegro moderato (6:46)
+6. Varese, Arcana (18:30)Жанр: Orchestral, ClassicalПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990998   (905779) от 28.02.2016
+
+Святослав Рихтер, Lovro von Matacic, Orchestre Nacional de l'Opera de Monte Carlo - Grieg, Schumann: Piano Concertos (2003) [OGG|256 кб/с] <Классическая музыка, Classical>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grieg - Piano Concerto in A minor, op. 16
+01 (1) Allegro molto moderato
+02 (2) Adagio
+03 (3) Adagio moderato molto e marcatoЖанр: Классическая музыка, ClassicalПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0A5D2AD82DD833657FD43194708D95593D2516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991291   (905898) от 28.02.2016
+
+Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto RV 383a - I. Allegro  02:42
+02. Concerto RV 383a - II. Largo e cantabile  01:56
+03. Concerto RV 383a - III. Allegro  02:36
+04. Concerto RV 279 - I. Allegro  04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97374CAB3E32E3A495B37E30B0AF3C7919B0895F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990928   (907905) от 27.02.2016
+
+Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Violini E Archi I (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto RV 523 in A Minor I.Allegro molto  03:53
+02. Concerto RV 523 in A Minor II.Largo  02:51
+03. Concerto RV 523 in A Minor III.Allegro  02:52
+04. Concerto RV 510 in C Minor I.Allegro  02:38(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72952E88035ABB71C34E467094FA0272755232C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368684   (908972) от 20.03.2020
 
 Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano, Orchestra>
@@ -518,198 +710,6 @@ Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E67DEB7026F00746BB417082847B16CBE6B9723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984702   (938597) от 09.02.2016
-
-Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanze mit mir in den morgen (Tango 32 BPM) (2:54)
-02. Hemelsblauw (Rumba 25 BPM) (3:28)
-03. Help Yourself (Samba 50 BPM) (2:46)
-04. You Are My Sunshine (Quickstep 50 BPM) (2:34)(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AAC15412C21ED54877DB4A1EBC0EE520156870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984116   (940059) от 08.02.2016
-
-Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nel Buio (1:22)
-2. Time Has Changed (6:05)
-3. Migrants (3:57)
-4. Shadow Land, Pt. 1 (3:56)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CD989538229046C68A5C9B8215575BBAA540C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091907   (941199) от 10.01.2017
-
-Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.1 Prélude (Presto) [00:00:50]
-02. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.2 Molto vivace [00:02:05]
-03. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.3 Paysage (Poco adagio) [00:05:20]
-04. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.4 Mazeppa (Presto) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174728   (943318) от 12.02.2010
-
-Giacinto Scelsi - 35 albums (1997-2010) [MP3|320 кб/с]<Contemporary Classical, Avant-garde, Experimental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 12 Preludi - Preludio n. 1 (0:48)
-2. 12 Preludi - Preludio n. 2 (3:07)
-3. 12 Preludi - Preludio n. 3 (1:07)
-4. 12 Preludi - Preludio n. 4 (2:19)
-5. 12 Preludi - Preludio n. 4 (1:13)
-6. 12 Preludi - Preludio n. 6 (0:45)
-7. 12 Preludi - Preludio n. 7 (1:41)
-8. 12 Preludi - Preludio n. 8 (0:55)
-9. 12 Preludi - Preludio n. 9 (1:25)
-10. 12 Preludi - Preludio n. 10 (0:46)(   Читать дальше...   )Жанр: Contemporary Classical, Avant-garde, ExperimentalПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983517   (943613) от 06.02.2016
-
-Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy, Entremont, Power Biggs) [FLAC|Lossless|Track+.cue] <Классическая музыка, Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 3 in C major, op. 78 "Organ"
-01 -1a- Adagio
-02 -1b- Allegro moderato
-03 -1c- Poco adagio(   Читать дальше...   )Жанр: Классическая музыка, Classical, Romanticism, SymphonyПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ADADC77874E07BB8589A8390EB8F7C09822EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091112   (944393) от 08.01.2017
-
-Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattinata (Leoncavallo)
-02. Libiamo,libiamo (Verdi)
-03. La danza (Rossini)
-04. O sole mio (Capua)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF94C9CCC49D17AEC61C178F416A3DFB5C5F1D8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625310   (945651) от 04.03.2013
-
-W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus Musicus Wien & Arnold Schoenberg Chor (1998) [FLAC|Lossless]<Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC59A871D18D728803622414B55D6B4BCA000808
 ```
 
 

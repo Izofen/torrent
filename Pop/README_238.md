@@ -538,6 +538,39 @@ magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514899   (657845) от 24.06.2012
+
+VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop, Italodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.A.N.G. - Incantations (Vocal) :: 09:42
+02. Joey Moon - Angelica (Original) :: 06:30
+03. Rose - Magic Carillon (Vocal) :: 06:09
+04. Tango - Computerized Love (Original) :: 05:16
+05. Lena - Run To Me (Extended Version) :: 04:53
+06. Frank Raja - Born To Be Alive (Original) :: 06:02
+07. Limit Eccitation - In The Dark (Original) :: 05:12
+08. Wilson Ferguson - I'm Singing Again (Extended Version) :: 05:47
+09. Paula Evans - Ciao (Extended Version) :: 05:10
+10. Savage - So Close (Hijack Remix) :: 05:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceФормат: 2xCD, Compilation, RemasteredПродолжительность: 02:10:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140012   (658140) от 04.06.2017
 
 Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
@@ -670,33 +703,6 @@ VA - Nu Disco (2015) [MP3|320 кб/с]<House, Disco, Indie Dance, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54B27A12AC5D269D0EB2A5957C660A3C8473BB24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539118   (659044) от 24.03.2022
-
-VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Believer
-02. Machine Gun Kelly - bloody valentine
-03. Jimmy Eat World - The Middle
-04. Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F9CEE17C28A393CB2FBAA69F975D67494C4618
 ```
 
 

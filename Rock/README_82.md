@@ -1,3 +1,165 @@
+###  Публикация: 1008868   (813677) от 19.04.2016
+
+Eric Clapton & Friends - The Breeze: An Appreciation of JJ Cale (2014) [MP3|320 кб/с] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me The Breeze (03:08)
+02. Rock And Roll Records (feat. Tom Petty) (02:20)
+03. Someday (feat. Mark Knopfler) (03:48)
+04. Lies (feat. John Mayer) (03:07)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46888929AE30B0679AD35A97A2EB4788B8BF6F6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383300   (813739) от 14.05.2020
+
+Le Systeme Crapoutchik - Le Systeme Crapoutchik (1975) Vinyl, LP, Album [MP3|320 Kbps] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813739.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. La Vie D'artiste
+A2. Il Neige
+A3. Le Mutant
+A4. Judy(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9BBC79CA8F8E3021CDD157BAA86B78170D12AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197622   (813917) от 08.01.2018
+
+Bahroma - Дом (2017) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камень
+02. Магия
+03. На Юг
+04. Ломаными ритмами(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38D0BA51C9E4AB42824DB10A85AC480292D4D4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197759   (813922) от 08.01.2018
+
+Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Hard Rock, Punk Rock, Blus Rock, Rock 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flash
+2. Mama Don't You Get Me Wrong
+3. Won't You Make Up Your Mind
+4. Something New(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Psych-Rock, Blues Rock, Rock 'n' RollПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDA7762D14125EE22F6215D1F4DBEFCE292B9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118036   (815047) от 24.03.2017
+
+The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Soft Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nanana [03:29]
+02. Fell In Love With An Alien [03:24]
+03. An Angel [03:54]
+04. Stand By Me [03:31](   Читать дальше...   )Жанр: Pop-Rock, Soft Rock, FolkПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98415A6341735513FA756EC8A6CA3B324FA41BAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008325   (816035) от 18.04.2016
+
+April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like To Rock (04:24)
+02. Say Hello (02:59)
+03. Tonite (04:13)
+04. Ladies Man (03:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E465BBADAD69A500947EE17565B1E12DAC9C52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197322   (817710) от 06.01.2018
 
 Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
@@ -524,166 +686,6 @@ Crow - Crow Music (1969) Remastered, 2010, Flawed Gems [MP3|320 Kbps] <Funk, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:824A0143A8C0FE95553FE337EED36D9F5CAD343B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007306   (823018) от 14.04.2016
-
-Santana - Santana IV (2016) [MP3|320 кб/с] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yambu
- 02. Shake It
- 03. Anywhere you Want To Go
- 04. Fillmore East(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EED788C5875A96E349CFA74EECE49F9F8C7A136
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196872   (823512) от 29.04.2010
-
-The Blues Magoos - Discography (1966..1992) [MP3|320 kbps]<Psychedelic Rock, Garage Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psychedelic Rock, Garage Rock, BluesПродолжительность: 05:10:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196829   (823582) от 29.04.2010
-
-It's A Beautiful Day - 5 Альбомов (1969-1973) [MP3|320 kbps]<Progressive Rock, Psychedelic Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская рок-группа, образованная в 1967 году в Сан-Франциско, Калифорния певцом и скрипачом-виртуозом Дэвидом ЛаФламме и исполнявшая психоделический прог-рок с элементами джаза, фолка и симфонической музыки.
-Группа, в первый состав которой, помимо Дэвида ЛаФламме вошли его жена Линда (клавишные), Патти Сантос (вокал), Хэл Вагенет (гитара), Митчелл Холман (бас-гитара) (   Читать дальше...   )1969 - It's A Beautiful Day
-1970 - Marrying Maiden
-1971 - Choise Quality Stuff
-1972 - At Carnegie HallЖанр: Progressive Rock, Psyhedelic Rock, Folk RockПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996786   (824211) от 19.03.2017
-
-Chuck Berry - Gold (2005) 2CD, Compilation [MP3|320 кб/с]<Rock and Roll, Rhythm and Blues, Chicago Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824211.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:22] 01. Maybellene
-[03:05] 02. Wee Wee Hours
-[02:24] 03. Thirty Days
-[02:45] 04. You Can't Catch Me(   Читать дальше...   )Жанр: Rock and Roll, Rhythm and Blues, Chicago BluesПродолжительность: 02:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFE0BEBFD59D977B192970E9584DB2AFC982E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502738   (824728) от 16.10.2021
-
-The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Across The Universe (1970 Glyn Johns Mix) [00:03:31]
-02. I Me Mine (1970 Glyn Johns Mix) [00:01:45]
-03. Don’t Let Me Down (Single Version / 2021 Mix) [00:04:08]
-04. Let It Be (Single Version / 2021 Mix) [00:03:52]Жанр: RockПродолжительность: 5CD, 02:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F41B40CCD3EB6156C9688233916A861FEE2453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196292   (825989) от 01.01.2018
-
-Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320 Kbps] <Country Rock, Pop Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotta Love 3:12
-02. Rhumba Girl 3:50
-03. Give A Little 2:57
-04. Angels Rejoiced 2:27(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BalladПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
 ```
 
 

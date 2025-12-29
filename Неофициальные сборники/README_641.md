@@ -1,3 +1,177 @@
+###  Публикация: 613092   (976736) от 09.02.2013
+
+VA - Drum and Bass Pro V.7 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Receptor - Strike For Oil (Original Mix)
+02. Modest Intensions - What Lies Ahead
+03. Wickaman & RV - The Chant
+04. Jrumhand - The Slow Train South
+05. Current Value - Hydrolic
+06. Neonlight - Frozen Tape (Rregula & Dementia Remix)
+07. Daughter - Youth (Hybrid Minds Bootleg)
+08. Macky Gee - I Am Madman (VIP)
+09. Toez - On My Mind Feat. Janice Tsao (Original Mix)
+10. Trei - Misfits(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D7147EB02F1E0BB62399FB0F2BBC89BEA3DD34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356886   (976759) от 01.02.2020
+
+VA - Лучшие Trance треки Ver.13 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H. & Nadi Sunrise - The Prayer (Original Mix) 5:38
+02. Steve Dekay - Labyrinth (Extended Mix) 5:35
+03. C-Systems feat. Hanna Finsen - In Front Of Me (Extended Mix) 5:42
+04. Cold Blue - Frozen (Club Mix) 7:57(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Tech-TranceПродолжительность: 05:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C145E5170374C1B87634194AABB776C686B5C48C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356773   (976766) от 01.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 31.01.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. Billie Eilish - Everything I Wanted 4:05
+03. Rompasso - Paradise 2:51
+04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B09B65EB5F8D32F5A143D98AC3725EC869438B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356620   (976774) от 01.02.2020
+
+VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duoscience - Wonderland
+002. Boombassbrothers - Pompadour
+003. Digital - Abducted
+004. Tubba T - The Light Of The Day (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA15315FDB150F1C37305CCF3D38894CAA82103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356845   (976863) от 01.02.2020
+
+VA - The Official UK Top 40 Singles Chart 31.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Before You Go
+02. The Weeknd - Blinding Lights
+03. Roddy Ricch - The Box
+04. Eminem - Godzilla(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580529C2F4FE64B5788F73AC08F94A2124C215F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615362   (976899) от 09.02.2013
+
+VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amex & Bartlett Bros. feat Lizzie Curious - A New Dawn (Fabio XB Rework)
+02. Armin van Buuren feat Ana Criado - I'll Listen (Original Mix)
+03. Armin van Buuren pres. Gaia - Stellar (DNS Project Remix)
+04. ATB & Dash Berlin - Apollo Road
+05. ATB & Amurai feat Melissa Loretta - Heartbeat
+06. Cerf, Mitiska & Jaren - Beggin' You (Armin van Buuren Remix)
+07. DJ HaLF Ivan Flash - The Sound Of Disco (DJ PLSCH Remix)
+08. Fabio XB Feat. Micky Vi - Make This Your Day (Original Vocal Mix)
+09. Frank Lamboy - No Fear (extended mix)
+10. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974491   (976937) от 11.01.2016
 
 VA - 50 Modern Club Tracks Party Beats (2016) [MP3|320 кб/с] <Funky, Club House>
@@ -561,168 +735,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B7586A2FDC0C1E13364B1451F866CC6016964F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742657   (979162) от 06.01.2014
-
-VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979162.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Smoker Lab - Coffe Break
-002. Placid Larry - Over The Skyscrapers Into The Desert
-003. Sundance - Morning Glory
-004. The Beater - Miami Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759B39A456D818536A947CAB641C08F94AB96C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356380   (979190) от 30.01.2020
-
-VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979190.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chosen Two - Neue Mattheit
-002. Christopher Ivor - 3am Tribute
-003. Angerfist - The Desecrated
-004. Il Gualdo - Satans Laughter(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 14:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3873AA0C64A9AA61071FA0BDDAB08DD3A7BEFCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973658   (979200) от 09.01.2016
-
-VA - Road, Darkness & Music (2016) [MP3|320 кб/с] <House, G-House,  Progressive, Trance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexandre Bergheau - Home Is Where My Heart Is (Original Mix)
-002. Joseph Terruel - It's Only Love Doing It's Thing
-003. Therr Maitz - Doctor (Artur Montecci Remix)
-004. Sergio Gress, Alexey Sharapoff - Hands Up (Original Mix)(   Читать дальше...   )Жанр: House, G-House,  Progressive, Trance, TechnoПродолжительность: 04:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72D67ED92511DB2D5FFD1E1540135DD8665D1AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973507   (979208) от 09.01.2016
-
-VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Strong (Radio Edit)
-02. Stargazers - Black Diamond (Radio Edit)
-03. Kaimo K - Love Will Never Leave (Radio Edit)
-04. Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6DCCAA2B8E3772ADFB4C38ABF0AA25C0991670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973666   (979215) от 09.01.2016
-
-VA - Club Hits (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monsuma - Cold [03:47]
- 2. Zozy - The Energy [04:32]
- 3. Lin Nicks - Master Of The Beat [04:37]
- 4. Poxo - Levels [06:18](   Читать дальше...   )Жанр: HouseПродолжительность: 03:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDC2259B26060ACA554E483325232967FF02CD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356023   (979615) от 29.01.2020
-
-VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Chainz, Future - Dead Man Walking (2:15)
-2.3-ий Январь - Фиолетовые мотыльки (3:12)
-3.Arash, Ilkay Sencan - Mary Jane (3:18)
-4.Kygo, Avicii, Sandro Cavazza - Forever Yours (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4CAC05BD670BFE4B05A8C3970FACCAFEC775B6
 ```
 
 

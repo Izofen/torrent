@@ -1,3 +1,165 @@
+###  Публикация: 1097394   (914162) от 27.01.2017
+
+VA - Chill Deep House: 1000 Shades Of Electro Music (2017) [MP3|320 Kbps] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Submantra - I Know (From P60 The Headloop Remix)
+002. Zero Feedback - Rien Ne Va Plus
+003. Master Clato - War Behind The Hills - Original Mix
+004. D-Wax - Without You(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 10:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21221C9B8EC5C9DD99AF1C29F505B41422294637
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367702   (914242) от 17.03.2020
+
+VA - Reggae On The Roof: Miami Carnival (2020) [MP3|320 Kbps] <Reggae, Dancehall>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914242.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Vadim Vs Fat Freddy's Drop - Flashback
+002. The Romy - Shape Of You
+003. Tom D. Genese - Microbe
+004. Chronixx - Rastaman Wheel Out(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 08:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F099501B9262F5645B3CB0819EFE9953028CC0D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097492   (914274) от 27.01.2017
+
+VA - New Italo Disco (2017) [MP3|320 Kbps] <Italo Disco , Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emy Care - Once in a Lifetime (Radio Mix)
+02. Limelight - Falling in Love (Radio Beach Club Remix)
+03. Brad Lake - Run in the Night (Radio Mix)
+04. Momento - Hold Me in the Night (Radio Blast)(   Читать дальше...   )Жанр: Italo Disco , SynthpopПродолжительность: 05:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B252043FA536562C1662CF85606FDBA929B71DDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367697   (914353) от 17.03.2020
+
+VA - Tropic Beach: Free Chill Mix (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914353.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Lewis - Small Mountain
+002. Erico Faravid - Circular Frequency
+003. Dub Mars - True
+004. Letter - Gushi(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72238DBD8A5D6BA6A564714238B29B6799C8520B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367711   (914371) от 17.03.2020
+
+VA - Dissolved Forms: Psy Trance Collection (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zyprexa - The Life
+002. Cosmodalia - Enamored Strings
+003. Psychic Sage - The Edges
+004. Bubba Moon - Starry Sky(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3521318805FD83E93DBE59A5D22D774521E042D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097426   (914373) от 27.01.2017
+
+VA - Fiesta Squad Anthem (2017) [MP3|320 Kbps] <Dubstep, Latin, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd X Nonsens X Nitti Gritti - Black Buti Beatles (Clips X Ahoy Edit)
+002. Britney Spears Feat. Tinashe - Slumber Party (Bad Royale Remix) (Intro) (Clean)
+003. Whitehead Bros. - Your Love Is A 187 (Dj Dynamite Edit)
+004. Triston Palma - Joker Smoker(   Читать дальше...   )Жанр: Dubstep, Latin, Future HouseПродолжительность: 10:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343DFE00ED99685BE900E2D966F6609E8B28A495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367611   (914969) от 16.03.2020
 
 VA - Зайцев.нет Лучшие новинки Марта (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -533,168 +695,6 @@ VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097265   (915850) от 26.01.2017
-
-VA - Хиты в тачку (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Те100стерон (Тестостерон) - Ты Ангел 3:04
-002. Денис Кочержук - Нежность Твоих Губ 3:48
-003. Дарья Кумпаньенко - 120 Ударов В Минуту 3:11
-004. Moyyo - Любил Тебя Я 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F305D073B097C0F326F827F1B0770CB0DED4E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097242   (915852) от 26.01.2017
-
-VA - Душевные хиты на любой вкус (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Милена Дейнега - Я ждала
-02. Александр Поддубный - Без суеты
-03. Andrey Bo feat. Amina & Nell Mc - Сердце (feat. Amina & Nell Mc; Radio Mix)
-04. МурKISS - Мачо(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749DE5F15652A65156825CCB8680D29B85339AAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097088   (915868) от 26.01.2017
-
-VA - Союз хитов зимний Выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915868.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Chainz - Shake It For Me 3:55
-002. Черешня - Мятный Чай 3:27
-003. John Legend - Start A Fire 3:12
-004. Виталий Козловский - Мое Желание 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B43958BBA86F088181CF1C8F442623B82B338A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097063   (915874) от 26.01.2017
-
-VA - Intergalactik Highway: Space Mix (2017) [MP3|201-320 Kbps] <SpaceSynth, SynthPop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alphawave - Underwater World
-002. Camouflage - Shine
-003. Cosmologia - Eternal Seeker
-004. DMC - Noisy Pillars(   Читать дальше...   )Жанр: SpaceSynth, SynthPop, ElectronicПродолжительность: 10:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81362E9F71817A62BBFB5770B5560E0CBAE8D10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097091   (915982) от 26.01.2017
-
-VA - Я слушаю шансон. Зимний выпуск. Версия №3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915982.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Страна 4:23
-002. Татьяна Козловская - Какая Меня Муха Укусила 5:14
-003. Парень Из Союза - Озоновый Слой 5:40
-004. Елена Ваенга & Интарс Бусулис - Нева 5:11(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FA503FAAD92423A65A443D1E7B877E160EE54F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097086   (916026) от 26.01.2017
-
-VA - Зимний русский музобоз. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916026.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Гена Селезнев - Мира Мало 2:56
-002. Hann - Счастливый Случай 3:17
-003. Tiana - Без Лишних Истерик 3:17
-004. Andre Durgaryan - Любовь Между Нами 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98B5DDE8F7530C5CB2058E6F85FFF808C3E5D17
 ```
 
 

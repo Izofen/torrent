@@ -1,3 +1,84 @@
+###  Публикация: 1133524   (695129) от 12.05.2017
+
+Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dancer (5:48)
+02. Killing Me Softly (6:06)
+03. Comparsita (4:14)
+04. Saturday Night (4:19)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECF70AE339A1F95E7DF6CC25FAA22B5D9D037F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221353   (695143) от 24.04.2018
+
+Dennis Garcia - Jive To Stay Alive (1977) LP [MP3|320 Kbps] <Electronic,  Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Balls (3:08)
+02. Electrons, Neutrons, Protons & Morons (1:59)
+03. You Can Be Anything (4:36)
+04. Morrocan Roll (3:19)(   Читать дальше...   )Жанр: Electronic,  Synth-pop, DiscoПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80846B6566346A74C8B2422AA728D5436D2BEDA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568305   (695355) от 11.03.2019
+
+VA - Metal Ballads Vol. 1-2 (1993) [MP3|320 кб/с]<Rock| Metal Ballads>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695355.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Metallica - Nothing Else Matters (6:31)
+02. Lita Ford & Ozzy Osbourne - Close My Eyes Forever (4:42)
+03. Manowar - The Crown And The Ring (Lament Of The Kings) (4:49)(   Читать дальше...   )Жанр: Rock, Metal BalladsПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428FFEC773EDD2BE5B446BFC5D5721F023666462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288486   (695669) от 11.03.2019
 
 VA - I Can See Clearly Now - Top-Oldies Cover-Versions Vol. 2 (1994) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Pop, Cover>
@@ -128,6 +209,30 @@ Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CAD0173D829B4617E249884036B3E5B9D453F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211566   (696215) от 19.06.2010
+
+Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_696215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:07:09
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -587,114 +692,6 @@ Danielle Bradbery (Даниэль Брэдбери) - The Voice: The Complete Se
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C772AEF3D6FB51DD0CADCDFF604FA45A363E88F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132768   (698869) от 10.05.2017
-
-The Korvids - The Korvids (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Faith (03:49)
-02. Spyboy (03:33)
-03. Tender Tyrannies (04:54)
-04. Slouch (04:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D45206540977D2F5786F6AC755E6EB2DEE5E3B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132939   (698870) от 10.05.2017
-
-VA - Space Oddities (2008) CD, Vol. 1 [MP3|320 Kbps] <Electronic, Experimental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roland Bocque - Exotique (2:32)
-02. Jean Pierre Decerf & Gerard Zajd - Reaching The Infinite (3:23)
-03. Alan Shearer - Sons Of The Snake (5:24)
-04. Phil Davies & Christopher Ried - Muscle And Heat (4:00)(   Читать дальше...   )Жанр: Electronic, Experimental, DiscoПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3202F6DD6387E481AD3DA960F3068D8730AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287876   (699376) от 09.03.2019
-
-Dido - Still On My Mind (2019) BMG [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Folk, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Hurricanes (5:17)
- 02/12. Give You Up (3:22)
- 03/12. Hell After This (3:28)
- 04/12. You Don't Need a God (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Folk, DowntempoПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC496B1CBBBB5FB9E51406DD889A224526EB3AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287886   (699631) от 09.03.2019
-
-Demis Roussos - Forever And Ever (2002) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. My Friend the Wind
-02. Lovely Lady of Arcadia
-03. Summerwine(   Читать дальше...   )Жанр: PopПродолжительность: 02:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
 ```
 
 

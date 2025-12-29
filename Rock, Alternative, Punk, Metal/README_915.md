@@ -1,3 +1,108 @@
+###  Публикация: 1139211   (660185) от 02.06.2017
+
+Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|image + .cue] <Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660185.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guitar Craft Theme I: Invocation
+2. The Tight Muscle Party at Love Beach - Robert Fripp, Essex, Andrew
+3. Chords That Bind
+4. Guitar Craft Theme III: Eye of the Needle(   Читать дальше...   )Жанр: Prog-RockПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902731   (660214) от 29.05.2015
+
+Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Prometheus (00:05:06)Жанр: Symphonic Power Metal |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603639D47D0D6C09ABF3B2F23E6EDFBC1F484D65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902801   (660223) от 29.05.2015
+
+Lou Pardini - Look The Other Way (1998) [FLAC|Lossless]<AOR, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Late Than Never (5:23)
+02. We've Got So Far To Go (4:43)
+03. Love Is A Hurtin' Thing (4:54)
+04. Time Out For Love (4:25)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012B7144FB6AD8CDB3A48B400DF68051B0A877C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902621   (660231) от 29.05.2015
+
+Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From A Frozen Wasteland
+2. Hunter Of The Celestial Sea
+3. Son Of Phoebus
+4. A Ghost In Gleaming Stars(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 02:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540FA5D115356B545D1115F3C713C25CD7C6EC6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538579   (660259) от 23.03.2022
 
 Andi The Wicked - Sexually Transmitted Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Neo-Classical Metal, Instrumental>
@@ -361,6 +466,33 @@ magnet:?xt=urn:btih:14F83D044D638D3787289E817C300271A7532097
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513853   (660378) от 22.06.2012
+
+Bongripper - 5 albums (2005-2010) [FLAC|Lossless] <Sludge Doom Metal, Stoner, Post-Metal, Drone, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_660378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail (13:44)
+02. Satan (11:37)
+03. Worship (16:00)
+04. Doom (11:53)2005-2010Жанр: Sludge Doom Metal, Stoner, Post-Metal, Drone, ExperimentalПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514121   (660386) от 22.06.2012
 
 Black Sabbath - Dehumanizer & Paranoid (Deluxe Expanded Edition) (1970&1992) [MP3|320 кб/с]<Hard Rock>
@@ -380,6 +512,65 @@ Black Sabbath - Dehumanizer & Paranoid (Deluxe Expanded Edition) (1970&1992) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48AE3A4E841DBC55A4E09317D3345B7D4D0B7E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513445   (660452) от 22.06.2012
+
+EyeHateGod - 7 albums (1992-2006) [FLAC|Lossless] <Sludge Metal, Doom Metal, Sludgecore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_660452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Methamphetamine (01:33)
+02. Serving Time In The Middle Of Nowhere (03:29)
+03. Sabbath Jam (06:05)
+04. Age Of Bootcamp (05:33)
+05. I Am The Gestapo (05:17)
+06. Jackass In The Will Of God (live) (02:50)
+07. Revolution - Revolation (live) (04:29)
+08. International Narcotic (04:08)
+09. 36 Beers And A Ball Of String (01:36)
+10. Turn Troubled Tables (04:36)1992-2006Жанр: Sludge Metal, Doom Metal, SludgecoreПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512711   (660532) от 22.06.2012
+
+Pentemple - O))) Presents (2008) [FLAC|Lossless] <Drone Doom / Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_660532.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pazuzu 1 (22:33)
+02. Pazuzu 2 (20:10)2008Жанр: Drone Doom / Black MetalФормат: 2×CD, AlbumПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -521,192 +712,6 @@ Unruly Child - Unruly Child (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA03A9E9FB3DAC5C88E3819B136CA8119C891203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538558   (661275) от 22.03.2022
-
-Moxy - 6 albums (1975-2015) [FLAC|Lossless|image + .cue | tracks + .cue ] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенда канадской хард-рок сцены группа Moxy образовалась в 1974 году на обломках Leigh Ashford, коллектив, взяв себе имя Moxy, приступил к записи дебютного сингла Can't You See I'm A Star. Многообещающий звук позволил подписать контракт с Polydor Records. Свою дебютную пластинку, которую записывали в Калифорнии, группа продюсировали сами, В той же студии записывался (   Читать дальше...   )--------------------------
-
-01. Midnight Flight (3:35)
-02. Can't You See I'm a Star (3:36)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 04:25:35|
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE3038F4F9A62175911C34ED64F3CDBB10D2487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538768   (661280) от 22.03.2022
-
-In Loving Memory - The Withering (2022) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stellar Runaway (8:10)
-02. Lead Clouds (7:38)
-03. The Dance Of Moons (8:26)
-04. Dawn Of Misery (7:38)(   Читать дальше...   )Жанр: Melodic Doom Metal, Death MetalПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3652EB83DC86D2FD84B2D849B0D85CB5868A9840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138996   (661309) от 01.06.2017
-
-Сhris De Вurgh - Fоotstерs + Fоotstерs 2 (2008, 2011) 2CD [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Steps (1:09)
-02. Turn, Turn, Turn (3:29)
-03. The Long And Winding Road (3:35)
-04. Africa (4:16)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7A6822423EA5F50A1097A12A2898B79C7688E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341048   (661340) от 25.05.2011
-
-Волга-Волга - 6 Альбомов (2002-2009) [MP3|128-320 kbps]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk-RockПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC1DF5D05AE25C3D794146312433E40D3AB7D98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538577   (661373) от 22.03.2022
-
-Airacobra - Midwestern Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Midwestern Steel
-2.Nailed to the Thieves Cross
-3. Airacobra
-4. You Belong to the Earth(   Читать дальше...   )Жанр: Blackened Heavy MetalПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9AB73FBD8426B0C4D87054E0BB2D1E51EC43A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538638   (661380) от 22.03.2022
-
-Antonio Giorgio - Between Light & Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gothic Church (Chambers of Gold) (00:05:39)
-02 - Gates of Doom (00:01:57)
-03 - Hell on Earth (Land of the Dead) (00:06:01)
-04 - Brutal Planet (00:04:51)(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F29B6874411ACAB1AA1BDD78534A17A2D17FBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538634   (661381) от 22.03.2022
-
-Achelous - The Icewind Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Northern Winds (00:06:06)
-02 - Flames of War (00:04:07)
-03 - Savage King (00:04:52)
-04 - Mythril Hall (00:04:19)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E9180E2A7A3354A5A85E9351C7DCB5274BC82E
 ```
 
 

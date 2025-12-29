@@ -1,3 +1,486 @@
+###  Публикация: 1122513   (798824) от 05.04.2017
+
+VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean Waves (2017) [MP3|320 Kbps] <New Age, Chillout, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Crystal Sounds Divine - Relaxing Ocean Waves
+02. Calming Water Cosort - Energy Flow of Nature
+03. Tropical Ocean Waves Oasis - Beautiful Ocean Waves
+04. Relaxing Nature Sounds Collection - Chakra Alignment(   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122501   (798844) от 05.04.2017
+
+VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midori - The Rivers Of Home
+02. Medwyn Goodall - The Fire Dance
+03. Florie Brown - Garrai Na Bhfeileoig/The Hunters Purse/June Apple/Silver Spire
+04. Saor Patrol - Toomtabard(   Читать дальше...   )Жанр: New Age, Celtic, Folk, WorldПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71DCB04F7BA328304D9E1DDD9FC78729B1134D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122372   (798852) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A10050EC48927144818811B74EA3498EAC786BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121914   (799118) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (01:59)
+02. Heatseeker (03:32)
+03. Alone in the White (03:31)
+04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE36B725F3207A4C1B3965DC411A4C9F0ECE8DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121905   (799183) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:18)
+02. We Are the Division (03:45)
+03. Precinct Siege (04:40)
+04. The Garden (05:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B338AC4AF168703D6B69D81E634F17DC7159A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121913   (799196) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (01:59)
+02. Heatseeker (03:32)
+03. Alone in the White (03:31)
+04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16436D53A904EA6F1F023239F5ABA9B24B40EFCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121908   (799197) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:18)
+02. We Are the Division (03:45)
+03. Precinct Siege (04:40)
+04. The Garden (05:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DACCD869CE9C7D00ECEA4F36D087564F3538D15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121803   (799220) от 04.04.2017
+
+Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holly Jolly Christmas
+02. So This Is Christmas
+03. We Wish You A Merry Christmas/Feliz Navidad
+04. Jingle Bell Rock(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272439   (799394) от 03.01.2019
+
+Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Main Theme. 2,13
+03. Narrative 02.    9,27
+04. Schindelgeist. 14,5
+05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273797   (799396) от 03.01.2019
+
+Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down to the Moon 02:27
+02. Moon Dance 04:10
+03. Steam Forest 04:59
+04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121740   (799631) от 03.04.2017
+
+Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic (05:42)
+02. Occulta Mysteria (05:23)
+03. Hypnosis (06:03)
+04. Lakota Myths (05:23)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121218   (800022) от 02.04.2017
+
+Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You See Me 2 Fanfare (03:20)
+02. Now You See Me 2 Main Titles (03:01)
+03. 300 Seconds (07:26)
+04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D734CBC8CC082A022960D14D1227A9B89DB31A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121221   (800026) от 02.04.2017
+
+Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You See Me 2 Fanfare (03:20)
+02. Now You See Me 2 Main Titles (03:01)
+03. 300 Seconds (07:26)
+04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDBCB21C4D32E23E87DD1808CB27309A6724755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120702   (800324) от 02.04.2017
+
+Mark Mancina, VA - Moana / Моана (Оригинальный саундтрек) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Foa'i - Tulou Tagaloa (00:52)
+02. Vai Mahina - An Innocent Warrior (01:37)
+03. Денис Клявер - Дом родной (03:30)
+04. Зинаида Куприянович - Что меня ждет (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC844DABD9D997E66CEC77949CB26AD0945EE33D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120729   (800327) от 02.04.2017
+
+Systems In Blue - Symphony In Blue: The Very Best Of (2011) 2CD [MP3|320 Kbps] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800327.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. System In Blue (3:29)
+02. Sexy Ann (3:43)
+03. Jeannie Moviestar (Single Version) (3:40)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 02:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C03D36AC745BB7EC865013883415CFD8B19EE2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199720   (800348) от 17.01.2018
+
+Артель Роса - Саночки (2017) Single [MP3|320 Kbps] <Russian Urban Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. СаночкиЖанр: Russian Urban FolkПродолжительность: 00:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598A14291FD9371694DC00FA62DD8307E6519BF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121231   (800424) от 02.04.2017
+
+VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lele Marchitelli - Cardinals (02:12)
+02. Lele Marchitelli - Fear of God (03:08)
+03. Lele Marchitelli - Later (01:50)
+04. Lele Marchitelli - My Destiny (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA5A88CBFF584AC13F5BA55E5582C33DADAEACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121075   (800425) от 02.04.2017
+
+David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Was Different (03:49)
+02. Doing a Good Thing (02:17)
+03. 3 Suspects (02:11)
+04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120737   (800439) от 02.04.2017
 
 Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Instrumental>
@@ -209,492 +692,6 @@ Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120763   (800551) от 02.04.2017
-
-Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весной Волга разольётся
-02. Гони, ямщик
-03. Это было давно
-04. Вы не вейтесь, чёрны кудри(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:54.38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121069   (800552) от 02.04.2017
-
-Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Cave & Warren Ellis - Comancheria (02:05)
-02. Townes Van Zandt - Dollar Bill Blues (03:01)
-03. Nick Cave & Warren Ellis - Mama's Room (02:49)
-04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6089A73942D97E7935B6E0FB370AAD026222C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273432   (800573) от 01.01.2019
-
-Mogwai - Kin (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Post Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eli's Theme (03:22)
-02. Scrap (02:50)
-03. Flee (04:56)
-04. Funeral Pyre (03:18)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A0C139755CCEBA8747434C407B4544FA8C4872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120969   (800615) от 02.04.2017
-
-Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tramuntana (3:35)
-2. La Riera (7:40)
-3. Carpe Diem (1:17)
-4. Ibro (2:54)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160A13A15B43FCDD1D79B95B09133433FD2DEB25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506245   (800976) от 30.10.2021
-
-Eguana & Qeight - The Book of Changes (2021) [MP3|320 Kbps] <Electronic, Downtempo>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace and Love
-02. Wishmaster
-03. Genesis
-04. Deep Revelation(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5444F526FF5F7C5AC0C21A813519F71CECC04944
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506178   (801041) от 30.10.2021
-
-Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (From "Titanic")
-02. Everything I Do, I Do It for You (From "Robin Hood: Prince of Thieves")
-03. Beauty and the Beast (From "Beauty and the Beast")
-04. I Will Always Love You (From "The Bodyguard")(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 07:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D970678FC89FCD425B99DABC5D89154D22D22B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199485   (801080) от 16.01.2018
-
-Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Beginning (4:28)
-02. Finding And Founding (4:49)
-03. Long, Long Trip (4:28)
-04. Inside (4:27)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0042972EB5B3FBBEAD846A7532803E87BEBC7D1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199611   (801093) от 16.01.2018
-
-Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantasmagorical Voyage (3:40)
-02. The Anasazi (3:57)
-03. We Have Only Come to Dream... (3:37)
-04. 1492 (2:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2398322E9AC0ADF03889D79E185D9EE196D9A8DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120288   (801195) от 01.04.2017
-
-VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Трошин - Подмосковные вечера
-02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
-03. Тамара Синявская - Катюша
-04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384631   (801678) от 21.05.2020
-
-Евгений ( Zagot ) Загот - Парад планет  (2005) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro ( Ambient Dream )
-02. Париж
-03. Я тебя читаю
-04. Аквамарин(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384563   (801687) от 21.05.2020
-
-LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber Music>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight (feat. GABI) (03:52)
-02. Wave (04:11)
-03. INTP (03:48)
-04. ABBA (04:34)(   Читать дальше...   )Жанр: Avant - Folk, Chamber MusicПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199103   (801690) от 15.01.2018
-
-New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jambalaya  (03:03) 
-02. Rain Rain  (02:52) 
-03. El Condor Pasa  (02:36) 
-04. Yesterday Once More  (03:26) (   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0EE62643A855F09AC04254B6B7AD355BABD3C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198988   (801720) от 15.01.2018
-
-Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras, Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upa Brahmani 07:29
-02. Vayavindrashca 08:20
-03. Upa Nah Savana 06:16
-04. Mahanabhistirojasa 07:13(   Читать дальше...   )Жанр: Meditative, Mantras, ChantsПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87410EE0D3D63784A675897A0558B2899139D8E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199204   (801773) от 15.01.2018
-
-Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Sri Rama (7:05)
-02. Om Shrim Swaha (7:09)
-03. Yasmin Vishvani (5:21)
-04. Om Tare Tare (7:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A612A52EE519974B4688A2D3D0F0F230B786F57D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120627   (801797) от 31.03.2017
-
-VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenji Kawai - Utai IV: Reawakening (Steve Aoki Remix) (04:30)
-02. Johnny Jewel - The Hacker (03:24)
-03. Boys Noize - Cathryn's Peak (03:25)
-04. DJ Shadow - Scars (feat. Nils Frahm) (03:35)(   Читать дальше...   )Жанр: Soundtrack, Dance & ElectronicПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD333C869FAD0E1A65D5BE63165445032CE37D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120625   (801881) от 31.03.2017
-
-VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack, Dance & Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenji Kawai - Utai IV: Reawakening (Steve Aoki Remix) (04:30)
-02. Johnny Jewel - The Hacker (03:24)
-03. Boys Noize - Cathryn's Peak (03:25)
-04. DJ Shadow - Scars (feat. Nils Frahm) (03:35)(   Читать дальше...   )Жанр: Soundtrack, Dance & ElectronicПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2307FAD3A666E4D2E066594E357E4E5468FE2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120304   (801967) от 31.03.2017
-
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [FLAC|Lossless|image + .cue] <Disco, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Love
-02. Phonic
-03. Cloe
-04. Deauville(   Читать дальше...   )Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B59C6C227A3FE2F7E89653750333B38FBE774E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010134   (801981) от 25.04.2016
-
-Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб/с] <Harp, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of Death	(7:12)
-02. Hotel California	(4:57)
-03. Eye of the Tiger	(2:40)
-04. The Unforgiven	(4:58)(   Читать дальше...   )Жанр: Harp, InstrumentalПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
 ```
 
 

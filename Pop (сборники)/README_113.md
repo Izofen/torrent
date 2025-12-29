@@ -1,3 +1,30 @@
+###  Публикация: 1100742   (893047) от 08.02.2017
+
+VA - Снежный хит-парад. Русские хиты выпуск №6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893047.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вероника Андреева - Я Люблю Своего Мужа 3:30
+002. Велинская - Кома 2:45
+003. Helena-Shadia Feat. Cj One-X - Давай Сейчас Помечтаем 3:38
+004. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E701E59D5A82487F8C951C95EC8363957CF25E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493755   (893396) от 04.09.2021
 
 VA - Русское Радио. Лучшее '2021 (04.09.2021) (2021) [MP3|256 Kbps] <Поп>
@@ -658,39 +685,6 @@ VA - Музыкальный плен. Сборник № 10 (2017) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8B607AD15D2BD5DC03747292AA29BF338A07E23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637305   (900391) от 31.03.2013
-
-VA - Хит парад русских Ди Джеев (2013) [MP3|224 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900391.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ALika Korol Lir feat. Dj Pomeha - Cпешу К Тебе (Radio Edit) (3:53)
-2. Anna Fox & Dj Val - Хочу Кричать (Dj Virus Remix) (5:03)
-3. Dj Niki feat. Ika - Так Люблю (Radio Edit) (3:17)
-4. Катя Чехова - Мечтая (Dj Slider & Dj Magnit Radio Record Mix) (2:59)
-5. Оксана Почепа - Стаи Птиц (Dj Audiophil Remix) (6:29)
-6. Dj Boyko & Dj Noiz Feat. Katy Queen - Между Нами (Radio Mix) (2:50)
-7. Dj Glushkov & Zimin feat. York - Улетаю (Radio Edit) (3:57)
-8. Lena Volna - Улететь (Dj Musagitoff Remix) (3:50)
-9. Ксения Суворова - Это Стоп (Dj Shamoff Remix) (5:09)
-10. Слава - Люди Любят (Dj Vengerov Remix) (3:19)Жанр: Dance, Club, PopПродолжительность: 06:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F7C6DB7383AA1035C96E9F304319C045BC06AC
 ```
 
 
